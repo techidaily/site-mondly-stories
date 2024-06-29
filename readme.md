@@ -1,6 +1,6 @@
-# TechiDaily
+# Mondly Stories Site
 
-Welcome to [https://android-transfer.techidaily.com](https://android-transfer.techidaily.com)
+Welcome to [https://mondly-stories.techidaily.com](https://mondly-stories.techidaily.com)
 
 ## Publish
 
