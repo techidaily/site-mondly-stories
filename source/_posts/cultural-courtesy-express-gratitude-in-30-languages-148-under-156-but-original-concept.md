@@ -1,7 +1,7 @@
 ---
 title: "Cultural Courtesy: Express Gratitude in 30 Languages (148) [Under 156 but Original Concept]"
-date: 2024-06-26 19:18:26
-updated: 2024-06-28 10:22:54
+date: 2024-06-28T08:18:00.838Z
+updated: 2024-06-29T08:18:00.838Z
 tags:
   - speak
   - english
@@ -110,3 +110,24 @@ thumbnail: https://thmb.techidaily.com/a926f3585163fc206a043d86defc31e04aa0b8209
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://mondly-stories.techidaily.com/bangla-unlocked-10-minute-daily-learning-sessions/"><u>Bangla Unlocked: 10-Minute Daily Learning Sessions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pronunciation-pathways-from-canadian-twang-to-british-cockney/"><u>Pronunciation Pathways: From Canadian Twang to British Cockney</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/passionate-prose-the-bella-notte-way/"><u>Passionate Prose: The Bella Notte Way</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/intro-to-urdu-vital-linguistic-tools-for-newcomers/"><u>Intro to Urdu: Vital Linguistic Tools for Newcomers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/verbalrealms-dive-into-new-worlds-of-language-learning/"><u>VerbalRealms: Dive Into New Worlds of Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/arabic-mastery-top-6-reasons-with-mondlys-virtual-classes/"><u>Arabic Mastery: Top 6 Reasons with Mondly's Virtual Classes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581141446-experience-hindi-like-never-before-8-fantastic-mondly-reasons/"><u>Experience Hindi Like Never Before: 8 Fantastic Mondly Reasons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comenzar-a-conocer-el-tiempo-en-espanol/"><u>Comenzar a Conocer El Tiempo en Español</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-can-honor-v-pursemirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Honor V PurseMirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-remove-background-distractions-top-free-online-blur-tools/"><u>Updated Remove Background Distractions Top Free Online Blur Tools</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/eo-innovation-pivotal-tech-to-elevate-your-vids-for-2024/"><u>[New] SEO Innovation  Pivotal Tech to Elevate Your Vids for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-expert-director-of-visuals-and-music/"><u>[New] 2024 Approved  Expert Director of Visuals and Music</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-nokia-130-music-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Nokia 130 Music Phones with/without a PC</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ct-your-strategy-top-rated-techniques-for-video-marketing-for-2024/"><u>Perfect Your Strategy  Top-Rated Techniques for Video Marketing for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-in-depth-look-at-auditory-cutting-techniques/"><u>In 2024, In-Depth Look at Auditory Cutting Techniques</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-11-best-pokemon-go-spoofers-for-gps-spoofing-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>In 2024, 11 Best Pokemon Go Spoofers for GPS Spoofing on Apple iPhone 6 | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-pause-life360-location-sharing-for-apple-iphone-12-pro-max-drfone-by-drfone-virtual-ios/"><u>How To Pause Life360 Location Sharing For Apple iPhone 12 Pro Max | Dr.fone</u></a></li>
+</ul></div>

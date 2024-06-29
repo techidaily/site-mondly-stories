@@ -1,7 +1,7 @@
 ---
 title: "Conversational Openers: Starting Conversations in China"
-date: 2024-06-27 14:49:43
-updated: 2024-06-28 11:46:21
+date: 2024-06-28T08:11:29.869Z
+updated: 2024-06-29T08:11:29.869Z
 tags:
   - speak
   - english
@@ -115,3 +115,27 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-language-map-of-vietnamese-expressions/"><u>The Ultimate Language Map of Vietnamese Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-leapfrogging-6-steps-to-full-engagement-in-a-new-tongue/"><u>Linguistic Leapfrogging: 6 Steps to Full Engagement in a New Tongue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ultra-fast-language-learning-secrets/"><u>Ultra-Fast Language Learning Secrets</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-israels-culture-key-expressions-for-your-visit/"><u>Mastering Israel's Culture: Key Expressions for Your Visit</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/masterful-messaging-elevate-enterprise-success-stories/"><u>Masterful Messaging: Elevate Enterprise Success Stories</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/intercultural-harmony-skills-for-successful-global-engagement/"><u>Intercultural Harmony: Skills for Successful Global Engagement</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-significance-of-ai-in-modern-educational-practices/"><u>The Significance of AI in Modern Educational Practices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/reflecting-on-a-decade-mondlybacks-filter-mastery/"><u>Reflecting On A Decade: MondlyBack’s Filter Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-passion-italys-romantic-flirtations/"><u>Embrace Passion: Italy's Romantic Flirtations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-education-shines-mondly-and-apples-shared-success/"><u>Global Education Shines: Mondly and Apple's Shared Success</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-honor-magic-5-lite-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Honor Magic 5 Lite | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-enhancing-your-creative-vision-iphones-new-camera-tools-for-2024/"><u>[New] Enhancing Your Creative Vision  IPhone's New Camera Tools for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-overcoming-a-stalled-obs-video-capture-process/"><u>[Updated] Overcoming a Stalled OBS Video Capture Process</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/mastering-voice-alteration-techniques-for-enhanced-competitive-play-in-the-world-of-free-fire-gaming-for-2024/"><u>Mastering Voice Alteration Techniques for Enhanced Competitive Play in the World of Free Fire Gaming for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-capture-your-games-in-stunning-detail-on-windows-11/"><u>[New] In 2024, Capture Your Games in Stunning Detail on Windows 11</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-zero-price-windows-desktop-snapping-tutorials/"><u>[New] In 2024, Zero Price  Windows Desktop Snapping Tutorials</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/insightful-illustration-how-to-record-and-preserve-your-playthroughs-in-roblox-using-macos-for-2024/"><u>Insightful Illustration  How to Record & Preserve Your Playthroughs in Roblox Using MacOS for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-hone-your-skills-how-to-seamlessly-post-videos-to-instagram-via-desktop/"><u>[New] 2024 Approved  Hone Your Skills  How to Seamlessly Post Videos to Instagram via Desktop</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-content-creators-dilemma-which-site-reigns-vimeo-youtube-in-2024/"><u>[Updated] Content Creators' Dilemma  Which Site Reigns - Vimeo, YouTube, In 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-top-10-games-like-gta-v/"><u>[Updated] Top 10 Games Like GTA V</u></a></li>
+</ul></div>

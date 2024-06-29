@@ -1,7 +1,7 @@
 ---
 title: Australian Vernacular Vocabulary Compendium
-date: 2024-06-25 17:21:49
-updated: 2024-06-28 10:19:59
+date: 2024-06-28T07:55:46.864Z
+updated: 2024-06-29T07:55:46.864Z
 tags:
   - speak
   - english
@@ -313,3 +313,27 @@ Get Mondly now and speak any language like you never dreamed you would ![Give it
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://mondly-stories.techidaily.com/mastering-languages-via-screen-top-tactics-and-guidance/"><u>Mastering Languages via Screen: Top Tactics & Guidance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-punctuation-part-2-a-guide-to-understanding-and-using-english-contractions/"><u>Mastering Punctuation, Part 2: A Guide to Understanding and Using English Contractions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dual-linguistic-learning-pathway/"><u>Dual Linguistic Learning Pathway</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-greetings-compendium/"><u>Multilingual Greetings Compendium</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/soft-spoken-seduction-the-roman-approach/"><u>Soft-Spoken Seduction: The Roman Approach</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-vietnam-with-essential-vocabulary/"><u>Navigating Vietnam with Essential Vocabulary</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-russian-grasping-number-concepts/"><u>Decoding Russian: Grasping Number Concepts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-invests-in-technology-for-enhanced-learning-experience/"><u>Mondly Invests in Technology for Enhanced Learning Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577592209-master-languages-easily-save-big-with-our-95-promo/"><u>Master Languages Easily, Save Big with Our 95%% Promo!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-9-insights-on-english-grammar-by-a-pro-esl-speaker/"><u>Top 9 Insights on English Grammar by a Pro ESL Speaker</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/masterclass-on-blending-sound-and-sight-for-media-professionals/"><u>Masterclass on Blending Sound & Sight for Media Professionals</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-music-files-on-vivo-s17-pro-by-fonelab-android-recover-music/"><u>Complete guide for recovering music files on Vivo S17 Pro</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-engage-audiences-effortlessly-social-medias-screen-share-guide/"><u>[Updated] In 2024, Engage Audiences Effortlessly  Social Media's Screen Share Guide</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-after-switching-from-oppo-a1-5g-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data After Switching From Oppo A1 5G to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-effortless-youtube-playback-downloading-content-to-idevices/"><u>[New] Effortless Youtube Playback  Downloading Content to iDevices</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/unlocking-made-easy-the-best-10-apps-for-unlocking-your-realme-gt-neo-5-device-by-drfone-android/"><u>Unlocking Made Easy The Best 10 Apps for Unlocking Your Realme GT Neo 5 Device</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-the-art-of-image-detection-opposite-on-facebook-networks/"><u>2024 Approved  The Art of Image Detection Opposite on Facebook Networks</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/top-12-prominent-xiaomi-redmi-a2plus-fingerprint-not-working-solutions-by-drfone-android/"><u>Top 12 Prominent Xiaomi Redmi A2+ Fingerprint Not Working Solutions</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-fine-tuning-focus-on-youtube-threads/"><u>[New] Fine-Tuning Focus on YouTube Threads</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/a-how-to-guide-on-bypassing-apple-iphone-xr-icloud-activation-lock-by-drfone-ios/"><u>A How-To Guide on Bypassing Apple iPhone XR iCloud Activation Lock</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "Cantonese, Macanese & Portuguese: Macau's Languages"
-date: 2024-06-26 20:43:26
-updated: 2024-06-28 10:29:39
+date: 2024-06-28T08:05:07.258Z
+updated: 2024-06-29T08:05:07.258Z
 tags:
   - speak
   - english
@@ -135,3 +135,26 @@ thumbnail: https://thmb.techidaily.com/7190f701d24b2bca2702a5bcd803eaeb74415822a
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://mondly-stories.techidaily.com/germans-premier-learning-portal-mondly-emerges-victorious/"><u>German's Premier Learning Portal - Mondly Emerges Victorious</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/harmonious-hearing-using-tunes-to-learn-new-languages/"><u>Harmonious Hearing: Using Tunes to Learn New Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-ignites-passion-for-learning-engaging-the-worlds-youth/"><u>Mondly Ignites Passion for Learning – Engaging the World's Youth</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-arabic-world-discover-6-compelling-reasons-for-mondly-online-learning/"><u>Dive Into Arabic World - Discover 6 Compelling Reasons for Mondly Online Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578792326-unlock-fluency-discover-the-best-3-multilingual-resources/"><u>Unlock Fluency: Discover the Best 3 Multilingual Resources!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/chronology-of-achieving-linguistic-mastery/"><u>Chronology of Achieving Linguistic Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/becoming-multilingual-at-your-fingertitsps-with-mondlyvr/"><u>Becoming Multilingual at Your Fingertitsps with MondlyVR</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conversational-openers-starting-conversations-in-china/"><u>Conversational Openers: Starting Conversations in China</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dias-del-mes-aprende-de-lunes-a-domingos-en-espanol/"><u>Días Del Mes: Aprende De Lunes a Domingos en Español</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-maximizing-tiktok-traffic-mastering-hashtag-strategies/"><u>In 2024, Maximizing TikTok Traffic  Mastering Hashtag Strategies</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-recording-wonders-the-best-screenshot-tools/"><u>[Updated] In 2024, Recording Wonders  The Best Screenshot Tools</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/cinematography-simplified-fades-made-easy/"><u>Cinematography Simplified  Fades Made Easy</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-microtones-and-monikers-shorts-sound-roles/"><u>[Updated] In 2024, Microtones and Monikers  Shorts' Sound Roles</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-expert-insights-optimal-techniques-for-pc-display-recordings-for-2024/"><u>[New] Expert Insights  Optimal Techniques for PC Display Recordings for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/fake-android-location-without-rooting-for-your-vivo-y78plus-t1-edition-drfone-by-drfone-virtual/"><u>Fake Android Location without Rooting For Your Vivo Y78+ (T1) Edition | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/strategies-for-optimal-ram-in-the-world-of-minecraft-for-2024/"><u>Strategies for Optimal RAM in the World of Minecraft for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-master-upside-down-and-sideways-iphone-photo-rotation/"><u>2024 Approved  Master Upside-Down and Sideways iPhone Photo Rotation</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/say-goodbye-to-cropping-the-definitive-facebook-video-aspect-ratio-guide/"><u>Say Goodbye to Cropping The Definitive Facebook Video Aspect Ratio Guide</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-clearing-the-path-for-smooth-fb-stories-posting-and-playback/"><u>[Updated] Clearing the Path for Smooth FB Stories Posting and Playback</u></a></li>
+</ul></div>

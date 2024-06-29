@@ -1,7 +1,7 @@
 ---
 title: "Johannes Honterus: Messenger of Motivation"
-date: 2024-06-26 20:52:45
-updated: 2024-06-28 10:58:55
+date: 2024-06-28T07:58:04.000Z
+updated: 2024-06-29T07:58:04.000Z
 tags:
   - speak
   - english
@@ -75,3 +75,26 @@ Get Mondly now and speak any language like you never dreamed you would ![Get Mon
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://mondly-stories.techidaily.com/fast-track-french-lingo-for-painters/"><u>Fast-Track French Lingo for Painters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/your-first-encounter-with-german-linguistics-phonetics-and-alphabet-guide/"><u>Your First Encounter with German Linguistics: Phonetics & Alphabet Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/premier-asian-tongues-leading-three-countries/"><u>Premier Asian Tongues: Leading Three Countries</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-the-power-of-multilingualism-with-mondlys-latest-vr-app/"><u>Unlock the Power of Multilingualism with Mondly's Latest VR App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/first-steps-in-spanish-kids-from-preschoolers-to-fifth-graders/"><u>First Steps in Spanish: Kids From Preschoolers to Fifth Graders</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-the-top-5-digital-tools-transforming-language-education/"><u>Explore the Top 5 Digital Tools Transforming Language Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/primary-speaking-language-of-croatia/"><u>Primary Speaking Language of Croatia</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-marauders-guide-to-sea-salt-talk/"><u>The Marauder's Guide to Sea-Salt Talk</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-italys-charm-key-italian-greetings-to-learn/"><u>Embrace Italy's Charm: Key Italian Greetings to Learn</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-media-streamlining-is-a-podcast-or-youtube-better-for-you/"><u>2024 Approved  Media Streamlining  Is a Podcast or YouTube Better for You?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/from-screens-to-stories-vertical-video-mastery-with-fcpx-for-2024/"><u>From Screens to Stories  Vertical Video Mastery with FCPX for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/quick-fixes-for-why-is-my-poco-f5-pro-5g-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Poco F5 Pro 5G Black and White | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-remove-a-previously-synced-google-account-from-your-vivo-y100i-by-drfone-android/"><u>How to Remove a Previously Synced Google Account from Your Vivo Y100i</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-ultimate-guide-to-decreasing-sounds-prominence-in-lumafusion/"><u>[New] The Ultimate Guide to Decreasing Sounds' Prominence in Lumafusion</u></a></li>
+<li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-infinix-note-30-pro-drfone-by-drfone-virtual-android/"><u>Which is the Best Fake GPS Joystick App On Infinix Note 30 Pro? | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-360-degree-retail-exploration-tech/"><u>[Updated] 360-Degree Retail Exploration Tech</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/bypass-activation-lock-on-iphone-15-plus-4-easy-ways-by-drfone-ios/"><u>Bypass Activation Lock On iPhone 15 Plus - 4 Easy Ways</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-unveiling-the-futures-finest-business-strategy-titles-mobilepc/"><u>[Updated] 2024 Approved  Unveiling the Future's Finest Business Strategy Titles (Mobile/PC)</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-ideal-mc-villages-architecture-blueprints/"><u>[Updated] 2024 Approved  Ideal MC Villages Architecture Blueprints</u></a></li>
+</ul></div>

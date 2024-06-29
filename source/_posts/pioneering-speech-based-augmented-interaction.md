@@ -1,7 +1,7 @@
 ---
 title: Pioneering Speech-Based Augmented Interaction
-date: 2024-06-26 12:41:23
-updated: 2024-06-28 10:44:43
+date: 2024-06-28T08:01:56.736Z
+updated: 2024-06-29T08:01:56.736Z
 tags:
   - speak
   - english
@@ -98,3 +98,27 @@ Alex Iliescu, our CEO, spoke about the launch:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://mondly-stories.techidaily.com/1719581081152-mondly-brings-you-a-diverse-new-phrasebook/"><u>Mondly Brings You a Diverse New Phrasebook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/family-friendly-app-of-the-year-mondly-with-filter-and-back-buttons/"><u>Family-Friendly App of the Year: Mondly with Filter and Back Buttons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-russian-counting-patterns-and-formulas/"><u>Discovering Russian Counting Patterns and Formulas</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/6-proven-methods-to-fully-integrate-with-languages/"><u>6 Proven Methods to Fully Integrate with Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/monday-a-dimanche-en-france/"><u>Monday À Dimanche en France</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ensenanza-diaria-semana-completa-en-espanol/"><u>Enseñanza Diaria: Semana Completa en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-bilingual-superpowers-6-highlighted/"><u>Exploring Bilingual Superpowers: #6 Highlighted</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/reaching-new-heights-in-english-with-mondly/"><u>Reaching New Heights in English with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-minute-guide-to-perfecting-japanese-counts/"><u>10-Minute Guide to Perfecting Japanese Counts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-turkish-alphabet-and-pronunciation-a-quick-guide-for-language-learners/"><u>The Turkish Alphabet And Pronunciation: A Quick Guide For Language Learners</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-mastering-the-art-of-watermarking-on-facebook-for-2024/"><u>[New] Mastering the Art of Watermarking on Facebook for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/android-safe-mode-how-to-turn-off-safe-mode-on-asus-rog-phone-8-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Safe Mode - How to Turn off Safe Mode on Asus ROG Phone 8? | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-8-cutting-edge-skins-perfect-for-your-laptop/"><u>2024 Approved  8 Cutting-Edge Skins Perfect for Your Laptop</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-a-step-by-step-guide-to-the-top-20-strategies-for-successful-fb-videos/"><u>[New] In 2024, A Step-by-Step Guide to the Top 20 Strategies for Successful FB Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-unveiling-the-secrets-of-youtube-music-curation/"><u>2024 Approved  Unveiling the Secrets of YouTube Music Curation</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-transform-your-videos-swiftly-with-these-top-8-iphone-apps/"><u>In 2024, Transform Your Videos Swiftly with These Top 8 iPhone Apps</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-quick-solutions-for-the-crashy-windows-11-photos-app/"><u>In 2024, Quick Solutions for the Crashy Windows 11 Photos App</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/ultimate-hd-video-memory-creators-for-2024/"><u>Ultimate HD Video Memory Creators for 2024</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/6-methods-for-switching-from-apple-iphone-15-plus-to-samsung-drfone-by-drfone-transfer-from-ios/"><u>6 Methods for Switching from Apple iPhone 15 Plus to Samsung | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/full-tutorial-to-bypass-your-lava-blaze-pro-5g-face-lock-by-drfone-android/"><u>Full Tutorial to Bypass Your Lava Blaze Pro 5G Face Lock?</u></a></li>
+</ul></div>

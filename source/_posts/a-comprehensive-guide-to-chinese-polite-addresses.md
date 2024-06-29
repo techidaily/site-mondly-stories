@@ -1,7 +1,7 @@
 ---
 title: A Comprehensive Guide to Chinese Polite Addresses
-date: 2024-06-27 13:55:34
-updated: 2024-06-28 11:40:38
+date: 2024-06-28T07:54:49.324Z
+updated: 2024-06-29T07:54:49.324Z
 tags:
   - speak
   - english
@@ -115,3 +115,27 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://mondly-stories.techidaily.com/honterus-an-exemplary-life-story/"><u>Honterus: An Exemplary Life Story</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-efficient-guide-to-swedens-alphabet/"><u>The Efficient Guide to Sweden's Alphabet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/old-salt-lexicon-a-pirates-speaking-guide/"><u>Old Salt Lexicon: A Pirate’s Speaking Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-thanksgiving-day-a-comparative-view/"><u>Global Thanksgiving Day: A Comparative View</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridge-cultures-master-more-languages/"><u>Bridge Cultures: Master More Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transcending-barriers-ten-benefits-of-language-learning/"><u>Transcending Barriers: Ten Benefits of Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lapprentissage-de-lanatomie-les-composants-du-corps-humain-en-francais/"><u>L'Apprentissage De L'Anatomie: Les Composants Du Corps Humain en Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polite-phrasing-a-step-towards-cultural-competence/"><u>Polite Phrasing: A Step Towards Cultural Competence</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/take-your-portuguese-skills-to-new-heights-discover-6-effective-methods/"><u>Take Your Portuguese Skills to New Heights: Discover 6 Effective Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-gaming-revolution-oculus-quests-language-leap-with-mondly/"><u>Global Gaming Revolution: Oculus Quest's Language Leap with Mondly</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-xiaomi-redmi-13c-to-mac-drfone-by-drfone-android/"><u>In 2024, How to Mirror Xiaomi Redmi 13C to Mac? | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/the-mighty-flyers-best-drones-for-maximum-load/"><u>The Mighty Flyers  Best Drones for Maximum Load</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-revolutionize-your-online-audio-with-these-5-methods/"><u>In 2024, Revolutionize Your Online Audio with These 5 Methods</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-instagram-photo-frame-sizing-tips-for-2024/"><u>[Updated] Instagram Photo Frame Sizing Tips for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-12-best-vlogging-cameras-with-a-flip-screen/"><u>[New] 12 Best Vlogging Cameras with a Flip Screen</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-are-you-looking-for-a-way-to-change-the-speed-of-your-videos-without-sacrificing-any-quality-here-are-the-best-video-speed-changers-for-wi/"><u>New 2024 Approved Are You Looking for a Way to Change the Speed of Your Videos without Sacrificing Any Quality? Here Are the Best Video Speed Changers for Windows and Mac for You to Choose From</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/smr-audio-excellence-high-quality-mic-recommendations-for-2024/"><u>[New] ASMR Audio Excellence  High-Quality Mic Recommendations for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-viral-video-showdown-is-it-time-for-likee-to-outshine-tiktok/"><u>[New] 2024 Approved  Viral Video Showdown  Is It Time for Likee to Outshine TikTok?</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-samsung-galaxy-a25-5g-by-drfone-android/"><u>AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Samsung Galaxy A25 5G</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-leading-cloud-storage-vendors-a-comparative-pricing-analysis/"><u>[New] Leading Cloud Storage Vendors  A Comparative Pricing Analysis</u></a></li>
+</ul></div>

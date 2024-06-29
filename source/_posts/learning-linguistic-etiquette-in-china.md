@@ -1,7 +1,7 @@
 ---
 title: Learning Linguistic Etiquette in China
-date: 2024-06-25 23:41:57
-updated: 2024-06-28 10:16:31
+date: 2024-06-28T08:20:56.105Z
+updated: 2024-06-29T08:20:56.105Z
 tags:
   - speak
   - english
@@ -115,3 +115,22 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://mondly-stories.techidaily.com/semaine-francaise-moderne/"><u>Semaine Française Moderne</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/identifying-the-israeli-vernacular/"><u>Identifying the Israeli Vernacular?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sensational-sentences-the-strategy-of-speak-up-lines/"><u>Sensational Sentences: The Strategy of Speak-Up Lines</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/engage-anytime-anywhere-mondly-and-huawei/"><u>Engage Anytime, Anywhere - Mondly and Huawei</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/103-crucial-croatian-expressions-your-translator-on-the-go/"><u>103 Crucial Croatian Expressions: Your Translator On-the-Go!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-multilingualism-with-these-7-afrikaans-advantages-from-mondly/"><u>Embrace Multilingualism with These 7 Afrikaans Advantages From Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/days-of-the-week-in-korean-your-easy-guide/"><u>Days Of The Week In Korean – Your Easy Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-how-to-play-youtube-in-background-on-iphone-and-android/"><u>[New] 2024 Approved  How to Play YouTube in Background on iPhone and Android</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-stepwise-strategies-for-high-quality-time-lapse-videos-in-gopro-studio/"><u>[Updated] Stepwise Strategies for High Quality Time Lapse Videos in GoPro Studio</u></a></li>
+<li><a href="https://location-fake.techidaily.com/8-solutions-to-fix-find-my-friends-location-not-available-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>8 Solutions to Fix Find My Friends Location Not Available On Apple iPhone 12 | Dr.fone</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-elevating-your-online-presence-a-complete-handbook-for-tiktok-name-change/"><u>[New] Elevating Your Online Presence  A Complete Handbook for TikTok Name Change</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-blur-video-online-without-spending-a-dime-a-tutorial-for-2024/"><u>New Blur Video Online Without Spending a Dime A Tutorial for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-xiaomi-redmi-k70-pro-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On Xiaomi Redmi K70 Pro? | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/fix-guide-lost-d3dx939dll-in-windows-11-os/"><u>Fix Guide: Lost D3DX9_39.dll in Windows 11 OS</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-over-120-creative-snapchat-narratives-for-standout-personal-branding/"><u>[New] In 2024, Over 120 Creative Snapchat Narratives for Standout Personal Branding</u></a></li>
+</ul></div>

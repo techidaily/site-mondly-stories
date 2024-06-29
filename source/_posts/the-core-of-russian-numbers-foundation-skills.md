@@ -1,7 +1,7 @@
 ---
 title: The Core of Russian Numbers - Foundation Skills
-date: 2024-06-25 21:50:51
-updated: 2024-06-28 10:41:52
+date: 2024-06-28T07:57:27.900Z
+updated: 2024-06-29T07:57:27.900Z
 tags:
   - speak
   - english
@@ -122,3 +122,27 @@ Not as hard as you’d expect, is it?
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://mondly-stories.techidaily.com/astonish-amalfitans-enjoy-the-richness-of-italian-expressions/"><u>Astonish Amalfitans: Enjoy the Richness of Italian Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/descubriendo-el-mundo-de-los-nombres-de-color/"><u>Descubriendo El Mundo De Los Nombres De Color</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/advance-your-teaching-with-these-top-5-language-apps/"><u>Advance Your Teaching with These Top 5 Language Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/colombias-beacon-of-help-foundation-danny/"><u>Colombia’s Beacon of Help - Foundation Danny</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/santa-claus-a-polyglot-in-red-and-white/"><u>Santa Claus: A Polyglot in Red and White</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ancient-lexicons-ranking-the-worlds-time-tested-tongues/"><u>Ancient Lexicons: Ranking the World’s Time-Tested Tongues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/world-of-words-at-your-fingertips-with-mondly/"><u>World of Words at Your Fingertips with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/achieving-fluency-faster-with-mondly-discover-the-top-10-methods/"><u>Achieving Fluency Faster with Mondly – Discover the Top 10 Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-language-map-of-vietnamese-expressions/"><u>The Ultimate Language Map of Vietnamese Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-oxford-3000-mondly-makes-it-easy-to-learn-the-most-important-english-words/"><u>The Oxford 3000: Mondly Makes It Easy To Learn The Most Important English Words</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-oneplus-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 OnePlus Android SIM Unlock APK</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-2023-facebook-hack-get-your-account-back/"><u>2024 Approved  2023 | Facebook Hack? Get Your Account Back</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/in-2024-top-rated-web-based-solutions-for-vertical-video-editing/"><u>In 2024, Top-Rated Web-Based Solutions for Vertical Video Editing</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-does-instant-subscription-strategy-improve-user-engagement-for-2024/"><u>[Updated] Does Instant Subscription Strategy Improve User Engagement for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-professional-mac-cam-recording-techniques/"><u>In 2024, Professional Mac Cam Recording Techniques</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-forgot-iphone-passcode-again-unlock-apple-iphone-14-without-passcode-now-drfone-by-drfone-ios/"><u>In 2024, Forgot iPhone Passcode Again? Unlock Apple iPhone 14 Without Passcode Now | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-transform-your-footage-effective-strategies-for-cropping-and-export-on-instagram/"><u>[Updated] 2024 Approved  Transform Your Footage  Effective Strategies for Cropping & Export on Instagram</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-unboxing-splice-a-detailed-examination-of-the-video-editing-app/"><u>New In 2024, Unboxing Splice A Detailed Examination of the Video Editing App</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/2024-approved-master-your-musical-score-on-discord-with-our-top-bot-compilation/"><u>2024 Approved  Master Your Musical Score on Discord with Our Top Bot Compilation</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/from-zero-to-million-in-minutes-rapidly-rise-as-an-instagram-influencer-with-these-top-tips-for-2024/"><u>From Zero to Million in Minutes  Rapidly Rise as an Instagram Influencer with These Top Tips for 2024</u></a></li>
+</ul></div>
