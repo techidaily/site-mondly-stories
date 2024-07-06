@@ -1,0 +1,82 @@
+---
+title: Mondly-Pearson Alliance for Advanced Filtering Buttons
+date: 2024-06-28T07:33:54.309Z
+updated: 2024-06-29T07:33:54.309Z
+tags:
+  - speak
+  - english
+  - learning
+categories:
+  - languages
+description: This Article Describes Mondly-Pearson Alliance for Advanced Filtering Buttons
+excerpt: This Article Describes Mondly-Pearson Alliance for Advanced Filtering Buttons
+keywords: Mondly-Advanced Filtering Solutions,High-Performance Button Technology,Enhanced User Interaction Buttons,Premier Filtering System Alliances,Advanced Buttons for Effective Sorting,Mondly-Pearson Smart Filter Innovations,Next-Gen Filter Buttons Technology Alliance
+thumbnail: https://thmb.techidaily.com/dc54f112c78b3afb0110331eb25c5f493a4d3b2149d6ee352dfe8394d4845198.jpg
+---
+
+## Mondly-Pearson Alliance for Advanced Filtering Buttons
+
+**London, 29th April 2022 –** [Pearson](https://www.pearson.com/) , the world’s leading learning company, today announced it has [acquired Mondly](https://plc.pearson.com/en-US/news/pearson-acquires-leading-online-language-learning-platform) , a global online language learning platform. The acquisition will allow Pearson to offer a full range of ways for people to learn and prove their English skills – adding online self-study to its existing diagnosis and learning tools and assessment portfolio.
+
+ Mondly is one of the world’s leading online language learning players, offering consumers high quality learning in English and 40 other languages via its app, website, virtual reality and augmented reality products. Mondly delivers language courses for both professional and personal learning in a combination of more than 1300 language pairs and is consistently ranked as one of the highest rated educational language apps in the app store. It also offers enterprise solutions through MondlyWORKS and has built an award-winning app that helps children learn languages – MondlyKIDS.
+
+ “Today’s acquisition marks another step in our digital strategy, giving us an exciting foothold in the fast growing direct-to-consumer English learning market and building yet more connectivity across the entire Pearson portfolio,” said Andy Bird, chief executive of Pearson.
+
+ “Mondly is a fast growing and profitable business that expands our reach and scale in the language learning market and drives growth for the company. This acquisition is strategically important to the Group as well as being accretive and driving shareholder returns.”
+
+ “Mondly’s mission has always been to make language learning fun, easy and accessible to everyone. We are excited to be joining forces with Pearson, the world’s leading learning company, to help us achieve our goal on a much larger scale. Together we will work to shape the future of learning languages, ” said Alex Iliescu, CEO and co-founder of Mondly.
+
+ Pearson expects this acquisition to accelerate revenue growth from 2023 onwards for our English Language Learning division and continues to expect mid-teens margins for the division by 2025.
+
+ The acquisition enables the company to offer a fully integrated market proposition. It also provides synergies and cross-selling opportunities across the portfolio, such as offering the opportunity to bundle English with upskilling and reskilling products through Pearson’s Workforce Skills division. The Mondly team, including the founders, will join Pearson’s English Language Learning division.
+
+* [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fmondly-joins-pearson%2F&t=Mondly+Joins+Pearson "Share on Facebook")
+* [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
+
+---
+
+## **About Pearson**
+
+ At Pearson, our purpose is simple: to add life to a lifetime of learning. We believe that every learning opportunity is a chance for a personal breakthrough. That’s why our c.20,000 Pearson employees are committed to creating vibrant and enriching learning experiences designed for real-life impact. We are the world’s leading learning company, serving customers in more than 200 countries with digital content, assessments, qualifications, and data. For us, learning isn’t just what we do. It’s who we are. Visit us at pearsonplc.com
+
+## **About Mondly**
+
+ Mondly is a leading language learning platform that has been named “Regional App of the Year” by Facebook, “App of the Day” by Apple, and “Editors’ Choice” by Google Play. Launched in 2014, it quickly became a leading app in the mobile space. According to Statista, Mondly is currently in the Top 5 language learning apps worldwide by number of downloads.
+
+ _Originally published on [Pearson PLC](https://plc.pearson.com/en-US/news/pearson-acquires-leading-online-language-learning-platform) on April 29, 2022._
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://mondly-stories.techidaily.com/speedy-journey-to-numeral-knowledge-in-japan/"><u>Speedy Journey to Numeral Knowledge in Japan</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-lingo-fast-track-to-pronounce-right/"><u>French Lingo Fast-Track to Pronounce Right</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580002711-unlocking-hindi-potential-with-mondly-the-best-reasons-why/"><u>Unlocking Hindi Potential with Mondly: The Best Reasons Why</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-mysteries-of-german-sounds-and-symbols/"><u>Unveiling the Mysteries of German Sounds & Symbols</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/clear-speech-pathway-top-100-english-linguistic-challenges/"><u>Clear Speech Pathway: Top 100 English Linguistic Challenges</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spinning-words-for-worldwide-celebrations/"><u>Spinning Words for Worldwide Celebrations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comparative-linguistics-a-turk-korean-odyssey/"><u>Comparative Linguistics: A Turk-Korean Odyssey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-fiction-starter-pack-top-20-novels-for-newcomers/"><u>French Fiction Starter Pack: Top 20 Novels For Newcomers</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-photo-mosaics-unveiled-a-journey-to-brighter-spaces/"><u>[Updated] Photo Mosaics Unveiled  A Journey to Brighter Spaces</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-conquer-tiktok-with-proficient-voiceovers/"><u>[New] In 2024, Conquer TikTok with Proficient Voiceovers</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-rapid-access-accelerating-vimeo-videos/"><u>[Updated] 2024 Approved  Rapid Access  Accelerating Vimeo Videos</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-no-cash-needed-for-youtube-audio-check-out-this-list-of-23-crackers/"><u>[Updated] No Cash Needed for YouTube Audio? Check Out This List of 23 Crackers</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-the-art-of-livestreaming-seminars-at-no-expense/"><u>[Updated] In 2024, The Art of Livestreaming Seminars at No Expense</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/essential-techniques-for-sizing-up-your-instagram-video-reach/"><u>Essential Techniques for Sizing Up Your Instagram Video Reach</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-dual-angles-debate-vertical-vs-horizontal-fb-videos/"><u>[Updated] Dual Angles Debate  Vertical vs Horizontal FB Videos</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/the-ultimate-guide-to-photo-and-video-collage-software-for-2024/"><u>The Ultimate Guide to Photo and Video Collage Software for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-instant-mirth-mastery-your-shortcut-to-ifunny-memes/"><u>In 2024, Instant Mirth Mastery  Your Shortcut to iFunny Memes</u></a></li>
+</ul></div>

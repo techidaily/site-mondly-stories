@@ -1,0 +1,78 @@
+---
+title: "Two Anniversary: MondlyLanguages, Unforgettable Aspirations"
+date: 2024-06-28T08:07:38.403Z
+updated: 2024-06-29T08:07:38.403Z
+tags:
+  - speak
+  - english
+  - learning
+categories:
+  - languages
+description: "This Article Describes Two Anniversary: MondlyLanguages, Unforgettable Aspirations"
+excerpt: "This Article Describes Two Anniversary: MondlyLanguages, Unforgettable Aspirations"
+keywords: Two Anniversary Celebration,Languages Learning Platform,Personal Language Development Journey,Innovative Educational Experiences in Language Acquisition,Aspirations for Bilingualism and Multicultural Understanding,Interactive Language Learning Technologies (MondlyLanguages),Achieving Linguistic Goals Through Anniversaries
+thumbnail: https://thmb.techidaily.com/e3e57dc288a15eebc6a087ce47534d889b154128f1cec9b763b947b83648c7c9.jpg
+---
+
+## Two Anniversary: MondlyLanguages, Unforgettable Aspirations
+
+ We had a dream. A great dream. We wanted to create something that will positively impact the lives of millions of people around the world. Our passion for technology, design and education inspired us to start working on a language project that was so ambitious, it seemed almost impossible to complete in the beginning.
+
+ Two years ago we made that dream come true. We built a great language learning app and we made it our mission to offer everyone lessons in as many languages as possible.
+
+## On May 28 2014, Mondly
+
+ We started small, but kept thinking big at every step of the way. Our developers, designers, language experts and translators all worked together to build a language learning app that’s easy to use, fun to learn with, and effective in real life situations.
+
+ There were good times and there were difficult times. It was our motivation to build the best language app out there that kept us going. On top of this, the positive feedback that we got from all of you convinced us that we’re doing the right thing.
+
+ We’ve come a long way since the beginning and there’s a lifetime of learning ahead of us.
+
+ With this in mind, we give you an infographic about where Mondly stands today. From here on, sky’s the limit.
+
+Thank you for being a part of our journey ![Mondly - 2 Years Infografic](https://edge.mondly.com/blog/wp-content/uploads/2016/05/2years-Infographic-v3-scaled.png "2 Years Of Mondly Languages 2") ](https://edge.mondly.com/blog/wp-content/uploads/2016/05/2years-Infographic-v3.png)
+
+* [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fhappy-2nd-birthday%2F&t=2+Years+of+Mondly+Languages "Share on Facebook")
+* [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
+
+---
+
+[Download Mondly](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-164&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-164%26utm%5Fsource%3Dblog-post-id-164&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-164%26utm%5Fsource%3Dblog-post-id-164&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-164%26utm%5Fsource%3Dblog-post-id-164&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-164%26mt%3D8 "Download Mondly ")
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://mondly-stories.techidaily.com/make-every-day-a-multilingual-day-with-arabic-and-mondly-onlines-top-6-reasons/"><u>Make Every Day a Multilingual Day with Arabic & Mondly Online's Top 6 Reasons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-spanish-verb-conjugation-primer/"><u>Essential Spanish Verb Conjugation Primer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-an-aussie-essential-slang-and-idioms-guide/"><u>Speak Like an Aussie: Essential Slang & Idioms Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-motivational-force-behind-honterus/"><u>The Motivational Force Behind Honterus</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-language-secrets-top-50-quotations-for-conversation-kickstart/"><u>Latin Language Secrets: Top 50 Quotations for Conversation Kickstart</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigate-global-conversation-skills-mondlys-new-edition/"><u>Navigate Global Conversation Skills: Mondly’s New Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-six-compelling-reasons-for-online-arabic-with-mondly/"><u>Unveiling Six Compelling Reasons for Online Arabic with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daily-dose-of-language-power-mastering-slovak-in-minutes/"><u>Daily Dose of Language Power: Mastering Slovak in Minutes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/young-minds-seamless-acquisition-of-new-languages/"><u>Young Minds: Seamless Acquisition of New Languages</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-video-repair-tool-to-fix-and-repair-corrupted-video-files-of-smart-8-hd-by-stellar-video-repair-mobile-video-repair/"><u>Best Video Repair tool to Fix and Repair Corrupted video files of Smart 8 HD</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-smooth-sailing-the-ultimate-guide-to-free-online-video-stabilizers-for-2024/"><u>Updated Smooth Sailing The Ultimate Guide to Free Online Video Stabilizers for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-your-ultimate-guide-to-streaming-google-meet-on-youtube/"><u>[Updated] 2024 Approved  Your Ultimate Guide to Streaming Google Meet on YouTube</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-mac-webcam-mastery-quality-in-simplicity/"><u>[New] Mac Webcam Mastery  Quality in Simplicity</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-transform-your-photos-into-mesmerizing-music-videos-with-these-top-picks/"><u>Updated Transform Your Photos Into Mesmerizing Music Videos with These Top Picks</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-revisiting-streamers-for-enhanced-experience/"><u>In 2024, Revisiting Streamers for Enhanced Experience</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-itel-a05s-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Itel A05s Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-ideal-video-capture-apps-for-educators/"><u>[New] Ideal Video Capture Apps for Educators</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-virtually-vault-securing-your-screened-shows-online-for-2024/"><u>[Updated] Virtually Vault  Securing Your Screened Shows Online for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-proven-tactics-increasing-your-instagram-video-traffic/"><u>[Updated] Proven Tactics  Increasing Your Instagram Video Traffic</u></a></li>
+</ul></div>

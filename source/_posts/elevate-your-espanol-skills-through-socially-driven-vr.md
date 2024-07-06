@@ -1,0 +1,89 @@
+---
+title: Elevate Your Español Skills Through Socially-Driven VR
+date: 2024-06-28T07:39:28.660Z
+updated: 2024-06-29T07:39:28.660Z
+tags:
+  - speak
+  - english
+  - learning
+categories:
+  - languages
+description: This Article Describes Elevate Your Español Skills Through Socially-Driven VR
+excerpt: This Article Describes Elevate Your Español Skills Through Socially-Driven VR
+keywords: Spanish Language Improvement,Virtual Reality for Language Learning,Social Learning Español,Interactive Español Courses,Immersive Language Learning,VR Spanish Education Platforms,Spanish Vocabulary Expansion
+thumbnail: https://thmb.techidaily.com/d0e5dc7a9f4a0a0154c2f5c000e872f05d1d324633640e4e68e511d6c868a5f3.jpg
+---
+
+## Elevate Your Español Skills Through Socially-Driven VR
+
+ Today, we have exciting news for all the Spanish and VR aficionados around the world: we are organizing a get-together event in Mondly VR.
+
+ Join us this Saturday on [Oculus Gear VR](https://www.oculus.com/experiences/gear-vr/1272636489423125) and [Oculus Go](https://www.oculus.com/experiences/go/1272636489423125) for another premiere in language learning. Enter a room in our multiplayer module and practice your Spanish with people from all around the world as if you were in the same room.
+
+## What will happen during the event
+
+ Eager to practice your Spanish? Or maybe just curious about our event in Oculus? Put your headset on, choose an avatar, select your native language and_vamos a hablar!_
+
+ We will be automatically assigned to a VR room together with a maximum of 11 other participants where will socialize and [practice Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) “face to face”. Using speech recognition and intelligent suggestions accompanied by real-time translations, Mondly VR will make sure your conversation will be both educative and entertaining.
+
+Here’s a short video about the experience:
+
+## When to join the event
+
+ To make sure you’ll be able to join us wherever you are in the world, we created two 5-hour events on the same day. Get your VR headset ready and let’s talk:  
+ – starting 4 PM GMT+1 (if you live in Europe)  
+ – starting 6 PM EST/3 PM PT (if you live in The U.S.)
+
+## About Mondly VR
+
+[Mondly VR](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) is a language learning app based in virtual reality for Daydream and Cardboard VR compatible devices. It currently provides users with 30 different languages ranging from those more commonly learned (like [English, Japanese, Farsi](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , Mandarin, and Spanish) to languages usually only studied by native speakers and linguistics aficionados (like Finnish and Hungarian). 14 of the available learning choices in Mondly VR rank among the hardest for native English speakers to learn.  
+ Mondly VR allows users to have conversations with a chatbot represented by a variety of digital characters which ask you questions in the target language according to the selected environment: train, restaurant, hotel’s reception, hotel room, and taxi.
+
+ By combining voice chatbot, speech recognition, and VR technology, Mondly VR offers instant immersion, feedback on pronunciation, suggestions that enrich learners’ vocabulary, and interactive scenarios that make language learning fun and incredibly easy.
+
+* [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Foculus-event-practice-your-spanish-socialize-mondly-vr-multiplayer%2F&t=Oculus+Event%3A+Practice+Your+Spanish+and+Socialize+in+Mondly+VR+Multiplayer "Share on Facebook")
+* [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
+
+---
+
+**Download Mondly VR and get ready for the event!**
+
+[Get Mondly VR](https://www.oculus.com/experiences/gear-vr/1272636489423125 "Get Mondly VR")
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://mondly-stories.techidaily.com/the-linguistics-of-macaus-triad/"><u>The Linguistics of Macau’s Triad</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-global-communication-now-96-off/"><u>Unlock Global Communication, Now 96%% Off</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revolutionizing-pedagogy-the-influence-of-artificial-intelligence/"><u>Revolutionizing Pedagogy: The Influence of Artificial Intelligence</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/intellectual-growth-and-adaptability-in-multilinguals/"><u>Intellectual Growth and Adaptability in Multilinguals</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580403599-fastidious-norsk-comprehension-in-short-spurts/"><u>Fastidious Norsk Comprehension in Short Spurts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cycle-des-semaines-en-france/"><u>Cycle Des Semaines en France</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-russian-counting-patterns-and-formulas/"><u>Discovering Russian Counting Patterns and Formulas</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-indonesian-conversations-a-quick-guide/"><u>Unlocking Indonesian Conversations: A Quick Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579048028-black-friday-deal-endless-language-learning-at-96-less/"><u>Black Friday Deal: Endless Language Learning at 96%% Less!</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-mastering-animated-gifs-creating-from-youtube-videos-online/"><u>[New] Mastering Animated GIFs  Creating From Youtube Videos Online</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-next-gen-vr-engines-the-2023-rundown/"><u>[New] Next-Gen VR Engines  The 2023 Rundown</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-samsung-galaxy-f34-5g-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Samsung Galaxy F34 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-9-motorola-g54-5g-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>Top 9 Motorola G54 5G Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-photos-from-realme-11-5g-by-fonelab-android-recover-photos/"><u>Easy steps to recover deleted photos from Realme 11 5G.</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/are-you-looking-to-make-a-thumbnail-for-your-fortnite-video-this-article-features-a-guide-explaining-creating-a-fortnite-motion-blur-thumbnail-for-2024/"><u>Are You Looking to Make a Thumbnail for Your Fortnite Video? This Article Features a Guide Explaining Creating a Fortnite Motion Blur Thumbnail for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/forgot-iphone-8-plus-backup-password-heres-what-to-do-by-drfone-ios/"><u>Forgot iPhone 8 Plus Backup Password? Heres What to Do</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/how-to-add-music-to-instagram-story-withwithout-sticker/"><u>How to Add Music to Instagram Story [With/Without Sticker]</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/seamless-integration-using-your-switch-pro-controller-to-dominate-on-steam-for-2024/"><u>Seamless Integration  Using Your Switch Pro Controller to Dominate on Steam for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-from-phone-pics-to-professional-videos-selecting-the-top-9-enhancers-for-2024/"><u>[Updated] From Phone Pics to Professional Videos  Selecting the Top 9 Enhancers for 2024</u></a></li>
+</ul></div>

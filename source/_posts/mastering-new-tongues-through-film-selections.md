@@ -1,0 +1,132 @@
+---
+title: Mastering New Tongues Through Film Selections
+date: 2024-06-28T07:37:38.986Z
+updated: 2024-06-29T07:37:38.986Z
+tags:
+  - speak
+  - english
+  - learning
+categories:
+  - languages
+description: This Article Describes Mastering New Tongues Through Film Selections
+excerpt: This Article Describes Mastering New Tongues Through Film Selections
+keywords: Learning Languages via Films,Language Acquisition Strategies,Multilingual Films,Bilingual Movie Recommendations,Cinema as Language Education,Foreign Films for English Speakers,Vocabulary Building Through Film Viewing
+thumbnail: https://thmb.techidaily.com/a6fbcf7b87c69b74abd8f2d894637274c942b2c57ba584189354e0290ce20d66.jpg
+---
+
+## Mastering New Tongues Through Film Selections
+
+ The holiday season is upon us yet again, which means delicious food, fun events with friends and family, and plenty of time to snuggle on the couch binging your favorite movies. If you’re currently in the process of learning a foreign language, it’s also an excellent time to sneak in some practice.
+
+## Learn a Language: How Foreign Movies Can Help
+
+ As an English speaker, you probably have a variety of favorite films come to mind when you think of the holiday season. You might even have a list of favorites that you and your family watch every year as a tradition. They don’t necessarily have to be Christmas movies. Some families like to binge comedies, and others prefer to focus on action or historical films. No matter what your preferences are if your current focus is language learning, you might want to add a few foreign films to your movie list for this year.
+
+### Listen to Native Speakers
+
+ When learning a language, it can be helpful to listen to native speakers. Watching foreign movies is an easy way to do that.
+
+### Learn Through Real-life Situations
+
+ The context of the story provides insights into the language spoken during the film. You’ll be able to see how certain words, phrases, and slang terms are used in various situations.
+
+### Use Visual Cues
+
+ In any film, there will be plenty of visual cues to help provide further details on how certain words are used. Along with paying attention to the overall story, you can also watch for small things, like the way a character refers to the beer in their hand or the way they comment on the weather, to increase your understanding of the language.
+
+### Take Advantage of Subtitles
+
+ When all else fails, the subtitles are there to help. If you’re getting good at the language, you might want to try watching the film without the subtitles. However, there is no shame in using them either. They’re a good way to measure how far along you are in the learning process.
+
+![Language movies to watch with your friends on holidays - Mondly](https://edge.mondly.com/blog/wp-content/uploads/2017/12/205065-OZ78PV-98-min-scaled.jpg "The 10 Best Foreign Films To Watch This Holiday Season To Improve Your Language Skills 2")
+
+## Adventures from Around the World: Movies in the Languages You Love
+
+### 1. Italian
+
+ When seven close friends get together for a dinner one evening, they all decide to place their phones on the table and share any incoming messages, comments, or phone calls with the group. As the notifications begin to arrive, it quickly becomes apparent that these lifelong friends don’t know each other as well as they might have thought.
+
+### 2. Spanish
+
+ This is an Argentinian film that contains six short films in one. Each film examines the extreme ways that humans will behave when faced with various distressing situations. Filled with themes of revenge and complete with crazy twists and turns, this film is sure to give you and your family something to talk about.
+
+### 3. German
+
+ Set in East Berlin in 1984, this film follows an agent of the secret police as he conducts surveillance on a man and his lover. As time goes by, he finds himself growing attached to the people he is spying on.
+
+### 4. Russian
+
+ Sometimes, you need a little horror to balance out all the holiday cheer. In this Russian film, a young woman goes with her fiancé to meet his family for the first time. When she begins having frightening visions and noticing odd behavior from some of the family members, she realizes she might have made a horrible mistake.
+
+### 5. Chinese
+
+ This funny romantic film follows a love-hungry single man and a recently heartbroken woman as they take a road trip together. Along the way, they realize there might be more than friendship between them.
+
+### 6. Portuguese
+
+ This is another fun and lighthearted romantic comedy to enjoy. It follows the love story between two seemingly polar opposites, a fashion blogger and a gaming nerd.
+
+### 7. Turkish
+
+ This sweet and sensitive Turkish tearjerker examines a relationship stressed to the limits by a terrible disease. It’s a remake of a similar Korean film called “A Moment to Remember”.
+
+### 8. Arabic
+
+ This film follows Adam and his wife Lamia, progressive Christians who live in Nazareth. When Adam sets out to start a new business selling “holy air” from the area, we see his interactions with members of various religions and cultures in his local community.
+
+### 9. Norwegian
+
+ This thrilling and high-budget action film details a frightening rockslide that causes a tidal wave to annihilate a small Norwegian village. A local scientist tries to warn of the impending doom, but it might be too late for him to save his family and the rest of the locals from disaster.
+
+### 10. Korean
+
+ Popular gamer Kwon Yoo is a failure in real life but a huge success in the gaming world. When he is framed for murder, he and his gaming friends set out to discover the truth about the killer and clear his name.
+
+* [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2F10-best-foreign-films-watch-holiday-season-improve-language-skills%2F&t=The+10+Best+Foreign+Films+to+Watch+this+Holiday+Season+to+Improve+Your+Language+Skills "Share on Facebook")
+* [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
+
+---
+
+## Learning Languages: Get the Most Out of Your Holiday Break
+
+ Along with watching foreign films and squeezing in a little solo language study when you have time, you can also sneak in some practice this holiday season by asking a family member to quiz you on your language skills. Language learning is an interesting conversation starter at holiday parties, and many of your loved ones are likely to be fascinated by your progress.
+
+ From our family to yours, we wish you a wonderful holiday season and [new year](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
+
+[Learn a new language](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-875&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-875%26utm%5Fsource%3Dblog-post-id-875&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-875%26utm%5Fsource%3Dblog-post-id-875&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-875%26utm%5Fsource%3Dblog-post-id-875&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-875%26mt%3D8 "Learn a new language")
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://mondly-stories.techidaily.com/speedy-catalan-learning-10-minute-sprints/"><u>Speedy Catalan Learning, 10-Minute Sprints</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cross-cultural-diplomacy-advantages-of-speaking-multiple-languages/"><u>Cross-Cultural Diplomacy: Advantages of Speaking Multiple Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/innovative-approaches-to-learn-lithuanian-from-home/"><u>Innovative Approaches to Learn Lithuanian From Home</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579211674-start-with-croatian-find-out-the-top-7-reasons-for-today/"><u>Start with Croatian: Find Out the Top 7 Reasons for Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-3-language-learning-platforms-master-new-languages-easily/"><u>Top 3 Language Learning Platforms: Master New Languages Easily</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-global-lexicon-of-inspiring-teaching-voices/"><u>The Global Lexicon of Inspiring Teaching Voices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprender-y-tener-conocimiento-del-tiempo-en-espanol/"><u>Comprender Y Tener Conocimiento Del Tiempo en Espaňol</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/overcoming-linguistic-labyrinths-winning-with-difficult-languages/"><u>Overcoming Linguistic Labyrinths: Winning With Difficult Languages</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/2024-approved-top-10-flawless-unmarked-video-access-for-tiktok/"><u>2024 Approved  Top 10  Flawless, Unmarked Video Access for TikTok</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-spotlight-on-app-interfaces-triller-vs-tiktok-deep-dive-max-156-chars/"><u>[Updated] Spotlight on App Interfaces  Triller Vs. TikTok Deep Dive (Max 156 Chars)</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-visualcapture-pro-x-windows-enthusiasts/"><u>[New] In 2024, VisualCapture Pro X - Windows Enthusiasts</u></a></li>
+<li><a href="https://extra-information.techidaily.com/capture-creativity-best-plugins-and-websites-for-photoshopping-with-frames/"><u>Capture Creativity  Best Plugins and Websites for Photoshopping with Frames</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-creative-tiktok-pfp-ideas-to-make-your-tiktok-profile-stand-out-for-2024/"><u>[Updated] Creative TikTok PFP Ideas to Make Your TikTok Profile Stand Out for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-capturing-the-thrill-streaming-gameplay-like-a-pro-for-2024/"><u>[Updated] Capturing the Thrill  Streaming Gameplay Like a Pro for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-top-6-tiktok-money-calculators/"><u>2024 Approved  Top 6 TikTok Money Calculators</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-2024-approved-7-best-mp4-editors-for-mac-edit-mp4-in-mac/"><u>Updated 2024 Approved 7 Best MP4 Editors for Mac Edit MP4 in Mac</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-2024-approved-how-to-apply-video-filters/"><u>Updated 2024 Approved How to Apply Video Filters</u></a></li>
+</ul></div>

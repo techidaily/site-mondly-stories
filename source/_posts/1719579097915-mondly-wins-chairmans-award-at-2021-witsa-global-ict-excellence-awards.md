@@ -1,0 +1,88 @@
+---
+title: Mondly Wins Chairman's Award At 2021 WITSA Global ICT Excellence Awards
+date: 2024-06-28T07:44:36.318Z
+updated: 2024-06-29T07:44:36.318Z
+tags:
+  - speak
+  - english
+  - learning
+categories:
+  - languages
+description: This Article Describes Mondly Wins Chairman's Award At 2021 WITSA Global ICT Excellence Awards
+excerpt: This Article Describes Mondly Wins Chairman's Award At 2021 WITSA Global ICT Excellence Awards
+keywords: Mondly,Chairman's Award,2021 WITSA Awards,Global ICT Excellence,Information and Communication Technology (ICT) Awards,WITSA Global Awards,Technology Innovation Recognition
+thumbnail: https://thmb.techidaily.com/60fbcd30864e8b21a8752d2636e7944e4f6dffcb372de2311bd231d44717be72.jpg
+---
+
+## Mondly Wins Chairman's Award At 2021 WITSA Global ICT Excellence Awards
+
+ **BRAŞOV, Romania, November 18, 2021 (Newswire.com) –**  Mondly, one of the world’s leading online language learning platforms, has won The [**Chairman’s Award** at the 2021 WITSA Global ICT Excellence Awards](https://www.wcit2021.org.bd/awards) , **the most prestigious of all the WITSA awards.**  Started over 20 years ago, at the 2000 World Congress on IT in Taipei, WITSA has – as the leading recognized international voice of the global ICT industry – utilized its unprecedented reach into the ICT industry in over 80 countries.
+
+ Mondly received the award in recognition of its mission to connect the world through languages and partake in ICT’s global plan to use technology as an equalizer to improve people’s lives. With previous speakers and participants, including Former US President Bill Clinton, Bill Gates, Don Tapscott, and other notables, WITSA represents the go-to organization when it comes to bringing the brightest minds to champion innovation and technology.
+
+![mondly chairmans award](https://edge.mondly.com/blog/wp-content/uploads/2021/11/mondly-chairmans-award-730x960.png "Mondly Wins Chairman'S Award At 2021 Witsa Global Ict Excellence Awards 2")
+
+ Mondly Wins Chairman’s Award at 2021 WITSA Global ICT Excellence Awards
+
+ “Mondly reflects the spirit of WITSA’s vision, which is fulfilling the promise of the digital age”, said Dr. James H. Poisant, Secretary-General of WITSA as he awarded Mondly the prize.
+
+ Enabling people to learn 41 languages through 1000+ language pairs, Mondly creates some of the most technologically advanced educational apps in the world, serving more than 90 million people worldwide, including the Israeli Ministry of Education, Delta Airlines, Canon Medical Systems and other global organizations looking to utilize one of the most exciting EdTech solutions on the planet.
+
+ Commenting on the accolade, Alexandru Iliescu, CEO and Co-Founder at Mondly, said: “By empowering people from more than 100 countries to learn languages from their mother tongue, we are opening pathways to new opportunities and setting them up for success. With over 90 million users worldwide and a strong focus on Virtual and Augmented Reality, we are set to change the lives of 1 billion people by the end of the decade.”
+
+* [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fmondly-chairmans-award-witsa%2F&t=Mondly+Wins+Chairman%5C%26%23039%3Bs+Award+at+2021+WITSA+Global+ICT+Excellence+Awards "Share on Facebook")
+* [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
+
+---
+
+**About Mondly**
+
+ Having been awarded “App of the Year” by Facebook, “Best New App” by Apple, and “Editors’ Choice” by Google Play, Mondly is a leading online language learning platform with 90 million learners worldwide. Launched in 2014, it quickly became a leading app in the mobile space, reaching the #1 position in Education in most European countries, Latin America and Asia. The most recent launch by Mondly on Oculus Quest has reached the #1 solution in VR Education. According to Statista, Mondly is currently in the Top 5 apps worldwide by number of downloads.
+
+**Contact:**
+ Alex Iliescu  
+ +40 733 969 116  
+[contact@mondly.com](https://stats.newswire.com/x/html?final=bWFpbHRvOmNvbnRhY3RAbW9uZGx5LmNvbQ&hit%2Csum=WyIzYjlnZGQiLCIzYjlnZGUiLCIzYjlnZGMiXQ)
+
+ _Originally published on [Newswire](https://www.newswire.com/news/mondly-wins-chairmans-award-at-2021-witsa-global-ict-excellence-awards-21556729) on November 18, 2021._
+
+[Learn more](https://www.wcit2021.org.bd/awards "Learn more")
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://mondly-stories.techidaily.com/apple-acknowledges-mondly-among-worlds-premier-educational-apps/"><u>Apple Acknowledges Mondly Among World’s Premier Educational Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580459475-lechange-bienveillant-en-francais-merci/"><u>L'Echange Bienveillant en Français: Merci!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/nations-with-thanksgiving-customs-and-rituals/"><u>Nations with Thanksgiving Customs and Rituals</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-era-of-filters-mondly-and-pearson-unite/"><u>New Era of Filters: Mondly and Pearson Unite</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/predominant-language-study-programs-abroad-from-us/"><u>Predominant Language Study Programs Abroad From U.S.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/does-grammar-hinder-language-learning/"><u>Does Grammar Hinder Language Learning?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dias-del-mes-aprende-de-lunes-a-domingos-en-espanol/"><u>Días Del Mes: Aprende De Lunes a Domingos en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/croatian-peoples-choice/"><u>Croatian People's Choice</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-the-main-language-in-israel/"><u>Discovering the Main Language in Israel</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580890966-rapid-bokmal-mastery-in-daily-sprints/"><u>Rapid Bokmål Mastery in Daily Sprints</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-infinix-smart-7-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Infinix Smart 7 | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-instagram-attention-hack-building-an-alluring-puzzle-feed/"><u>[Updated] In 2024, Instagram Attention Hack  Building an Alluring Puzzle Feed</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-elite-visualsai-cutting-edge-photo-transformations/"><u>[Updated] In 2024, Elite VisualsAI  Cutting-Edge Photo Transformations</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-in-2024-editing-videos-like-a-pro-with-quicktime-on-mac/"><u>Updated In 2024, Editing Videos Like a Pro with QuickTime on Mac</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-downloading-samfw-frp-tool-30-for-poco-c50-by-drfone-android/"><u>In 2024, Downloading SamFw FRP Tool 3.0 for Poco C50</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-how-to-convert-and-download-4k-video-in-mp4-format-for-2024/"><u>Updated How to Convert and Download 4K Video in MP4 Format for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-mastering-jump-cuts-for-dynamic-vlogging/"><u>[New] Mastering Jump Cuts for Dynamic Vlogging</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-pattern-locks-are-unsafe-secure-your-realme-c67-4g-phone-now-with-these-tips-by-drfone-android/"><u>In 2024, Pattern Locks Are Unsafe Secure Your Realme C67 4G Phone Now with These Tips</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-harness-facebook-videos-on-devices-with-new-tool/"><u>[Updated] Harness Facebook Videos on Devices with New Tool</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-inventory-of-facebook-video-ratios/"><u>[Updated] 2024 Approved  Inventory of Facebook Video Ratios</u></a></li>
+</ul></div>

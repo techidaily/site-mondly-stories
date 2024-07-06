@@ -1,0 +1,87 @@
+---
+title: Mondly Earns Top Honor in Global Tech Awards
+date: 2024-06-28T07:42:20.478Z
+updated: 2024-06-29T07:42:20.478Z
+tags:
+  - speak
+  - english
+  - learning
+categories:
+  - languages
+description: This Article Describes Mondly Earns Top Honor in Global Tech Awards
+excerpt: This Article Describes Mondly Earns Top Honor in Global Tech Awards
+keywords: Mondly Global Recognition,Mondly Technology Excellence,Mondly Innovation Leader,Mondly Tech Achievement,Mondly Award-Winning Company,Mondly Top Technology Honoree,Mondly's Global Technology Success
+thumbnail: https://thmb.techidaily.com/3e5a90ab0e3c6dfd7aa65fe381ec71d12d0b563a60e02073718388cd3d8e712f.jpg
+---
+
+## Mondly Earns Top Honor in Global Tech Awards
+
+ **BRAŞOV, Romania, November 18, 2021 (Newswire.com) –**  Mondly, one of the world’s leading online language learning platforms, has won The [**Chairman’s Award** at the 2021 WITSA Global ICT Excellence Awards](https://www.wcit2021.org.bd/awards) , **the most prestigious of all the WITSA awards.**  Started over 20 years ago, at the 2000 World Congress on IT in Taipei, WITSA has – as the leading recognized international voice of the global ICT industry – utilized its unprecedented reach into the ICT industry in over 80 countries.
+
+ Mondly received the award in recognition of its mission to connect the world through languages and partake in ICT’s global plan to use technology as an equalizer to improve people’s lives. With previous speakers and participants, including Former US President Bill Clinton, Bill Gates, Don Tapscott, and other notables, WITSA represents the go-to organization when it comes to bringing the brightest minds to champion innovation and technology.
+
+![mondly chairmans award](https://edge.mondly.com/blog/wp-content/uploads/2021/11/mondly-chairmans-award-730x960.png "Mondly Wins Chairman'S Award At 2021 Witsa Global Ict Excellence Awards 2")
+
+ Mondly Wins Chairman’s Award at 2021 WITSA Global ICT Excellence Awards
+
+ “Mondly reflects the spirit of WITSA’s vision, which is fulfilling the promise of the digital age”, said Dr. James H. Poisant, Secretary-General of WITSA as he awarded Mondly the prize.
+
+ Enabling people to learn 41 languages through 1000+ language pairs, Mondly creates some of the most technologically advanced educational apps in the world, serving more than 90 million people worldwide, including the Israeli Ministry of Education, Delta Airlines, Canon Medical Systems and other global organizations looking to utilize one of the most exciting EdTech solutions on the planet.
+
+ Commenting on the accolade, Alexandru Iliescu, CEO and Co-Founder at Mondly, said: “By empowering people from more than 100 countries to learn languages from their mother tongue, we are opening pathways to new opportunities and setting them up for success. With over 90 million users worldwide and a strong focus on Virtual and Augmented Reality, we are set to change the lives of 1 billion people by the end of the decade.”
+
+* [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fmondly-chairmans-award-witsa%2F&t=Mondly+Wins+Chairman%5C%26%23039%3Bs+Award+at+2021+WITSA+Global+ICT+Excellence+Awards "Share on Facebook")
+* [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
+
+---
+
+**About Mondly**
+
+ Having been awarded “App of the Year” by Facebook, “Best New App” by Apple, and “Editors’ Choice” by Google Play, Mondly is a leading online language learning platform with 90 million learners worldwide. Launched in 2014, it quickly became a leading app in the mobile space, reaching the #1 position in Education in most European countries, Latin America and Asia. The most recent launch by Mondly on Oculus Quest has reached the #1 solution in VR Education. According to Statista, Mondly is currently in the Top 5 apps worldwide by number of downloads.
+
+**Contact:**
+ Alex Iliescu  
+ +40 733 969 116  
+[contact@mondly.com](https://stats.newswire.com/x/html?final=bWFpbHRvOmNvbnRhY3RAbW9uZGx5LmNvbQ&hit%2Csum=WyIzYjlnZGQiLCIzYjlnZGUiLCIzYjlnZGMiXQ)
+
+ _Originally published on [Newswire](https://www.newswire.com/news/mondly-wins-chairmans-award-at-2021-witsa-global-ict-excellence-awards-21556729) on November 18, 2021._
+
+[Learn more](https://www.wcit2021.org.bd/awards "Learn more")
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://mondly-stories.techidaily.com/russian-counting-made-simple-a-guide/"><u>Russian Counting Made Simple: A Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581875041-italian-numbers-made-easy-count-to-1000-and-beyond-in-italian/"><u>Italian Numbers Made Easy – Count to 1000 and Beyond in Italian</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-anatomy-of-chinese-letters/"><u>The Anatomy of Chinese Letters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/black-friday-deal-endless-language-learning-at-96-less/"><u>Black Friday Deal: Endless Language Learning at 96%% Less</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deconstructing-mondlys-instructional-strategy/"><u>Deconstructing Mondly’s Instructional Strategy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-multiple-languages-in-a-virtual-world-mondlys-latest-innovation/"><u>Master Multiple Languages in a Virtual World - Mondly's Latest Innovation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/age-gracefully-by-picking-up-a-new-tongue/"><u>Age Gracefully by Picking Up a New Tongue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-bilingual-superpowers-6-highlighted/"><u>Exploring Bilingual Superpowers: #6 Highlighted</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-expert-the-journey-with-english-contractions/"><u>From Novice to Expert: The Journey with English Contractions</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-forgot-pattern-lock-heres-how-you-can-unlock-samsung-galaxy-s23-fe-pattern-lock-screen-by-drfone-android/"><u>In 2024, Forgot Pattern Lock? Heres How You Can Unlock Samsung Galaxy S23 FE Pattern Lock Screen</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/delete-gmail-account-withwithout-password-on-motorola-razr-40-by-drfone-android/"><u>Delete Gmail Account With/Without Password On Motorola Razr 40</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-easy-guide-how-to-bypass-samsung-galaxy-a24-frp-android-10111213-by-drfone-android/"><u>In 2024, Easy Guide How To Bypass Samsung Galaxy A24 FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-motorola-moto-g23-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On Motorola Moto G23? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fake-the-location-to-get-around-the-mlb-blackouts-on-oneplus-nord-ce-3-5g-drfone-by-drfone-virtual-android/"><u>Fake the Location to Get Around the MLB Blackouts on OnePlus Nord CE 3 5G | Dr.fone</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-the-6-best-tiktop-to-mp3-converters-free-and-online-version-for-2024/"><u>[New] The 6 Best TikTop-to-MP3 Converters - Free & Online Version for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-precision-in-video-calls-the-art-of-border-reduction-for-2024/"><u>[Updated] Precision in Video Calls  The Art of Border Reduction for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-apple-iphone-14-plus-with-an-apple-watch-and-what-to-do-if-it-doesnt-work-drfone-by-drfone-ios/"><u>How to Unlock Apple iPhone 14 Plus With an Apple Watch & What to Do if It Doesnt Work | Dr.fone</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-creative-control-preparing-tiktoks-for-legal-upload/"><u>[New] 2024 Approved  Creative Control  Preparing TikToks for Legal Upload</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-5-tracking-apps-to-track-realme-narzo-n53-without-them-knowing-drfone-by-drfone-virtual-android/"><u>Top 5 Tracking Apps to Track Realme Narzo N53 without Them Knowing | Dr.fone</u></a></li>
+</ul></div>
