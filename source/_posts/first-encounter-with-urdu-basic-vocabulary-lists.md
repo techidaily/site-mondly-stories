@@ -1,7 +1,7 @@
 ---
 title: "First Encounter with Urdu: Basic Vocabulary Lists"
-date: 2024-06-28T07:36:31.111Z
-updated: 2024-06-29T07:36:31.111Z
+date: 2024-07-12T08:00:46.857Z
+updated: 2024-07-13T08:00:46.857Z
 tags:
   - speak
   - english
@@ -246,3 +246,55 @@ thumbnail: https://thmb.techidaily.com/75e496d7d03af882c809a7273c9e1eb1d9baeae9a
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://mondly-stories.techidaily.com/picking-the-ideal-next-language-quest/"><u>Picking The Ideal Next-Language Quest</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ancient-text-contemporary-speech-words-of-william/"><u>Ancient Text, Contemporary Speech: Words of William</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/eyxes-morfwn-klisma-dyshs/"><u>Ευχές Μόρφων Κλίσμα Δύσης</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-easy-access-best-free-youtube-subtitle-extractors-for-2024/"><u>[New] Easy Access  Best Free YouTube Subtitle Extractors for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/descubre-el-lenguaje-animal-en-iberoamerica/"><u>Descubre El Lenguaje Animal en Iberoamérica</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581605473-learn-bulgarian-in-dashes-10-minute-sessions/"><u>Learn Bulgarian in Dashes - 10-Minute Sessions!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-talk-like-a-pirate-20-pirate-wordsback-buttonfilter-button/"><u>How To Talk Like A Pirate: 20 Pirate WordsBack ButtonFilter Button</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-why-learning-german-is-essential/"><u>Discover Why Learning German Is Essential</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/best-webm-to-mp3-converters-expert-recommendations/"><u>Best WebM to MP3 Converters Expert Recommendations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accelerated-french-pronunciation-for-hues/"><u>Accelerated French Pronunciation for Hues</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-x-media-library-manager-personal-computer/"><u>[New] 2024 Approved  X-Media Library Manager, Personal Computer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/improve-spanish-connect-socially-via-vr-platforms/"><u>Improve Spanish, Connect Socially via VR Platforms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/feliz-navidad-spanish/"><u>Feliz Navidad (Spanish)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-basic-arabic-a-beginners-course/"><u>Unveiling Basic Arabic: A Beginner's Course</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/early-education-unveiled-kinder-to-fifth-grade-spanish-essentials/"><u>Early Education Unveiled: Kinder to Fifth-Grade Spanish Essentials</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/impress-native-italians-with-20plus-italian-expressions-and-slang-words/"><u>Impress Native Italians With 20+ Italian Expressions & Slang Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/experience-global-cultures-mondly-vr-revolutionizes-language-studies/"><u>Experience Global Cultures: Mondly VR Revolutionizes Language Studies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/harmonize-learning-languages-through-science-based-melodies/"><u>Harmonize Learning Languages Through Science-Based Melodies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevating-your-speaking-skills-mondlys-2022-pride/"><u>Elevating Your Speaking Skills - Mondly's 2022 Pride</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/croatias-primary-language/"><u>Croatia's Primary Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accelerating-language-learning-time-vs-technique/"><u>Accelerating Language Learning: Time vs Technique</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprendre-lanatomie-du-systeme-nerveux-parts-in-french/"><u>Comprendre L'Anatomie Du Système Nerveux: Parts in French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-path-to-expertise-announcing-1500-no-charge-lessons-a-day/"><u>The Path to Expertise: Announcing 1500 No-Charge Lessons a Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/foreign-influences-on-the-english-language-borrowed-words/"><u>Foreign Influences On The English Language – Borrowed Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/nordic-narratives-the-language-of-the-sea-roaming-warriors/"><u>Nordic Narratives: The Language of the Sea-Roaming Warriors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/easy-introduction-to-hangul-asian-script-at-your-fingertips/"><u>Easy Introduction to Hangul: Asian Script at Your Fingertips</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-cooking-strategy-book-for-beginners/"><u>The Ultimate Cooking Strategy Book for Beginners</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-guard-your-video-calls-the-ultimate-list-of-free-security-enhanced-applications/"><u>[Updated] In 2024, Guard Your Video Calls  The Ultimate List of Free Security-Enhanced Applications</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-worlds-vocabulary-dollars-into-english/"><u>The World’s Vocabulary Dollars Into English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/voyage-to-the-first-speaking-ar-product/"><u>Voyage to the First Speaking AR Product</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprenda-a-convidar-com-portugues-melhores-saudades-para-todos-os-tempos/"><u>Aprenda a Convidar Com Português - Melhores Saudades Para Todos Os Tempos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/globetrotting-for-the-largest-word/"><u>Globetrotting for the Largest Word</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-blur-brilliance-the-ultimate-guide-to-bokeh-effects-apps-for-2024/"><u>New Blur Brilliance The Ultimate Guide to Bokeh Effects Apps for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/danish-film-selection-enhancing-linguistic-competence/"><u>Danish Film Selection: Enhancing Linguistic Competence</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-2024-approved-top-5-free-mov-video-rotators/"><u>Updated 2024 Approved Top 5 Free MOV Video Rotators</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/immersetongue-virtual-reality-for-multilingual-education/"><u>ImmerseTongue: Virtual Reality for Multilingual Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daily-10-min-urdu-mastery-journey/"><u>Daily 10-Min Urdu Mastery Journey</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-crafting-immersive-podcast-episodes-a-comprehensive-directory-of-sound-fx-providers/"><u>New Crafting Immersive Podcast Episodes A Comprehensive Directory of Sound FX Providers</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-discover-20-must-subscribe-music-channels-on-youtube/"><u>In 2024, Discover 20 Must-Subscribe Music Channels on YouTube</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-trouble-with-apple-iphone-12-pro-max-swipe-up-try-these-11-solutions-by-drfone-ios/"><u>In 2024, Trouble with Apple iPhone 12 Pro Max Swipe-Up? Try These 11 Solutions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/norges-language-leap-10-minute-magic/"><u>Norge's Language Leap - 10-Minute Magic!</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-reset-apple-id-and-apple-password-from-apple-iphone-8-by-drfone-ios/"><u>In 2024, How to Reset Apple ID and Apple Password From Apple iPhone 8</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/2024-approved-no-cost-split-screen-video-creators-web-based-and-downloadable-options/"><u>2024 Approved No-Cost Split Screen Video Creators Web-Based and Downloadable Options</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-frankish-to-frisian-the-dutch-voyage/"><u>From Frankish to Frisian: The Dutch Voyage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oculus-quest-gets-its-first-ever-language-app-mondly/"><u>Oculus Quest Gets Its First-Ever Language App: Mondly</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-identifying-leading-drone-motors-for-superior-stability/"><u>2024 Approved  Identifying Leading Drone Motors for Superior Stability</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-kisses-to-clusters-saying-chocolate-everywhere-you-go/"><u>From Kisses to Clusters: Saying 'Chocolate' Everywhere You Go</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-how-to-eliminate-live-sharing-on-devices/"><u>[Updated] In 2024, How to Eliminate Live Sharing on Devices</u></a></li>
+</ul></div>

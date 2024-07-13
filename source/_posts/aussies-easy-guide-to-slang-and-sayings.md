@@ -1,7 +1,7 @@
 ---
 title: Aussie's Easy Guide to Slang and Sayings
-date: 2024-06-28T07:49:20.348Z
-updated: 2024-06-29T07:49:20.348Z
+date: 2024-07-12T08:13:58.404Z
+updated: 2024-07-13T08:13:58.404Z
 tags:
   - speak
   - english
@@ -315,3 +315,60 @@ Get Mondly now and speak any language like you never dreamed you would ![Give it
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-explore-the-best-websites-for-dynamic-sky-imaging/"><u>In 2024, Explore the Best Websites for Dynamic Sky Imaging</u></a></li>
+<li><a href="https://blog-min.techidaily.com/2-ways-to-transfer-text-messages-from-nubia-z50s-pro-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>2 Ways to Transfer Text Messages from Nubia Z50S Pro to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-from-youtube-to-webm-unveiling-the-premium-converters/"><u>In 2024, From YouTube to WebM  Unveiling the Premium Converters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-framework-for-effective-learning/"><u>Mondly's Framework for Effective Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579471704-embrace-world-cultures-with-an-easy-affordable-language-course/"><u>Embrace World Cultures with an Easy, Affordable Language Course!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-10-various-ways-to-communicate-hello-in-spanish/"><u>Introducing 10 Various Ways to Communicate 'Hello' In Spanish</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-video-bite-by-celeb-on-vimeo/"><u>[Updated] In 2024, Video Bite by Celeb on Vimeo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/perfezionamento-dei-numeri-italiani-per-la-comunicazione-da-1-1000/"><u>Perfezionamento Dei Numeri Italiani per La Comunicazione (Da 1-1000)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-key-phrases-a-beginners-journey-through-latin-american-vernaculars/"><u>Understanding Key Phrases: A Beginner's Journey Through Latin American Vernaculars</u></a></li>
+<li><a href="https://howto.techidaily.com/why-is-my-oneplus-nord-ce-3-5g-offline-troubleshooting-guide-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Is My OnePlus Nord CE 3 5G Offline? Troubleshooting Guide | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/screen-based-strategies-to-speak-more-fluently/"><u>Screen-Based Strategies to Speak More Fluently</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pista-logia-eygnwmwn-gkreman/"><u>Πιστά Λόγια Ευγνώμων Γκρεμάν</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579996797-ten-minute-tidbits-learn-bengali-fast/"><u>Ten-Minute Tidbits: Learn Bengali Fast!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/amores-acoustic-alleyway-urban-italian-flirts/"><u>Amore's Acoustic Alleyway: Urban Italian Flirts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breaking-barriers-learn-german-from-a-hit-show-on-screen/"><u>Breaking Barriers: Learn German From a Hit Show on Screen</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/streamlining-360-degree-video-editing-workflow-in-premiere-pro/"><u>Streamlining 360-Degree Video Editing Workflow in Premiere Pro</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/joyful-latin-teaching-approaches/"><u>Joyful Latin Teaching Approaches</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/become-a-pro-in-finnish-through-advanced-online-methods/"><u>Become a Pro in Finnish Through Advanced Online Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579205386-unlocking-untapped-tongues-learn-abroad-at-home/"><u>Unlocking Untapped Tongues: Learn Abroad, at Home!</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-hot-tiktok-shopping-30-essential-products-from-amazon/"><u>[Updated] In 2024, Hot TikTok Shopping  30 Essential Products From Amazon</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/tricks-to-improve-mobile-streaming-quality-on-chrome-browser/"><u>Tricks to Improve Mobile Streaming Quality on Chrome Browser</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-min-sprints-to-bulgarian-language-bliss/"><u>10-Min Sprints to Bulgarian Language Bliss</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580301933-join-the-new-years-club-dive-into-mondly-pro-at-a-low-cost/"><u>Join the New Year's Club - Dive Into Mondly Pro at a Low Cost</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-italy-top-100-expressions-for-the-travelers-toolkit/"><u>Navigating Italy: Top 100 Expressions for the Traveler's Toolkit</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-designing-a-youtube-subscription-shortcut-url/"><u>[Updated] Designing a YouTube Subscription Shortcut URL</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-merges-with-pearson-academic-consortium/"><u>Mondly Merges With Pearson Academic Consortium</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-communicative-codex-15-list-unveiled/"><u>Top Communicative Codex – #15 List Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-languages-made-simple-explore-our-top-triads-benefits/"><u>Mastering Languages Made Simple: Explore Our Top Triad's Benefits</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transcontinental-greetings-on-holy-sunday/"><u>Transcontinental Greetings on Holy Sunday</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-the-saga-tracing-old-norse-communication-styles/"><u>Speak the Saga: Tracing Old Norse Communication Styles</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/les-temps-de-la-semaine-en-langue-francaise/"><u>Les Temps De La Semaine en Langue Française</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581006400-language-barriers-break-for-a-minimal-0-today/"><u>Language Barriers Break for a Minimal $0 Today!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beginners-manual-learn-chinese-common-phrases/"><u>Beginner's Manual: Learn Chinese Common Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fulfilling-communication-aspirations-in-24/"><u>Fulfilling Communication Aspirations in '24</u></a></li>
+<li><a href="https://howto.techidaily.com/11-proven-solutions-to-fix-google-play-store-not-working-issue-on-poco-m6-pro-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Proven Solutions to Fix Google Play Store Not Working Issue on Poco M6 Pro 4G | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-your-first-leap-onto-youtubes-platform-for-2024/"><u>[Updated] Your First Leap Onto YouTube's Platform for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/join-the-international-english-community-at-pearson/"><u>Join the International English Community at Pearson</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-smooth-operations-screen-recording-basics-for-lenovo-users/"><u>[Updated] 2024 Approved  Smooth Operations  Screen Recording Basics for Lenovo Users</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-iconic-trailer-highlight-assortment/"><u>In 2024, Iconic Trailer Highlight Assortment</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/superb-cyber-shops-for-handcrafted-gift-enclosures/"><u>Superb Cyber Shops for Handcrafted Gift Enclosures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/germanys-educational-beacon-mondly-named-champion/"><u>Germany's Educational Beacon: Mondly Named Champion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-tale-of-two-iberian-tongues-spanish-vs-portuguese/"><u>A Tale of Two Iberian Tongues: Spanish Vs. Portuguese</u></a></li>
+<li><a href="https://change-location.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-vivo-s17-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Vivo S17? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lorientation-les-jours-de-la-semaine-francaise/"><u>L'Orientation: Les Jours De La Semaine Française</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-slovak-quickly-daily-lessons-for-rapid-fluency/"><u>Master Slovak Quickly: Daily Lessons for Rapid Fluency!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/numero-italiano-conoscenza-e-esplorazioni-intermedie/"><u>Numero Italiano: Conoscenza E Esplorazioni Intermedie</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polyglotism-a-path-to-better-brains/"><u>Polyglotism: A Path to Better Brains</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/melody-meets-science-the-ultimate-guide-to-learning-multiple-languages/"><u>Melody Meets Science: The Ultimate Guide to Learning Multiple Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/asian-language-phenomena-prime-rankings-unveiled/"><u>Asian Language Phenomena: Prime Rankings Unveiled</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-11-to-others-android-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 11 To Others Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-secrets-to-the-ultimate-5-free-pinterest-video-loader/"><u>2024 Approved  Secrets to the Ultimate 5-Free Pinterest Video Loader</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-converting-mp4-video-file-to-an-mp3-file-format-is-a-simple-process-read-on-if-you-would-like-to-learn-more-about-the-best-mp4-to-mp3-/"><u>Updated 2024 Approved Converting MP4 Video File to an MP3 File Format Is a Simple Process. Read on if You Would Like to Learn More About the Best MP4 to MP3 Converters You Can Use Online or on PC and Mac Computers</u></a></li>
+<li><a href="https://techidaily.com/best-fixes-for-realme-12-proplus-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Best Fixes For Realme 12 Pro+ 5G Hard Reset | Dr.fone</u></a></li>
+</ul></div>

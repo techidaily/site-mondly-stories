@@ -1,7 +1,7 @@
 ---
 title: A Global Guide to Grateful Gestures in 30 Languages (156)
-date: 2024-06-28T08:23:21.174Z
-updated: 2024-06-29T08:23:21.174Z
+date: 2024-07-12T08:49:00.137Z
+updated: 2024-07-13T08:49:00.137Z
 tags:
   - speak
   - english
@@ -112,3 +112,44 @@ thumbnail: https://thmb.techidaily.com/307c74c604613a22f691edcf44e5f2764e78d11c7
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://mondly-stories.techidaily.com/rhythmic-learning-science-driven-methods-to-master-languages/"><u>Rhythmic Learning: Science-Driven Methods to Master Languages</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-screen-recorder-pro-a-beginners-handbook-for-mac-for-2024/"><u>[Updated] Screen Recorder Pro  A Beginner's Handbook for Mac for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-powerdirector-competitors-best-video-editors-for-android-and-ios/"><u>New 2024 Approved PowerDirector Competitors Best Video Editors for Android & iOS</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-through-the-japonic-writing-system/"><u>Journey Through the Japonic Writing System</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/romantic-revelations-love-verses-in-multiple-dialects/"><u>Romantic Revelations: Love Verses in Multiple Dialects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/innovative-techniques-for-easy-latino-learning/"><u>Innovative Techniques for Easy Latino Learning</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-the-ultimate-list-of-free-avi-video-rotators-for-all-devices/"><u>New The Ultimate List of Free AVI Video Rotators for All Devices</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/quickstart-to-flawless-nft-artistry-for-beginners-for-2024/"><u>Quickstart to Flawless NFT Artistry for Beginners for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/prepare-for-your-next-chat-companion-the-ai-revolution/"><u>Prepare for Your Next Chat Companion: The AI Revolution</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-harmonizing-youtube-content-with-audio-files/"><u>2024 Approved  Harmonizing YouTube Content with Audio Files</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/paving-your-path-to-proficiency-crucial-grammar-tips-from-an-inspiring-esl-mentor/"><u>Paving Your Path to Proficiency: Crucial Grammar Tips From an Inspiring ESL Mentor</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-time-stopping-tips-mastering-freeze-frames-in-your-videos/"><u>Updated 2024 Approved Time-Stopping Tips Mastering Freeze Frames in Your Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-german-your-why-and-how-outlined-in-10-steps/"><u>Mastering German: Your Why and How (Outlined in 10 Steps)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-prowess-an-in-depth-look-at-timeframes/"><u>Linguistic Prowess: An In-Depth Look at Timeframes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-era-of-language-learning-with-mondlys-fresh-phrases/"><u>New Era of Language Learning with Mondly's Fresh Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-phonetics-101-alphabet-and-sound-rules/"><u>German Phonetics 101: Alphabet & Sound Rules</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-language-leap-slovak-essentials-learned-in-10-minute-spurts/"><u>Quick Language Leap: Slovak Essentials Learned in 10-Minute Spurts</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/in-2024-what-is-the-best-mp4-cutter-for-youtuber-on-mac/"><u>In 2024, What Is the Best MP4 Cutter for YouTuber on Mac?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lifelong-learning-revolution-by-mondly/"><u>Lifelong Learning Revolution by Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-unveils-comprehensive-inquiry-section-update/"><u>Mondly Unveils Comprehensive Inquiry Section Update</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-german-essential-expressions-list/"><u>Mastering German: Essential Expressions List</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-inside-the-core-of-xstream-studios-an-exhaustive-studio-guide/"><u>[New] Inside the Core of XStream Studios – An Exhaustive Studio Guide</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/still-using-pattern-locks-with-zte-nubia-flip-5g-tips-tricks-and-helpful-advice-by-drfone-android/"><u>Still Using Pattern Locks with ZTE Nubia Flip 5G? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-steady-shot-enhancer-for-traveling-filmmakers/"><u>[Updated] Steady Shot Enhancer for Traveling Filmmakers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-the-top-16-formal-and-informal-thank-yous-in-deutsch/"><u>Learn the Top 16 Formal and Informal Thank Yous in Deutsch</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/infantile-instinct-for-multilingual-excellence/"><u>Infantile Instinct for Multilingual Excellence</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-vanish-tiktok-emblems-leading-iosandroid-apps-for-2024/"><u>[Updated] Vanish TikTok Emblems  Leading iOS/Android Apps for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-samsung-galaxy-s23plus-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Samsung Galaxy S23+ | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-competency-the-edge-of-being-bilingualmultilingual/"><u>Global Competency: The Edge Of Being Bilingual/Multilingual</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gsl-accuracy-enhanced-pearson-and-mondly-collaborate/"><u>GSL Accuracy Enhanced - Pearson & Mondly Collaborate</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/kommunikationskunst-10-deutsche-grussformeln-ohne-hallo/"><u>Kommunikationskunst: 10 Deutsche Grußformeln Ohne 'Hallo'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-tools-for-smooth-trips-essential-93-spanish-expressions/"><u>Language Tools for Smooth Trips: Essential 93 Spanish Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-classroom-alliance-connecting-educators/"><u>Global Classroom Alliance: Connecting Educators</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-elite-filmmakers-merging-sounds-images/"><u>[Updated] Elite Filmmakers Merging Sounds, Images</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-a-language-a-2024-goal/"><u>Learn a Language: A 2024 Goal</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/leveraging-youtube-and-apple-tv-integration-for-enhanced-fb-video-watching-for-2024/"><u>Leveraging YouTube & Apple TV Integration for Enhanced FB Video Watching for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-arabic-anywhere-anytime-6-motivating-factors-for-mondly-enrollment/"><u>Learn Arabic Anywhere, Anytime: 6 Motivating Factors for Mondly Enrollment</u></a></li>
+</ul></div>

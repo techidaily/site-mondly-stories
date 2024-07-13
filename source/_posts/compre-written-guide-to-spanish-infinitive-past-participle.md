@@ -1,7 +1,7 @@
 ---
 title: Compre Written Guide to Spanish Infinitive, Past Participle
-date: 2024-07-05T13:30:26.508Z
-updated: 2024-07-06T13:30:26.508Z
+date: 2024-07-12T09:01:32.188Z
+updated: 2024-07-13T09:01:32.188Z
 tags:
   - speak
   - english
@@ -315,3 +315,55 @@ Well… this is it! This is our full lesson on**Spanish verbs.**
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://mondly-stories.techidaily.com/monday-a-dimanche-en-france/"><u>Monday À Dimanche en France</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-in-2024-the-updated-blueprint-for-incorporating-decay-effects-into-digital-soundtracks/"><u>Updated In 2024, The Updated Blueprint for Incorporating Decay Effects Into Digital Soundtracks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressive-echoes-in-brazilian-vs-european-portuguese/"><u>Expressive Echoes in Brazilian Vs. European Portuguese</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-universal-unlock-pattern-for-oppo-a18-by-drfone-android/"><u>In 2024, Universal Unlock Pattern for Oppo A18</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/luscious-languages-captivating-french-plays/"><u>Luscious Languages: Captivating French Plays</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-seamless-backdrop-switches-for-google-meet-users-for-2024/"><u>[New] Seamless Backdrop Switches for Google Meet Users for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-landscapes-redefined-by-mondly-top-of-the-list/"><u>Linguistic Landscapes Redefined by Mondly, Top of the List</u></a></li>
+<li><a href="https://video-capture.techidaily.com/direct-recording-tool-for-chrome-os-for-2024/"><u>Direct Recording Tool for Chrome OS for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lively-latins-interactive-and-exciting-education/"><u>Lively Latins: Interactive and Exciting Education</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-full-tutorial-to-bypass-your-vivo-y78t-face-lock-by-drfone-android/"><u>In 2024, Full Tutorial to Bypass Your Vivo Y78t Face Lock?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/high-fidelity-learning-pearsons-enhanced-gsl-via-mondly/"><u>High Fidelity Learning: Pearson's Enhanced GSL via Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/google-backed-mondly-the-ultimate-language-learning-partner/"><u>Google-Backed Mondly: The Ultimate Language Learning Partner</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/demographics-of-french-language-users-worldwide/"><u>Demographics of French Language Users Worldwide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/frohe-weihnachten-german/"><u>Frohe Weihnachten (German)</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-mastering-eyes-only-snap-retrieval-on-social-media-for-2024/"><u>[Updated] Mastering Eyes-Only Snap Retrieval on Social Media for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/echoes-in-your-mouth-starting-with-basic-german-phonetics/"><u>Echoes in Your Mouth: Starting with Basic German Phonetics</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/emystifying-the-world-of-youtube-shorts-for-2024/"><u>[New] Demystifying the World of YouTube Shorts for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/incorporate-mp3s-into-presentation-decks-for-2024/"><u>Incorporate MP3s Into Presentation Decks for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-step-by-step-guide-to-instagram-leadership/"><u>[Updated] In 2024, Step-by-Step Guide to Instagram Leadership</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/the-photographers-edge-innovating-with-instagrams-bokeh-features/"><u>The Photographer's Edge  Innovating with Instagram’s Bokeh Features</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dissecting-worldwide-french-speaking-populations-by-country/"><u>Dissecting Worldwide French-Speaking Populations by Country</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-navigate-the-digital-landscape-discover-these-10-sites-of-3d-graffiti-brilliance/"><u>[New] Navigate the Digital Landscape  Discover These 10 Sites of 3D Graffiti Brilliance</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-tweetvidtowebm-easy-streaming-tools/"><u>[Updated] TweetVidToWebM  Easy Streaming Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-multiple-languages-in-a-virtual-world-mondlys-latest-innovation/"><u>Master Multiple Languages in a Virtual World - Mondly's Latest Innovation</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-how-to-take-long-exposure-shots-with-iphone/"><u>2024 Approved  How to Take Long Exposure Shots with iPhone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-from-newbie-to-pro-comprehensive-periscope-tutorial/"><u>In 2024, From Newbie to Pro  Comprehensive Periscope Tutorial</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-real-time-vs-recorded-entertainment-twitch-vs-youtube-analysis/"><u>2024 Approved  Real-Time vs Recorded Entertainment  Twitch vs YouTube Analysis</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-mastery-meets-social-dynamics-in-vr-worlds/"><u>Multilingual Mastery Meets Social Dynamics in VR Worlds</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/heartfelt-internationalism-for-a-special-valentine/"><u>Heartfelt Internationalism for a Special Valentine</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/empowering-yourself-with-english-knowledge/"><u>Empowering Yourself with English Knowledge</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introduction-to-spanish-salutations-decoding-and-practicing-10-key-expressions/"><u>Introduction To Spanish Salutations: Decoding & Practicing 10 Key Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-knowledge-for-no-cost/"><u>Discovering Knowledge for No Cost</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/one-minute-a-day-for-fluent-urdu/"><u>One Minute a Day for Fluent Urdu</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-elevate-your-social-media-game-3-techniques-to-enhance-video-captions-on-ig/"><u>[New] 2024 Approved  Elevate Your Social Media Game  3 Techniques to Enhance Video Captions on IG</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-optimal-mp4-senders-for-fb-networks/"><u>[Updated] 2024 Approved  Optimal MP4 Senders for FB Networks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/investigating-the-evolution-of-back-and-filter-buttons-in-pt/"><u>Investigating the Evolution of Back & Filter Buttons in PT</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/intuitive-guide-to-hangul-speedy-script-comprehension/"><u>Intuitive Guide to Hangul: Speedy Script Comprehension</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-kids-app-named-one-of-google-plays-best-apps-of-2017/"><u>Mondly Kids App Named One Of Google Play's Best Apps Of 2017</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-asus-rog-phone-7-drfone-by-drfone-virtual-android/"><u>In 2024, Simple and Effective Ways to Change Your Country on YouTube App Of your Asus ROG Phone 7 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-sorgfaltige-bitte-um-verzeihung-formulieren/"><u>German: Sorgfältige Bitte Um Verzeihung Formulieren</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/premium-desktop-systems-unveiled/"><u>Premium Desktop Systems Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fond-fantasies-in-francophone-features/"><u>Fond Fantasies in Francophone Features</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-leveraging-obs-features-to-boost-zoom-performance/"><u>In 2024, Leveraging OBS' Features to Boost Zoom Performance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-weekdays-in-korea-comprehensive-tutorials/"><u>Mastering Weekdays in Korea: Comprehensive Tutorials</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-income-growth-in-gaming-videos/"><u>In 2024, Income Growth in Gaming Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/unveiling-the-superior-video-compression-in-av1/"><u>Unveiling the Superior Video Compression in AV1</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/honoring-ten-years-mondlybacks-filter-innovation/"><u>Honoring Ten Years: MondlyBack's Filter Innovation</u></a></li>
+</ul></div>

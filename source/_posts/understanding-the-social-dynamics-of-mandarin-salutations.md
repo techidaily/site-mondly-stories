@@ -1,7 +1,7 @@
 ---
 title: Understanding the Social Dynamics of Mandarin Salutations
-date: 2024-06-28T08:00:14.808Z
-updated: 2024-06-29T08:00:14.808Z
+date: 2024-07-12T08:25:08.550Z
+updated: 2024-07-13T08:25:08.550Z
 tags:
   - speak
   - english
@@ -117,3 +117,55 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-did-your-iphone-6s-plus-passcode-change-itself-unlock-it-now-drfone-by-drfone-ios/"><u>In 2024, Did Your iPhone 6s Plus Passcode Change Itself? Unlock It Now | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-kids-the-smart-snacking-app-google-plays-best-of-2017/"><u>Mondly Kids: The Smart Snacking App, Google Play’s Best of 2017</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jolly-rogers-jargon-top-20-expressions-for-the-brave/"><u>Jolly Roger's Jargon: Top 20 Expressions for the Brave</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/english-as-a-foreign-language-curriculum-design/"><u>English as a Foreign Language Curriculum Design</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-journey-through-french-language-27-key-phrases/"><u>A Journey Through French Language: 27 Key Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-15-most-spoken-languages-in-the-world/"><u>Top 15 Most Spoken Languages In The World</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-streamlined-approach-study-czech-digitally/"><u>The Streamlined Approach: Study Czech Digitally</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-youtube-to-gif-magic-your-ultimate-guide-to-animated-images/"><u>2024 Approved  Youtube to Gif Magic  Your Ultimate Guide to Animated Images</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-literature-for-newcomers-our-top-picks-of-best-novels/"><u>French Literature for Newcomers: Our Top Picks of Best Novels</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breakfast-banter-discovering-good-morning-in-10-linguistic-styles/"><u>Breakfast Banter: Discovering 'Good Morning' In 10 Linguistic Styles</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581343205-zero-to-hero-learn-a-new-language-for-just-half-the-price/"><u>Zero to Hero: Learn a New Language for Just Half the Price</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/la-semana-completa-ensenada-en-castellano/"><u>La Semana Completa Enseñada en Castellano</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-essential-fb-movie-downloads-for-23-list-8/"><u>[New] 2024 Approved  Essential FB Movie Downloads for '23 List #8</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/96-off-for-lifetime-access-learn-a-new-language-today-at-black-friday-prices/"><u>96%%‌ OFF for Lifetime Access: Learn a New Language Today at Black Friday Prices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-easy-to-learn-italian-gestures-for-beginners/"><u>10 Easy-to-Learn Italian Gestures for Beginners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-closer-look-at-mondlys-educational-model/"><u>A Closer Look at Mondly’s Educational Model</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-unbound-zen-audio-releases/"><u>[New] Unbound Zen Audio Releases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-the-benefits-of-language-training/"><u>Unlock The Benefits Of Language Training</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/efficiently-acquiring-french-skills-indoor-methods/"><u>Efficiently Acquiring French Skills - Indoor Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-croatian-today-for-these-7-enriching-benefits/"><u>Master Croatian Today for These 7 Enriching Benefits!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unpacking-the-latin-american-european-pt-button-dynamics/"><u>Unpacking the Latin American-European PT Button Dynamics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/break-barriers-with-these-17-simple-spanish-idioms/"><u>Break Barriers with These 17 Simple Spanish Idioms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-the-most-suitable-new-language-option/"><u>Exploring the Most Suitable New-Language Option</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-education-dialogue-a-unifying-endeavor/"><u>Worldwide Education Dialogue: A Unifying Endeavor</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/in-depth-analysis-of-the-wave-editor-signature-capabilities-evaluations-and-practical-lessons/"><u>In-Depth Analysis of the Wave Editor Signature Capabilities, Evaluations, and Practical Lessons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/english-fluency-rewards-and-reasons/"><u>English Fluency: Rewards and Reasons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581520275-huawei-users-get-ready-for-mondly/"><u>Huawei Users, Get Ready for Mondly</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-new-multiple-ways-how-to-remove-icloud-activation-lock-on-your-iphone-6s-by-drfone-ios/"><u>In 2024, New Multiple Ways How To Remove iCloud Activation Lock On your iPhone 6s</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-fluent-step-by-step-french-learning/"><u>From Novice to Fluent: Step-by-Step French Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/habla-segura-colores-en-espanol/"><u>Habla Segura: Colores en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/101-the-ultimate-guide-to-japanese-salutations/"><u>101: The Ultimate Guide to Japanese Salutations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-the-secrets-of-saying-thanks-in-mandarin/"><u>Unlocking the Secrets of Saying Thanks in Mandarin</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhanced-communication-through-3-neurological-activities/"><u>Enhanced Communication Through 3 Neurological Activities</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/venturing-to-israel-top-9-essentials-and-phrasebook-basics/"><u>Venturing to Israel: Top 9 Essentials and Phrasebook Basics</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-embrace-9-festive-feasts-watch-holiday-epics-at-zero-cost-online/"><u>[New] 2024 Approved  Embrace 9 Festive Feasts  Watch Holiday Epics at Zero Cost Online!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-languages-unlock-potential-start-with-slovak-in-a-days-work/"><u>Learn Languages, Unlock Potential: Start with Slovak in a Day's Work!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decipher-squid-game-master-korean-essentials/"><u>Decipher Squid Game: Master Korean Essentials</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-best-hd-video-screen-recorders/"><u>In 2024, Best HD Video Screen Recorders</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-huawei-nova-y91-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Huawei Nova Y91? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/achieve-expertise-in-english-via-mondly-tactics/"><u>Achieve Expertise in English via Mondly Tactics</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-mastering-switch-pro-controller-in-steam-gaming/"><u>In 2024, Mastering Switch Pro Controller in Steam Gaming</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-the-power-of-voice-and-text-on-huawei/"><u>Explore the Power of Voice & Text on Huawei</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/engaging-students-through-interactive-spanish/"><u>Engaging Students Through Interactive Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accelerate-your-swedish-speaking-skills-now/"><u>Accelerate Your Swedish Speaking Skills Now</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conveying-deep-emotions-in-magyar-language/"><u>Conveying Deep Emotions in Magyar Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/las-nombres-de-animales-en-espanol-60-que-debes-aprender/"><u>Las Nombres De Animales en Español: 60 Que Debes Aprender</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/francais-du-lundi-au-dimanche/"><u>Français Du Lundi Au Dimanche</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-the-secrets-of-the-turkish-script-with-ease-and-speed/"><u>Unlocking the Secrets of the Turkish Script with Ease and Speed</u></a></li>
+</ul></div>

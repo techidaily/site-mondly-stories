@@ -1,7 +1,7 @@
 ---
 title: Birth of an AI-Infused, Verbal AR Experience
-date: 2024-07-05T13:30:01.558Z
-updated: 2024-07-06T13:30:01.558Z
+date: 2024-07-12T09:01:07.232Z
+updated: 2024-07-13T09:01:07.232Z
 tags:
   - speak
   - english
@@ -100,3 +100,47 @@ Alex Iliescu, our CEO, spoke about the launch:
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://mondly-stories.techidaily.com/4-egayements-francais-lart-de-dire-merci/"><u>4 Égayements Français: L'Art De Dire 'Merci'</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-broadcasting-brilliance-how-to-capture-compelling-sports-content/"><u>In 2024, Broadcasting Brilliance  How to Capture Compelling Sports Content</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprender-y-tener-conocimiento-del-tiempo-en-espanol/"><u>Comprender Y Tener Conocimiento Del Tiempo en Espaňol</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-spanish-speaking-states-index/"><u>Worldwide Spanish-Speaking States Index</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breaking-down-the-jargon-top-10-slang-words-explained/"><u>Breaking Down the Jargon: Top 10 Slang Words Explained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-the-secrets-of-our-ancient-communication/"><u>Unlocking the Secrets of Our Ancient Communication</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-ultimate-list-of-top-hashtag-tracker-tools-fb-twitter-insta-for-2024/"><u>[New] Ultimate List of Top Hashtag Tracker Tools (FB, Twitter, Insta) for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/what-is-the-lingua-franca-for-israeli-society/"><u>What Is the Lingua Franca for Israeli Society?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-your-voice-mondlys-free-courses-offered/"><u>Unlock Your Voice: Mondly's Free Courses Offered</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-the-lexicon-of-vietnamese-travel/"><u>Unlocking the Lexicon of Vietnamese Travel</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/5-dispelling-misconceptions-about-mastery-of-multiple-tongues/"><u>5 Dispelling Misconceptions About Mastery of Multiple Tongues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/colombias-caregiving-organization-fundacion-danny/"><u>Colombia’s Caregiving Organization - Fundacion Danny</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-video-upload-insights-aspect-ratio-for-twitters-platform-for-2024/"><u>[Updated] Video Upload Insights  Aspect Ratio for Twitter's Platform for 2024</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/new-breakthrough-how-to-make-a-picture-speak-for-2024/"><u>New Breakthrough How to Make A Picture Speak for 2024</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-call-history-from-realme-narzo-60x-5g-by-fonelab-android-recover-call-logs/"><u>The way to get back lost call history from Realme Narzo 60x 5G</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580989032-lifetime-language-pass-your-0-investment-today/"><u>Lifetime Language Pass - Your $0 Investment Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-assembly-of-hispanic-nations/"><u>Worldwide Assembly of Hispanic Nations</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-anatomy-of-an-anti-viewer-cutting-edge-strategies-for-reversed-youtube-videos-for-2024/"><u>[Updated] Anatomy of an Anti-Viewer  Cutting Edge Strategies for Reversed YouTube Videos for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/be-a-winner-save-up-to-96-on-mondly-pro-lifetime/"><u>Be a Winner : Save Up To 96%% on Mondly Pro Lifetime</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/witchcraft-and-pumpkins-across-borders/"><u>Witchcraft & Pumpkins Across Borders</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580814216-100plus-basic-russian-phrases-every-traveler-needs-to-know/"><u>100+ Basic Russian Phrases Every Traveler Needs to Know</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/mp3-conversion-hack-youtube-to-macs-mp3-tutorial-for-2024/"><u>MP3 Conversion Hack  YouTube to Mac's MP3 Tutorial for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-stolen-apple-iphone-14-pro-in-different-conditionsin-drfone-by-drfone-ios/"><u>In 2024, How To Unlock Stolen Apple iPhone 14 Pro In Different Conditionsin | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/young-minds-younger-fluency-kindergarten-elementary-in-espanol/"><u>Young Minds, Younger Fluency: Kindergarten-Elementary in Español</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/online-streaming-capture-a-comprehensive-guide-for-2024/"><u>Online Streaming Capture  A Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://animation-videos.techidaily.com/2024-approved-8-blender-3d-animation-tutorials/"><u>2024 Approved 8 Blender 3D Animation Tutorials</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-fluency-discover-the-best-3-multilingual-resources/"><u>Unlock Fluency: Discover the Best 3 Multilingual Resources</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-poco-f5-5g-phone-without-pin-by-drfone-android/"><u>How to Unlock Poco F5 5G Phone without PIN</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/in-2024-navigating-the-landscape-of-fb-video-advertising-with-best-practices/"><u>In 2024, Navigating the Landscape of FB Video Advertising with Best Practices</u></a></li>
+<li><a href="https://win11.techidaily.com/setting-up-your-image-snap-shot-size/"><u>Setting Up Your Image Snap Shot Size</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-in-2024-connecting-twitter-videos-with-facebook-friends/"><u>[Updated] In 2024, Connecting Twitter Videos with Facebook Friends</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/8-essential-esl-grammar-hints-for-fluent-comprehension/"><u>8 Essential ESL Grammar Hints for Fluent Comprehension</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/assistance-by-danny-from-colombia-for-the-disadvantaged/"><u>Assistance by Danny From Colombia for the Disadvantaged</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-facebook-short-videos-and-everything-about-them-for-2024/"><u>[New] Facebook Short Videos and Everything About Them for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apple-and-mondly-merge-success-10-ed-tech-app-accolade/"><u>Apple & Mondly Merge Success: #10 Ed-Tech App Accolade</u></a></li>
+<li><a href="https://network-issues.techidaily.com/overcome-graphics-anomaly-gl-issue-now-solved/"><u>Overcome Graphics Anomaly: GL Issue, Now Solved</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-minute-guide-to-perfecting-japanese-counts/"><u>10-Minute Guide to Perfecting Japanese Counts</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-simplifying-the-process-sharing-tiktok-content-with-facebook/"><u>2024 Approved  Simplifying the Process  Sharing TikTok Content with Facebook</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/chrome-os-talk-modifiers-selecting-the-top-5-cloud-speech-services/"><u>Chrome OS Talk Modifiers  Selecting the Top 5 Cloud Speech Services</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-top-11-brainy-battles-general-knowledge-channels-revealed/"><u>In 2024, Top 11 Brainy Battles  General Knowledge Channels Revealed</u></a></li>
+</ul></div>

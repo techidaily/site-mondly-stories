@@ -1,7 +1,7 @@
 ---
 title: "Auf Den Ersten Blick: 1-100 in Deutscher Zählweise"
-date: 2024-06-28T08:31:04.107Z
-updated: 2024-06-29T08:31:04.107Z
+date: 2024-07-12T08:56:57.729Z
+updated: 2024-07-13T08:56:57.729Z
 tags:
   - speak
   - english
@@ -138,3 +138,72 @@ Now let’s look at some examples to make sure you got it:
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://mondly-stories.techidaily.com/belgian-babel-how-many-tongues-does-it-wield/"><u>Belgian Babel: How Many Tongues Does It Wield?</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-2024-approved-tutorials-for-beginners-how-to-add-audio-to-imovie/"><u>New 2024 Approved Tutorials for Beginners How to Add Audio to iMovie</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-expressiveness-enhancing-youtube-comments-via-emojis/"><u>[Updated] Expressiveness  Enhancing YouTube Comments via Emojis</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-itel-p40-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Itel P40 to Other Android Devices Devices? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/common-spelling-traps-in-english-the-definitive-top-100-list/"><u>Common Spelling Traps in English - The Definitive Top 100 List</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-fasttrack-retrosnap-replay/"><u>[New] In 2024, FastTrack RetroSnap Replay</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beginners-counting-guide-from-1-to-100-in-german/"><u>Beginner's Counting Guide: From 1 to 100 in German</u></a></li>
+<li><a href="https://extra-support.techidaily.com/introduction-to-adding-new-fonts-in-ae-for-2024/"><u>Introduction to Adding New Fonts in AE for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-foremost-innovative-logos-for-social-platforms-animations/"><u>[New] Foremost Innovative Logos for Social Platforms' Animations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/british-english-vs-american-english-differences-spelling-pronunciation-and-more/"><u>British English vs American English Differences: Spelling, Pronunciation and More</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-top-30-pro-freefire-hashtags-for-boosting-video-popularity/"><u>In 2024, Top 30 Pro-FreeFire Hashtags for Boosting Video Popularity</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-comprehensive-guide-to-editing-tiktok-account-numbers/"><u>The Comprehensive Guide to Editing TikTok Account Numbers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/elevate-your-filmmaking-skills-for-ig-reels-for-2024/"><u>Elevate Your Filmmaking Skills for IG Reels for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-mastering-fast-forward-on-vimeo/"><u>In 2024, Mastering Fast-Forward on Vimeo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/boundaries-over-gaps-skillful-approaches-to-multicultural-discourse/"><u>Boundaries Over Gaps: Skillful Approaches to Multicultural Discourse</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-beyond-glitter-the-pure-reality-of-recordcast-experience-for-2024/"><u>[New] Beyond Glitter  The Pure Reality of RecordCast Experience for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/charisma-unleashed-essential-flirtatious-quips-and-one-liners/"><u>Charisma Unleashed: Essential Flirtatious Quips and One-Liners</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-pictures-from-huawei-p60-by-fonelab-android-recover-pictures/"><u>How to recover deleted pictures from Huawei P60.</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-deleted-photos-on-itel-a60s-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Retrieve  deleted photos on Itel A60s</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/childhood-learning-leader-mondly-kids-honored-2017/"><u>Childhood Learning Leader: Mondly Kids Honored 2017</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-meizu-21-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Meizu 21? | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/hdr-vs-sdr-a-visual-spectrum-showdown/"><u>HDR vs SDR  A Visual Spectrum Showdown</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-creating-impactful-youtube-conclusion/"><u>2024 Approved  Creating Impactful YouTube Conclusion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/colloquial-contrasts-rio-vs-romes-linguistic-landscapes/"><u>Colloquial Contrasts: Rio Vs. Rome's Linguistic Landscapes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultivate-cognitive-growth-through-linguistics/"><u>Cultivate Cognitive Growth Through Linguistics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-words-and-hearts-overcoming-language-obstacles-in-romance/"><u>Bridging Words & Hearts: Overcoming Language Obstacles in Romance</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-comprehensible-techniques-for-effective-classroom-recordings-on-mac/"><u>[New] Comprehensible Techniques for Effective Classroom Recordings on Mac</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-the-gap-with-educators-global-event/"><u>Bridging the Gap with Educators Global Event</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/boosting-bilingualism-top-3-cognitive-routines/"><u>Boosting Bilingualism: Top 3 Cognitive Routines</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-advanced-steps-a-compre-point-of-view-on-screen-record-with-adobe-captivate/"><u>[Updated] Advanced Steps  A Compre Point of View on Screen Record with Adobe Captivate</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comparing-iberian-romance-spains-spanish-and-portugals-portuguese/"><u>Comparing Iberian Romance: Spain's Spanish and Portugal's Portuguese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cosmic-communication-the-intricacies-of-star-wars-dialogues/"><u>Cosmic Communication: The Intricacies of Star Wars Dialogues</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-vivo-x90s-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your Vivo X90S Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/contare-con-cuore-unintroduzione-alle-cifre-italiane-1-1000/"><u>Contare Con Cuore - Un'Introduzione Alle Cifre Italiane (1-1000)</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-boosting-engagement-and-followers-in-igtv-with-smart-hash-tagging/"><u>[New] 2024 Approved  Boosting Engagement and Followers in IGTV with Smart Hash Tagging</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-designing-dynamic-podcast-engagements/"><u>[Updated] In 2024, Designing Dynamic Podcast Engagements</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/croatias-language-identity/"><u>Croatia's Language Identity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beyond-borders-four-key-perks-of-multilingualism-in-later-life/"><u>Beyond Borders: Four Key Perks of Multilingualism in Later Life</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beyond-pronunciations-conquering-the-most-tricky-tongues-in-the-world/"><u>Beyond Pronunciations: Conquering the Most Tricky Tongues in the World</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-decoding-podcast-access-a-detailed-iphone-guidebook/"><u>[Updated] 2024 Approved  Decoding Podcast Access  A Detailed iPhone Guidebook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bangla-boost-mastering-in-ten-minutes/"><u>Bangla Boost: Mastering in Ten Minutes!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beginners-pathway-to-urdu-mastery-with-keywords/"><u>Beginner's Pathway to Urdu Mastery with Keywords</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/top-10-accelerating-yt-channels-for-intellectual-enlightenment-for-2024/"><u>Top 10 Accelerating YT Channels for Intellectual Enlightenment for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-inexpensive-high-quality-cameras/"><u>[Updated] Inexpensive High-Quality Cameras</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-any-new-tongue-with-ease-explore-our-premier-three-sites/"><u>Conquer Any New Tongue with Ease: Explore Our Premier Three Sites</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/how-to-initiate-a-collaborative-skype-group-discussion-for-2024/"><u>How to Initiate a Collaborative Skype Group Discussion for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conversing-with-creatures-understanding-alien-languages-in-star-wars/"><u>Conversing with Creatures: Understanding Alien Languages in Star Wars</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-key-to-accumulating-a-huge-collection-of-tiktok-videos/"><u>The Key to Accumulating a Huge Collection of TikTok Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/commemorating-10-years-mondlybutton-innovation/"><u>Commemorating 10 Years: MondlyButton Innovation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/best-paths-to-learning-finnish-on-the-internet/"><u>Best Paths to Learning Finnish on the Internet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cross-cultural-gratitude-thanking-in-30-languages-154/"><u>Cross-Cultural Gratitude: Thanking in 30 Languages (154)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/catalonias-linguistic-leap-each-day/"><u>Catalonia's Linguistic Leap – Each Day!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquering-vietnamese-a-beginners-phrasebook/"><u>Conquering Vietnamese: A Beginner's Phrasebook</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-critical-choices-for-perfect-snaps/"><u>In 2024, Critical Choices for Perfect Snaps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/british-vernacular-essentials-speak-with-local-flair/"><u>British Vernacular Essentials: Speak with Local Flair</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-effective-techniques-for-creating-podcast-rss-feeds/"><u>2024 Approved  Effective Techniques for Creating Podcast RSS Feeds</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-bengali-fast-learn-each-day-achieve-tomorrow/"><u>Conquer Bengali Fast: Learn Each Day, Achieve Tomorrow</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cinematic-francophone-tales-of-love/"><u>Cinematic Francophone Tales of Love</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-directors-eye-15-essential-camera-shots-explained/"><u>[New] The Director's Eye  15 Essential Camera Shots Explained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/childs-play-with-polyglots-multilingualism-made-simple/"><u>Child's Play with Polyglots: Multilingualism Made Simple</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-crafting-a-personalized-youtube-pathway-to-viewers/"><u>[New] In 2024, Crafting a Personalized YouTube Pathway to Viewers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beginnings-of-bilingualism-spanish-for-youngsters/"><u>Beginnings of Bilingualism: Spanish for Youngsters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beginners-pathway-to-russian-currency-terminology/"><u>Beginner's Pathway to Russian Currency Terminology</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/casual-conversations-made-easy-a-guide-to-slang-definitions/"><u>Casual Conversations Made Easy: A Guide to Slang Definitions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/break-barriers-learn-languages-anywhere-mondlys-vr-language-program/"><u>Break Barriers, Learn Languages Anywhere - Mondly's VR Language Program</u></a></li>
+</ul></div>

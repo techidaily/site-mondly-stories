@@ -1,7 +1,7 @@
 ---
 title: "Kommunikationskunst: 10 Deutsche Grußformeln Ohne 'Hallo'"
-date: 2024-06-28T07:31:13.164Z
-updated: 2024-06-29T07:31:13.164Z
+date: 2024-07-12T07:55:14.869Z
+updated: 2024-07-13T07:55:14.869Z
 tags:
   - speak
   - english
@@ -166,3 +166,45 @@ _Tschüss!_ (‘Goodbye!’)
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-oppo-a56s-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Best Spy Watches For your Oppo A56s 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/romance-rhetoric-the-subtleties-of-spanish-flirting/"><u>Romance Rhetoric: The Subtleties of Spanish Flirting</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-2024-approved-mac-vlc-video-editor-trim-and-optimize-your-videos/"><u>New 2024 Approved Mac VLC Video Editor Trim and Optimize Your Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oxford-unleashes-language-potential-essentials-first/"><u>Oxford Unleashes Language Potential: Essentials First</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-multiple-languages-effortlessly-with-mondlys-interactive-vr-app/"><u>Master Multiple Languages Effortlessly with Mondly's Interactive VR App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-english-across-the-globe-through-pearson/"><u>Explore English Across the Globe Through Pearson</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-bonds-among-worlds-teachers/"><u>Linguistic Bonds Among World's Teachers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-to-linguistic-excellence-7-reasons-why-mondly-helps-with-afrikaans/"><u>Journey to Linguistic Excellence: 7 Reasons Why Mondly Helps With Afrikaans</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-local-to-global-mondly-connecting-with-70-million-students-worldwide/"><u>From Local to Global: Mondly Connecting with 70 Million Students Worldwide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-slovak-online-in-just-10-minutes-a-day/"><u>Learn Slovak Online in Just 10 Minutes a Day</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-standout-5-dynamic-social-platform-logo-movements/"><u>[New] Standout 5 Dynamic Social Platform Logo Movements</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-native-6-pivotal-steps-for-seamless-surrender/"><u>From Novice to Native: 6 Pivotal Steps for Seamless Surrender</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/initially-released-voice-controlled-ar-experience/"><u>Initially Released Voice-Controlled AR Experience</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-elevating-your-social-media-presence-with-igtv-videos-for-2024/"><u>[Updated] Elevating Your Social Media Presence with IGTV Videos for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sultry-syntax-mastering-the-language-of-love-in-spanish/"><u>Sultry Syntax: Mastering the Language of Love in Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swedish-letters-and-sound-practice-manual/"><u>Swedish Letters & Sound Practice Manual</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/shakespeares-timeless-tongue-everyday-usage-explored/"><u>Shakespeare's Timeless Tongue: Everyday Usage Explored</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/huawei-users-get-ready-for-mondly/"><u>Huawei Users, Get Ready for Mondly!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/semaine-francaise-weekdays-translated/"><u>Semaine Française: Weekdays Translated</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-anatomy-of-chinese-letters/"><u>The Anatomy of Chinese Letters</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-free-easy-to-use-leading-web-based-tiktop-to-mp3-apps/"><u>[New] 2024 Approved  Free, Easy-to-Use  Leading Web-Based TikTop To MP3 Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-presents-its-revamped-question-answer-center/"><u>Mondly Presents Its Revamped Question Answer Center</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/los-dias-pasan-aprende-su-nombre-en-espanol/"><u>Los Días Pasan, Aprende Su Nombre en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/reconnaitre-en-francais-la-delivrance-dun-merci/"><u>Reconnaître en Français La Délivrance D'Un 'Merci'</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-navigating-the-2023-landscape-for-screen-captures-and-ppts/"><u>[Updated] Navigating the 2023 Landscape for Screen Captures & PPTs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fruhstuck-mit-nummern-1-100-auf-deutsch-lernen-fur-anfanger/"><u>Frühstück Mit Nummern: 1-100 Auf Deutsch Lernen Für Anfänger</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sing-your-way-through-languages-effective-methods-and-sound-strategies/"><u>Sing Your Way Through Languages: Effective Methods & Sound Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-german-proverbs-top-25-list/"><u>Mastering German Proverbs: Top 25 List</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-new-languages-after-forty-social-professional-and-brain-gain-reasons/"><u>Mastering New Languages After Forty: Social, Professional, and Brain Gain Reasons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/premier-ar-voice-interpreter-app/"><u>Premier AR Voice Interpreter App</u></a></li>
+<li><a href="https://extra-support.techidaily.com/scribes-summit-selection-top-8-for-2024/"><u>Scribe's Summit Selection - Top 8 for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/macaus-tongue-tapestry-a-multilingual-study/"><u>Macau's Tongue Tapestry: A Multilingual Study</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-infinix-zero-5g-2023-turbo-fixed-drfone-by-drfone-virtual-android/"><u>iSpoofer is not working On Infinix Zero 5G 2023 Turbo? Fixed | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introduzir-se-ao-brasil-com-expressoes-da-gente/"><u>Introduzir-Se Ao Brasil Com Expressões Da Gente</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-influence-on-my-multilingual-journey-the-essential-10-tips/"><u>Mondly's Influence on My Multilingual Journey – The Essential 10 Tips</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/1714925143590-new-crafting-masterpieces-on-your-mac-an-in-depth-look-at-the-leading-daws-of-2-written-in-markdown-format-with-each-title-as-a-separate-subheading-heres-ho/"><u>New Crafting Masterpieces on Your Mac An In-Depth Look at the Leading DAWs of 2 Written in Markdown Format, with Each Title as a Separate Subheading. Heres How It Would Look Like for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nlock-the-secrets-of-building-budget-friendly-youtube-ads-for-2024/"><u>[New] Unlock the Secrets of Building Budget-Friendly YouTube Ads for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/staying-engaged-and-sharp-learning-languages-beyond-fifty/"><u>Staying Engaged and Sharp: Learning Languages Beyond Fifty</u></a></li>
+</ul></div>

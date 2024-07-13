@@ -1,7 +1,7 @@
 ---
 title: A Comprehensive Guide to Chinese Polite Addresses
-date: 2024-06-28T07:54:49.324Z
-updated: 2024-06-29T07:54:49.324Z
+date: 2024-07-12T08:19:36.012Z
+updated: 2024-07-13T08:19:36.012Z
 tags:
   - speak
   - english
@@ -117,3 +117,44 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-insights-on-maintaining-engagement-after-algorithm-shifts/"><u>[New] In 2024, Insights on Maintaining Engagement After Algorithm Shifts</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-upgrade-your-experience-10-high-performance-drives-for-2024/"><u>[New] Upgrade Your Experience  #10 High-Performance Drives for 2024</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/the-definitive-collection-of-free-online-tools-for-listening-to-text-files-for-2024/"><u>The Definitive Collection of FREE Online Tools for Listening to Text Files for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-recognition-educators-in-multilingual-light/"><u>Global Recognition: Educators in Multilingual Light</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speedy-syntax-in-spanish-10-minsday/"><u>Speedy Syntax in Spanish – 10 Mins/Day</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/21-vegas-pros-impact-on-sports-betting-analysis/"><u>'21 Vegas Pro's Impact on Sports Betting Analysis</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/languages-that-echo-across-asia-top-3/"><u>Languages that Echo Across Asia: Top 3</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-expert-strategies-for-oscillating-between-silence-and-sounds-in-obs-broadcasting/"><u>New Expert Strategies for Oscillating Between Silence and Sounds in OBS Broadcasting</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/intuitive-platform-for-video-collaboration-streamxpert/"><u>Intuitive Platform for Video Collaboration - StreamXpert</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-top-vhs-sound-effect-that-you-can-use-in-video-making/"><u>New Top VHS Sound Effect That You Can Use in Video Making</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-educators-celebration-multilingual-homage/"><u>Global Educators Celebration: Multilingual Homage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/interactive-steps-towards-fluency-in-spanish/"><u>Interactive Steps Towards Fluency in Spanish</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/in-2024-discords-best-fixed-character-emoji-crafting-apps/"><u>In 2024, Discord's Best Fixed Character Emoji Crafting Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-ar-uses-augmented-reality-to-change-the-way-we-learn-languages/"><u>Mondly AR Uses Augmented Reality To Change The Way We Learn Languages</u></a></li>
+<li><a href="https://driver-install.techidaily.com/release-alert-amds-latest-gpu-updates/"><u>Release Alert: AMD's Latest GPU Updates</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-track-imei-number-of-vivo-x-fold-2-through-google-earth-by-drfone-android/"><u>How To Track IMEI Number Of Vivo X Fold 2 Through Google Earth?</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/zero-watermark-total-freedom-best-free-online-video-editors-for-2024/"><u>Zero Watermark, Total Freedom Best Free Online Video Editors for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/quick-start-guide-recording-your-pcs-display-with-hp-for-2024/"><u>Quick Start Guide  Recording Your PC's Display with HP for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-choosing-superior-tools-for-vocal-change-in-content-making/"><u>[New] 2024 Approved  Choosing Superior Tools for Vocal Change in Content Making</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-transforms-linguistic-learning-with-a-fresh-guidebook/"><u>Mondly Transforms Linguistic Learning with a Fresh Guidebook</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-unprecedented-capacity-choices-elite-cloud-services/"><u>In 2024, Unprecedented Capacity Choices  Elite Cloud Services</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-convenient-hp-recording-strategies-for-seamless-productivity/"><u>2024 Approved  Convenient HP Recording Strategies for Seamless Productivity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/interkultureller-austausch-10-andere-deutsche-salutformen-neben-hallo/"><u>Interkultureller Austausch: 10 Andere Deutsche Salutformen Neben Hallo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sabemos-expressoes-de-alegria-no-portugues-tudo-que-pensa/"><u>Sabemos Expressões De Alegria No Português - Tudo Que Pensa</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-named-best-language-learning-app-of-2022-by-bestappcom/"><u>Mondly Named Best Language Learning App of 2022 by BestApp.com</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-guide-on-how-to-change-your-apple-id-email-address-on-apple-iphone-11-by-drfone-ios/"><u>In 2024, Guide on How To Change Your Apple ID Email Address On Apple iPhone 11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-diverse-love-phrases-this-valentines-season/"><u>Explore Diverse Love Phrases This Valentine's Season</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/salutations-francaises-la-reponse-idyllique/"><u>Salutations Françaises: La Réponse Idyllique</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-9-oppo-reno-11f-5g-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>In 2024, Top 9 Oppo Reno 11F 5G Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/second-languages-focusing-on-english/"><u>Second Languages: Focusing on English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lingual-interactions-international-contribution-to-english/"><u>Lingual Interactions: International Contribution to English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/screen-based-linguistic-strategies-unveiled/"><u>Screen-Based Linguistic Strategies Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lovely-french-one-liners-explained/"><u>Lovely French One-Liners Explained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-croatian-dialogues-preparing-to-master-the-language-of-the-adriatic-sea/"><u>Essential Croatian Dialogues: Preparing to Master the Language of the Adriatic Sea</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/one-week-to-fluent-urdu-online/"><u>One Week to Fluent Urdu Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/key-danish-films-to-elevate-your-danish-comprehension/"><u>Key Danish Films to Elevate Your Danish Comprehension</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/masterful-bot-networks-on-discord/"><u>Masterful Bot Networks on Discord</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Australian Vernacular Vocabulary Compendium
-date: 2024-06-28T07:55:46.864Z
-updated: 2024-06-29T07:55:46.864Z
+date: 2024-07-12T08:20:34.269Z
+updated: 2024-07-13T08:20:34.269Z
 tags:
   - speak
   - english
@@ -315,3 +315,48 @@ Get Mondly now and speak any language like you never dreamed you would ![Give it
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://mondly-stories.techidaily.com/celebrating-a-full-circle-mondlys-jubilee-year/"><u>Celebrating a Full Circle: Mondly’s Jubilee Year</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/break-down-barriers-with-these-essential-greetings/"><u>Break Down Barriers With These Essential Greetings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/childhood-as-the-peak-time-for-second-language-acquisition/"><u>Childhood as the Peak Time for Second Language Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/converse-with-confidence-in-italy-the-essential-phrases-list/"><u>Converse with Confidence in Italy: The Essential Phrases List</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/in-2024-how-to-change-gps-location-on-vivo-y100-5g-easily-and-safely-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change GPS Location on Vivo Y100 5G Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/tips-for-quicker-periscope-livestreams/"><u>Tips for Quicker Periscope Livestreams</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/be-bilingual-today-learn-german-from-popular-show-dark/"><u>Be Bilingual Today! Learn German From Popular Show, Dark</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-enhance-yt-experience-the-most-outstanding-reaction-ideas-for-2024/"><u>[New] Enhance YT Experience  The Most Outstanding Reaction Ideas for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conversational-prowess-top-17-commonplace-spanish-idioms/"><u>Conversational Prowess: Top 17 Commonplace Spanish Idioms</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-best-8-online-mpeg-to-gif-converters/"><u>New Best 8 Online MPEG to GIF Converters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beat-the-time-barrier-and-learn-slovak-in-smart-10-minute-chunks/"><u>Beat the Time Barrier & Learn Slovak in Smart 10-Minute Chunks!</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-5-key-strategies-for-impactful-titles-today/"><u>[Updated] In 2024, 5 Key Strategies for Impactful Titles Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beginners-insights-into-german-letter-forms/"><u>Beginners' Insights Into German Letter Forms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beyond-the-hype-true-factors-in-mastering-languages/"><u>Beyond the Hype: True Factors in Mastering Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-language-barriers-mondlys-winning-formula/"><u>Conquer Language Barriers: Mondly's Winning Formula</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-a-novices-navigational-guide-on-youtube-channel-creation-and-making-dough/"><u>[New] A Novice's Navigational Guide on YouTube  Channel Creation and Making Dough</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-detailed-app-analysis-the-ultimate-az-recorder-guide/"><u>[New] 2024 Approved  Detailed App Analysis - The Ultimate AZ Recorder Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breath-and-bravery-mastering-pronunciation-with-twisters/"><u>Breath and Bravery: Mastering Pronunciation with Twisters</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/ideal-sound-devices-for-digital-influencers/"><u>Ideal Sound Devices for Digital Influencers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/croatian-communicative-language/"><u>Croatian Communicative Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apex-preparation-for-top-tier-linguistic-proficiency-evaluations/"><u>Apex Preparation for Top-Tier Linguistic Proficiency Evaluations</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-solutions-to-spy-on-vivo-s18-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>In 2024, Solutions to Spy on Vivo S18 with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-earnings-engineering-crafting-a-high-yield-strategy-for-your-youtube-channel/"><u>2024 Approved  Earnings Engineering  Crafting a High Yield Strategy for Your YouTube Channel</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-ultimate-tutorial-for-uploading-to-instagram-tv/"><u>[Updated] The Ultimate Tutorial for Uploading to Instagram TV</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/21st-century-communication-revolutionizing-the-way-we-talk/"><u>21St Century Communication: Revolutionizing the Way We Talk</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Apple iPhone SE | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580654818-lifetime-access-to-languages-black-fridays-best-price/"><u>Lifetime Access to Languages - Black Friday's Best Price!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/borrowing-beyond-borders-enriched-english-lexicon/"><u>Borrowing Beyond Borders: Enriched English Lexicon</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/criptografando-um-conhecimento-em-portugues-greves-gerais/"><u>Criptografando Um Conhecimento Em Português - Greves Gerais</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/becoming-multilingual-at-your-fingertitsps-with-mondlyvr/"><u>Becoming Multilingual at Your Fingertitsps with MondlyVR</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/communicating-in-silent-italy-hand-gesture-basics/"><u>Communicating in Silent Italy: Hand Gesture Basics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquering-russian-greetings-keywords-for-fluency/"><u>Conquering Russian Greetings: Keywords for Fluency</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-honor-magic-6-location-by-number-drfone-by-drfone-virtual-android/"><u>How to Track Honor Magic 6 Location by Number | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-revolutionizing-audio-documentation-the-art-of-call-recording/"><u>[New] 2024 Approved  Revolutionizing Audio Documentation  The Art of Call Recording</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprension-total-de-partes-vitales-una-jornada-completa-desde-el-torax-a-los-pies-en-espanol/"><u>Comprensión Total De Partes Vitales: Una Jornada Completa Desde El Tórax A Los Pies En Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719574684003-learn-slovak-online-in-just-10-minutes-a-day/"><u>Learn Slovak Online In Just 10 Minutes A Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bite-into-squid-game-korean-language-basics/"><u>Bite Into Squid Game: Korean Language Basics</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-vivo-y100i-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Vivo Y100i to Other Android Devices Devices? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-borders-optimal-language-learning-for-companies/"><u>Bridging Borders: Optimal Language Learning for Companies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578519923-learn-croatian-why-and-how-discover-the-7-key-advantages/"><u>Learn Croatian: Why and How – Discover the 7 Key Advantages!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/colombias-heartbeat-of-compassion-fundacion-danny/"><u>Colombia’s Heartbeat of Compassion - Fundacion Danny</u></a></li>
+</ul></div>

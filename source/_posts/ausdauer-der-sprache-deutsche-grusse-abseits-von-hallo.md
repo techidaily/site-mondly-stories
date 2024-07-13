@@ -1,7 +1,7 @@
 ---
 title: "Ausdauer Der Sprache: Deutsche Grüße Abseits Von Hallo"
-date: 2024-06-28T08:23:20.139Z
-updated: 2024-06-29T08:23:20.139Z
+date: 2024-07-12T08:48:59.030Z
+updated: 2024-07-13T08:48:59.030Z
 tags:
   - speak
   - english
@@ -166,3 +166,61 @@ _Tschüss!_ (‘Goodbye!’)
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://mondly-stories.techidaily.com/1719581148025-daily-slices-of-success-learn-slovak-online-10-minutes-each/"><u>Daily Slices of Success: Learn Slovak Online, 10 Minutes Each!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-ks-the-language-of-squid-games-culture/"><u>Dive Into KS: The Language of Squid Game's Culture</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/valentines-day-vocabulary-worldwide-loving-terms/"><u>Valentine's Day Vocabulary: Worldwide Loving Terms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-languages-with-mondlys-updated-guide/"><u>Master Languages with Mondly's Updated Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridge-cultures-master-more-languages/"><u>Bridge Cultures: Master More Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/techniques-for-accurate-spanish-accented-letter-usage/"><u>Techniques for Accurate Spanish Accented Letter Usage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-guide-for-learning-turkish-language-with-ease/"><u>Essential Guide for Learning Turkish Language with Ease</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/wordplay-wins-the-seductive-language-of-spanish/"><u>Wordplay Wins: The Seductive Language of Spanish</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-top-budget-friendly-cam-stream-viewer/"><u>[Updated] In 2024, Top Budget-Friendly Cam Stream Viewer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/charting-new-languages-mondlylanguages-2-year-odyssey/"><u>Charting New Languages - MondlyLanguages' 2 Year Odyssey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/babelburst-at-expo-dubai-2020-language-learnings-next-step/"><u>BabelBurst at Expo Dubai 2020: Language Learning's Next Step</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/becoming-multilingual-via-visual-media/"><u>Becoming Multilingual via Visual Media</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/communications-kings-in-asia-top-3-languages/"><u>Communication's Kings in Asia: Top 3 Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576809217-learn-the-days-of-the-week-in-german/"><u>Learn The Days Of The Week In German</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-capture-the-oceans-majesty-best-action-cameras-reviewed/"><u>[Updated] 2024 Approved  Capture the Ocean's Majesty  Best Action Cameras Reviewed</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-top-rated-apps-to-elevate-instagram-imagery/"><u>In 2024, Top-Rated Apps to Elevate Instagram Imagery</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-xiaomi-redmi-note-12-5g-drfone-by-drfone-virtual-android/"><u>5 Hassle-Free Solutions to Fake Location on Find My Friends Of Xiaomi Redmi Note 12 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beyond-words-the-universal-language-of-love/"><u>Beyond Words: The Universal Language of Love</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-unveils-its-innovative-question-and-answer-space/"><u>Mondly Unveils Its Innovative Question & Answer Space</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-daily-gesture-lingo-in-italy/"><u>Decoding Daily Gesture Lingo in Italy</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-eliminate-visual-annoyances-best-mobile-apps/"><u>[Updated] Eliminate Visual Annoyances  Best Mobile Apps</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/fb-messenger-call-history-management-made-easy/"><u>FB Messenger Call History Management Made Easy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-power-of-patience-in-polyglot-relationships/"><u>The Power of Patience in Polyglot Relationships</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-french-social-interactions-a-guide-to-common-greetings/"><u>Navigating French Social Interactions: A Guide to Common Greetings</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-crafting-concentration-in-photos-with-insta-zoom-tricks-for-2024/"><u>[New] Crafting Concentration in Photos with Insta Zoom Tricks for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/5-steps-to-become-fluent-in-french-at-home/"><u>5 Steps to Become Fluent in French at Home</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-boost-connectivity-discover-the-best-5-chrome-tools-for-facebook-videos/"><u>[Updated] Boost Connectivity  Discover the Best 5 Chrome Tools for Facebook Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/national-dialects-belgiums-language-map/"><u>National Dialects: Belgium's Language Map</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-camstudio-live-streaming-and-screen-capturing-review/"><u>[Updated] 2024 Approved  CamStudio Live Streaming & Screen Capturing Review</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579063199-epic-discount-lifetime-language-access-at-black-friday/"><u>Epic Discount: Lifetime Language Access at Black Friday</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/crossing-borders-with-shared-easter-sentiments/"><u>Crossing Borders with Shared Easter Sentiments</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-most-accessible-latin-program-online/"><u>Unveiling the Most Accessible Latin Program Online</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-the-urban-ecosystem-fostering-resilience-through-green-policies/"><u>[New] The Urban Ecosystem  Fostering Resilience Through Green Policies</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-discover-the-world-of-screen-capture-with-apowersofts-free-version/"><u>[New] In 2024, Discover the World of Screen Capture with Apowersoft's Free Version</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579048028-black-friday-deal-endless-language-learning-at-96-less/"><u>Black Friday Deal: Endless Language Learning at 96%% Less!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swiftly-conquering-french-chromatic-speech/"><u>Swiftly Conquering French Chromatic Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-collaborates-with-pearson-study-network/"><u>Mondly Collaborates With Pearson Study Network</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/be-archiving-a-guide-to-moving-to-dailymotion/"><u>YouTube Archiving  A Guide to Moving to Dailymotion</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-2024-approved-top-tier-discord-automations/"><u>[New] 2024 Approved  Top-Tier Discord Automations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cognitive-calisthenics-for-conquering-complex-languages/"><u>Cognitive Calisthenics for Conquering Complex Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-learn-bengali-courses-online/"><u>Quick-Learn Bengali Courses Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/this-innovative-virtual-reality-app-helps-you-learn-a-foreign-language-in-a-fun-way/"><u>This Innovative Virtual Reality App Helps You Learn a Foreign Language in a Fun Way</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/optimal-online-strategies-for-language-acquisition/"><u>Optimal Online Strategies for Language Acquisition</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-swift-simplified-steps-mastering-iphone-screen-recordings/"><u>[New] In 2024, Swift, Simplified Steps  Mastering Iphone Screen Recordings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultivate-communication-skills-with-pearson/"><u>Cultivate Communication Skills with Pearson</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/genom-att-svida-visa-till-sverige/"><u>Genom Att Svida: Visa Till Sverige</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilanguage-mastery-and-brain-power/"><u>Multilanguage Mastery and Brain Power</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-vdsc-vidmaster-tale-a-comprehensive-evaluation/"><u>In 2024, VDSC VidMaster Tale  A Comprehensive Evaluation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/celebrate-new-beginnings-by-saving-big-with-mondly-pros-free-access/"><u>Celebrate New Beginnings by Saving Big with Mondly Pro's Free Access</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/um-preciso-guia-ao-falar-em-portugal-frases-de-cunho-amigavel/"><u>Um Préciso Guia Ao Falar Em Portugal - Frases De Cunho Amigável</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-eloquent-expression-of-germans-essential-25-phrases/"><u>The Eloquent Expression of Germans - Essential 25 Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-beans-to-bars-heres-chocolate-in-30-languages/"><u>From Beans to Bars, Here's Chocolate in 30 Languages!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-best-resources-for-learning-japanese-online-on-your-own-and-for-free/"><u>The Best Resources For Learning Japanese Online, On Your Own, And For Free</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/an-insiders-guide-to-hiragana-and-katakana-mastery/"><u>An Insider's Guide to Hiragana & Katakana Mastery</u></a></li>
+</ul></div>

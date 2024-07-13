@@ -1,7 +1,7 @@
 ---
 title: A Compre Written Guide to Germany’s Most Common Thanks Expressions
-date: 2024-06-28T08:33:43.064Z
-updated: 2024-06-29T08:33:43.064Z
+date: 2024-07-12T08:59:41.737Z
+updated: 2024-07-13T08:59:41.737Z
 tags:
   - speak
   - english
@@ -138,3 +138,52 @@ Get Mondly now and speak German like you never dreamed you would ![Learn German 
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://mondly-stories.techidaily.com/accelerate-learning-urdu-effortlessly/"><u>Accelerate Learning Urdu, Effortlessly</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-how-to-add-captions-to-youtube-videos/"><u>[Updated] 2024 Approved  How To Add Captions to YouTube Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/adopt-the-ten-minute-rule-to-learn-urdu-quickly/"><u>Adopt the Ten-Minute Rule to Learn Urdu Quickly!</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-mts-video-editing-software-5-top-rated-options-for-2024/"><u>Updated MTS Video Editing Software 5 Top-Rated Options for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579212463-dive-into-hindi-mastery-with-8-compelling-mondly-advantages/"><u>Dive Into Hindi Mastery with 8 Compelling Mondly Advantages!</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-androidios-video-cutting-edge-8-top-montage-tools-revealed/"><u>[Updated] Android/iOS Video Cutting-Edge  8 Top Montage Tools Revealed</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-factory-reset-ipad-or-apple-iphone-14-pro-max-without-icloud-password-or-apple-id-by-drfone-ios/"><u>In 2024, How to Factory Reset iPad or Apple iPhone 14 Pro Max without iCloud Password or Apple ID?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578832277-why-choose-mondly-discover-the-unmatched-advantages/"><u>Why Choose Mondly? Discover the Unmatched Advantages!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578479086-celebrate-new-beginnings-by-saving-big-with-mondly-pros-free-access/"><u>Celebrate New Beginnings by Saving Big with Mondly Pro's Free Access!</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/updated-2024-approved-voicemod-ai-review-transforming-your-voice-in-real-time/"><u>Updated 2024 Approved Voicemod AI Review Transforming Your Voice in Real Time</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprendiendo-la-linea-del-tiempo-en-espanol-de-martes-al-domingo/"><u>Aprendiendo La Línea Del Tiempo en Español De Martes Al Domingo</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-motorola-razr-40-ultra-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Motorola Razr 40 Ultra | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-primer-on-german-speech-sounds-for-beginners/"><u>A Primer on German Speech Sounds for Beginners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-bilingual-mindsets-benefits-countdown-to-6/"><u>A Bilingual Mindset's Benefits Countdown to 6</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/australian-dialect-demystified/"><u>Australian Dialect Demystified</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/5-widespread-myths-about-effective-language-acquisition/"><u>5 Widespread Myths About Effective Language Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/150plus-key-russian-terms-to-master-travel-lingo/"><u>150+ Key Russian Terms to Master Travel Lingo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-cross-cultural-films-that-sharpen-your-vocabulentic-skills/"><u>10 Cross-Cultural Films That Sharpen Your Vocabulentic Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/4-popular-ways-to-say-youre-welcome-in-french/"><u>4 Popular Ways To Say You’re Welcome In French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581758148-new-lingo-no-stress-save-95-and-speak-smoothly/"><u>New Lingo, No Stress: Save 95%% and Speak Smoothly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/arabic-starter-pack-essential-steps-for-novices/"><u>Arabic Starter Pack: Essential Steps for Novices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/afrikaans-unlocked-discover-7-learning-benefits-via-mondly/"><u>Afrikaans Unlocked: Discover 7 Learning Benefits via Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578431875-discover-limitless-possibilities-get-free-mondly-pro-for-life-today/"><u>Discover Limitless Possibilities - Get Free Mondly Pro for Life Today</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-understanding-facebook-reels-and-their-production-techniques/"><u>[New] Understanding Facebook Reels and Their Production Techniques</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-windows-10-photos-not-enough-explore-these-8-amazing-alternatives/"><u>Updated 2024 Approved Windows 10 Photos Not Enough? Explore These 8 Amazing Alternatives</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578514739-boost-your-urdu-skills-in-a-flash/"><u>Boost Your Urdu Skills in a Flash!</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-prime-screen-share-best-free-tech-for-online-collaboration/"><u>[Updated] 2024 Approved  Prime Screen Share  Best Free Tech for Online Collaboration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578590735-become-a-home-cooking-wizard-in-just-three-easy-steps/"><u>Become a Home Cooking Wizard in Just Three Easy Steps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ace-the-language-game-find-success-with-these-6-effective-techniques/"><u>Ace the Language Game - Find Success with These 6 Effective Techniques</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-backupbuddy-reviewers-thoughts/"><u>[Updated] BackupBuddy Reviewers Thoughts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576354474-shortcuts-to-fluent-urdu/"><u>Shortcuts to Fluent Urdu</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576630083-exclusive-offer-alert-lifetime-free-up-to-96-off-mondly-pro/"><u>Exclusive Offer Alert: Lifetime Free, Up to 96%% Off Mondly Pro!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579736864-the-best-way-to-study-portuguese-6-tips-that-will-work-wonders/"><u>The Best Way to Study Portuguese – 6 Tips That Will Work Wonders</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-guide-to-conversational-russian-essentials-for-adventurers/"><u>A Guide to Conversational Russian Essentials for Adventurers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aussie-phrases-every-kiwi-should-know/"><u>Aussie Phrases Every Kiwi Should Know</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/all-spanish-speaking-states-and-territories/"><u>All Spanish-Speaking States and Territories</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578757679-ukranian-in-a-flash-one-minute-a-day-65-chars-note-adjusted-for-brevity/"><u>Ukranian in a Flash, One Minute a Day (65 Chars) - Note: Adjusted for Brevity.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/7-years-75-million-learners-mondly-leads-the-way/"><u>7 Years, 75 Million Learners, Mondly Leads the Way</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581340946-conquer-croatias-linguistic-landscape-with-these-essential-phrases/"><u>Conquer Croatia's Linguistic Landscape with These Essential Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/adventure-with-hindi-study-8-amazing-reasons-mondly-offers/"><u>Adventure with Hindi Study - 8 Amazing Reasons Mondly Offers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/3-powerhouse-educational-apps-boost-your-multilingualism/"><u>3 Powerhouse Educational Apps Boost Your Multilingualism</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/arabian-beginners-journey-explored/"><u>Arabian Beginner's Journey Explored</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/babelhub-dubai-the-new-frontier-for-language-enthusiasts/"><u>BabelHub Dubai: The New Frontier for Language Enthusiasts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/6-top-ranked-danish-movies-for-mastering-dialect/"><u>6 Top-Ranked Danish Movies for Mastering Dialect</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/the-path-to-an-irresistible-cover-video/"><u>The Path to an Irresistible Cover Video</u></a></li>
+</ul></div>

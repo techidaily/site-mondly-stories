@@ -1,7 +1,7 @@
 ---
 title: The Core of Russian Numbers - Foundation Skills
-date: 2024-06-28T07:57:27.900Z
-updated: 2024-06-29T07:57:27.900Z
+date: 2024-07-12T08:22:17.728Z
+updated: 2024-07-13T08:22:17.728Z
 tags:
   - speak
   - english
@@ -124,3 +124,58 @@ Not as hard as you’d expect, is it?
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://mondly-stories.techidaily.com/the-essential-repertoire-of-italian-gesture-language/"><u>The Essential Repertoire of Italian Gesture Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worlds-words-wisdom-the-extended-entity/"><u>World's Words Wisdom: The Extended Entity</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-xiaomi-redmi-a2plus-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Xiaomi Redmi A2+ without Losing Data | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/unlocking-hidden-internet-capabilities-of-ps5/"><u>Unlocking Hidden Internet Capabilities of PS5</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-list-of-language-teachers-favorite-apps/"><u>The Ultimate List of Language Teachers' Favorite Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/arditis-articulation-mastering-flirtatious-italian/"><u>Arditi's Articulation: Mastering Flirtatious Italian</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beginners-guide-to-hanzi/"><u>Beginner's Guide to Hanzi</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sprachkompetenz-aufbauend-von-eins-bis-hundert-lernen/"><u>Sprachkompetenz Aufbauend: Von Eins Bis Hundert Lernen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aussteigende-verabschiedungssprunge-im-deutschen/"><u>Aussteigende Verabschiedungssprünge Im Deutschen</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/historical-insights-the-most-relevant-youtube-channels-for-learners/"><u>Historical Insights - The Most Relevant YouTube Channels for Learners</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-filming-made-easy-selecting-the-right-audio-devices/"><u>[New] Filming Made Easy  Selecting the Right Audio Devices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/acoustic-adventures-from-american-broadband-to-british-cockney/"><u>Acoustic Adventures: From American Broadband to British Cockney</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-era-for-your-personal-data-rights/"><u>New Era for Your Personal Data Rights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579252516-this-innovative-virtual-reality-app-helps-you-learn-a-foreign-language/"><u>This Innovative Virtual Reality App Helps You Learn A Foreign Language!</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-chaptered-videos-on-vimeo-a-comprehensible-guide/"><u>2024 Approved  Chaptered Videos on Vimeo  A Comprehensible Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-secret-weapon-best-practices-in-digital-language-learning/"><u>The Secret Weapon: Best Practices in Digital Language Learning</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-leveraging-synergies-how-to-choose-ideal-youtube-duosgroups/"><u>[New] Leveraging Synergies  How to Choose Ideal YouTube Duos/Groups</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pioneering-voice-navigation-in-ar-landscapes/"><u>Pioneering Voice Navigation in AR Landscapes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-secrets-to-spanish-verb-mastery/"><u>Unveiling the Secrets to Spanish Verb Mastery</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-fake-gps-location-pro-and-is-it-good-on-realme-12plus-5g-drfone-by-drfone-virtual-android/"><u>What is Fake GPS Location Pro and Is It Good On Realme 12+ 5G? | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/stuck-at-android-system-recovery-of-realme-gt-5-fix-it-easily-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Stuck at Android System Recovery Of Realme GT 5 ? Fix It Easily | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/timeframe-of-proficiency-in-foreign-tongues/"><u>Timeframe of Proficiency in Foreign Tongues</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-effortless-method-to-post-sites-on-ig-storyposts-for-2024/"><u>[Updated] Effortless Method to Post Sites on IG Story/Posts for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/pinnacle-office-matt-selection-for-future-workspaces/"><u>Pinnacle Office Matt Selection for Future Workspaces</u></a></li>
+<li><a href="https://android-location.techidaily.com/fake-android-location-without-rooting-for-your-samsung-galaxy-a54-5g-drfone-by-drfone-virtual/"><u>Fake Android Location without Rooting For Your Samsung Galaxy A54 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-social-interactions-indonesian-phrases-and-etiquette/"><u>Navigating Social Interactions: Indonesian Phrases & Etiquette</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/your-first-encounter-with-german-linguistics-phonetics-and-alphabet-guide/"><u>Your First Encounter with German Linguistics: Phonetics & Alphabet Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/start-with-latvian-today-just-ten-minutes-a-day/"><u>Start with Latvian Today - Just Ten Minutes a Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/socialize-and-speak-in-espanol-via-mondlys-virtual-space/"><u>Socialize and Speak in Español via Mondly's Virtual Space</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-frameforge-review-the-ultimate-guide-to-capturing-tech/"><u>2024 Approved  FrameForge Review  The Ultimate Guide to Capturing Tech</u></a></li>
+<li><a href="https://location-fake.techidaily.com/10-best-fake-gps-location-spoofers-for-motorola-moto-g73-5g-drfone-by-drfone-virtual-android/"><u>10 Best Fake GPS Location Spoofers for Motorola Moto G73 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-things-about-dealing-with-a-language-barrier-in-a-relationship/"><u>10 Things About Dealing With A Language Barrier In A Relationship</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/revolutionizing-video-content-youtube-marketings-top-5-secrets/"><u>Revolutionizing Video Content  YouTube Marketing's #Top 5 Secrets</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/viaje-comprensivo-al-cuerpo-humano-de-la-piel-al-cartilago/"><u>Viaje Comprensivo Al Cuerpo Humano: De La Piel Al Cartílago</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-oneplus-ace-2-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For OnePlus Ace 2 | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/visualsnitch-capture-and-save-tweets-images-and-videos-for-2024/"><u>VisualSnitch  Capture and Save Tweets' Images & Videos for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unleash-potential-with-precision-in-business-communication-mastery/"><u>Unleash Potential with Precision in Business Communication Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-expressive-guide-top-108-crucial-croatian-linguistic-tools/"><u>The Ultimate Expressive Guide: Top 108 Crucial Croatian Linguistic Tools</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/in-2024-go-beyond-gopro-studio-best-video-editing-software-for-action-cams/"><u>In 2024, Go Beyond GoPro Studio Best Video Editing Software for Action Cams</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-optimizing-mov-file-storage-in-windows-10-systems/"><u>In 2024, Optimizing .mov File Storage in Windows 10 Systems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580633810-dive-into-dialect-diversity-get-a-staggering-95-off-languages-this-year/"><u>Dive Into Dialect Diversity - Get a Staggering 95%% Off Languages This Year!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-the-power-of-language-with-6-superior-study-techniques-for-portuguese/"><u>Unlock the Power of Language with 6 Superior Study Techniques for Portuguese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/become-effortless-essential-17-natural-spanish-sayings/"><u>Become Effortless: Essential 17 Natural Spanish Sayings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-by-step-guide-to-learning-10-essential-spanish-salutations/"><u>Step-By-Step Guide to Learning 10 Essential Spanish Salutations</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-features-in-sony-blu-ray-player-s6700/"><u>Updated Features in Sony Blu-Ray Player S6700</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/socratic-speeches-from-antiquity-to-modern-syntax/"><u>Socratic Speeches: From Antiquity to Modern Syntax</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-decade-with-mondly-the-story-continues/"><u>A Decade with Mondly: The Story Continues</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-maximize-views-the-ultimate-youtube-thumbnail-template-and-tips/"><u>New Maximize Views The Ultimate YouTube Thumbnail Template and Tips</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vr-polyglot-playground-master-languages-in-virtual-space/"><u>VR Polyglot Playground: Master Languages in Virtual Space</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-netflix-memories-capturing-every-view-with-mac-for-2024/"><u>[New] Netflix Memories  Capturing Every View with Mac for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-the-rhythmic-future-tiktoks-most-iconic-rap-songs-for-2024/"><u>[Updated] The Rhythmic Future  TikTok's Most Iconic Rap Songs for 2024</u></a></li>
+</ul></div>

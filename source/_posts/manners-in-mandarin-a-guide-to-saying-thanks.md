@@ -1,7 +1,7 @@
 ---
 title: "Manners in Mandarin: A Guide to Saying Thanks"
-date: 2024-06-28T07:44:11.675Z
-updated: 2024-06-29T07:44:11.675Z
+date: 2024-07-12T08:08:40.196Z
+updated: 2024-07-13T08:08:40.196Z
 tags:
   - speak
   - english
@@ -121,3 +121,61 @@ Other variations include:
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-oppo-a58-4g-bootloader-easily-by-drfone-android/"><u>How to Unlock Oppo A58 4G Bootloader Easily</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-primer-to-popular-german-witticisms-top-25-selection/"><u>A Primer to Popular German Witticisms - Top 25 Selection</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-multilingual-films-for-better-communication-skills/"><u>10 Multilingual Films for Better Communication Skills</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-enhancing-teamimage-blurring-backgrounds-on-microsoft-teams/"><u>2024 Approved  Enhancing TeamImage  Blurring Backgrounds on Microsoft Teams</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719575671831-welcome-to-a-deal-filled-new-year-save-96-on-mondly-premium/"><u>Welcome to a Deal-Filled New Year - Save 96%% on Mondly Premium!</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-agrarian-adventures-unplugged-stardews-kin-titles/"><u>2024 Approved  Agrarian Adventures Unplugged  Stardew's Kin Titles</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-integrating-luts-into-professional-movie-post-processing/"><u>In 2024, Integrating Luts Into Professional Movie Post-Processing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/age-and-agility-in-language-learning/"><u>Age and Agility in Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579778647-pace-yourself-learn-japans-counting-quickly/"><u>Pace Yourself, Learn Japan's Counting Quickly!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/age-driven-efficiency-in-new-language-growth/"><u>Age-Driven Efficiency in New Language Growth</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719575407428-elite-online-agencies-speak-any-new-language-with-confidence/"><u>Elite Online Agencies: Speak Any New Language with Confidence</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-maximizing-drone-efficiency-with-premium-lipo-units/"><u>[New] Maximizing Drone Efficiency with Premium LiPo Units</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-igtvs-power-boosters-crafting-viral-hash-tags/"><u>[Updated] In 2024, IGTV's Power Boosters  Crafting Viral Hash Tags</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/5-myths-about-language-learning-you-should-definitely-learn-about/"><u>5 Myths About Language Learning You Should Definitely Learn About</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/affectionate-artistry-romeo-rhetoric/"><u>Affectionate Artistry: Romeo Rhetoric</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/arabic-basics-for-first-timers/"><u>Arabic Basics for First-Timers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581242528-discover-new-languages-easily-only-047-more-than-before/"><u>Discover New Languages Easily – Only $0.47 More than Before!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577475324-accelerated-tagalog-learning-a-simple-daily-routine/"><u>Accelerated Tagalog Learning - A Simple Daily Routine!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578596250-mondly-ukrainians-embrace-free-education/"><u>Mondly: Ukrainians, Embrace FREE Education!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581815703-bridging-worlds-essential-strategies-for-effective-intercultural-communication/"><u>Bridging Worlds: Essential Strategies for Effective Intercultural Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/120plus-essential-phrases-to-master-in-vietnam/"><u>120+ Essential Phrases to Master in Vietnam</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-boosting-brand-visibility-through-youtube-sponsorships/"><u>2024 Approved  Boosting Brand Visibility Through YouTube Sponsorships</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-guide-to-starting-a-successful-youtube-gaming-channel-for-2024/"><u>The Guide to Starting a Successful YouTube Gaming Channel for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/professional-video-quality-at-your-fingertips-ois-powered-choices-for-2024/"><u>Professional Video Quality at Your Fingertips  OIS-Powered Choices for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-unleashing-potential-the-best-anime-ideas-in-videos/"><u>In 2024, Unleashing Potential  The Best Anime Ideas in Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/6-underrated-advantages-to-speaking-multiple-languages/"><u>6 Underrated Advantages to Speaking Multiple Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577696916-quick-mastery-conquer-japanese-numbers-in-minutes/"><u>Quick Mastery: Conquer Japanese Numbers in Minutes!</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-a-deep-dive-into-youtube-mastery-using-sony-vegas-software/"><u>[Updated] In 2024, A Deep Dive Into YouTube Mastery Using Sony Vegas Software</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576057831-swift-syntax-and-vocabul-written-by-user/"><u>Swift Syntax and Vocabul Written by User:</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/astrolingua-the-world-of-star-wars-multifaceted-language/"><u>Astrolingua: The World of Star Wars' Multifaceted Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/93-essential-spanish-travel-phrases-for-your-next-vacation/"><u>93 Essential Spanish Travel Phrases For Your Next Vacation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576550079-mondly-is-now-available-on-huawei-appgallery/"><u>Mondly Is Now Available On Huawei AppGallery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/advantagize-life-learn-more-languages/"><u>Advantagize Life: Learn More Languages</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-elite-9-directors-cuts-downloader/"><u>[New] 2024 Approved  Elite 9 Directors' Cuts Downloader</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-poco-c55-drfone-by-drfone-virtual-android/"><u>Does Life360 Notify When You Log Out On Poco C55? | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-aural-and-visual-summary-synthesizer-for-2024/"><u>[Updated] Aural and Visual Summary Synthesizer for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-how-to-blur-and-hide-private-information-in-recorded-video/"><u>[Updated] 2024 Approved  How to Blur and Hide Private Information in Recorded Video</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/premiere-pros-finest-10-text-plans/"><u>Premiere Pro's Finest 10 Text Plans</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accelerate-your-journey-top-tactics-for-learning-languages-online/"><u>Accelerate Your Journey: Top Tactics for Learning Languages Online</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/a-complete-guide-to-oem-unlocking-on-htc-u23-by-drfone-android/"><u>A Complete Guide To OEM Unlocking on HTC U23</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/abschiedsbittelemente-fur-deutschsprachige-beziehrangelegenheiten/"><u>Abschiedsbittelemente Für Deutschsprachige Beziehrangelegenheiten</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-effortless-youtube-file-extraction/"><u>2024 Approved  Effortless YouTube File Extraction</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-enable-usb-debugging-on-a-locked-samsung-galaxy-xcover-7-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked Samsung Galaxy XCover 7 Phone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/8-eye-opening-reasons-for-global-language-proficiency/"><u>8 Eye-Opening Reasons for Global Language Proficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579312548-new-year-language-learning-goal/"><u>New Year, Language Learning Goal!</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-jujutsu-kaisens-tiktok-fan-filled-fun/"><u>[New] 2024 Approved  Jujutsu Kaisen's TikTok  Fan-Filled Fun</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aufgehende-abschiedsprafixe-deutsches-verabschiedungsworterbuch/"><u>Aufgehende Abschiedspräfixe: Deutsches Verabschiedungswörterbuch</u></a></li>
+<li><a href="https://animation-videos.techidaily.com/10-cartoon-character-makers-to-create-animated-characters-for-2024/"><u>10 Cartoon Character Makers to Create Animated Characters for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprende-el-calendario-semanal-espanol/"><u>Aprende El Calendario Semanal Español</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-nokia-c22-frp-in-3-different-ways-by-drfone-android/"><u>In 2024, How To Bypass Nokia C22 FRP In 3 Different Ways</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-can-we-unlock-our-honor-phone-screen-by-drfone-android/"><u>How Can We Unlock Our Honor Phone Screen?</u></a></li>
+<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-samsung-galaxy-m14-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on Samsung Galaxy M14 5G | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-videos-from-y27-5g-by-fonelab-android-recover-video/"><u>How to Rescue Lost Videos from Y27 5G</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-expand-your-gaming-library-5-best-xbox-hdds-for-2024/"><u>[Updated] Expand Your Gaming Library  5 Best Xbox HDDs for 2024</u></a></li>
+</ul></div>

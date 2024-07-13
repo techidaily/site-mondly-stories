@@ -1,0 +1,222 @@
+---
+title: Elevate Your Interactions with Japanese Formalities
+date: 2024-07-12T09:13:59.071Z
+updated: 2024-07-13T09:13:59.071Z
+tags:
+  - speak
+  - english
+  - learning
+categories:
+  - languages
+description: This Article Describes Elevate Your Interactions with Japanese Formalities
+excerpt: This Article Describes Elevate Your Interactions with Japanese Formalities
+keywords: Japanese Etiquette Guide,Mastering Japanese Business Protocols,Cultural Etiquette for Travelers in Japan,Formal Communication Practices in Japan,Understanding Keigo,Japanese Social Etiquette for Business Relationships,Hierarchical Interactions
+thumbnail: https://thmb.techidaily.com/f07bcde69983933cb76ff9d178455e2b69ef74b8fc7b5950817350ad54cf2512.png
+---
+
+## Elevate Your Interactions with Japanese Formalities
+
+ Japanese culture is the culture of respect. You don’t have to visit Japan to know that. We all heard about the famously polite**Japanese bow** and about the big emphasis Japanese people place on the respect of hierarchy in the family and etiquette in general. It’s in their DNA. And the same as its culture, the**Japanese language** is one of the most polite languages in the world. It’s true that, as a tourist, you don’t have to [learn Japanese](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) to perfection, but you know what they say: when in Rome, do as the Romans do and you will certainly increase the enjoyment of your adventure.
+
+ Learning as much as a simple **_Konnichiwa_ (“hello” in Japanese)** or **_Arigato_ (“thank you” in Japanese)** can work wonders. So here’s a guide to all the**Japanese greetings** you’ll need in your Japanese adventure: from**“hello” in Japanese** to**_Moshi Moshi_** (used to say “hello” on the phone), goodbye and other**common Japanese greetings.**
+
+## 1\. “Hello” in Japanese
+
+ If you ever watched at least one anime series, you probably already know this: **“hello” in Japanese is_Konnichiwa_ .** Rings any bell? It most probably does since**_Konnichiwa_** is undeniably the most**common Japanese greeting.** Thanks to some of the most influential anime of all time such as Dragon Ball Z, Death Note, and Naruto, a lot of people living outside Japan know at least a few [**words in Japanese**](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and_Konnichiwa_ is definitely one of them.
+
+ But back in the day, when Japanese people met, they would address each other with_konnichi wa gokiken ikaga desu ka?_ (“wow are you feeling today?”),_konnichi wa ii hi desu ne_ (“today is a nice day”) or_kon’nichi wa ikaga desu ka_ (“how is today?”). Over time, these expressions became shorter and shorter until they ultimately transformed to the**_Konnichiwa_** we all use today to greet each other in Japanese.
+
+ Also, keep in mind that it’s usually only used during the daytime, between morning and evening.
+
+ When it comes to using it in various social contexts, you should know that**_Konnichiwa_** can be used safely in all kinds of situations (only between morning and evening; never early in the morning or late at night) except for those involving very close friends. It could be a little awkward to use**_Konnichiwa_** (こんにちは) when meeting your Japanese friends. In this situation, it’s better to use something a lot more informal than that, like:
+
+* _ossu_ – used exclusively between male friends and relatives around the same age. It’s similar to “hey dude” or “hey man” in English
+* _yaho_ – extremely informal, typically used by girls (boys more often say_yo_) but suitable for all the young people
+
+![honnichiwa](https://edge.mondly.com/blog/wp-content/uploads/2019/08/honnichiwa-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 2")
+
+ “Kyoto, Japan” by Sorasak©
+
+ If you have to write**“hello” in Japanese,** there are two ways to do it (three if you also count in Romaji – the romanization of the [Japanese writing](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) system):
+
+ \-using**Kanji symbols:** 今日は
+
+ – using**Hiragana symbols:** こんにちは
+
+ Curious about why there are multiple types of characters in Japanese? Here’s everything there is to know about the [Japanese writing system](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
+
+### **How to say “hello” on the phone in Japanese: moshi moshi (もしもし)**
+
+ Unlike English, which uses the same “hello” for a lot of different social contexts, the Japanese language has a dedicated “hello” for answering the phone:**moshi moshi (もしもし).** Doesn’t that sound cute?
+
+## 2\. Good morning in Japanese and other relevant greetings
+
+**Good morning in Japanese**   **– O_hayō gozaimasu_**  (おはよう ございます) is the best choice for greeting someone in the early morning hours (before 10:00 a.m.). Unlike_Konnichiwa_ ,   **O_hayō gozaimasu_**  a little more formal, so it’s safe to use it with people you don’t know or when you are meeting people in a position of authority (such as your boss or your teacher).
+
+This greeting is used both as a “hello” and as a “goodbye”.
+
+**Good evening in Japanese**   **– K_onbanwa_**  (こんばんは) – is how you should greet people in the late afternoon or evening hours. The same as_Ohayō gozaimasu_ , **K_onbanwa_**  can be used both as a “hello” and as a “goodbye”.
+
+ If you are leaving, you can also say_Oyasumi nasai_ (おやすみなさい) to say “goodbye” in Japanese at night. But only when you leave as this Japanese phrase is not typically used as a greeting.
+
+**Good night in Japanese**   **–_Oyasuminasai_**  (おやすみなさい) – is how you greet someone in Japanese if you are leaving at night. This Japanese phrase is not typically used as a greeting, so don’t forget you can’t use it when you meet someone.
+
+**Bonus tip:** Morning and evening are more carefully delimited in the Japanese culture than in the West. So it’s important to know your**_Konnichiwa_** and never use it instead of**_Konbanwa_** or**_Oyasuminasai._**
+
+![hi in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-japanese-960x639.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 3")
+
+ “Meguro River, Matsuno, Japan” by Sora Sagano©
+
+## 3.“Goodbye” in Japanese
+
+ Another greeting we borrowed from the Japanese and sometimes use in our day-to-day conversations in English is**_Sayōnara_** (さよなら), a greeting that carries the connotation of farewell and translates to “goodbye”.
+
+**_Sayōnara_** derived from_Sayō naraba_ (“If that’s the way it is”), a phrase that was originally used by people before leaving in a way that would sum up a conversation. Nowadays,_Sayōnara_  is a semi-formal way to say**“goodbye” in Japanese.**
+
+ Although notorious abroad, Japanese people don’t really use_**Sayonara.**_ For informal situations that involve close friends, they prefer using**_bai bai_** (ばいばい), which translates to – you guessed it – “bye bye” in English,_jaa ne_ (じゃあね) which translates to “see you” or_saraba da_ (さらばだ) which is the equivalent of “adios!”.
+
+ Want more? Here are other ways to say goodbye in Japanese that are suitable for both formal and informal situations:
+
+* I’ll see you later. – _Mata aimashou._  (また会いましょう。)
+* Take care! – _Ki wo tsukete!_  (きをつけて！)
+* See you tomorrow! – M_ata ashita!_  (またあした！)
+* See you soon! – _Mata ne!_  (またね！)
+
+![goodbye in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/goodbye-in-japanese-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 4")
+
+ “See you soon, human” by Alain Pham©
+
+## 4\. “Thank you” in Japanese and other polite phrases that you should know
+
+ We already settled that the Japanese culture is a culture of respect and politeness. Thus, learning to say**“thank you” in Japanese** is probably one of your most important tasks to complete before visiting Japan. Lucky for you, there’s nothing difficult about that.
+
+ The most casual and common way to say**“thank you” in Japanese** to your family and friends is**_Arigatou_** (ありがとう). Not “Arigato”. That’s actually a very common misconception about how to write “thank you” in Romaji.
+
+ Japanese people use**_Arigatou_** the same way we use**“thanks”** , but they also have an even shorter way to express their gratitude within a group of friends:_Domo_ (どうも)._Domo_ translates to “very much”.
+
+ Moving to a slightly formal form,**_Domo arigatou_** (どうもありがとう) is the equivalent of**“thank you”.** Careful though! This is not formal enough to be used with someone who is in a position of authority over you.
+
+ If you need a more formal way of**thanking someone in Japanese,** you should use one of these expressions:
+
+* **_Arigatou gozaimasu_** (ありがとうございます) – thank you very much
+* **_Domo arigatou gozaimasu_** (どうもございまずいます) – an even more polite form for “thank you very much”
+* **_Arigatou gozaimashita_** – suitable for when you want to thank someone for something that he or she did in the recent past
+* **_Gochisou sama deshita_** – use this phrase if you want to thank for your meal. Furthermore, if you want to say that the meal is delicious, you say_Sore wa oishī desu_ (それはおいしいです) – “that’s delicious”.
+
+ If you want to continue the conversation and reply to someone thanking you, you can use these **[Japanese phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) :**
+
+* _Dou itashi mashite_ (どういたしまして) – translates to “you’re welcome”
+* _Iie_ (いいえ) – instead of_Dou itashi mashite,_ you can say_Iie,_ which means “no” as in “it was nothing”.
+
+![arigato](https://edge.mondly.com/blog/wp-content/uploads/2019/08/arigato-1024x706.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 5")
+
+ “Kyoto, Japan” by Andre Benz©
+
+## Don’t forget about the Japanese bow
+
+ Every**“hello” in Japanese** is usually accompanied by a bow, the Western world equivalent of a handshake. Our advice would be to not skip the bow if you really want to feel like you belong.
+
+**The Japanese bow** is an essential part of the culture of respect and [etiquette](https://en.wikipedia.org/wiki/Etiquette%5Fin%5FJapan) in Japan. When you meet someone, you say**_Konnichiwa_** and you bow as a sign of respect. If you receive a bow, you immediately bow back. A simple but powerful gesture that perfectly embodies the beauty of the Japanese culture.
+
+ So here are the main things you should know about the**Japanese bow:**
+
+ – bowing lower is a sign of respect. Thus, you should always bow lower to people you don’t know or to people in a position of authority;
+
+– 15-degree bows are for people that you are familiar with;
+
+ – 30-degree bows are for people you just met or are of a higher social status than you;
+
+ – 45-degree bows are used for greetings only if you meet a very important person like the Emperor or the Prime Minister.
+
+## Bonus: basic conversation in Japanese
+
+ If you don’t want to stop at just**“thank you” or “hello” in Japanese,** here are a few more**Japanese phrases** that are fairly easy to remember and will definitely make all the difference for your trip to Japan:
+
+* Hello! How nice it is to see you! –_Konnichiwa! Anata ni futatabi aete ureshī desu._
+* How are you? – _Genki?_
+* Fine, thanks. And you? – _Genki desu, arigatō. Anata wa._
+* Everything is fine. – _Subete junchōdesu._
+* What is your name? – _Anata no namae wa nandesu ka._
+* My name is Mondly. – _Watashi no namae wa Mondly desu._
+* I’m pleased to meet you. – _Anata ni aete kōei desu._
+* Nice to meet you – _Oaidekite ureshīdesu._
+* Where are you from? – _Anata wa doko kara kimashita ka._
+* I am from \_\_\_\_\_. _Watashi wa \_\_\_\_\_ kara kimashita._
+* Please. – _Onegaishimasu._
+* I’m sorry. – Gomen’nasai.
+* Excuse me. – _Sumimasen._
+* No problem. – _Daijōbudesu._
+
+![sayonara](https://edge.mondly.com/blog/wp-content/uploads/2019/08/sayonara-1024x680.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 6")
+
+ “Tenryu-ji Temple, Kyōto-shi, Japan” by Masaaki Komori©
+
+* [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fhello-in-japanese-japanese-greetings-you-need%2F&t=Hello+in+Japanese+%E2%80%93+All+the+Japanese+Greetings+You+Need+to+Know "Share on Facebook")
+* [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
+
+---
+
+#### Speak Japanese fluently in just 10 minutes a day
+
+ Do you want to speak Japanese fluently? Get Mondly, the award-winning language learning app that will help you speak Japanese as if it were your first language.
+
+ It can be really tricky to master Japanese pronunciation if you don’t actively live in Japan. But with Mondly, you’ll have access to a unique, fast and highly efficient learning method that allows you to learn Japanese naturally with practical topics, authentic conversations and bite-sized Daily Lessons.
+
+ **Start using Mondly for free on your computer or download the app and learn Japanese fast anytime, anywhere.**
+
+[Learn Japanese now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-3196&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-3196%26utm%5Fsource%3Dblog-post-id-3196&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-3196%26utm%5Fsource%3Dblog-post-id-3196&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-3196%26utm%5Fsource%3Dblog-post-id-3196&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-3196%26mt%3D8 "Learn Japanese now")
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://mondly-stories.techidaily.com/educators-conclave-the-future-of-learning/"><u>Educators’ Conclave - The Future of Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevate-your-global-presence-learn-croatian-and-these-7-benefits/"><u>Elevate Your Global Presence - Learn Croatian and These 7 Benefits!</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-forging-strong-connections-building-youtube-backlinks-right-for-2024/"><u>[New] Forging Strong Connections  Building YouTube Backlinks Right for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-featured-top-ranked-emulators-for-3ds-on-pc/"><u>[New] Featured Top-Ranked Emulators for 3DS on PC</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevate-your-speaking-skills-mondlys-newest-linguistic-toolkit/"><u>Elevate Your Speaking Skills: Mondly’s Newest Linguistic Toolkit</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/eloquent-echoes-world-languages-quintessence/"><u>Eloquent Echoes: World Languages' Quintessence</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-virtual-reality-filming-tips-and-tricks-for-gamers-for-2024/"><u>[Updated] Virtual Reality Filming  Tips and Tricks for Gamers for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-turkish-orthography-learn-the-alphabet-and-pronunciation-fast/"><u>Dive Into Turkish Orthography: Learn the Alphabet and Pronunciation Fast</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-korean-for-understanding-squid-game/"><u>Dive Into Korean for Understanding Squid Game</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-cultivating-the-culture-of-creativity-within-youtube-shorts/"><u>[New] 2024 Approved  Cultivating the Culture of Creativity Within YouTube Shorts</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-enhancing-speech-clarity-on-skype/"><u>2024 Approved  Enhancing Speech Clarity on Skype</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-the-impact-of-ai-on-language-education/"><u>Decoding the Impact of AI on Language Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-german-from-novice-to-expert-via-dark-netflix-style/"><u>Dive Into German: From Novice to Expert via Dark, Netflix Style</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-the-roadmap-to-instagram-star-status-9-must-do-tactics/"><u>2024 Approved  The Roadmap to Instagram Star Status  9 Must-Do Tactics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-the-best-cross-cultural-film-experiences/"><u>Discover the Best Cross-Cultural Film Experiences</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/educational-reformation-via-innovative-ai-applications/"><u>Educational Reformation via Innovative AI Applications</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/audiovisual-collection-computer-and-voice-archives/"><u>Audiovisual Collection  Computer & Voice Archives</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-your-essential-guide-to-discord-stickers-for-2024/"><u>[New] Your Essential Guide to Discord Stickers for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dawn-dialogues-multilingual-morning-greetings-compilation/"><u>Dawn Dialogues: Multilingual Morning Greetings Compilation</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-ignite-customer-interest-and-increase-revenue-top-15-tools-for-fb-data-analysis/"><u>In 2024, Ignite Customer Interest & Increase Revenue  Top 15 Tools for FB Data Analysis</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-aussie-vernacular-100plus-essential-terms/"><u>Embrace Aussie Vernacular: 100+ Essential Terms</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-navigating-youtubes-revenue-mechanisms/"><u>[Updated] Navigating YouTube's Revenue Mechanisms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effektive-deutsche-entschuldigungen/"><u>Effektive Deutsche Entschuldigungen</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-realme-c55-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Realme C55 | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-turning-snapchat-into-cash-secrets-revealed/"><u>[Updated] 2024 Approved  Turning Snapchat Into Cash  Secrets Revealed</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-effortless-youtube-to-mp3-conversion-a-step-by-step-guide-for-2024/"><u>Updated Effortless YouTube to MP3 Conversion A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/updated-zoom-talks-with-a-twist-select-6-vocal-enhancement-tools-to-spice-up-video-calls-and-evoke-laughter/"><u>Updated Zoom Talks with a Twist Select 6 Vocal Enhancement Tools to Spice Up Video Calls and Evoke Laughter</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embark-on-the-path-of-mondly-expertise-today/"><u>Embark on the Path of Mondly Expertise Today</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-honor-play-40c-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Honor Play 40C? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embarking-on-the-most-suitable-new-language-learning-adventure/"><u>Embarking On The Most Suitable New Language Learning Adventure</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dual-dialect-development/"><u>Dual Dialect Development</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-japanese-top-free-and-self-taught-study-strategies/"><u>Discovering Japanese: Top Free & Self-Taught Study Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-global-affection-heartfelt-words-on-february-14th/"><u>Embrace Global Affection: Heartfelt Words on February 14Th</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/in-2024-ultimate-guide-the-finest-gratis-audio-editor-software-on-windowsmac/"><u>In 2024, Ultimate Guide The Finest Gratis Audio Editor Software on Windows/Mac</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-crafting-engaging-live-videos-on-smartphones-and-social-networks/"><u>[Updated] 2024 Approved  Crafting Engaging Live Videos on Smartphones & Social Networks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dannys-colombian-help-network-for-needy-citizens/"><u>Danny's Colombian Help Network for Needy Citizens</u></a></li>
+</ul></div>

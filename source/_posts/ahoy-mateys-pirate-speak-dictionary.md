@@ -1,7 +1,7 @@
 ---
 title: "Ahoy Mateys: Pirate-Speak Dictionary"
-date: 2024-06-28T07:37:12.953Z
-updated: 2024-06-29T07:37:12.953Z
+date: 2024-07-12T08:01:29.609Z
+updated: 2024-07-13T08:01:29.609Z
 tags:
   - speak
   - english
@@ -100,3 +100,70 @@ Easy peasy, ain’t it?
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://mondly-stories.techidaily.com/contrasting-two-romance-cousins-spanish-and-portuguese/"><u>Contrasting Two Romance Cousins: Spanish & Portuguese</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-prime-pick-screen-recorders-for-win11-15-list/"><u>2024 Approved  Prime Pick Screen Recorders for Win11 (#15 List)</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/unlock-your-device-icloud-dns-bypass-explained-and-tested-plus-easy-alternatives-on-apple-iphone-15-by-drfone-ios/"><u>Unlock Your Device iCloud DNS Bypass Explained and Tested, Plus Easy Alternatives On Apple iPhone 15</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-iphone-11-pro-without-swiping-up-6-ways-by-drfone-ios/"><u>In 2024, How To Unlock iPhone 11 Pro Without Swiping Up? 6 Ways</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/this-is-the-best-way-to-learn-lithuanian-online/"><u>This Is the Best Way to Learn Lithuanian Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effortless-slovak-learning-in-just-ten-minutes-online/"><u>Effortless Slovak Learning in Just Ten Minutes Online!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-expressive-german-idioms-top-25/"><u>The Ultimate Guide to Expressive German Idioms (Top 25)</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-integrating-your-podcast-into-apple-music/"><u>[New] Integrating Your Podcast Into Apple Music</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-phrases-and-words-for-urdu-beginners/"><u>Essential Phrases and Words for Urdu Beginners</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/ion-air-pro-3-camera-analysis-gearing-up-for-great-shots/"><u>ION Air Pro 3 Camera Analysis - Gearing Up for Great Shots</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-film-and-media-professionals-top-windows-edits-picks/"><u>2024 Approved  Film & Media Professionals' Top Windows Edits Picks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conocimientos-animalisticos-60-nombres-hispanohablantes/"><u>Conocimientos Animalísticos: 60 Nombres Hispanohablantes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581290254-brush-up-bulgarian-just-10-minutes/"><u>Brush Up Bulgarian - Just 10 Minutes!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/glwttothpeio-eygnwmwn-klismos-dyshs/"><u>Γλωττοτηπειό Ευγνώμων Κλισμός Δύσης</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-your-ai-partner-advanced-dialogue/"><u>Discover Your AI Partner: Advanced Dialogue</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-discover-the-power-of-snapchat-boomers-quickly-and-effectively/"><u>[Updated] In 2024, Discover the Power of Snapchat Boomers – Quickly & Effectively</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-embrace-a-second-language-when-youre-over-50/"><u>Why Embrace a Second Language When You're Over 50?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/celebrating-2-years-at-mondly-languages-daring-dreams/"><u>Celebrating 2 Years at Mondly Languages - Daring Dreams</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-androids-premier-3d-visualization-app/"><u>2024 Approved  Android's Premier 3D Visualization App</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-best-practices-for-high-quality-remote-podcasts-for-2024/"><u>[New] Best Practices for High-Quality Remote Podcasts for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-norte-to-sueste-brazilians-vs-eurospeakers/"><u>From Norte to Sueste: Brazilians Vs. Eurospeakers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transnational-tongues-turkish-korean-twine/"><u>Transnational Tongues: Turkish-Korean Twine</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-game-jams-and-indie-project-highlights/"><u>[New] In 2024, Game Jams and Indie Project Highlights</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/2024-approved-unveiling-the-secrets-of-custom-emoji-integration-in-discord/"><u>2024 Approved  Unveiling the Secrets of Custom Emoji Integration in Discord</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/busting-stereotypes-truths-behind-language-learning/"><u>Busting Stereotypes: Truths Behind Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-multilingual-journey-through-springtime-festivities/"><u>A Multilingual Journey Through Springtime Festivities</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581402709-essential-croatian-language-phrases-a-preparatory-checklist-before-you-go/"><u>Essential Croatian Language Phrases – A Preparatory Checklist Before You Go!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/commonest-focus-on-foreign-language-learning-us/"><u>Commonest Focus on Foreign Language Learning U.S.</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-the-screen-savers-strategy-top-recording-tactics/"><u>[Updated] In 2024, The Screen Saver's Strategy  Top Recording Tactics</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-gionee-f3-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Gionee F3 Pro | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-vivo-v27-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Vivo V27 Pro? | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-best-practices-for-streaming-athletic-games-real-time-for-2024/"><u>[Updated] Best Practices for Streaming Athletic Games Real-Time for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-french-communication-skills-for-your-next-french-trip/"><u>Essential French Communication Skills for Your Next French Trip</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-complete-guide-on-how-to-create-a-video-slideshow-with-final-cut-pro-for-2024/"><u>New Complete Guide on How to Create a Video Slideshow with Final Cut Pro for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-techniques-to-enhance-your-video-gaming-archive/"><u>[Updated] In 2024, Techniques to Enhance Your Video Gaming Archive</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/express-thanks-in-german-ranked-16-best-ways/"><u>Express Thanks In German: Ranked 16 Best Ways</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-step-by-step-guide-mastering-ez-grabber/"><u>[New] 2024 Approved  Step-by-Step Guide  Mastering EZ Grabber</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-things-you-should-know-when-unlocking-total-wireless-of-iphone-6s-by-drfone-ios/"><u>In 2024, Things You Should Know When Unlocking Total Wireless Of iPhone 6s</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-samsung-galaxy-a54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Samsung Galaxy A54 5G? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brazilians-vs-europeans-a-comparative-study-on-pt-shortcuts/"><u>Brazilians vs Europeans: A Comparative Study on PT Shortcuts</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-home-visionarys-review-best-devices-for-clips/"><u>[New] In 2024, Home Visionary's Review  Best Devices for Clips</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-in-2024-beginners-companion-to-mp3-mastery-essential-tips-and-tricks/"><u>New In 2024, Beginners Companion to MP3 Mastery Essential Tips & Tricks</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-diving-into-digital-delights-facebook-video-repository-for-2024/"><u>[New] Diving Into Digital Delights  Facebook Video Repository for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-world-full-of-thankfulness-language-guide-for-appreciation-155/"><u>A World Full of Thankfulness: Language Guide for Appreciation (155)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gratitude-unleashed-the-ultimate-multilingual-guide-152/"><u>Gratitude Unleashed: The Ultimate Multilingual Guide (152)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-fiction-starter-pack-top-20-novels-for-newcomers/"><u>French Fiction Starter Pack: Top 20 Novels For Newcomers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/educational-pinnacle-mondly-kids-recognized-by-google-play-2-cookie-monsters-favorite-treats/"><u>Educational Pinnacle: Mondly Kids Recognized by Google Play 2 Cookie Monster's Favorite Treats</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-israels-charms-invaluable-travel-tips-and-phrases/"><u>Unlock Israel's Charms: Invaluable Travel Tips & Phrases</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/all-about-factory-reset-what-is-it-and-what-it-does-to-your-realme-gt-5-pro-drfone-by-drfone-reset-android-reset-android/"><u>All About Factory Reset, What Is It and What It Does to Your Realme GT 5 Pro? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/demystifying-informal-language-slang-explained/"><u>Demystifying Informal Language: Slang Explained</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-keeping-secrets-on-screen-tips-for-private-content-reduction-for-2024/"><u>[Updated] Keeping Secrets on Screen  Tips for Private Content Reduction for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-tips-for-trimming-down-facebook-vids-intrusions/"><u>2024 Approved  Tips for Trimming Down Facebook Vids' Intrusions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/timeworn-texts-the-linguistic-legacy-of-ancient-greece/"><u>Timeworn Texts: The Linguistic Legacy of Ancient Greece</u></a></li>
+<li><a href="https://review-topics.techidaily.com/mp4-video-repair-tool-repair-corrupt-damaged-unplayable-video-files-of-nokia-by-stellar-video-repair-mobile-video-repair/"><u>MP4 Video Repair Tool - Repair corrupt, damaged, unplayable video files of Nokia</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-english-learning-via-pearson-services/"><u>Global English Learning via Pearson Services</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/travel-mastery-comprehensive-list-of-93-must-learn-spanish-expressions/"><u>Travel Mastery: Comprehensive List of 93 Must-Learn Spanish Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719575351192-what-language-is-spoken-in-israel/"><u>What Language Is Spoken In Israel?</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-streamline-live-tv-capture-in-windows-free-methods/"><u>[Updated] 2024 Approved  Streamline Live TV Capture in Windows (Free Methods)</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-time-travellers-guide-sharing-past-photos-as-snaps/"><u>2024 Approved  Time Traveller's Guide - Sharing Past Photos as Snaps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/building-bridges-dannys-colombian-aid-initiative/"><u>Building Bridges: Danny's Colombian Aid Initiative</u></a></li>
+<li><a href="https://extra-information.techidaily.com/audiovisual-mastery-imovie-sound-guide-for-2024/"><u>Audiovisual Mastery  IMovie Sound Guide for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-innovative-vr-headsets-transforming-drones/"><u>[Updated] Innovative VR Headsets Transforming Drones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-10-reasons-to-start-learning-a-foreign-language/"><u>Top 10 Reasons To Start Learning A Foreign Language</u></a></li>
+</ul></div>

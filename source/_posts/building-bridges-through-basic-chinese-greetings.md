@@ -1,7 +1,7 @@
 ---
 title: Building Bridges Through Basic Chinese Greetings
-date: 2024-07-05T13:35:45.117Z
-updated: 2024-07-06T13:35:45.117Z
+date: 2024-07-12T09:06:52.099Z
+updated: 2024-07-13T09:06:52.099Z
 tags:
   - speak
   - english
@@ -117,3 +117,61 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-discover-the-10-leading-free-video-call-apps-iosandroid/"><u>In 2024, Discover The 10 Leading Free Video Call Apps (iOS/Android)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-up-your-game-6-proven-tips-for-mastering-portuguese/"><u>Step Up Your Game - 6 Proven Tips for Mastering Portuguese</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-enhance-playstation-2-gaming-the-ultimate-guide-to-android-emulation-tools/"><u>[Updated] 2024 Approved  Enhance PlayStation 2 Gaming  The Ultimate Guide to Android Emulation Tools</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-pro-level-comparison-2022s-gopro-hero5-and-virb-streamers/"><u>2024 Approved  Pro-Level Comparison  2022'S GoPro Hero5 & VIRB Streamers</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-speedy-windowed-image-viewer/"><u>2024 Approved  Speedy Windowed Image Viewer</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/top-10-websites-to-download-free-sound-clips-for-videos/"><u>Top 10 Websites to Download Free Sound Clips for Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-methodology-explored/"><u>Mondly's Methodology Explored</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/invest-in-yourself-lifetime-access-for-just-pennies/"><u>Invest in Yourself: Lifetime Access for Just Pennies!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gratitude-across-cultures-thank-you-phrases-in-30-languages-154/"><u>Gratitude Across Cultures: Thank-You Phrases in 30 Languages (154)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/incrementa-tu-espanol-dias-por-dia/"><u>Incrementa Tu Español, Días Por Día</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dominant-dialects-of-the-globe/"><u>Dominant Dialects of the Globe</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/el-sistema-muscular-en-espanol-descubrimiento-desde-el-brazo-a-las-unas/"><u>El Sistema Muscular en Español: Descubrimiento Desde El Brazo A Las Uñas</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-educators-day-multilingual-commemoration/"><u>International Educators' Day: Multilingual Commemoration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-brings-immersive-language-learning-to-your-living-room-with-vr/"><u>Mondly Brings Immersive Language Learning to Your Living Room with VR</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/romance-cinema-french-gems-for-linguistic-enchantment/"><u>Romance Cinema: French Gems for Linguistic Enchantment</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-recover-deleted-pictures-on-vivo-y100i-power-5g-without-backup-by-fonelab-android-recover-pictures/"><u>The way to recover deleted pictures on Vivo Y100i Power 5G without backup.</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-speaking-through-screens-effective-communication-on-youtube/"><u>[New] In 2024, Speaking Through Screens  Effective Communication on YouTube</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-renaissance-the-21st-centurys-approach-to-language-mastery/"><u>Linguistic Renaissance: The 21St Century's Approach to Language Mastery</u></a></li>
+<li><a href="https://fox-http.techidaily.com/1719062254633-new-2024-approved-why-does-imovie-crop-my-videos/"><u>[New] 2024 Approved  Why Does iMovie Crop My Videos?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-guide-to-swedish-language-scripts/"><u>Quick Guide to Swedish Language Scripts</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-2024-approved-mastering-the-art-of-audio-detachment-top-software-picks-for-video-files/"><u>New 2024 Approved Mastering the Art of Audio Detachment Top Software Picks for Video Files</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-beyond-the-headsets-the-essence-of-virtual-reality/"><u>[Updated] In 2024, Beyond the Headsets  The Essence of Virtual Reality</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/heartfelt-temptation-italian-courtship-expressions/"><u>Heartfelt Temptation: Italian Courtship Expressions</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-part-of-the-touch-screen-not-working-on-itel-p40plus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Part of the Touch Screen Not Working on Itel P40+ | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-progress-in-latvian-with-ten-minute-online-lessons/"><u>Quick Progress in Latvian with Ten-Minute Online Lessons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-top-pick-by-apple-today/"><u>Global Top Pick by Apple Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/google-suggested-mondly-the-pathway-to-global-communication/"><u>Google-Suggested Mondly: The Pathway to Global Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/melding-teaching-methods-with-artificential-intelligence/"><u>Melding Teaching Methods with Artificential Intelligence</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/4-easy-ways-for-your-tecno-spark-20-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>4 Easy Ways for Your Tecno Spark 20 Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pasos-faciles-para-entender-la-hora-digital/"><u>Pasos Fáciles Para Entender La Hora Digital</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-resolve-vanished-watch-video-icon-issue-2023/"><u>[Updated] Resolve Vanished Watch Video Icon Issue, 2023</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-by-doing-mondly-introduces-virtual-reality-for-language-acquisition/"><u>Learn by Doing: Mondly Introduces Virtual Reality for Language Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sharpen-articulation-skills-100-engaging-tongue-twisters/"><u>Sharpen Articulation Skills: 100 Engaging Tongue Twisters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/forsok-till-svensk-grev-att-gora/"><u>Försök Till Svensk: Grev Att Göra</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-french-solo-top-techniques-and-tools/"><u>Mastering French Solo: Top Techniques & Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/macau-a-linguistic-kaleidoscope/"><u>Macau: A Linguistic Kaleidoscope</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-visualsizetweak-mastering-your-instagram-media/"><u>[New] 2024 Approved  VisualSizeTweak  Mastering Your Instagram Media</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-collaborates-with-pearson-knowledge-hub/"><u>Mondly Collaborates With Pearson Knowledge Hub</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/simple-russian-dialogues-for-safe-and-easy-exploration/"><u>Simple Russian Dialogues for Safe and Easy Exploration</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-5-best-zoom-transcription-software-free-and-paid/"><u>[New] 5 Best Zoom Transcription Software [Free & Paid]</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-languages-top-online-learning-methods/"><u>Mastering Languages: Top Online Learning Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-the-future-of-language-acquisition-awaits-you/"><u>Mondly: The Future of Language Acquisition Awaits You</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-by-step-japan-study-independent-paths-and-free-tools/"><u>Step-By-Step Japan Study: Independent Paths and Free Tools</u></a></li>
+<li><a href="https://extra-information.techidaily.com/expected-daily-video-consumption-gb-calculation/"><u>Expected Daily Video Consumption  GB Calculation</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/new-ultimate-tutorial-isolating-pure-audio-from-the-webbed-soundscape-in-audacity-for-2024/"><u>New Ultimate Tutorial Isolating Pure Audio From the Webbed Soundscape in Audacity for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-15-pro-to-android-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 15 Pro to Android? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-elevate-your-linguistic-skills/"><u>Mondly: Elevate Your Linguistic Skills</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-bypass-apple-iphone-14-pro-passcode-easily-video-inside-drfone-by-drfone-ios/"><u>In 2024, How to Bypass Apple iPhone 14 Pro Passcode Easily Video Inside | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-made-simple-and-super-affordable-this-new-year/"><u>Language Learning Made Simple and Super Affordable This New Year!</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-go-from-gaming-to-socializing-streaming-xbox-to-fb-live/"><u>In 2024, Go From Gaming to Socializing  Streaming Xbox to FB Live</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embark-on-spanish-numerals-1-10/"><u>Embark on Spanish Numerals 1-10</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-versatilitys-upside-6-perks-demystified/"><u>Linguistic Versatility's Upside: #6 Perks Demystified</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-comprehensive-coverage-coalition-picking-an-mcn/"><u>[Updated] In 2024, Comprehensive Coverage Coalition  Picking an MCN</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/simplifying-spanish-verb-forms-and-tenses/"><u>Simplifying Spanish Verb Forms & Tenses</u></a></li>
+</ul></div>
