@@ -1,7 +1,7 @@
 ---
 title: "From Novice To Native: The Language Learning Ladder"
-date: 2024-07-12T07:54:13.169Z
-updated: 2024-07-13T07:54:13.169Z
+date: 2024-07-29T06:44:22.940Z
+updated: 2024-07-30T06:44:22.940Z
 tags:
   - speak
   - english
@@ -22,6 +22,9 @@ thumbnail: https://thmb.techidaily.com/501cfbb0674181793ce2cd8353fd1c77b58868d2c
 
  But of course, for various other reasons either personal, cultural or work-related, you will find yourself in need of learning a foreign language. The next natural question after deciding to learn a new language is: how many hours does it take to learn a foreign language and achieve fluency?
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ## Estimated times to learn a new language
 
 * Afrikaans — 575 hours
@@ -61,6 +64,9 @@ thumbnail: https://thmb.techidaily.com/501cfbb0674181793ce2cd8353fd1c77b58868d2c
 
  But first, we need to clarify a certain aspect of learning foreign languages as a native English speaker: some languages are more difficult to learn than others. Why? Because English and some other languages haven’t been in contact with one another for thousands of years and have evolved in a totally different way. But studying languages that are completely different from English is not impossible. It takes longer, but you’ll eventually get there.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Easiest language to learn for English speakers
 
  The data presented below reflects a study held by the FSI (Foreign Service Institute) of the US government. Again, this is probably the most accurate data regarding how much time it takes for a native English speaker to become fluent in a particular new language.
@@ -109,8 +115,14 @@ thumbnail: https://thmb.techidaily.com/501cfbb0674181793ce2cd8353fd1c77b58868d2c
 
  The grammar is more complicated and difficult to understand; hence, German gets a tier 2 difficulty score, but of course, there are other Germanic languages out there that are much harder to master, like Icelandic.
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 !["Fastest way to learn a language" by RF._.studio©](https://edge.mondly.com/blog/wp-content/uploads/2018/04/fastest-way-to-learn-a-language-960x641.jpg "How Long Does It Take In Hours To Learn A Language? 4")
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **Tier 3:** Languages that may have cultural and linguistic differences compared to English
 
 | Language       | Time needed to reach fluency |
@@ -122,6 +134,9 @@ thumbnail: https://thmb.techidaily.com/501cfbb0674181793ce2cd8353fd1c77b58868d2c
 
 [Learn with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-1364&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-1364&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-1364)
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **Tier 4:** Languages that are profoundly different from English
 
 | Language        | Time needed to reach fluency |
@@ -154,6 +169,9 @@ thumbnail: https://thmb.techidaily.com/501cfbb0674181793ce2cd8353fd1c77b58868d2c
 
  Based on all the data and testimonies English speakers made over the years, the hardest language to learn award may go to Japanese due to the thousands of characters you need to memorize while having three different writing varieties.
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **Tier 5:** Extraordinary level of difficulty
 
 | Language         | Time needed to reach fluency |
@@ -209,3 +227,52 @@ thumbnail: https://thmb.techidaily.com/501cfbb0674181793ce2cd8353fd1c77b58868d2c
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-following-scrutiny-unorthodox-ideas/"><u>[New] In 2024, Following Scrutiny  Unorthodox Ideas</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-time-management-wizards-the-ultimate-guide-to-facebook-timetables/"><u>[New] In 2024, Time Management Wizards  The Ultimate Guide to Facebook Timetables</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-comprehensive-list-zoom-recording-must-haves/"><u>[Updated] Comprehensive List  Zoom Recording Must-Haves</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-enhancing-your-video-with-professional-voice-overs/"><u>[Updated] In 2024, Enhancing Your Video with Professional Voice Overs</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-leading-youtube-influencers-the-elite-top-ten-list/"><u>[Updated] Leading YouTube Influencers  The Elite Top Ten List</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-voice-modding-on-discord-a-step-by-step-guide-for-2024/"><u>[Updated] Voice Modding on Discord  A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-average-podcast-income-whats-the-payoff/"><u>2024 Approved  Average Podcast Income  What's the Payoff?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-syncing-twitter-to-snapchat-video-uploading-techniques/"><u>2024 Approved  Syncing Twitter to Snapchat  Video Uploading Techniques</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-tips-for-youtube-video-shooting/"><u>2024 Approved  Tips for YouTube Video Shooting</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/25-key-german-expressions-for-fluent-speakers/"><u>25 Key German Expressions for Fluent Speakers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/50-timeless-latin-sayings-for-unforgettable-impressions/"><u>50 Timeless Latin Sayings for Unforgettable Impressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579667558-basic-anatomy-the-parts-of-the-body-in-french/"><u>Basic Anatomy: The Parts Of The Body In French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breaking-barriers-in-fifty-five-reasons-to-learn-another-tongue/"><u>Breaking Barriers in Fifty: Five Reasons to Learn Another Tongue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brussels-chatter-multilingualism-at-work/"><u>Brussels Chatter: Multilingualism at Work</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-the-genesis-of-dutch-speech/"><u>Decoding the Genesis of Dutch Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/engage-with-languages-in-new-dimensions-mondlys-ar-platform/"><u>Engage With Languages in New Dimensions - Mondly's AR Platform</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/haunting-customs-halloween-around-the-globe/"><u>Haunting Customs: Halloween Around the Globe</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/honoring-the-legacy-of-a-school-for-life/"><u>Honoring the Legacy of a School for Life</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-apple-iphone-xr-with-a-mask-on-drfone-by-drfone-ios/"><u>How to Unlock Apple iPhone XR with a Mask On | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-guidelines-to-gradually-reduce-audio-amplitude-in-logic-pro/"><u>In 2024, Guidelines to Gradually Reduce Audio Amplitude in Logic Pro</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-secure-and-enhance-slack-communications-with-top-10-free-audio-apps/"><u>In 2024, Secure & Enhance Slack Communications with Top 10 Free Audio Apps</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-process-of-android-video-u-turns/"><u>In 2024, The Process of Android Video U-Turns</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-the-ultimate-guide-to-travel-blogs-on-youtube/"><u>In 2024, The Ultimate Guide to Travel Blogs on Youtube</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-english-communication-skills/"><u>International English Communication Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/japanese-salutations-key-phrases-for-perfect-greeting/"><u>Japanese Salutations: Key Phrases for Perfect Greeting</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jour-de-la-france-jour-de-la-semaine/"><u>Jour De La France, Jour De La Semaine</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leading-non-native-language-curriculum-for-us-students/"><u>Leading Non-Native Language Curriculum for U.S. Students</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-urdu-easily-every-day/"><u>Learn Urdu Easily, Every Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/love-in-translation-inspirational-french-movies/"><u>Love in Translation: Inspirational French Movies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/manejo-de-horas-un-principio-de-lectura-en-espanol/"><u>Manejo De Horas: Un Principio De Lectura En Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-nippons-script-a-comprehensive-handbook/"><u>Mastering Nippon's Script: A Comprehensive Handbook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-reigns-supreme-leading-the-language-education-sphere/"><u>Mondly Reigns Supreme: Leading the Language Education Sphere</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-horizons-for-filters-mondly-and-pearson-alliance/"><u>New Horizons for Filters: Mondly and Pearson Alliance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578605036-norwegian-prosperity-in-quick-regular-doses/"><u>Norwegian Prosperity in Quick, Regular Doses</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/overcoming-polyglot-hurdles-winning-with-toughest-languages/"><u>Overcoming Polyglot Hurdles: Winning with Toughest Languages</u></a></li>
+<li><a href="https://data-recovery.techidaily.com/photorestore-master-android-version/"><u>PhotoRestore Master: Android Version</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/playful-pathways-in-modern-latin-studies/"><u>Playful Pathways in Modern Latin Studies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/reach-new-heights-in-company-communication-skills/"><u>Reach New Heights in Company Communication Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577616582-the-easiest-way-to-study-czech-online/"><u>The Easiest Way to Study Czech Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-challenge-extremely-long-words-unveiled/"><u>The Ultimate Challenge: Extremely Long Words Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transforming-language-education-through-virtual-reality-introducing-mondly-vr-app/"><u>Transforming Language Education Through Virtual Reality: Introducing Mondly VR App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-the-role-of-accents-in-spanish-pronunciation/"><u>Understanding the Role of Accents in Spanish Pronunciation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unfolding-a-new-chapter-mondlys-tenth-year/"><u>Unfolding a New Chapter: Mondly's Tenth Year</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/upgrade-your-facebook-journey-mastering-look-back-edits-for-2024/"><u>Upgrade Your Facebook Journey  Mastering Look Back Edits for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vocal-acrobatics-mastering-intricate-language-forms/"><u>Vocal Acrobatics: Mastering Intricate Language Forms</u></a></li>
+</ul></div>

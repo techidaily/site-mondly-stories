@@ -1,0 +1,182 @@
+---
+title: Fréquence Des Jours Français
+date: 2024-07-29T06:46:42.397Z
+updated: 2024-07-30T06:46:42.397Z
+tags:
+  - speak
+  - english
+  - learning
+categories:
+  - languages
+description: This Article Describes Fréquence Des Jours Français
+excerpt: This Article Describes Fréquence Des Jours Français
+keywords: Jour De La France,Calendrier Français,Déclarations Juridiques en France,Fêtes Nationales Françaises,Mois De L'année en France,Holidays Et Jours Fériés en France,Vie Quotidienne Française
+thumbnail: https://thmb.techidaily.com/064bb5c43db4056e998dcb4f406cb778296c7343d435216b9b3443b144736cca.jpg
+---
+
+## Fréquence Des Jours Français
+
+ Mastering something as essential as the**days of the week in French** may prove more practical than you think. Paris is always a good idea, but what if you miss your_mardi_ reservation at the #1 restaurant in Paris because you show up on_mercredi_ instead? We don’t want that to happen. That’s why it’s always best to dive into [learning French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) by mastering the essentials first: how to say “[hello](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ”, “[you’re welcome](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ” and the days of the week.
+
+ If “a day” is_un jour_ in French and “a week” is_une semaine_ , it may also be useful to know that “the days of the week” is “_les jours de la semaine”_ . Now let’s see how fast you can learn all seven days of the week_en français_ .
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
+## Days of the week in French
+
+The days of the week in French are:
+
+ Show 10 25 50 100  entries
+
+ Search:
+
+| French   | English   |
+| -------- | --------- |
+| lundi    | Monday    |
+| mardi    | Tuesday   |
+| mercredi | Wednesday |
+| jeudi    | Thursday  |
+| vendredi | Friday    |
+| samedi   | Saturday  |
+| dimanche | Sunday    |
+
+ Showing 1 to 7 of 7 entries
+
+ Previous  Next
+
+ Easy enough, aren’t they? If you are not completely sure about the pronunciation, here’s how you’d pronounce them in English:
+
+* _lundi_  – “lun-dee”
+* _mardi_  – “mar-dee”
+* _mercredi_  – “mare-creu-dee”
+* _jeudi_  – “zheu-dee”
+* _vendredi_  – “von-dre-dee”
+* _samedi_  – “sum-dee”
+* _dimanche_  – “dee-monsh”
+
+ Now repeat them a few times to make sure they stick and let’s move on to some context. Here are some useful French expressions related to time and the days of the week:
+
+* _un jour_ – a day
+* _aujourd’hui_ – today
+* _hier_  – yesterday
+* _avant-hier_ – the day before yesterday
+* _demain_ – tomorrow
+* _après-demain_ – the day after tomorrow
+* _Quel jour est-ce ?_ – What day is it?
+* _Quel jour tombe ton anniversaire cette année ?_ – What day is your birthday this year?
+* _On peut aller au restaurant jeudi._ – We could go to the restaurant on Thursday.
+* _Je ne travaille pas le vendredi._ – I don’t work on Fridays.
+* _hebdomadaire_ – weekly
+* _dans trois jours_ – in three days time
+* _le week-end_ – the weekend
+* _jours ouvrables_ – working days (Monday to Friday)
+* _du lundi au vendredi_ – from Monday to Friday
+* _Le mardi est le deuxième jour de la semaine._ – Tuesday is the second day of the week.
+
+ Planning to spend an entire week in France? Dont stop at_les jours de la semaine en français_ . French people are known to be proud of their language and heritage. Surprise them with your French skills and go beyond “Friday” in French with these [100+ French travel phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . You’ll thank me later.
+
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
+🎬 Nero Video:
+The powerful video editing program for your Windows PC</a>
+<!-- affiliate ads end -->
+## Usage rules
+
+ One more thing before you go. To make sure you are using your newly acquired French days of the week correctly, don’t forget that:
+
+* **the days of the week are not capitalized in French** – unless, of course, they appear at the beginning of a sentence;
+* **the French week starts on Monday;**
+* **days of the week are all masculine in French** – this means you’ll always have to use masculine articles _(le_ and _un)_  and masculine adjectives when talking about the days of the week. For example, if you want to say “the last Friday of the month was rainy” in French, you say _“le dernier vendredi du mois était pluvieux”;_
+* in contrast to _le jour_ , [_la journée_](https://french.kwiziq.com/revision/grammar/when-to-use-an-annee-matin-matinee-jour-journee-soir-soiree-time-unit-vs-duration) (which also translates to “day”) is a feminine noun that refers to a longer period of time during which something might happen. _Jour,_ on the other hand, represents a precise moment, a unit of time. For example: “_Je te rendrai visite dans la journée”_ (“I’ll visit you during the day”) is different from _“Je t’appelle dans deux jours”_ (“I’ll call you in two days”).
+
+* [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fdays-of-the-week-in-french%2F&t=The+Days+of+the+Week+in+French "Share on Facebook")
+* [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
+
+---
+
+#### From 0 to conversational in French
+
+ Do you want to see the**French weekdays** in action? Get [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6137&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6137?mother%5Flang=en%5Fus?target%5Flang=fr&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6137?mother%5Flang=en%5Fus?target%5Flang=fr) , the award-winning language learning app that will help you speak French as if you were Paris-born.
+
+ It can be really tricky to master the [French pronunciation](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) if you don’t actively live in France. But with Mondly, you’ll have access to a fast and highly efficient learning method that allows you to learn French naturally with the following:
+
+* practical topics,
+* bite-sized lessons,
+* real-life conversations,
+* … and so much more.
+
+ **Start using Mondly for free on your [computer](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6137&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6137?mother%5Flang=en%5Fus?target%5Flang=fr&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6137?mother%5Flang=en%5Fus?target%5Flang=fr) or download [the app](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6137&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6137?mother%5Flang=en%5Fus?target%5Flang=fr&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6137?mother%5Flang=en%5Fus?target%5Flang=fr) and learn French anytime, anywhere.**
+
+[Learn French now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-6137&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-6137%26utm%5Fsource%3Dblog-post-id-6137&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-6137%26utm%5Fsource%3Dblog-post-id-6137&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-6137%26utm%5Fsource%3Dblog-post-id-6137&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-6137%26mt%3D8 "Learn French now")
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-enhance-social-media-reach-on-facebook-using-proven-seo-methods/"><u>[New] 2024 Approved  Enhance Social Media Reach on Facebook Using Proven SEO Methods</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-perfecting-screen-capture-teams-meetings-on-pctablet/"><u>[New] 2024 Approved  Perfecting Screen Capture  Teams' Meetings on PC/Tablet</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/levate-reach-optimal-strategies-for-crafting-youtube-titles-and-tags/"><u>[New] Elevate Reach  Optimal Strategies for Crafting YouTube Titles & Tags</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-guide-to-various-video-recording-devices/"><u>[New] Guide to Various Video Recording Devices</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-mastering-profit-strategies-for-vimeo-content-creators/"><u>[New] Mastering Profit Strategies for Vimeo Content Creators</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-cutting-edge-communication-strategies-merging-slack-with-filmoras-capabilities/"><u>[Updated] 2024 Approved  Cutting-Edge Communication Strategies  Merging Slack with Filmora's Capabilities</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-top-scratches-comparative-review-of-recorders/"><u>[Updated] 2024 Approved  Top Scratches  Comparative Review of Recorders</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-how-to-leverage-igs-busiest-hours-for-your-content/"><u>[Updated] In 2024, How to Leverage IG's Busiest Hours for Your Content</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/100plus-essential-spanish-travel-lexicon-for-unforgettable-journeys/"><u>100+ Essential Spanish Travel Lexicon for Unforgettable Journeys</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-mobile-mastery-saving-igtv-videos-on-your-device/"><u>2024 Approved  Mobile Mastery  Saving IGTV Videos on Your Device</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-overcoming-iphone-lens-focus-discrepancies/"><u>2024 Approved  Overcoming iPhone Lens Focus Discrepancies</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-the-ultimate-ringers-guide-shaping-iphone-sounds/"><u>2024 Approved  The Ultimate Ringer's Guide  Shaping iPhone Sounds</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/becoming-an-audience-star-with-top-language-test-preparation/"><u>Becoming an Audience Star with Top Language Test Preparation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/black-friday-deal-endless-language-learning-at-96-less/"><u>Black Friday Deal: Endless Language Learning at 96%% Less</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/charms-of-chic-french-lingo-for-love/"><u>Charms of Chic: French Lingo for Love</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/chiefly-taught-foreign-languages-in-american-schools/"><u>Chiefly Taught Foreign Languages in American Schools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cinema-and-televisions-a-new-path-to-language-proficiency/"><u>Cinema & Televisions: A New Path to Language Proficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciphering-interlingual-secrets-turkey-and-korea/"><u>Deciphering Interlingual Secrets: Turkey and Korea</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/efficient-polish-language-strategy/"><u>Efficient Polish Language Strategy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/engage-locals-in-italy-10-common-and-charming-greetings/"><u>Engage Locals in Italy: 10 Common and Charming Greetings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-spanish-verb-conjugation-primer/"><u>Essential Spanish Verb Conjugation Primer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fast-track-conquering-japans-number-system/"><u>Fast Track: Conquering Japan's Number System</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578795871-german-vs-french-which-language-is-more-useful-to-learn/"><u>German vs French: Which Language Is More Useful to Learn</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/get-the-most-out-of-culinary-classes-with-these-essential-study-tips/"><u>Get the Most Out of Culinary Classes with These Essential Study Tips</u></a></li>
+<li><a href="https://change-location.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-xiaomi-redmi-a2-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Xiaomi Redmi A2 | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-hard-reset-honor-v-purse-without-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Hard Reset Honor V Purse Without Password | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-dawns-good-morning-versions-from-10-different-cultures/"><u>International Dawns: Good Morning Versions From 10 Different Cultures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introduction-to-russian-verbal-courtesies-crucial-phrases-and-words/"><u>Introduction to Russian Verbal Courtesies: Crucial Phrases and Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/koreas-daily-language-puzzle-solved/"><u>Korea's Daily Language Puzzle Solved</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-the-colors-in-spanish-quick-pronunciation-guide/"><u>Learn the Colors in Spanish – Quick Pronunciation Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-culture-in-croatia/"><u>Linguistic Culture in Croatia</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/maximize-monetization-the-step-by-step-for-youtube-profiles-for-2024/"><u>Maximize Monetization  The Step-by-Step for YouTube Profiles for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-transforming-the-way-we-learn-languages/"><u>Mondly: Transforming the Way We Learn Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-joint-venture-with-pearson-redefines-buttons/"><u>Mondly's Joint Venture with Pearson Redefines Buttons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-lifetime-plan-zero-price/"><u>Mondly's Lifetime Plan: Zero Price</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-matchmakers-finding-romance-in-diversity/"><u>Multilingual Matchmakers: Finding Romance in Diversity</u></a></li>
+<li><a href="https://howto.techidaily.com/my-videos-arent-playing-on-xiaomi-civi-3-disney-100th-anniversary-edition-what-can-i-do-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>My Videos Arent Playing on Xiaomi Civi 3 Disney 100th Anniversary Edition – What Can I Do? | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/navigating-the-ins-and-outs-of-aiseesofts-screencast-functionality/"><u>Navigating the Ins and Outs of Aiseesoft's Screencast Functionality</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-year-new-verbal-horizon/"><u>New Year, New Verbal Horizon</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pioneering-pedagogical-exchange-bett-2022/"><u>Pioneering Pedagogical Exchange - BETT 2022</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/revolutionize-your-earning-game-with-top-13-strategies-for-novices-on-reddit/"><u>Revolutionize Your Earning Game with Top 13 Strategies for Novices on Reddit</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/santa-claus-master-of-worldwide-dialogue/"><u>Santa Claus: Master of Worldwide Dialogue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/skyrocket-your-portuguese-proficiency-with-these-six-steps/"><u>Skyrocket Your Portuguese Proficiency with These Six Steps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-numbers-101-a-beginners-guide-to-counting-in-spanish/"><u>Spanish Numbers 101: A Beginner's Guide To Counting In Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-rigor-behind-learning-german/"><u>The Rigor Behind Learning German</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-quick-czech-proficiency-online/"><u>The Ultimate Guide: Quick Czech Proficiency Online</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-videos-from-honor-play-7t-by-fonelab-android-recover-video/"><u>The way to get back lost videos from Honor Play 7T</u></a></li>
+<li><a href="https://fox-that.techidaily.com/top-6-solutions-how-to-restore-full-functionality-on-your-iphone-displaying-emergency-call-sos-icon/"><u>Top 6 Solutions: How to Restore Full Functionality on Your iPhone Displaying Emergency Call (SOS) Icon</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-media-playback-on-youtube-flv-files-tutorial-for-2024/"><u>Unified Media Playback on YouTube  FLV Files Tutorial for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unparalleled-language-hubs-discover-the-ultimate-learning-experience/"><u>Unparalleled Language Hubs: Discover the Ultimate Learning Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/valkommen-i-sverige-svensk-forsvarande-grev/"><u>Välkommen I Sverige: Svensk Försvarande Grev</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/whispered-words-tuscanys-alluring-dialogue/"><u>Whispered Words: Tuscany’s Alluring Dialogue</u></a></li>
+</ul></div>

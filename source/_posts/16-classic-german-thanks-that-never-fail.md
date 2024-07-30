@@ -1,7 +1,7 @@
 ---
 title: 16 Classic German Thanks That Never Fail
-date: 2024-07-12T07:50:11.597Z
-updated: 2024-07-13T07:50:11.597Z
+date: 2024-07-29T06:41:23.786Z
+updated: 2024-07-30T06:41:23.786Z
 tags:
   - speak
   - english
@@ -18,12 +18,30 @@ thumbnail: https://thmb.techidaily.com/c477119574c19e1fe1c1e24c760eca970cf6d9df6
 
  Today we are discussing [German etiquette](https://www.deutschland.de/en/topic/life/a-guide-to-german-etiquette) . More precisely,**how do you say thank you in German** depending on the social context, degree of familiarity, or the subject of discussion? We all know that just a simple**“thank you” in German (Danke!)** can work wonders when the context asks for it. Expressing gratitude in a foreign language is more than just a matter of being polite; it’s a sign of respect towards the culture and the country you are visiting.
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Saying “thank you” to someone is one of the first things we learned when we were little – “say thank you for the chocolate to the kind gentleman!”. We all remember that ![Learning German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) – or any other language – is just slightly different from learning to speak. You start with the basics – like**thank you** and**you’re welcome** – and you continue with more advanced vocabulary like variations of the same expressions you already mastered. In English, we have multiple variations for expressing gratitude. “Thanks”, “thank you”, “thanks a bunch” or even “I’m eternally grateful to you” are just a few of them. Naturally, the German language makes no exception. Let’s discover**the absolute best ways to say thank you in German.**
 
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![woman receiving a flower](https://edge.mondly.com/blog/wp-content/uploads/2019/05/how-to-say-thank-you-in-german-1024x682.png "The 16 Best Ways To Say Thank You In German 2")
 
  “Thank you!” by Dayne Topkin©
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **1._Danke!_ — The universal “Thank you” in German**
 
 _**Danke**_ translates to “thank you” or “thanks” and it is probably the best and certainly**most common way to say thank you in German.** If you already interacted with the German language, you probably heard “Danke!” before. It’s sweet, short, easy to remember, and suitable for both formal and informal contexts.
@@ -38,6 +56,9 @@ _**Danke**_ translates to “thank you” or “thanks” and it is probably the
 
  This is a more formal variation of_Danke schön_ , but both expressions can be used interchangeably. Like I said: trust your gut. It’s very important to take into consideration your way to talk to other people and your personality.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **4._Vielen Dank!_ — Many thanks!**
 
  Do you know that moment when you are really grateful to someone because they helped you a lot? Well, that’s the perfect moment to thank them in German using “Vielen Dank!”.
@@ -58,18 +79,30 @@ _Tausend Dank!_ is**the** **German equivalent of our** **“Thanks a million!”
 
  We all have moments in our lives when we need to thank the extraordinary people that helped when we were in trouble. Well, “Sehr aufmerksa” is for one of those situations. It’s a heartfelt way of thanking someone that has done something kind for you.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **9._Ich bin dir dankbar._ — I’m thankful to you.**
 
  Good to know, but very rarely used. Depending on whom you are talking to, use “dir” and “euch” for friends and colleagues or “Ihnen” for those who you don’t know too well. The key is to use the right pronoun.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **10._Ich sage dir vielen Dank._ – I say many thanks to you.**
 
  Rarely used, but still useful if you want the complete list of ways to say thank you in German.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## **11._Danke, gleichfalls!_ — Thank you, the same to you!**
 
  “Gleichfalls” is what you should add to your “Danke!” when someone wishes you “Guten Appetit!” (“Good appetite” or “Enjoy your meal”) or something similar.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
 ## **12._Ich danke Ihnen!_ – I give you my thanks!**
 
  Like we said in the beginning, this is one of the most formal ways of thanking someone in German.
@@ -86,10 +119,17 @@ _Tausend Dank!_ is**the** **German equivalent of our** **“Thanks a million!”
 
  Well, you’ll probably need this one at some point, won’t you? This is especially useful when you make a request.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ## **16._Ich bin Ihnen sehr dankbar für…_ – I am very grateful to you for…**
 
  Last but not least, use this standard expression by adding what are you thankful for at the end of it. But use it only with intangible things like**“I’m grateful for your help”** and not objects. Here’s an example:**“I’m thankful that you take care of me”** in German will be **“Ich bin Ihnen sehr dankbar dafür, dass du dich um mich kümmerst”** .
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<!-- affiliate ads end -->
 ## **17\. Bonus: How to say you’re welcome in German**
 
  Since we are here, let’s also see**how you can respond if someone says thank you in German.** Generally, the same as_Danke_ ,_Bitte_ is the safest and most common way to respond to someone expressing their gratitude. Once you begin to discover the German inside jokes, you’ll see that there’s one going around about_**Bitte**_ being the perfect answer for everything in German (hahaha – I know).
@@ -140,3 +180,45 @@ Get Mondly now and speak German like you never dreamed you would ![Learn German 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-reimagine-personal-storytelling-on-snapchat-access-a-library-of-over-120-ideas-to-stand-out/"><u>[New] 2024 Approved  Reimagine Personal Storytelling on Snapchat  Access a Library of Over 120 Ideas to Stand Out</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-booktiks-15-newest-must-have-reads-for-you/"><u>[New] Booktik's 15 Newest Must-Have Reads for You</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-constructing-the-ideal-home-computer-for-advanced-video-editing/"><u>[New] Constructing the Ideal Home Computer for Advanced Video Editing</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-how-to-share-tiktok-videos-to-facebook/"><u>[New] In 2024, How to Share TikTok Videos to Facebook?</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-capture-and-store-facebook-videos-in-hd-for-2024/"><u>[Updated] Capture and Store Facebook Videos in HD for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-selecting-the-best-online-platforms-for-budget-stock-media/"><u>[Updated] In 2024, Selecting the Best Online Platforms for Budget Stock Media</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-simplified-ratio-changes-on-web-dev-platforms/"><u>[Updated] Simplified Ratio Changes on Web Dev Platforms</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-the-interactive-sphere-instagram-tiktok-synergy-guide/"><u>2024 Approved  The Interactive Sphere  Instagram-TikTok Synergy Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bengali-brilliance-in-short-sessions/"><u>Bengali Brilliance in Short Sessions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beyond-words-the-power-of-foreign-languages-unveiled/"><u>Beyond Words: The Power of Foreign Languages Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/boost-biz-impact-with-skilled-communication-learning/"><u>Boost Biz Impact with Skilled Communication Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breathing-life-into-voice-enhanced-ar-apps/"><u>Breathing Life Into Voice-Enhanced AR Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-insights-into-french-greetings-for-travelers-and-residents-alike/"><u>Cultural Insights Into French Greetings for Travelers & Residents Alike</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cutting-edge-technology-for-enhanced-language-pedagogy/"><u>Cutting-Edge Technology for Enhanced Language Pedagogy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/differences-between-british-and-american-english/"><u>Differences Between British And American English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-the-ultimate-path-to-learn-lithuanian-digitally/"><u>Discover the Ultimate Path to Learn Lithuanian Digitally</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/explore-the-finest-5-android-photo-editing-apps/"><u>Explore the Finest 5 Android Photo Editing Apps</u></a></li>
+<li><a href="https://android-location.techidaily.com/for-people-wanting-to-mock-gps-on-samsung-galaxy-a54-5g-devices-drfone-by-drfone-virtual/"><u>For People Wanting to Mock GPS on Samsung Galaxy A54 5G Devices | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-a-nokia-c210-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Nokia C210 Phone That Is Locked | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-intercept-text-messages-on-xiaomi-redmi-note-13-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Intercept Text Messages on Xiaomi Redmi Note 13 5G | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-vivo-v27e-bootloader-easily-by-drfone-android/"><u>In 2024, How to Unlock Vivo V27e Bootloader Easily</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-secrets-for-striking-fb-video-promos/"><u>In 2024, Secrets for Striking FB Video Promos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/intercultural-harmony-skills-for-successful-global-engagement/"><u>Intercultural Harmony: Skills for Successful Global Engagement</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-vocabulary-the-heart-of-english/"><u>International Vocabulary, The Heart of English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/key-russian-sentences-to-enrich-your-journey/"><u>Key Russian Sentences to Enrich Your Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leichte-einfuhrung-in-deutsche-zahlenreim-1-100/"><u>Leichte Einführung in Deutsche Zahlenreim 1-100</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-educational-growth-through-apple-innovations/"><u>Mondly's Educational Growth Through Apple Innovations</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-text-reveal-animation-easy-masking-filmora/"><u>New TEXT REVEAL Animation | Easy Masking Filmora</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pathway-to-proficiency-excellent-online-korean-learning-sources/"><u>Pathway to Proficiency: Excellent Online Korean Learning Sources</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ten-years-strong-mondlybacks-button-filters/"><u>Ten Years Strong: MondlyBack's Button Filters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-advantages-of-mastering-the-german-language/"><u>The Advantages of Mastering the German Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-best-way-to-learn-korean-online-6-brilliant-resources/"><u>The Best Way to Learn Korean Online – 6 Brilliant Resources</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-portuguese-dialect-dichotomy-south-america-meets-europe/"><u>The Portuguese Dialect Dichotomy: South America Meets Europe</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579807977-unlock-full-featured-mondly-pro-save-up-to-96/"><u>Unlock Full-Featured Mondly Pro, Save Up To 96%%!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-global-communication-now-96-off/"><u>Unlock Global Communication, Now 96%% Off</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-is-it-easier-for-a-child-to-learn-a-second-language/"><u>Why Is It Easier For A Child To Learn A Second Language?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/words-of-thanks-a-language-guide-for-global-communication-156/"><u>Words of Thanks: A Language Guide for Global Communication (156)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/world-words-unlocked-easy-to-master-language-list/"><u>World Words Unlocked: Easy-To-Master Language List</u></a></li>
+</ul></div>

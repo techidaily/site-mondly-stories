@@ -1,7 +1,7 @@
 ---
 title: 100+ Core Urdu Words – Learn the Most Common Words in Urdu
-date: 2024-07-12T07:53:48.723Z
-updated: 2024-07-13T07:53:48.723Z
+date: 2024-07-29T06:44:04.169Z
+updated: 2024-07-30T06:44:04.169Z
 tags:
   - speak
   - english
@@ -22,6 +22,9 @@ thumbnail: https://thmb.techidaily.com/c8eb03733ef324f2e03346e87f6cada30d7b235c9
 
 [Studies](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) have shown that knowing as little as 100 words will help you understand 50% of any text in Urdu. Surprising as it may seem, it’s true. The most common 1,000 words in Urdu will give you a high coverage of 75% of any Urdu text. Isn’t that amazing?
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The most common everyday Urdu words
 
  The everyday words in Urdu are the ones you’ll probably use the most in your daily conversations. This is why we are going to focus on these high-frequency, high-value words first and then move to some of the most popular words in online searches.
@@ -87,6 +90,9 @@ thumbnail: https://thmb.techidaily.com/c8eb03733ef324f2e03346e87f6cada30d7b235c9
 * who — _کون (kon)_
 * stop — _رکو (ruko)_
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<!-- affiliate ads end -->
 ## The most popular Urdu words searches
 
  While we’re at it, why not also learn some of the most popular words for which people want an Urdu translation? If they are so popular in searches, I’m sure they can also be useful to you on your way to speaking Urdu.
@@ -109,6 +115,9 @@ thumbnail: https://thmb.techidaily.com/c8eb03733ef324f2e03346e87f6cada30d7b235c9
 * unique — _منفرد (munfarid)_
 * hope — _امید (umeed)_
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Urdu words related to food and drink
 
  Did you know that the [Urdu language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) was one of the premier languages of poetry in South Asia for centuries? And rightly so. Just listen to the music of its words and you’ll understand.
@@ -165,6 +174,9 @@ thumbnail: https://thmb.techidaily.com/c8eb03733ef324f2e03346e87f6cada30d7b235c9
 * medicine — _دوا (dawa)_
 * pharmacy — _دواخانہ (dawakhana)_
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Urdu words related to transportation and places
 
  While this crash course in Urdu words will get you from zero to beginner in as little as 15 minutes, these words will get you to the other hemisphere if you need it so.
@@ -184,6 +196,9 @@ thumbnail: https://thmb.techidaily.com/c8eb03733ef324f2e03346e87f6cada30d7b235c9
 
  Now that you’ve mastered some of the most basic Urdu vocabulary words, you can dive into the practical phrases that’ll help you ease into real-world conversations.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## The most common Urdu phrases
 
  The following phrases in Urdu are a great place to start learning. Simple phrases like ‘good morning’, ‘how are you’ or ‘you’re welcome’ are the most effective way to get from 0 to conversational fast. Learn these phrases today and make Urdu-speaking friends tomorrow!
@@ -216,6 +231,9 @@ thumbnail: https://thmb.techidaily.com/c8eb03733ef324f2e03346e87f6cada30d7b235c9
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Learn Urdu in just 10 minutes a day
 
  Do you want to see the Urdu words in action? Get Mondly, the award-winning language learning app that will help you speak Urdu from day 1.
@@ -248,3 +266,44 @@ thumbnail: https://thmb.techidaily.com/c8eb03733ef324f2e03346e87f6cada30d7b235c9
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-maximizing-engagement-with-instagrams-ask-emoji/"><u>[New] In 2024, Maximizing Engagement with Instagram's Ask Emoji</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-maximizing-your-virtual-meetings-expert-insights-on-using-zoom-win10/"><u>[New] Maximizing Your Virtual Meetings  Expert Insights on Using Zoom (Win10)</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-streamlining-video-submissions-from-imovie-to-vimeo/"><u>[New] Streamlining Video Submissions From iMovie to Vimeo</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-comprehensive-list-of-ios-compatible-ps2-games-for-2024/"><u>[Updated] Comprehensive List of iOS-Compatible PS2 Games for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-fiscal-flyers-top-5-low-cost-aerial-vehicles/"><u>[Updated] Fiscal Flyers  Top 5 Low-Cost Aerial Vehicles</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-mastering-the-art-of-captivating-vimeo-staff-picks/"><u>[Updated] In 2024, Mastering the Art of Captivating Vimeo Staff Picks</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unlocking-youtubes-srt-a-three-step-process/"><u>[Updated] Unlocking YouTube’s SRT  A Three-Step Process</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-boost-your-reach-tips-and-tricks-for-uploading-to-instagram-desktop/"><u>2024 Approved  Boost Your Reach  Tips & Tricks for Uploading to Instagram Desktop</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-full-review-comprehensive-look-at-videoshow-in-24/"><u>2024 Approved  Full Review - Comprehensive Look at VideoShow in '24</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-selecting-the-best-hdr-cameras-simplified/"><u>2024 Approved  Selecting the Best HDR Cameras Simplified</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-transform-your-shots-into-dynamic-works-of-art-with-motion-blur-techniques/"><u>2024 Approved  Transform Your Shots Into Dynamic Works of Art with Motion Blur Techniques</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-best-tools-to-hard-reset-itel-p55t-drfone-by-drfone-reset-android-reset-android/"><u>3 Best Tools to Hard Reset Itel P55T | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/amor-in-motion-ingenious-italian-flirting-strategies/"><u>Amor in Motion: Ingenious Italian Flirting Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/break-barriers-through-language-skills/"><u>Break Barriers Through Language Skills</u></a></li>
+<li><a href="https://games-able.techidaily.com/comprehensive-guide-tackling-the-top-4-gpu-challenges/"><u>Comprehensive Guide: Tackling the Top 4 GPU Challenges</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/craft-your-own-french-journey-from-anywhere/"><u>Craft Your Own French Journey From Anywhere!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/early-years-the-optimal-time-for-language-learning/"><u>Early Years: The Optimal Time for Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/english-tongues-foreign-flavor-syntax-and-vocabulary-shifts/"><u>English Tongue's Foreign Flavor: Syntax & Vocabulary Shifts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/europes-vibrant-verbal-tapestry-celebrate-it-today/"><u>Europe's Vibrant Verbal Tapestry – Celebrate It Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-languages-with-mondly-recommended-by-google/"><u>Explore Languages with Mondly, Recommended by Google</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-expert-the-journey-with-english-contractions/"><u>From Novice to Expert: The Journey with English Contractions</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-xiaomi-redmi-note-12-5gwithwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Xiaomi Redmi Note 12 5Gwith/without a PC</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/in-2024-set-your-preferred-job-location-on-linkedin-app-of-your-xiaomi-civi-3-drfone-by-drfone-virtual-android/"><u>In 2024, Set Your Preferred Job Location on LinkedIn App of your Xiaomi Civi 3 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-unleashed-commemorating-1500-daily-fee-free-education/"><u>Learning Unleashed: Commemorating 1500 Daily Fee-Free Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-mondly-unlock-ultimate-features/"><u>Mastering Mondly: Unlock Ultimate Features</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/milestone-mondlybacks-10-year-filter-legacy/"><u>Milestone: MondlyBack’s 10-Year Filter Legacy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-milestones-a-decade-of-language-revolution/"><u>Mondly Milestones - A Decade of Language Revolution</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlyar-a-gateway-to-global-communication-in-virtual-reality/"><u>MondlyAR: A Gateway to Global Communication in Virtual Reality</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speed-through-syntax-mastering-bulgarian/"><u>Speed Through Syntax, Mastering Bulgarian</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tandu-update-better-control-enhanced-clarity/"><u>T&U Update: Better Control, Enhanced Clarity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-choice-next-language-to-master/"><u>The Ultimate Choice: Next-Language to Master</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-tools-for-efficient-foreign-language-proficiency-growth/"><u>Top Tools for Efficient Foreign Language Proficiency Growth</u></a></li>
+<li><a href="https://apple-account.techidaily.com/top-notch-solutions-for-disabled-apple-id-from-apple-iphone-12-pro-making-it-possible-by-drfone-ios/"><u>Top-Notch Solutions for Disabled Apple ID From Apple iPhone 12 Pro Making It Possible</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577370155-transform-lives-with-arabic-and-mondly-top-6-benefits-await/"><u>Transform Lives with Arabic & Mondly: Top 6 Benefits Await</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ultimate-list-of-danish-films-to-advance-linguistic-mastery/"><u>Ultimate List of Danish Films to Advance Linguistic Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-potential-mondlys-free-educational-platform/"><u>Unlocking Potential: Mondly's Free Educational Platform</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-your-samsung-galaxy-s23-tactical-edition-auto-does-not-work-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do if Your Samsung Galaxy S23 Tactical Edition Auto Does Not Work | Dr.fone</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Dissecting the Linguistic Gaps of USA and UK
-date: 2024-07-12T07:50:29.439Z
-updated: 2024-07-13T07:50:29.439Z
+date: 2024-07-29T06:41:37.126Z
+updated: 2024-07-30T06:41:37.126Z
 tags:
   - speak
   - english
@@ -63,6 +63,9 @@ thumbnail: https://thmb.techidaily.com/a13a6e974ab2cc36089a6059bc5652aa7fea08489
 
  Previous  Next
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Spellings differences: is it “colour” or “color”?
 
  That’s simple! “Colour” is the British spelling and “color” is the American spelling. Always remember that, when it comes to spelling, American English uses a simplified version. The explanation goes back to 1828 when Noah Webster wrote the first American dictionary –_An American Dictionary of the English Language._ Webster said he chose alternative spellings that were already in use in the United States “on such grounds as simplicity, analogy or etymology”.
@@ -95,12 +98,27 @@ thumbnail: https://thmb.techidaily.com/a13a6e974ab2cc36089a6059bc5652aa7fea08489
 
  Although spelling, accent, and vocabulary differences are the most notorious distinctions, American English and British English are divergent in some [grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) matters as well.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Collective nouns
 
  In American English, collective nouns such as “band”, “team”, “family” or “crew” are considered plural. In contrast, British English considers collective nouns either singular or plural, but more often plural as a way to emphasize the members of the group.
 
  Thus, while**“The band is playing”** in the US, in the UK**“The band are playing”** . Likewise, if I’m in the US,**“My team is winning”** . But if I’m in the UK,**“My team are winning”** .
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Learned or learnt?
 
 **Learned** and**learnt** are both the correct past participle and past tense forms of the verb “to learn”. Easily overlooked in speech, but much more obvious in writing, this subtle difference addresses verbs.
@@ -121,10 +139,16 @@ thumbnail: https://thmb.techidaily.com/a13a6e974ab2cc36089a6059bc5652aa7fea08489
 
  Thus, in Britain, you’ll say**“I’ve been to the supermarket”** and in the US you’ll say**“I went to the supermarket”** .
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Prepositions
 
  In British English, “at” is generally used in relation to time and place. In contrast, in American English, “on” is used in relation to time and “in” is used in relation to place.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<!-- affiliate ads end -->
 ![british american english](https://edge.mondly.com/blog/wp-content/uploads/2020/06/british-american-english-600x600.jpg "British English Vs American English Differences: Spelling, Pronunciation And More 3")
 
  British English vs American English
@@ -135,12 +159,19 @@ thumbnail: https://thmb.techidaily.com/a13a6e974ab2cc36089a6059bc5652aa7fea08489
 
  Additionally, in Britain, you are likely to hear “needn’t” a lot and in the US not at all. In its place, Americans use “don’t need to”.
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## British accent vs American accent
 
  The biggest difference between British English and American English is, undoubtedly, the accent. The reason why these two variations sound so different is known as rhotacism, the change of a particular consonant into a rhotic consonant. In this case, the consonant is “r”.
 
  American accent is rhotic and Americans pronounce their “R’s” loud and clear. On the other hand, the British accent is non-rhotic and Brits usually replace their “R’s” with “H’s”. Thus, words like “water” or “card” will be pronounced_wa-tuh_ or_caahd_ .
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ## British vs American: which one should you learn and use?
 
  It doesn’t matter whether you learn British English or American English. There is no such thing as “the best English”. Learn whichever you feel and like. Of course, if you intend to move to the United States, it is best to study and get used to the American accent.
@@ -184,3 +215,51 @@ thumbnail: https://thmb.techidaily.com/a13a6e974ab2cc36089a6059bc5652aa7fea08489
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-discover-the-perfect-moment-timing-your-insta-posts-for-2024/"><u>[New] Discover the Perfect Moment  Timing Your Insta Posts for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-essentials-of-youtube-mastery-free-online-course-series/"><u>[New] In 2024, Essentials of YouTube Mastery  Free Online Course Series</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-leading-10-lenses-revolutionizing-photography/"><u>[New] In 2024, Leading 10 Lenses Revolutionizing Photography</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-inside-the-studio-magix-vpx-leading-media-production/"><u>[New] Inside the Studio  Magix VPX Leading Media Production</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-seamless-timelapse-footage-with-ios-technology/"><u>[New] Seamless Timelapse Footage with iOS Technology</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-unclouded-vision-leading-online-tools-for-crisp-imagery/"><u>[New] Unclouded Vision  Leading Online Tools for Crisp Imagery</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-essentials-of-editing-your-social-media-profile-picture/"><u>[Updated] 2024 Approved  Essentials of Editing Your Social Media Profile Picture</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-strategies-for-correcting-quietened-video-sounds-on-fb/"><u>[Updated] 2024 Approved  Strategies for Correcting Quietened Video Sounds on Fb</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-elite-digital-image-grabbers/"><u>[Updated] In 2024, Elite Digital Image Grabbers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-unveiling-inshot-a-thorough-editor-investigation/"><u>[Updated] In 2024, Unveiling InShot  A Thorough Editor Investigation</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-sweeping-vistas-with-your-iphone-social-media-360-tips/"><u>[Updated] Sweeping Vistas with Your iPhone  Social Media 360 Tips</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-apex-creators-video-giants-in-the-making/"><u>2024 Approved  Apex Creators  Video Giants in the Making</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-from-the-grave-to-gameplay-top-8-zombies-unleashed/"><u>2024 Approved  From the Grave to Gameplay  Top 8 Zombies Unleashed</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-from-zip-to-sub-transforming-compressed-texts-to-srt-format/"><u>2024 Approved  From Zip to Sub  Transforming Compressed Texts to SRT Format</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-layers-of-plot-and-character-design/"><u>2024 Approved  Layers of Plot and Character Design</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/5-most-effective-methods-to-unlock-apple-iphone-7-in-lost-mode-by-drfone-ios/"><u>5 Most Effective Methods to Unlock Apple iPhone 7 in Lost Mode</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580338548-bangla-briskly-blossoms-with-just-10-minsday/"><u>Bangla Briskly Blossoms with Just 10 Mins/Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/celebrating-the-linguistic-tapestry-of-our-teachers/"><u>Celebrating the Linguistic Tapestry of Our Teachers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dialect-dynamics-portuguese-of-the-two-hemispheres/"><u>Dialect Dynamics: Portuguese of the Two Hemispheres</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/education-advancements-via-mondly-apple-tech-partnership/"><u>Education Advancements via Mondly-Apple Tech Partnership</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579370554-embrace-croatia-7-advantages-in-learning-its-language/"><u>Embrace Croatia: 7 Advantages in Learning Its Language!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhance-speech-clarity-100-engaging-tongue-twisters/"><u>Enhance Speech Clarity: 100 Engaging Tongue Twisters</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/expert-insights-into-magix-video-pro-xs-design/"><u>Expert Insights Into Magix Video Pro X's Design</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-persian-heritage-a-languages-tale/"><u>Exploring Persian Heritage: A Language's Tale</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-education-trends-top-languages-for-americans/"><u>Global Education Trends: Top Languages for Americans</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-vernacular-synthesis-with-english/"><u>Global Vernacular Synthesis with English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gsl-transformation-pearson-and-mondly-join-forces/"><u>GSL Transformation - Pearson & Mondly Join Forces</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/honoring-a-dedicated-decade-at-mondlyback/"><u>Honoring a Dedicated Decade at MondlyBack</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-zte-nubia-flip-5g-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock ZTE Nubia Flip 5G Phone without Google Account?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-transforming-photo-genders-on-instagram-snapchat-and-facebook/"><u>In 2024, Transforming Photo Genders on Instagram, Snapchat & Facebook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/insight-into-spanish-greetings-an-easy-to-remember-list-of-10/"><u>Insight Into Spanish Greetings: An Easy-to-Remember List Of 10</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/is-your-apple-iphone-x-in-security-lockout-proper-ways-to-unlock-by-drfone-ios/"><u>Is Your Apple iPhone X in Security Lockout? Proper Ways To Unlock</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-czech-with-online-simplicity-techniques/"><u>Mastering Czech with Online Simplicity Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-ai-innovation-in-classroom-and-language-skills/"><u>Navigating AI Innovation in Classroom and Language Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oculus-event-practice-your-spanish-and-socialize-in-mondly-vr-multiplayer/"><u>Oculus Event: Practice Your Spanish and Socialize in Mondly VR Multiplayer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/perfect-pronunciation-powered-by-100-dynamic-twisters/"><u>Perfect Pronunciation Powered by 100 Dynamic Twisters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/persian-language-history-and-benefits-of-learning-farsipersian/"><u>Persian Language: History & Benefits of Learning Farsi/Persian</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-poco-x5-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Poco X5? | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/teaching-with-video-effective-editing-methods-for-2024/"><u>Teaching with Video  Effective Editing Methods for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-linguist-behind-the-reindeer-santas-skills/"><u>The Linguist Behind the Reindeer: Santa's Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-spelling-challenge-overcoming-hard-words-to-spell-and-pronounce/"><u>The Spelling Challenge: Overcoming Hard Words to Spell and Pronounce</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlimited-education-journey-commemorating-1500-free-daily-insights/"><u>Unlimited Education Journey: Commemorating 1500 Free Daily Insights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-mysteries-of-spanish-verb-formations/"><u>Unveiling the Mysteries of Spanish Verb Formations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/update-privacy-policy-and-terms-of-use/"><u>Update: Privacy Policy & Terms of Use</u></a></li>
+</ul></div>

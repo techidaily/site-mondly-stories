@@ -1,0 +1,151 @@
+---
+title: "Foundation of Compassion: Danny for Colombia's Needy"
+date: 2024-07-29T06:49:55.212Z
+updated: 2024-07-30T06:49:55.212Z
+tags:
+  - speak
+  - english
+  - learning
+categories:
+  - languages
+description: "This Article Describes Foundation of Compassion: Danny for Colombia's Needy"
+excerpt: "This Article Describes Foundation of Compassion: Danny for Colombia's Needy"
+keywords: Compassionate Aid in Colombia,Supporting Colombia's Underprivileged,Danny's Initiative for Colombian Welfare,Philanthropy in Colombia,Colombia Humanitarian Efforts by Danny's Foundation,Aid to Colombia,Danny's Foundation Impact on Colombian Communities
+thumbnail: https://thmb.techidaily.com/d7ebc6506ee84717282a71bf655d8ecabd8e6c4fafa92ca86d15ca1c4deb0528.jpg
+---
+
+## Foundation of Compassion: Danny for Colombia's Needy
+
+ We, at Mondly, strongly believe that education can change the world for the better. This is why we pledged ourselves to give those who need it most the opportunity to learn languages with Mondly Premium for free.
+
+ **One of the causes dearest to our heart is [Fundación Danny](http://www.fundaciondanny.org/) from Colombia to whom we donated 150 Premium subscriptions in an effort to help them make language learning accessible for Colombian children.**
+
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<!-- affiliate ads end -->
+![fundacion danny mondly](https://edge.mondly.com/blog/wp-content/uploads/2020/03/fundacion-danny-mondly-600x450.jpg "Helping Those Who Need It Most: Fundación Danny From Colombia 2")
+
+ Colombian children attending the Danny Foundation courses.
+
+ Fundación Danny or Danny Foundation has been active since 2011 and its goal is to help children and young people from different places in Colombia to develop skills that can ensure a better future for them and their families. The foundation provides multiple courses from language learning to programming and even playing an instrument.
+
+ Danny Foundation is projected as an Educational Institution that targets children and adolescents from vulnerable strata to give them access to excellent learning standards. Its long term objective is to help these children face the challenges of the working world thus reducing poverty and social inequality.
+
+ **DANNY stands for Developing Aptitudes for a New Nation and Youth.**
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Unlocking the power of social good
+
+ When Andrés Rodríguez, the director of Danny Foundation, first came for our help, we knew right away we had to do it. For the children and adolescents that attend the foundations’ courses, language learning is not just a hobby, but the key to success. This is why we wanted to give them the opportunity to experience the transformational power of learning English with Mondly.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![danny foundation mondly](https://edge.mondly.com/blog/wp-content/uploads/2020/03/danny-foundation-mondly-468x600.jpg "Helping Those Who Need It Most: Fundación Danny From Colombia 3")
+
+ Graduation at the Danny Foundation.
+
+> _Learning English in Colombia is not an easy task. Schools do teach English but just once or twice per week and sometimes the teachers themselves are not as competent as they should be. So Mondly is a great opportunity for our students to practice English every day._
+>
+> _One of our favorite features in the app is the Chatbot because it recreates real situations and allows students to speak English the same way they would do in real life_ , says Andrés Rodríguez, director of Danny Foundation.
+
+ For the time being, there are 200 students aged 8 to 16 years old taking courses at the foundation, but Andrés wants to reach even more places in Colombia. So we want to thank the Danny Foundation for what they are doing on behalf of the youth of Columbia.
+
+ **Whatever the goal, Mondly will always support the Danny Foundation in its endeavor to expand learning for every child in Colombia.**
+
+* [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fhelping-fundacion-danny-colombia%2F&t=Helping+Those+Who+Need+It+Most%3A+Fundaci%C3%B3n+Danny+From+Colombia "Share on Facebook")
+* [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
+
+---
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
+## Learn a new language in just 10 minutes a day
+
+ If the story of the Colombian children from the Danny Foundation inspired you to invest in yourself, you can start learning a new language right now with Mondly.
+
+ Mondly is the pocket-held language tutor that allows you to put your brain on autopilot and enjoy your ride to fluency in more than 30 languages.
+
+ Using a contextually rich environment mixed with practical topics, authentic conversations and bite-sized Daily Lessons, the app encourages you to make the connections yourself and speak any language fluently fast.
+
+ **Start using Mondly for free on your [computer](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4599&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4599&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4599) or tablet or, better yet, download the Mondly app on your [iOS](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4599&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4599&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4599) or [Android](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4599&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4599&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4599) device and learn languages fast anytime, anywhere.**
+
+[Learn a new language](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-4599&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-4599%26utm%5Fsource%3Dblog-post-id-4599&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-4599%26utm%5Fsource%3Dblog-post-id-4599&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-4599%26utm%5Fsource%3Dblog-post-id-4599&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-4599%26mt%3D8 "Learn a new language")
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-get-a-cleaner-look-in-your-videos-quickly-and-easily/"><u>[New] 2024 Approved  Get a Cleaner Look in Your Videos Quickly and Easily</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-master-your-youtube-experience-with-premium-subscription/"><u>[New] 2024 Approved  Master Your YouTube Experience with Premium Subscription</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-melody-mixin-adding-tracks-to-snapchat-vids-for-2024/"><u>[New] Melody Mixin'  Adding Tracks to Snapchat Vids for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-2023-facebook-short-videos-and-everything-about-them/"><u>[Updated] 2024 Approved  2023 | Facebook Short Videos and Everything About Them</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-how-to-record-cameras-and-monitors-together-efficiently/"><u>[Updated] 2024 Approved  How to Record Cameras & Monitors Together Efficiently</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-instagram-de-following-immediate-awareness/"><u>[Updated] 2024 Approved  Instagram De-Following  Immediate Awareness</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-pro-editors-top-list-best-portable-devices-for-visual-storytelling/"><u>[Updated] 2024 Approved  Pro-Editors' Top List  Best Portable Devices for Visual Storytelling</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-complete-guide-twitter-reaction-videos-for-2024/"><u>[Updated] Complete Guide | Twitter Reaction Videos for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-how-to-build-youtube-backlinks-for-your-channel-for-2024/"><u>[Updated] How to Build YouTube Backlinks for Your Channel for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-demystifying-the-viva-video-interface/"><u>[Updated] In 2024, Demystifying the Viva Video Interface</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-interactive-learning-landscapes-with-vr-for-2024/"><u>[Updated] Interactive Learning Landscapes with VR for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-tune-into-trends-how-to-mix-music-in-storytelling/"><u>[Updated] Tune Into Trends  How to Mix Music in Storytelling</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/2017s-child-development-champion-mondly-kids-app/"><u>2017'S Child Development Champion: Mondly Kids App</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-leveraging-luminaries-for-greater-exposure/"><u>2024 Approved  Leveraging Luminaries for Greater Exposure</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-significant-20-public-domain-pubg-snapshot-packs/"><u>2024 Approved  Significant 20 Public Domain PUBG Snapshot Packs</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-change-location-on-facebook-marketplace-for-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>3 Ways to Change Location on Facebook Marketplace for Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-best-route-generator-apps-you-should-try-on-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>5 Best Route Generator Apps You Should Try On Honor Magic V2 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/5-myths-about-language-learning-you-should-definitely-learn-about/"><u>5 Myths About Language Learning You Should Definitely Learn About</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/acontece-em-portugues-as-palavras-mais-usadas-para-se-encontrar/"><u>Acontece Em Português: As Palavras Mais Usadas Para Se Encontrar</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/advance-repair-for-bad-and-corrupt-video-files-of-apple-iphone-15-by-stellar-video-repair-mobile-video-repair/"><u>Advance Repair for Bad and Corrupt Video Files of Apple iPhone 15</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aggregate-of-best-danish-productions-for-language-acquisition/"><u>Aggregate of Best Danish Productions for Language Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bangla-briskly-blossoms-with-just-10-minsday/"><u>Bangla Briskly Blossoms with Just 10 Mins/Day!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579824338-be-a-winner-save-up-to-96-on-mondly-pro-lifetime/"><u>Be a Winner : Save Up To 96%% on Mondly Pro Lifetime!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beginners-guide-to-german-numbers-1-100/"><u>Beginner's Guide to German Numbers 1-100</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beginning-a-language-journey-get-it-at-only-5-off-now/"><u>Beginning a Language Journey? Get It at Only 5%% Off Now</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beyond-40-the-priceless-value-of-language-learning-in-later-life/"><u>Beyond 40: The Priceless Value of Language Learning in Later Life</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bilingual-bliss-embrace-germanys-idioms-in-25-words/"><u>Bilingual Bliss: Embrace Germany's Idioms in 25 Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/break-of-dawn-greetings-a-multilingual-morning-salutation-list/"><u>Break of Dawn Greetings: A Multilingual Morning Salutation List</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-cultures-mondlys-ar-for-multilingual-education/"><u>Bridging Cultures: Mondly's AR for Multilingual Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/building-bridges-through-effective-business-communication/"><u>Building Bridges Through Effective Business Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/celebrating-a-decade-of-innovation-mondly/"><u>Celebrating a Decade of Innovation - Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprension-animalista-60-nombres-reveladores/"><u>Comprensión Animalista: 60 Nombres Reveladores</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprension-total-de-partes-vitales-una-jornada-completa-desde-el-torax-a-los-pies-en-espanol/"><u>Comprensión Total De Partes Vitales: Una Jornada Completa Desde El Tórax A Los Pies En Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/countries-observing-the-thanksgiving-tradition/"><u>Countries Observing the Thanksgiving Tradition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/crossing-cultures-key-tactics-for-fluent-global-dialogue/"><u>Crossing Cultures: Key Tactics for Fluent Global Dialogue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-convergence-bridging-societal-divides-through-talk/"><u>Cultural Convergence: Bridging Societal Divides Through Talk</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dawn-of-arabic-starting-point-explored/"><u>Dawn of Arabic: Starting Point Explored</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deutsch-eine-auswahl-an-verabschiedungstermini/"><u>Deutsch: Eine Auswahl an Verabschiedungstermini</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/digital-finnish-language-lessons-for-maximum-retention/"><u>Digital Finnish Language Lessons for Maximum Retention</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-the-top-16-ways-to-demonstrate-gratitude-in-german/"><u>Discover the Top 16 Ways to Demonstrate Gratitude in German</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/diving-into-digital-success-effective-methods-for-language-study/"><u>Diving Into Digital Success: Effective Methods for Language Study</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/einsteigender-lernstoff-deutsche-zahlen-von-1-100-erklaren/"><u>Einsteigender Lernstoff: Deutsche Zahlen Von 1-100 Erklären</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/eloquence-in-expression-battling-the-most-complicated-words/"><u>Eloquence in Expression: Battling the Most Complicated Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-japenese-culture-with-key-salutations/"><u>Embrace Japenese Culture with Key Salutations</u></a></li>
+<li><a href="https://change-location.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-samsung-galaxy-a15-4g-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Samsung Galaxy A15 4G | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-activate-and-use-life360-ghost-mode-on-xiaomi-14-pro-drfone-by-drfone-virtual-android/"><u>How To Activate and Use Life360 Ghost Mode On Xiaomi 14 Pro | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-tecno-spark-20-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On Tecno Spark 20 Pro+? | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-frp-hijacker-by-hagard-download-and-bypass-your-infinix-note-30-vip-frp-locks-by-drfone-android/"><u>In 2024, FRP Hijacker by Hagard Download and Bypass your Infinix Note 30 VIP FRP Locks</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-enable-usb-debugging-on-a-locked-oppo-phone-by-drfone-android/"><u>In 2024, How To Enable USB Debugging on a Locked Oppo Phone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-streamline-your-virtual-sessions-with-these-top-10-tools/"><u>In 2024, Streamline Your Virtual Sessions with These Top 10 Tools</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/iphones-secrets-for-stunning-time-lapse-videos/"><u>IPhone's Secrets for Stunning Time-Lapse Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577209551-rapid-mastery-of-latvian-language-10-minute-sessions/"><u>Rapid Mastery of Latvian Language, 10-Minute Sessions</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/revamped-recording-reimagined-screens-the-sprout-way/"><u>Revamped Recording, Reimagined Screens - The Sprout Way</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579878027-speedy-bokmal-acquisition-in-daily-dashes/"><u>Speedy Bokmål Acquisition in Daily Dashes!</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/the-4-fastest-lenovo-record-methods/"><u>The 4 Fastest Lenovo Record Methods</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/trailblazers-crafting-immersive-virtual-landscapes/"><u>Trailblazers Crafting Immersive Virtual Landscapes</u></a></li>
+</ul></div>

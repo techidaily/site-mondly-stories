@@ -1,7 +1,7 @@
 ---
 title: Navegar Fáciles Las Hora Y Segundo en Español
-date: 2024-07-12T07:53:29.921Z
-updated: 2024-07-13T07:53:29.921Z
+date: 2024-07-29T06:43:50.237Z
+updated: 2024-07-30T06:43:50.237Z
 tags:
   - speak
   - english
@@ -24,6 +24,9 @@ _¿Que hora es?_ demands an answer! And no, we’re not talking about the Mexica
 
 But first things first.
 
+<!-- affiliate ads begin -->
+<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Spanish time](https://media.giphy.com/media/cAEm5rSuuBEGY/giphy.gif "How To Tell Time In Spanish - A Complete Guide For Beginners 2")
 
 ## ¿Que hora es? – how to ask for the time in Spanish
@@ -32,6 +35,9 @@ But first things first.
 
  In addition to the now well-known_**¿que hora es?**_ which literally translates to “what hour is it?”, you can also ask_**¿tiene hora?**_ which is literally “do you have the hour?”. Easy enough!
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The basics of Spanish time
 
  To_decir la hora_ (“tell the time”) in Spanish, there are a few simple rules you’ll have to know.
@@ -57,6 +63,9 @@ But first things first.
 
 _**Nota bene:**_ If you prefer to use the 24-hour clock, you should say**_son las dieciséis_** **(“it’s 16:00”)** instead of **_son las cuatro_ (“it’s 4 o’clock p.m.”).** But that will require a little more studying on your part. Don’t worry though. Spanish numbers are just as easy as learning how to tell the time. You can master them with Mondly faster than you can say Jack Robinson. You can get started [here](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5345&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5345?mother%5Flang=en%5Fus?target%5Flang=es&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5345?mother%5Flang=en%5Fus?target%5Flang=es) .
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<!-- affiliate ads end -->
 ### How do you say the time in Spanish after 30?
 
  Now, the time is not always on the hour. So how do you say “half past”, “quarter past” and “quarter to” in Spanish? There are only two new words you need to remember:_**media**_ and_**cuarto**_ .
@@ -71,6 +80,9 @@ Here are some examples:
 * 1:15 –_Es la una y cuarto._ – It’s one fifteen.
 * 5:45 –_Son las seis menos cuarto._ – It’s a quarter until six.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ![telling time in spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/06/telling-time-in-spanish-600x600.jpg "How To Tell Time In Spanish - A Complete Guide For Beginners 3")
 
  Telling time in Spanish – a visual guide
@@ -96,6 +108,9 @@ Here are some examples:
 
  Which one do you prefer? Additionally, if we also count it_cuarto_ and_media_ , there are no less than four different ways to tell the time in Spanish. And you’ve just mastered them all!
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to indicate the time of day in Spanish
 
  If you are using the 12-hour clock, you sometimes might want to also point out the time of day. For instance, “it’s two in the afternoon” translates to_**son las dos de la tarde**_ in Spanish. Not too complicated, is it? Here are some more times of day that might come in handy:
@@ -145,6 +160,9 @@ Here are some examples:
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Speak Spanish fluently in just 10 minutes a day
 
  Do you want to [speak Spanish fluently](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) fast? Get Mondly, the award-winning language learning app that will help you speak Spanish as if you were Spanish-born.
@@ -173,3 +191,43 @@ Here are some examples:
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-harnessing-high-dynamic-range-the-future-of-photo-techniques/"><u>[New] 2024 Approved  Harnessing High Dynamic Range  The Future of Photo Techniques</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-leading-tools-to-personalize-and-enhance-your-speech-on-the-go-for-2024/"><u>[New] Leading Tools to Personalize and Enhance Your Speech on the Go for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-learn-the-safest-ways-to-extract-and-convert-youtube-tracks-to-mp3/"><u>[New] Learn the Safest Ways to Extract and Convert YouTube Tracks to MP3</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-navigating-the-world-of-youtube-titling-and-tagging/"><u>[New] Navigating the World of YouTube Titling and Tagging</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-superior-free-reproduction-tools-for-switch-games/"><u>[Updated] 2024 Approved  Superior Free Reproduction Tools for Switch Games</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-elevating-video-quality-incorporating-bb-and-lc-elements-in-fb-for-2024/"><u>[Updated] Elevating Video Quality  Incorporating BB and LC Elements in FB for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-secure-your-shots-above-all-unlimited-free-options-and-premium-subscription-picks/"><u>[Updated] In 2024, Secure Your Shots Above All  Unlimited Free Options & Premium Subscription Picks</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-the-full-story-on-instagrams-video-length/"><u>[Updated] In 2024, The Full Story on Instagram's Video Length</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-switch-gaming-elevated-by-top-capture-cards/"><u>[Updated] Switch Gaming Elevated by Top Capture Cards</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-unveiling-30-preferred-steadicam-models-for-high-quality-dslr-projects-for-2024/"><u>[Updated] Unveiling 30 Preferred Steadicam Models for High-Quality DSLR Projects for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unveiling-flight-in-depth-analysis-of-dji-phantom-4/"><u>[Updated] Unveiling Flight  In-Depth Analysis of DJI Phantom 4</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-8-compelling-no-cost-video-calls-applications-for-pc-and-mac-users/"><u>2024 Approved  8 Compelling No-Cost Video Calls Applications for PC and MAC Users</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-masterclass-review-galaxy-s8-with-its-4k-features/"><u>2024 Approved  Masterclass Review  Galaxy S8 with Its 4K Features</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-multilingual-journey-through-springtime-festivities/"><u>A Multilingual Journey Through Springtime Festivities</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/acoustic-data-recording-sounds-and-speech/"><u>Acoustic Data Recording  Sounds & Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aussies-easy-guide-to-slang-and-sayings/"><u>Aussie's Easy Guide to Slang and Sayings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/commonest-focus-on-foreign-language-learning-us/"><u>Commonest Focus on Foreign Language Learning U.S.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/contrasting-two-romance-cousins-spanish-and-portuguese/"><u>Contrasting Two Romance Cousins: Spanish & Portuguese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/educational-pinnacle-mondly-kids-recognized-by-google-play-2-cookie-monsters-favorite-treats/"><u>Educational Pinnacle: Mondly Kids Recognized by Google Play 2 Cookie Monster's Favorite Treats</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effortless-slovak-learning-in-just-ten-minutes-online/"><u>Effortless Slovak Learning in Just Ten Minutes Online!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-fiction-starter-pack-top-20-novels-for-newcomers/"><u>French Fiction Starter Pack: Top 20 Novels For Newcomers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-norte-to-sueste-brazilians-vs-eurospeakers/"><u>From Norte to Sueste: Brazilians Vs. Eurospeakers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-french-expressions-enhancing-natural-language/"><u>Mastering French Expressions: Enhancing Natural Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sensual-semantics-essential-french-movies/"><u>Sensual Semantics: Essential French Movies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sharpen-your-mind-enhance-language-skills-quickly/"><u>Sharpen Your Mind, Enhance Language Skills Quickly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/start-your-french-reading-journey-with-these-20-novels/"><u>Start Your French Reading Journey with These 20 Novels</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/take-charge-of-your-journey-to-japanese-mastery-at-no-cost/"><u>Take Charge of Your Journey to Japanese Mastery, At No Cost</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-journey-1500-days-of-knowledge/"><u>The Journey: 1,500 Days of Knowledge</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-rhythmic-beat-of-africas-languages/"><u>The Rhythmic Beat of Africa's Languages</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-ultimate-combo-guide-zooming-into-facebook-streaming/"><u>The Ultimate Combo Guide  Zooming Into Facebook Streaming</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579686935-the-ultimate-hindi-adventure-awaits-dive-into-8-engaging-mondly-reasons/"><u>The Ultimate Hindi Adventure Awaits: Dive Into 8 Engaging Mondly Reasons!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-10-ancient-tongues-a-global-odyssey/"><u>Top 10 Ancient Tongues: A Global Odyssey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-10-international-movies-boosting-language-learning/"><u>Top 10 International Movies Boosting Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719575351192-what-language-is-spoken-in-israel/"><u>What Language Is Spoken In Israel?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-easter-embrace-linguistic-connections/"><u>Worldwide Easter Embrace: Linguistic Connections</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/glwttothpeio-eygnwmwn-klismos-dyshs/"><u>Γλωττοτηπειό Ευγνώμων Κλισμός Δύσης</u></a></li>
+</ul></div>
