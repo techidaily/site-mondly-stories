@@ -1,7 +1,7 @@
 ---
 title: "Demystifying English Punctuation: Getting to Grips with Contractions"
-date: 2024-07-12T09:19:21.992Z
-updated: 2024-07-13T09:19:21.992Z
+date: 2024-08-08T09:25:04.575Z
+updated: 2024-08-09T09:25:04.575Z
 tags:
   - speak
   - english
@@ -30,6 +30,9 @@ thumbnail: https://thmb.techidaily.com/4509b58b3a9a19b95f97977ea395ec0191792aea5
 
 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What is a contraction?
 
 **A contraction is** a type of abbreviation formed by combining two or more words and dropping one or more letters. In writing, the missing letters are replaced by an apostrophe. Sometimes called ‘short forms’, English contractions usually join a subject pronoun and a verb, an interrogative adverb and a verb, or a verb and the word_not_ .
@@ -40,10 +43,16 @@ thumbnail: https://thmb.techidaily.com/4509b58b3a9a19b95f97977ea395ec0191792aea5
 
  Careful, though! It’s**best to avoid contractions in highly formal contexts,** like academic papers, grant proposals, formal speeches, or any materials requiring a professional appearance.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<!-- affiliate ads end -->
 ## Understanding English contractions
 
  Contractions are an essential part of the English language. For this reason, it’s important to understand and use them correctly. Let’s look at a couple of examples so you can better understand what we’re talking about.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Types of English contractions
 
 * **Subject pronoun + verb:** This is the most common type of contraction in English. For example:_I am_ becomes_I’m_ ,_you are_ becomes_you’re_ ,_he is_ becomes_he’s_ , and so on.
@@ -73,6 +82,9 @@ Coming Soon
 
 ![contractions in English](https://edge.mondly.com/blog/wp-content/uploads/2023/11/contractions-in-english-960x960.png "The Ultimate Guide To English Contractions 3")
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Grammar rules for English contractions
 
  Before you go thinking you know everything about contractions, we must look over some rules for contractions grammar.
@@ -225,6 +237,9 @@ Coming Soon
 
  However, if what you’re writing is semi-formal, you can use a couple of very popular contractions. The only condition is to not forget about the apostrophe, as the entire text will look unprofessional.
 
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Examples of contractions in everyday language
 
  Now that you know the rules and have a comprehensive word list of contractions, it’s time to look at some examples of contractions from everyday language.
@@ -258,6 +273,9 @@ Coming Soon
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<!-- affiliate ads end -->
 ### Improve your English fast
 
  Do you want to get better at speaking English? Try Mondly, the award-winning language app that is serious about making learning English fun.
@@ -290,3 +308,68 @@ Coming Soon
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-navigating-the-world-of-zooms-camera-snapping-easily/"><u>[New] 2024 Approved  Navigating the World of Zoom's Camera Snapping Easily</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-deadly-dominance-the-quintessential-zombie-gameplay-for-2024/"><u>[New] Deadly Dominance  The Quintessential Zombie Gameplay for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-discover-the-best-no-cost-soundtracks-for-video-production/"><u>[New] In 2024, Discover the Best No-Cost Soundtracks for Video Production</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-pure-joy-of-gratuitous-screen-mingle-games/"><u>[New] In 2024, Pure Joy of Gratuitous Screen Mingle Games</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-woven-wisdom-expertise-in-loom-recordings/"><u>[New] In 2024, Woven Wisdom  Expertise in Loom Recordings</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-mastering-low-light-captures-on-your-iphone/"><u>[Updated] 2024 Approved  Mastering Low-Light Captures on Your IPhone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-brain-benders-await-at-the-best-room-sanctuaries/"><u>[Updated] Brain Benders Await at the Best Room Sanctuaries</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-easy-guide-speed-up-videos-like-a-pro-new-user-style-for-2024/"><u>[Updated] Easy Guide  Speed Up Videos Like a Pro, New User Style for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-iphone-7-proven-strategies-for-screen-capture/"><u>[Updated] IPhone 7  Proven Strategies for Screen Capture</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-mastering-content-strategy-after-the-facebook-revamp/"><u>[Updated] Mastering Content Strategy After the Facebook Revamp</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unveiling-gestures-in-tech-landscape/"><u>[Updated] Unveiling Gestures in Tech Landscape</u></a></li>
+<li><a href="https://extra-information.techidaily.com/10-cost-free-innovative-photo-overlays-for-mobile-devices/"><u>10 Cost-Free, Innovative Photo Overlays for Mobile Devices</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-frequencies-fused-mac-studios-soundscapes/"><u>2024 Approved  Frequencies Fused  Mac Studios Soundscapes</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-prime-picks-for-high-quality-insta-tunes-and-secrets-on-how-to-make-a-noteworthy-chime/"><u>2024 Approved  Prime Picks for High-Quality Insta Tunes & Secrets on How to Make a Noteworthy Chime</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-and-install-dell-wifi-driver-for-optimal-performance/"><u>Download and Install Dell Wifi Driver for Optimal Performance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/engage-confidently-with-these-9-speaking-up-techniques/"><u>Engage Confidently with These 9 Speaking Up Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/engaging-and-effective-top-5-multilingual-learning-apps/"><u>Engaging & Effective: Top 5 Multilingual Learning Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/english-accents-from-queens-english-to-aussie/"><u>English Accents: From Queen’s English to Aussie</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhancing-cognitive-flexibility-and-social-bonds-why-learn-another-language-after-40/"><u>Enhancing Cognitive Flexibility & Social Bonds – Why Learn Another Language After 40?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-communication-tools-for-vietnam-tours/"><u>Essential Communication Tools for Vietnam Tours</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-croatian-language-skills-for-a-seamless-travel-experience/"><u>Essential Croatian Language Skills for a Seamless Travel Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-hand-gestures-for-travelers-in-italy/"><u>Essential Hand Gestures for Travelers in Italy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-japanese-on-calls-compilation/"><u>Essential Japanese On-Calls Compilation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/everyday-wisdom-in-spanish-the-best-17-sayings/"><u>Everyday Wisdom in Spanish: The Best 17 Sayings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/everywheres-top-app-today-apple-edition/"><u>Everywhere's Top App: Today, Apple Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exciting-educational-experience-learn-spanish/"><u>Exciting Educational Experience: Learn Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exclusive-free-access-to-mondly-premium/"><u>Exclusive Free Access to Mondly Premium</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/experience-language-immersion-like-never-before-with-mondlyvr/"><u>Experience Language Immersion Like Never Before with MondlyVR</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploracion-detallada-sobre-el-corazon-desde-el-estomago-a-los-pulmones-en-espanol/"><u>Exploración Detallada Sobre El Corazón: Desde El Estómago A Los Pulmones En Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-french-social-norms-through-greetings-and-etiquette/"><u>Exploring French Social Norms Through Greetings and Etiquette</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-slavic-bonds-ukrainian-and-russian-language-analysis/"><u>Exploring Slavic Bonds: Ukrainian & Russian Language Analysis</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/farewells-in-deutsch-eine-sammlung-von-abschiedsvorsatzen/"><u>Farewells in Deutsch: Eine Sammlung Von Abschiedsvorsätzen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fast-track-fluency-in-the-polska-language/"><u>Fast-Track Fluency in the Polska Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fifty-plus-multilingualism-a-journey-worth-embarking-on/"><u>Fifty-Plus Multilingualism: A Journey Worth Embarking On</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/finding-the-best-new-language-option-for-me/"><u>Finding The Best New-Language Option for Me</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/first-of-its-kind-augmented-reality-with-speech-recognition/"><u>First of Its Kind: Augmented Reality with Speech Recognition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/first-steps-in-learning-russian-figures/"><u>First Steps in Learning Russian Figures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/first-vocal-conversation-facilitator-for-ar/"><u>First Vocal Conversation Facilitator for AR</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/five-motivational-reasons-for-late-life-linguists/"><u>Five Motivational Reasons for Late-Life Linguists</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fostering-fluency-mondlys-global-learning-mission/"><u>Fostering Fluency: Mondly's Global Learning Mission</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-expressiveness-boosted-by-27-culturally-rich-phrases/"><u>French Expressiveness Boosted by 27 Culturally Rich Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-for-the-modern-world-saying-hello-in-the-21st-century/"><u>French for the Modern World: Saying Hello in the 21St Century</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-social-etiquette-for-travelers-mastering-the-art-of-saying-hello/"><u>French Social Etiquette for Travelers: Mastering the Art of Saying Hello</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/frequently-learned-foreign-languages-americas-list/"><u>Frequently Learned Foreign Languages: America's List</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-fondue-to-fluent-a-multilingual-journey-through-chocolate/"><u>From Fondue to Fluent: A Multilingual Journey Through 'Chocolate'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-fumbling-to-fluency-the-learning-curve/"><u>From Fumbling To Fluency - The Learning Curve</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-pro-navigating-mondly-proficiently/"><u>From Novice to Pro: Navigating Mondly Proficiently</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-stage-to-smartphone-elizabethan-expressions-still-used/"><u>From Stage to Smartphone: Elizabethan Expressions Still Used</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-struggle-to-success-learnings-top-challenging-languages/"><u>From Struggle to Success: Learning's Top Challenging Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gaining-english-proficiency-perks-unveiled/"><u>Gaining English Proficiency: Perks Unveiled</u></a></li>
+<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-from-realme-narzo-60-pro-5g-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock from Realme Narzo 60 Pro 5G Phones with/without a PC</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-my-vivo-s18-pro-location-is-wrong-drfone-by-drfone-virtual-android/"><u>How to Fix My Vivo S18 Pro Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-phone-number-from-your-apple-id-from-your-apple-iphone-13-pro-max-by-drfone-ios/"><u>How To Remove Phone Number From Your Apple ID from Your Apple iPhone 13 Pro Max?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-corrupt-mp4-and-avi-files-of-samsung-with-video-repair-utility-on-mac-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair corrupt MP4 and AVI files of Samsung with Video Repair Utility on Mac?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-oneplus-11-5g-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from OnePlus 11 5G to iPad | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-use-face-id-to-pay-for-apps-on-iphone-12-pro-max-by-drfone-ios-unlock-ios-unlock/"><u>How to Use Face ID to Pay for Apps on iPhone 12 Pro Max?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-oppo-a1-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Oppo A1 5G | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-ingenious-ways-to-change-song-duration-in-spotify/"><u>In 2024, Ingenious Ways to Change Song Duration in Spotify</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-the-top-10-apple-iphone-13-emualtors-for-windows-mac-and-android-drfone-by-drfone-ios/"><u>In 2024, The Top 10 Apple iPhone 13 Emualtors for Windows, Mac and Android | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/navigating-the-skies-copilot-versions-compared/"><u>Navigating the Skies: CoPilot Versions Compared</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unboxing-and-evaluating-the-best-big-screen-phone-the-definitive-samsung-galaxy-note-9-review/"><u>Unboxing and Evaluating the Best Big Screen Phone: The Definitive Samsung Galaxy Note 9 Review</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Elevate Your Speech with These Iconic Latin Quotations
-date: 2024-07-12T09:18:16.593Z
-updated: 2024-07-13T09:18:16.593Z
+date: 2024-08-08T09:26:04.954Z
+updated: 2024-08-09T09:26:04.954Z
 tags:
   - speak
   - english
@@ -20,6 +20,9 @@ thumbnail: https://thmb.techidaily.com/4aaf8bbfbdfb57b83b54a7e30f7b8f03d80755a12
 
 
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Famous Latin Phrases you need to know
 
 These are nearly as famous as Julius Caesar himself.
@@ -36,12 +39,18 @@ These are nearly as famous as Julius Caesar himself.
 
  Probably the most popular Latin phrase of modern times. Luckily, we have an even better one:_carpe vinum_ . Literally ‘seize the wine’. The only Latin phrase you’ll ever need on a Friday night out. And speaking of night, you should also remember the_carpe noctem_ variation which literally translates to ‘seize the night’. Either way, the general meaning is to make the most of everything.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<!-- affiliate ads end -->
 ### **Cogito, ergo sum. —** _I think, therefore I am._
 
  A_dictum_ (‘a short statement that expresses a general truth’) coined by French philosopher René Descartes in Latin.
 
  What Descartes doesn’t know is that nowadays people prefer the_bibo, ergo sum_ version which literally means “I drink, therefore I am”.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<!-- affiliate ads end -->
 ### **In vino veritas. —_In wine, there is truth._**
 
  Be careful if you_carpe vinum_ on that Friday night out we talked about. This Latin saying suggests that you’ll probably spill all your secrets if you drink too much alcohol.
@@ -52,10 +61,16 @@ These are nearly as famous as Julius Caesar himself.
 
  That scene is very tragic indeed, but nowadays, the phrase can be used jokingly to condemn a friend’s change of heart.
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<!-- affiliate ads end -->
 ### **Acta, non verba. —** _Deeds, not words._
 
  Similar to_res, non verba_ , the English equivalent of this phrase is “actions speak louder than words”. In other words, act upon it or always follow your declarations with actions.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ### **Carthago delenda est. —** _Carthage must be destroyed._
 
  Prior to the Third Punic War between Rome and Carthage, Cato the Censor, a Roman politician, used to conclude all his speeches to the Senate with this phrase. While he did this in an attempt to push for the war, nowadays the expression can be used figuratively as a way to express your absolute support for an idea.
@@ -64,6 +79,9 @@ These are nearly as famous as Julius Caesar himself.
 
  Using some Latin phrases here and there will automatically make you look smarter.
 
+<!-- affiliate ads begin -->
+<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Common Latin Words & Sayings
 
 * **Ad hominem —** _To the person_
@@ -126,6 +144,9 @@ Unlike the previous Latin words, this one is pretty self-explanatory.
 
 Every student’s favorite. We all know what this one means, don’t we?
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![in vino veritas](https://edge.mondly.com/blog/wp-content/uploads/2021/07/in-vino-veritas-960x640.jpg "50 Popular Latin Phrases To Impress Your Friends 7")
 
  “In vino veritas” by Daniel Vogel©
@@ -156,6 +177,9 @@ Get ready to bring your Roman alter ego to life in 3… 2… 1\. Go!
 
  Or so Lucretius said. Originally meaning “work is required to succeed”, the modern reinterpretation suggests that “everything has its origins in something”.
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![common latin phrases](https://edge.mondly.com/blog/wp-content/uploads/2021/07/common-latin-phrases-960x720.jpg "50 Popular Latin Phrases To Impress Your Friends 8")
 
  “Laughing” by Peter Lloyd©
@@ -258,6 +282,9 @@ Different phrase, same story. You’re welcome.
 
  “Roman statue” by engin akyurt©
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Latin Words and Phrases for Love
 
  To conclude our exploration of the Latin phrases in a positive tone, let’s see what the Romans had to say about love. It’s true they talked more about wars, but you don’t need that kind of negativity in your life, do you? Why [learn Latin phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) about war, when love wins no matter what?
@@ -294,6 +321,9 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 
  Latin words are used in law because of the historical influence Roman law has on the legal system of many countries. As the lingua franca of the Roman Empire, Latin not only shaped the empire's legal constructs but also left a lasting imprint on the evolution of legal systems, especially within Europe. As Roman law became the foundation for many modern legal codes, Latin legal words were passed on throughout history until the present day. This incorporation of Latin words in law ensures a degree of precision and continuity, bridging legal concepts across different eras and jurisdictions.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ### Why are Latin words powerful?
 
  Latin words are perceived as powerful most probably in relation to the Roman Empire, a civilization of immense historical influence and achievement. Additionally, Latin words may be considered powerful thanks to their ability to convey complex legal, scientific, and philosophical concepts succinctly. Their use in various specialized fields has endowed them with a sense of authority and timelessness, allowing for clear and unambiguous communication across different languages and cultures.
@@ -331,3 +361,60 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-the-path-to-perfect-sims-video-sessions-for-2024/"><u>[New] The Path to Perfect Sims Video Sessions for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-elevating-your-listening-palette-with-youtube-music/"><u>[Updated] Elevating Your Listening Palette with YouTube Music</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-mastering-googles-podcast-publishing-process/"><u>[Updated] In 2024, Mastering Google's Podcast Publishing Process</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-the-pros-guide-from-playback-to-perfected-overwatch-recordings/"><u>[Updated] The Pro's Guide  From Playback to Perfected Overwatch Recordings</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-meme-monster-maestro/"><u>2024 Approved  Meme Monster Maestro</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-secrets-to-successful-twitpicingvideos-included/"><u>2024 Approved  Secrets to Successful Twitpicing—Videos Included</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-surprise-uncovered-secrets-to-take-your-window-11-experience-up-a-notch/"><u>2024 Approved  Surprise! Uncovered Secrets to Take Your WINDOW 11 Experience Up a Notch</u></a></li>
+<li><a href="https://fox-info.techidaily.com/battle-of-the-lenses-sj6-vs-yi-4k-prodigy-for-2024/"><u>Battle of the Lenses  SJ6 Vs. Yi 4K Prodigy for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/english-contractions-explained-simply-and-concisely/"><u>English Contractions Explained Simply & Concisely</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/english-echoes-contrasting-british-american-and-new-zealander-tones/"><u>English Echoes: Contrasting British, American, and New Zealander Tones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhance-communication-with-global-knowledge/"><u>Enhance Communication with Global Knowledge</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhancing-language-skills-through-mondlys-practical-10-strategies/"><u>Enhancing Language Skills Through Mondly's Practical 10 Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhancing-pronunciation-and-expression-in-english-talk/"><u>Enhancing Pronunciation & Expression in English Talk</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enrich-your-manners-germanys-most-appreciated-sayings/"><u>Enrich Your Manners: Germany's Most Appreciated Sayings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enter-the-world-of-ks-deciphe-netflixs-popular-phenomenon/"><u>Enter the World of KS: Deciphe Netflix's Popular Phenomenon</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-german-thanksgiving-phrases-the-ultimate-list/"><u>Essential German Thanksgiving Phrases: The Ultimate List</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-language-tools-for-international-engagement/"><u>Essential Language Tools for International Engagement</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-skills-in-handling-spanish-accented-characters-and-letters/"><u>Essential Skills in Handling Spanish Accented Characters & Letters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-spanish-verb-patterns-and-usage/"><u>Essential Spanish Verb Patterns & Usage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-words-mastery-with-oxfords-innovative-approach/"><u>Essential Words Mastery with Oxford's Innovative Approach</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/estimating-time-to-language-proficiency-success/"><u>Estimating Time to Language Proficiency Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/evaluating-usefulness-of-german-vs-french-languages/"><u>Evaluating Usefulness of German vs French Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exclusive-linguistic-journey-mondlys-triumph-2022/"><u>Exclusive Linguistic Journey: Mondly's Triumph, 2022</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/experience-the-peak-of-ease-and-effectiveness-with-mondly/"><u>Experience the Peak of Ease and Effectiveness with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/experience-unparalleled-learning-in-one-app-mondly/"><u>Experience Unparalleled Learning in One App - Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-the-best-language-learning-apps-for-business-grow-your-teams-skills/"><u>Explore The Best Language Learning Apps For Business | Grow Your Team's Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-asia-mastering-vietnamese-language-skills/"><u>Exploring Asia: Mastering Vietnamese Language Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-linguistics-through-international-cinema/"><u>Exploring Linguistics Through International Cinema</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-vietnam-a-language-led-adventure/"><u>Exploring Vietnam: A Language-Led Adventure</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exposing-the-core-of-mondlys-education/"><u>Exposing the Core of Mondly's Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/express-yourself-in-italian-the-most-common-greetings-explained/"><u>Express Yourself in Italian: The Most Common Greetings Explained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressive-french-greetings-for-social-success-in-business-and-beyond/"><u>Expressive French Greetings for Social Success in Business & Beyond</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressive-vernacular-understanding-widespread-slang-phrases/"><u>Expressive Vernacular: Understanding Widespread Slang Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/featured-by-apple-mondly-is-app-of-the-day-in-157-countries/"><u>Featured by Apple: Mondly Is App of the Day in 157 Countries</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/finding-common-ground-beyond-words-in-couples/"><u>Finding Common Ground Beyond Words in Couples</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/first-steps-in-urdu-language-learning/"><u>First Steps in Urdu Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/flash-bangla-10-minute-a-day-language-routine/"><u>Flash Bangla: 10-Minute a Day Language Routine</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/flourish-in-multilingualisms-landscape/"><u>Flourish in Multilingualism's Landscape</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fortys-new-frontier-top-four-reasons-to-embrace-multilingualism-now/"><u>Forty's New Frontier: Top Four Reasons to Embrace Multilingualism Now</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/free-lessons-at-your-fingertips-mondly-and-ukrainian-linguists-unite/"><u>Free Lessons at Your Fingertips: Mondly & Ukrainian Linguists Unite</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-shades-quickly-say-them-right/"><u>French Shades: Quickly Say Them Right!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-fandom-to-proficiency-korean-lessons-on-squid-game/"><u>From Fandom to Proficiency: Korean Lessons on Squid Game</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-expert-learn-hangul-with-precision-and-ease/"><u>From Novice to Expert: Learn Hangul with Precision & Ease</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gaining-wisdom-in-world-languages/"><u>Gaining Wisdom in World Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gearing-up-for-an-ai-colleague-in-communication/"><u>Gearing Up for an AI Colleague in Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-for-novices-mastering-sounds-and-symbols/"><u>German for Novices: Mastering Sounds & Symbols</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-oppo-find-x7-ultra-pictures-an-easy-method-explained-by-fonelab-android-recover-pictures/"><u>How to Restore Deleted Oppo Find X7 Ultra Pictures  An Easy Method Explained.</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-easiest-guide-how-to-clone-realme-gt-3-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Easiest Guide How to Clone Realme GT 3 Phone? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-remove-screen-lock-pin-on-oppo-reno-8t-like-a-pro-5-easy-ways-by-drfone-android/"><u>In 2024, How To Remove Screen Lock PIN On Oppo Reno 8T Like A Pro 5 Easy Ways</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-top-5-digital-tools-for-enhancing-web-streams/"><u>In 2024, Top 5 Digital Tools for Enhancing Web Streams</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-xiaomi-redmi-note-12-5gfrp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Xiaomi Redmi Note 12 5GFRP Lock</u></a></li>
+<li><a href="https://fox-that.techidaily.com/ultimate-guide-solving-iphone-safar-malfunction-top-10-strategies/"><u>Ultimate Guide: Solving iPhone Safar Malfunction – Top 10 Strategies</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/unleash-creativity-design-your-own-logos-using-template-assets-free/"><u>Unleash Creativity  Design Your Own Logos Using Template Assets (Free)</u></a></li>
+</ul></div>

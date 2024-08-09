@@ -1,7 +1,7 @@
 ---
 title: "Discovering France Through Its Language: Top Expressions"
-date: 2024-07-12T09:16:22.038Z
-updated: 2024-07-13T09:16:22.038Z
+date: 2024-08-08T09:27:51.059Z
+updated: 2024-08-09T09:27:51.059Z
 tags:
   - speak
   - english
@@ -37,6 +37,9 @@ thumbnail: https://thmb.techidaily.com/290fdfbe7988bc73a9658535e5e89697be7bda898
 
 **P.S.:** Listen to “La vie en rose” in the background while reading this article. The mood can’t get more French than that.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 1\. Bonjour and other basic French words you’ll need to say hello
 
  When talking about**French travel phrases** , greetings should be no. 1 on your list of priorities. Foreigners regard your attempt to speak their language as a sign of respect towards their culture. Apply this unspoken rule everywhere you go in the world and many doors shall joyously open in your path.
@@ -56,6 +59,9 @@ thumbnail: https://thmb.techidaily.com/290fdfbe7988bc73a9658535e5e89697be7bda898
 * I’m sorry. –_Je suis désolé._
 * You’re welcome. –_Je vous en prie._
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![basic french words](https://edge.mondly.com/blog/wp-content/uploads/2018/09/basic-french-words-770x1024.jpg "100+ French Travel Phrases You'Ll Need To Fall In Love With Paris 3")
 
  “Bonjour, monsieur pug!” by ©Charles Deluvio
@@ -70,6 +76,9 @@ thumbnail: https://thmb.techidaily.com/290fdfbe7988bc73a9658535e5e89697be7bda898
 * Where are you from? –_D’où venez vous?_
 * Have a good day. –_Bonne journée._
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 2\. Useful French expressions for when you are at the airport
 
  Arriving at the airport – both at the beginning and at the end of your journey – will also require some French phrases. Whether you are making small talk with the person sitting next to you in the airplane, passport verification or asking for directions, these**essential French travel phrases** will definitely have your back in any situation.
@@ -79,6 +88,9 @@ thumbnail: https://thmb.techidaily.com/290fdfbe7988bc73a9658535e5e89697be7bda898
 * We are traveling together. –_Nous voyageons ensemble._
 * I’m traveling with a child. –_Je voyage avec un enfant._
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![french travel vocabulary](https://edge.mondly.com/blog/wp-content/uploads/2018/09/french-travel-vocabulary-scaled-960x540.jpg "100+ French Travel Phrases You'Ll Need To Fall In Love With Paris 4")
 
  ©Bambi Corro
@@ -106,6 +118,9 @@ thumbnail: https://thmb.techidaily.com/290fdfbe7988bc73a9658535e5e89697be7bda898
 * Where is the bus station, please? –_Où est le dépôt de bus, s’il vous plaît?_
 * Where can I buy tickets? –_Où puis-je acheter des billets?_
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ![basic french phrases](https://edge.mondly.com/blog/wp-content/uploads/2018/09/basic-french-phrases-1024x686.jpg "100+ French Travel Phrases You'Ll Need To Fall In Love With Paris 5")
 
  “Nice, France” by @Oscar Nord
@@ -193,6 +208,9 @@ thumbnail: https://thmb.techidaily.com/290fdfbe7988bc73a9658535e5e89697be7bda898
 * Let’s have some fun. –_Amusons-nous._
 * Are there seats available? –_Est-ce qu’il reste des places?_
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## 7\. Basic French phrases for your shopping adventures
 
  Souvenirs are the cruelest drudgery our loved ones from home put us through while on holiday. The horror of shopping for souvenirs often haunts us until the very last day of our holiday. The best solution? Plan your shopping adventure on the first day of the trip and just get it over with.
@@ -204,6 +222,9 @@ thumbnail: https://thmb.techidaily.com/290fdfbe7988bc73a9658535e5e89697be7bda898
 * What would you like? –_Que désirez-vous?_
 * Can I have some ice cream? –_Je peux avoir une glace?_
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 8\. French love quotes and expressions for French love stories
 
  A short love story or an unexpected marriage proposal is every girl’s secret dream when traveling to France. Boys, don’t tie your shoelaces in Paris! You’ve been warned!
@@ -223,6 +244,9 @@ thumbnail: https://thmb.techidaily.com/290fdfbe7988bc73a9658535e5e89697be7bda898
 * You are very beautiful. –_Tu es très belle._
 * You are very handsome. –_Tu es très beau._
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
 ![french love quotes](https://edge.mondly.com/blog/wp-content/uploads/2018/09/french-love-quotes-683x1024.jpg "100+ French Travel Phrases You'Ll Need To Fall In Love With Paris 10")
 
  “Love” by ©Cedric Klei
@@ -268,3 +292,60 @@ thumbnail: https://thmb.techidaily.com/290fdfbe7988bc73a9658535e5e89697be7bda898
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-chuckle-cache-uncovering-the-best-twitters-comedy-threads/"><u>[New] 2024 Approved  Chuckle Cache  Uncovering the Best Twitters Comedy Threads</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-elevate-the-visual-appeal-of-your-video-credits/"><u>[New] Elevate the Visual Appeal of Your Video Credits</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-innovation-in-social-media-redefining-the-role-of-facebook-stories/"><u>[Updated] In 2024, Innovation in Social Media  Redefining the Role of Facebook Stories</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-iphone-methods-for-jpegpng-to-pdf-file-migration/"><u>[Updated] IPhone Methods for JPEG/PNG to PDF File Migration</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/360-degree-camera-spectrum-versus-three-dimensional-outputs-for-2024/"><u>360-Degree Camera Spectrum versus Three-Dimensional Outputs for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/all-nations-speaking-castilian/"><u>All Nations Speaking Castilian</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/all-the-best-ways-to-say-thank-you-in-greek/"><u>All the Best Ways to Say Thank You in Greek</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/an-insightful-journey-through-the-world-of-english-language-contractions/"><u>An Insightful Journey Through The World of English Language Contractions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/becoming-bilingual-proven-online-methods-to-learn-languages/"><u>Becoming Bilingual: Proven Online Methods to Learn Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brit-language-for-travelers-a-compreited-guide/"><u>Brit Language for Travelers: A Compreited Guide</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/captivating-cuts-10-essential-filmora-edits-everyone-loves-for-2024/"><u>Captivating Cuts  10 Essential Filmora Edits Everyone Loves for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/complete-analysis-of-the-high-def-sony-fdr-x1000-videographer/"><u>Complete Analysis of the High-Def Sony FDR-X1000 Videographer</u></a></li>
+<li><a href="https://extra-information.techidaily.com/crafting-a-hit-solo-podcast-trendsetting-tips/"><u>Crafting a Hit Solo Podcast  Trendsetting Tips</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/daily-diary-downloader-for-2024/"><u>Daily Diary Downloader for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/decoding-and-overcoming-0x80072af9-errors/"><u>Decoding and Overcoming 0X80072AF9 Errors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enlighten-expression-top-ranked-communication-methods/"><u>Enlighten Expression: Top-Ranked Communication Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ethereal-euphemisms-italias-alluring-phrases/"><u>Ethereal Euphemisms: Italia’s Alluring Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fast-track-to-fluency-bengali/"><u>Fast-Track to Fluency: Bengali</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/finding-the-common-speech-among-belgians/"><u>Finding the Common Speech Among Belgians</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-cocoa-to-conversation-chocolate-words-around-the-globe/"><u>From Cocoa to Conversation: Chocolate Words Around The Globe</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-deal-with-the-samsung-galaxy-m14-5g-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the Samsung Galaxy M14 5G Screen Black But Still Works? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-data-from-iphone-11-pro-to-other-iphone-13-pro-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 11 Pro To Other iPhone 13 Pro devices? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-i-transferred-messages-from-vivo-v30-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How I Transferred Messages from Vivo V30 to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-oneplus-nord-3-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Pause Life360 Location Sharing For OnePlus Nord 3 5G | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-a-vivo-y27-4g-phone-that-is-locked-by-drfone-android/"><u>In 2024, How to Reset a Vivo Y27 4G Phone that is Locked?</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-send-and-fake-live-location-on-facebook-messenger-of-your-samsung-galaxy-s23-fe-drfone-by-drfone-virtual-android/"><u>In 2024, How to Send and Fake Live Location on Facebook Messenger Of your Samsung Galaxy S23 FE | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-surfing-over-the-invisible-barrier-on-tiktok/"><u>In 2024, Surfing Over The Invisible Barrier on TikTok</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-apps-and-online-tools-to-track-itel-p40plus-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Itel P40+ Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581875041-italian-numbers-made-easy-count-to-1000-and-beyond-in-italian/"><u>Italian Numbers Made Easy – Count to 1000 and Beyond in Italian</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-at-40plus-four-ways-it-can-improve-your-quality-of-life/"><u>Language Learning at 40+: Four Ways It Can Improve Your Quality of Life</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/main-language-used-in-croatia/"><u>Main Language Used in Croatia</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-german-top-10-compelling-reasons/"><u>Mastering German: Top 10 Compelling Reasons</u></a></li>
+<li><a href="https://extra-support.techidaily.com/mobile-melodies-crafting-unique-phone-ringtones-for-android-enthusiasts-for-2024/"><u>Mobile Melodies  Crafting Unique Phone Ringtones for Android Enthusiasts for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigate-global-conversation-skills-mondlys-new-edition/"><u>Navigate Global Conversation Skills: Mondly’s New Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-japanese-education-online-independent-and-gratis/"><u>Navigating Japanese Education - Online, Independent & Gratis</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-how-to-increase-volume-of-the-media-files/"><u>New How to Increase Volume of the Media Files</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/pattern-locks-are-unsafe-secure-your-zte-nubia-flip-5g-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your ZTE Nubia Flip 5G Phone Now with These Tips</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pronunciation-perfection-with-swede-letters/"><u>Pronunciation Perfection with Swede Letters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/simplified-culinary-education-essential-guides-for-aspiring-foodies/"><u>Simplified Culinary Education: Essential Guides for Aspiring Foodies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-smart-futuristic-strategies-in-linguistics-today/"><u>Speaking Smart: Futuristic Strategies in Linguistics Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spinning-words-for-worldwide-celebrations/"><u>Spinning Words for Worldwide Celebrations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/streamlining-user-agreements-and-policy/"><u>Streamlining User Agreements & Policy</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-fastest-path-to-amazing-iphone-time-lapses/"><u>The Fastest Path to Amazing iPhone Time-Lapses</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-tecno-spark-20-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Tecno Spark 20? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-path-to-fluency-in-turkeys-language-a-concise-alphabet-and-pronunciation-handbook/"><u>The Path to Fluency in Turkey's Language: A Concise Alphabet & Pronunciation Handbook</u></a></li>
+<li><a href="https://techidaily.com/things-you-dont-know-about-honor-70-lite-5g-reset-code-drfone-by-drfone-reset-android-reset-android/"><u>Things You Dont Know About Honor 70 Lite 5G Reset Code | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-20-francophone-books-for-language-learners-to-start-with/"><u>Top 20 Francophone Books for Language Learners to Start With</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577323944-transform-into-a-tagalog-conversationalist-quickly/"><u>Transform Into a Tagalog Conversationalist Quickly!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukrainian-aspirants-now-easily-access-free-language-lessons-through-mondly/"><u>Ukrainian Aspirants Now Easily Access Free Language Lessons Through Mondly</u></a></li>
+<li><a href="https://win-answers.techidaily.com/ultimate-fix-for-non-functioning-audio-issues-within-the-dying-light-gaming-experience/"><u>Ultimate Fix for Non-Functioning Audio Issues Within the Dying Light Gaming Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-the-world-of-words-in-virtual-reality-with-mondlyar/"><u>Unlock the World of Words in Virtual Reality with MondlyAR</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-learn-german-10-reasons-to-learn-german/"><u>Why Learn German? 10 Reasons to Learn German</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-startlingly-skilled-in-languages-over-50-heres-why/"><u>Why Startlingly Skilled in Languages Over 50? Here's Why</u></a></li>
+</ul></div>

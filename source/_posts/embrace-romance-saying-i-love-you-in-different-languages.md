@@ -1,7 +1,7 @@
 ---
 title: "Embrace Romance: Saying I Love You in Different Languages"
-date: 2024-07-12T09:15:46.586Z
-updated: 2024-07-13T09:15:46.586Z
+date: 2024-08-08T09:28:24.496Z
+updated: 2024-08-09T09:28:24.496Z
 tags:
   - speak
   - english
@@ -60,6 +60,9 @@ Here are some more ways to say “I love you” in other languages:
 
  Modern society makes us feel so much and express so little! We’ve become shallow. Just like [the song](https://www.youtube.com/watch?v=bo%5FefYhYU2A) says, many of us aren’t probably happy in this modern world. We bury ourselves every day under mountains of unexpressed feelings often because of social media. We’re afraid to show our inner, deeper selves. We put on masks. We don’t dare to be romantic anymore. And still, our loved ones are the ones that get to discover more of ourselves. More than just a pretty face and a cool Instagram account. That’s because they drown us in authentic, real love. They see the best in us and stick around even the hardest times. And they deserve the same back. Always. Not just on Valentine’s Day. But every single day! Wine for him, flowers for her, little gifts for the both of them. Today. This is a reminder.
 
+<!-- affiliate ads begin -->
+<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![i love you in french](https://edge.mondly.com/blog/wp-content/uploads/2018/10/i-love-you-in-french.jpg "Say It Like You Mean It: How To Say “I Love You” In 32 Different Languages 2")
 
  Now back to expressing your love in different languages. If you feel like the video above wasn’t enough for you, here’s how to write “I love you” in different languages – with transliterations where it’s needed. **Keep in mind that these aren’t always the most commonly used in their home country.** They are, instead, the most complete and grammatically correct – which is what you really need in the beginning.
@@ -82,6 +85,9 @@ Here are some more ways to say “I love you” in other languages:
 * **I love you in Hebrew:** א_ני אוהבת אותך! – Anee o’hevet otkha!_
 * **I love you in Hindi:** _मैं तुमसे प्यार करती हूँ! – Main tumasee pyaar karatee huun!_
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![how to say i love you by Tyler Nix©](https://edge.mondly.com/blog/wp-content/uploads/2018/10/how-to-say-i-love-you-scaled.jpg "Say It Like You Mean It: How To Say “I Love You” In 32 Different Languages 3")
 
 * **I love you in Croatian:** _Volim te!_
@@ -107,20 +113,33 @@ Here are some more ways to say “I love you” in other languages:
 
 **Here’s a short recap with only the correct pronunciations:**
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<!-- affiliate ads end -->
 ## “I love you” in sign language
 
  To sign “I love you”, put up your thumb, index finger and pinkie finger while keeping your ring finger and your middle finger down. Like this:
 
 ![I love you in sign language](https://edge.mondly.com/blog/wp-content/uploads/2018/10/i-love-you-sign-language.jpg "Say It Like You Mean It: How To Say “I Love You” In 32 Different Languages 4")
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The perfect Valentine’s Day gift: 365 gifts for 365 days
 
  Now that you know how to say “I love you” in so many languages, here’s a sweet present idea you could use for your next anniversary or Valentine’s Day. All you need to buy is a big jar – big enough for all your love. The rest of it comes from the bottom of your heart. The first step is to prepare 365 pieces of paper of different colors and sizes and write “I love you” in different languages on the first 32 of them. Go wildly romantic with the rest of them: you could write love quotes for him or love quotes for her, poems or songs that you both like. Next step? Decorate the jar with tiny lights, pieces of lace or stickers.
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![i love you in spanish by Diego PH©](https://edge.mondly.com/blog/wp-content/uploads/2018/10/i-love-you-in-spanish-scaled-480x600.jpg "Say It Like You Mean It: How To Say “I Love You” In 32 Different Languages 5")
 
  When it’s ready, tell your lover to read one piece of paper every day. Even when you are not around. That’s how they’ll smile and know that your heart always belongs to them.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+</a>
+<!-- affiliate ads end -->
 ### A love poem for your loved one
 
  Look no further if you need a love poem or a love song for your jar. It doesn’t necessarily need to be original. It just has to come from the heart. Here’s**a love song for your love jar:**
@@ -205,3 +224,44 @@ _With you, my heart will forever blend._
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-spotlight-secrets-perfecting-vlogger-lights/"><u>[Updated] Spotlight Secrets  Perfecting Vlogger Lights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-years-united-by-mondly-celebration-ensues/"><u>10 Years United by Mondly - Celebration Ensues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/25-must-use-german-phrases/"><u>25 Must-Use German Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/abschiedsreimende-satzgestaltung-in-deutsch/"><u>Abschiedsreimende Satzgestaltung in Deutsch</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/alphabet-accuracy-in-sweden-pronunciation-essentials/"><u>Alphabet Accuracy in Sweden: Pronunciation Essentials</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/americas-favorite-extra-national-study-areas/"><u>America's Favorite Extra-National Study Areas</u></a></li>
+<li><a href="https://extra-information.techidaily.com/asmr-insights-understanding-its-health-benefits/"><u>ASMR Insights  Understanding Its Health Benefits</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/become-a-korean-wiz-the-essential-guide-to-6-superior-sites/"><u>Become a Korean Wiz: The Essential Guide to 6 Superior Sites</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/belgiums-linguistic-landscape-explored/"><u>Belgium’s Linguistic Landscape Explored</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beyond-pronunciations-conquering-the-most-tricky-tongues-in-the-world/"><u>Beyond Pronunciations: Conquering the Most Tricky Tongues in the World</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/borrowed-idioms-and-expressions-in-english/"><u>Borrowed Idioms and Expressions in English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bulbarian-brilliance-master-in-bare-minutes/"><u>Bulbarian Brilliance - Master in Bare Minutes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprendiendo-los-botones-para-tiempo-en-aplicaciones/"><u>Comprendiendo Los Botones Para Tiempo en Aplicaciones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/crossing-cultures-through-the-pulse-of-language/"><u>Crossing Cultures Through the Pulse of Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultivating-chinese-etiquette-saying-thank-you/"><u>Cultivating Chinese Etiquette: Saying Thank You</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-fluency-for-the-mature-mind-four-reasons-to-learn-languages-in-your-forties/"><u>Cultural Fluency for the Mature Mind: Four Reasons to Learn Languages in Your Forties</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daybreak-to-dusk-in-korea-easy-language-explanations/"><u>Daybreak to Dusk in Korea: Easy Language Explanations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-english-grammar-9-powerful-hints-from-an-esl-maven/"><u>Decoding English Grammar: 9 Powerful Hints From an ESL Maven</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-squid-game-through-language-study/"><u>Decoding Squid Game Through Language Study</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-the-language-of-vietnam-for-first-timers/"><u>Decoding the Language of Vietnam for First-Timers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-the-ultimate-way-learning-languages-on-the-web/"><u>Discover the Ultimate Way: Learning Languages on the Web</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-new-horizons-the-joy-of-language-learning/"><u>Discovering New Horizons: The Joy of Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/diy-french-fluency-ideal-strategies-and-aids/"><u>DIY French Fluency: Ideal Strategies & Aids</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/echoes-from-abroad-the-international-influence-on-english/"><u>Echoes From Abroad: The International Influence on English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embracing-tech-in-hr-the-top-5-language-learning-apps-for-your-business/"><u>Embracing Tech in HR: The Top 5 Language Learning Apps for Your Business</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/empower-your-win11-experience-with-expert-led-zoom-insights/"><u>Empower Your Win11 Experience with Expert-Led Zoom Insights</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/how-does-forefront-ai-compare-with-chatgpt-an-in-depth-analysis/"><u>How Does Forefront AI Compare with ChatGPT - An In-Depth Analysis</u></a></li>
+<li><a href="https://driver-install.techidaily.com/how-to-update-hdmi-driver-on-windows-11-11/"><u>How to Update HDMI Driver on Windows 11, 11</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-digital-storytelling-with-facebook-slideshow-creation/"><u>In 2024, Digital Storytelling with Facebook SlideShow Creation</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/instant-mp3-from-your-fb-videos-online-converter/"><u>Instant MP3 From Your FB Videos - Online Converter</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579487205-mondly-gold-unlimited-zero-fee-access/"><u>Mondly Gold: Unlimited, Zero-Fee Access</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-effortless-video-editing-with-quicktime-on-mac-a-step-by-step-handbook-for-2024/"><u>New Effortless Video Editing with QuickTime on Mac A Step-by-Step Handbook for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/no-smudges-on-screens-keeping-your-gopro-crisp/"><u>No Smudges on Screens  Keeping Your GoPro Crisp</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580402694-norges-linguistic-leap-forward-in-minutes/"><u>Norge's Linguistic Leap Forward in Minutes</u></a></li>
+<li><a href="https://extra-information.techidaily.com/top-10-uplifting-films-for-boosting-your-drive/"><u>Top 10 Uplifting Films for Boosting Your Drive</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581848107-triple-crown-of-language-mastery-your-gateway-to-fluency/"><u>Triple Crown of Language Mastery: Your Gateway to Fluency!</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Realme Narzo N55? | Dr.fone</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "Decoding English Grammar: 9 Powerful Hints From an ESL Maven"
-date: 2024-07-12T09:18:23.609Z
-updated: 2024-07-13T09:18:23.609Z
+date: 2024-08-08T09:25:58.828Z
+updated: 2024-08-09T09:25:58.828Z
 tags:
   - speak
   - english
@@ -36,6 +36,9 @@ thumbnail: https://thmb.techidaily.com/2d824596cda220209cd5b9247c0c0e4bf48214334
 
  And the list can and should continue (check the English grammar courses from Oxford for more). But in today’s lesson we’re focussing more on curriculum and tips, so let’s move on to your next step.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 2\. Continue with verbs and verb tenses
 
  Verbs and verb tenses are important because they can make your whole language sound off if you don’t use the correct form. And what better way to understand verb tenses than examples?
@@ -81,12 +84,18 @@ thumbnail: https://thmb.techidaily.com/2d824596cda220209cd5b9247c0c0e4bf48214334
 
  The experts behind Mondly know how amazing the human brain is. This is why they carefully selected the content so that you’ll practice and the brain will make the connections itself. You don’t focus on the process but on the final result: speaking English like a native.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## 5\. Learn the most common exceptions
 
  Forget about rules. Focus on the most common exceptions. Once you begin using the inductive learning method, rules will follow naturally. So it’s the exception you need to study and master.
 
  Whether we are talking about adjective forms, irregular verbs, or nouns without plurals, exceptions are fewer and can help you achieve the level of English fluency and correctness you always dreamed you’d have.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## 6\. Practice English Grammar with Oxford
 
  Being the best always requires hard work and practice. Thus, if you want to take a step further and grow from beginner to advanced and later proficient, you should practice grammar with the special workbooks from [Oxford](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
@@ -97,12 +106,18 @@ thumbnail: https://thmb.techidaily.com/2d824596cda220209cd5b9247c0c0e4bf48214334
 
  “Find your favorite book” by 🇸🇮 Janko Ferlič©
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 7\. Don’t overthink it
 
  Go with the flow and let the inductive method work. Trust your instinct. In time, once you get used to the language, you’ll be able to speak English as easily as you speak your native language.
 
  Don’t calculate your next ten moves. Instead, think directly in English and just speak. If you overthink a phrase now, you’ll overthink it forever.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ## 8\. Read your favorite books in English
 
  What better way is there to get used to English grammar in context than reading your favorite books in English? I, for one, started with Harry Potter because it is easy to read and it does not use complex vocabulary.
@@ -111,6 +126,9 @@ thumbnail: https://thmb.techidaily.com/2d824596cda220209cd5b9247c0c0e4bf48214334
 
  Seeing the English grammar in context will help you assimilate the information faster and learn to use it successfully yourself.
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<!-- affiliate ads end -->
 ## 9\. Make English grammar your friend
 
  After reading, it’s time to practice what you’ve learned with a nice English writing session. Write about your passions, your hobbies, or just about anything you want. The idea is to practice expressing yourself in English in regard to the things you are more likely to talk about in a future conversation with an English speaker.
@@ -146,3 +164,69 @@ thumbnail: https://thmb.techidaily.com/2d824596cda220209cd5b9247c0c0e4bf48214334
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-instagram-video-performance-mobile-and-desktop-strategies/"><u>[New] 2024 Approved  Instagram Video Performance  Mobile & Desktop Strategies</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-erase-effortlessly-social-media-live-on-desktop-and-phone/"><u>[New] In 2024, Erase Effortlessly  Social Media Live on Desktop & Phone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-share-with-impact-tiktok-videos-on-twitter/"><u>[New] Share with Impact  TikTok Videos on Twitter</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-stealth-and-honor-find-your-favorite-games-like-tsushi-for-2024/"><u>[New] Stealth and Honor  Find Your Favorite Games Like Tsushi for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-unleashing-your-monetary-potential-a-filmmakers-guide-to-tiktok-wealth/"><u>[New] Unleashing Your Monetary Potential  A Filmmaker's Guide to TikTok Wealth</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-crafting-an-inviting-subscribe-icon-for-youtube-videographers-for-2024/"><u>[Updated] Crafting an Inviting Subscribe Icon for YouTube Videographers for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-boosting-your-videos-popularity-in-a-competitive-space-like-tiktok/"><u>[Updated] In 2024, Boosting Your Video’s Popularity in a Competitive Space Like TikTok</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-pathways-to-cultural-bridges-through-language-learning/"><u>10 Pathways to Cultural Bridges Through Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/104plus-vital-croatian-expressions-for-effortless-interaction-in-croatia/"><u>104+ Vital Croatian Expressions for Effortless Interaction in Croatia</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-cut-out-facebook-stories-step-by-step-for-pc-and-phones/"><u>2024 Approved  Cut Out Facebook Stories  Step-By-Step for PC & Phones</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-maximizing-auditory-experience-on-windows-10/"><u>2024 Approved  Maximizing Auditory Experience on Windows 10</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-speedy-rescue-vanished-visuals/"><u>2024 Approved  Speedy Rescue  Vanished Visuals</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-decade-of-inspiration-with-mondly/"><u>A Decade of Inspiration with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-new-tongue-a-new-world-top-6-integration-methods/"><u>A New Tongue, A New World: Top 6 Integration Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accelerate-advocacy-with-precision-in-professional-vernacular/"><u>Accelerate Advocacy with Precision in Professional Vernacular</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accurate-russian-alphabet-articulation-techniques/"><u>Accurate Russian Alphabet Articulation Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/anchoring-your-tongue-in-piracy-vocabulary/"><u>Anchoring Your Tongue in Piracy Vocabulary</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/app-based-mastery-of-romanian-vocabulary/"><u>App-Based Mastery of Romanian Vocabulary</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578590735-become-a-home-cooking-wizard-in-just-three-easy-steps/"><u>Become a Home Cooking Wizard in Just Three Easy Steps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/best-foreign-flicks-to-learn-a-new-tongue/"><u>Best Foreign Flicks To Learn A New Tongue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bilingual-brain-boost/"><u>Bilingual Brain Boost</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/borrowed-words-in-the-anglophone-world/"><u>Borrowed Words in the Anglophone World</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/breaking-barriers-customized-3d-printer-achieves-lightning-fast-speed-benchy-creation-in-only-2-minutes/"><u>Breaking Barriers: Customized 3D Printer Achieves Lightning-Fast 'Speed Benchy' Creation in Only 2 Minutes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breaking-down-10-effective-ways-to-say-hello-in-spanish/"><u>Breaking Down 10 Effective Ways to Say 'Hello' In Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breaking-language-barriers-with-top-9-difficult-dialects/"><u>Breaking Language Barriers with Top 9 Difficult Dialects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brisk-approaches-to-gaining-linguistic-skills/"><u>Brisk Approaches to Gaining Linguistic Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/british-english-tradition-vs-american-innovation/"><u>British English Tradition vs American Innovation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brussels-dialects-and-beyond-a-linguistic-journey/"><u>Brussels Dialects and Beyond: A Linguistic Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/carnal-communication-eloquence-in-spanish-conversation/"><u>Carnal Communication: Eloquence in Spanish Conversation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578479086-celebrate-new-beginnings-by-saving-big-with-mondly-pros-free-access/"><u>Celebrate New Beginnings by Saving Big with Mondly Pro's Free Access!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/charisma-in-german-flirting-fables/"><u>Charisma in German: Flirting Fables</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577089071-clicking-through-revised-policies-now/"><u>Clicking Through: Revised Policies Now</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/complete-guide-to-japanese-kanji-and-kana-systems/"><u>Complete Guide to Japanese Kanji & Kana Systems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprendre-lanatomie-fondamentale-parts-of-the-body-en-francais/"><u>Comprendre L'Anatomie Fondamentale: Parts of the Body en Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-language-hurdles-oxford-and-mondlys-blend/"><u>Conquer Language Hurdles - Oxford & Mondly's Blend</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cosmic-communication-the-intricacies-of-star-wars-dialogues/"><u>Cosmic Communication: The Intricacies of Star Wars Dialogues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/countries-participating-in-harvest-festivals/"><u>Countries Participating in Harvest Festivals</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ng-edge-techniques-for-excellent-sound-no-mic-included/"><u>Cutting-Edge Techniques for Excellent Sound, No Mic Included</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deutsch-fur-anfanger-zahlen-von-1-100-im-kontext/"><u>Deutsch Für Anfänger: Zählen Von 1-100 Im Kontext</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/digital-learning-for-real-romanians/"><u>Digital Learning for Real Romanians</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/drone-category-definitions-for-2024/"><u>Drone Category Definitions for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580308786-earn-96-off-get-lifetime-mondly-premium-access-for-free/"><u>Earn 96%% Off, Get Lifetime Mondly Premium Access for Free!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ease-into-new-languages-top-3-language-learning-platforms-reviewed/"><u>Ease Into New Languages: Top 3 Language Learning Platforms Reviewed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/easiest-tongue-journey-top-10-simplified-languages-compendium/"><u>Easiest Tongue Journey: Top 10 Simplified Languages Compendium</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/echoes-of-avon-words-from-a-bygone-era-remain/"><u>Echoes of Avon: Words From a Bygone Era Remain</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effektive-deutsche-entschuldigungen/"><u>Effektive Deutsche Entschuldigungen</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/elevate-your-podcasts-with-top-10-ai-name-generators/"><u>Elevate Your Podcasts with Top 10 AI Name Generators</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580281495-embark-on-an-enlightening-journey-in-hindi-top-8-reasons-to-select-mondlys-learning-platform/"><u>Embark on an Enlightening Journey in Hindi: Top 8 Reasons to Select Mondly's Learning Platform!</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-can-we-bypass-sony-xperia-1-v-frp-by-drfone-android/"><u>How Can We Bypass Sony Xperia 1 V FRP?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-oppo-find-x7-location-by-number-drfone-by-drfone-virtual-android/"><u>How to Track Oppo Find X7 Location by Number | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to Watch Hulu Outside US On Oppo Find X7 Ultra | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/mastering-autofocus-on-iphone-a-step-by-step-approach-for-2024/"><u>Mastering Autofocus on iPhone  A Step-by-Step Approach for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581561649-most-popular-immigrant-languages-educated-in-us/"><u>Most Popular Immigrant Languages Educated In U.S.</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-create-talking-cartoon-images-using-top-tools-for-2024/"><u>New Create Talking Cartoon Images Using Top Tools for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-elevate-your-video-game-6-expert-adobe-premiere-techniques-to-know/"><u>New Elevate Your Video Game 6 Expert Adobe Premiere Techniques to Know</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/overcoming-fear-of-ai-in-education-8-strategic-advantages-for-teachers-and-students/"><u>Overcoming Fear of AI in Education: 8 Strategic Advantages for Teachers and Students</u></a></li>
+<li><a href="https://facebook.techidaily.com/retrieving-and-reactivating-your-fbs-hidden-security-codes/"><u>Retrieving and Reactivating Your FB's Hidden Security Codes</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/smartphone-lighting-kits-for-improved-footage-for-2024/"><u>Smartphone Lighting Kits for Improved Footage for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/strategic-insights-into-making-emotional-connection-with-customer-success-videos/"><u>Strategic Insights Into Making Emotional Connection with Customer Success Videos</u></a></li>
+<li><a href="https://extra-information.techidaily.com/streamline-sound-integration-with-powerpoint-displays/"><u>Streamline Sound Integration with PowerPoint Displays</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580863518-the-future-of-language-learning-how-to-do-it-in-the-21st-century/"><u>The Future Of Language Learning: How To Do It In The 21St Century</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/unlock-apple-iphone-14-plus-with-forgotten-passcode-different-methods-you-can-try-by-drfone-ios/"><u>Unlock Apple iPhone 14 Plus With Forgotten Passcode Different Methods You Can Try</u></a></li>
+</ul></div>

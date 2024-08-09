@@ -1,7 +1,7 @@
 ---
 title: Disentangling 'Por Qué' From 'Por Que'
-date: 2024-07-12T09:17:37.266Z
-updated: 2024-07-13T09:17:37.266Z
+date: 2024-08-08T09:26:40.947Z
+updated: 2024-08-09T09:26:40.947Z
 tags:
   - speak
   - english
@@ -22,6 +22,9 @@ thumbnail: https://thmb.techidaily.com/7bf87c712048fd1b5c49af691f0f5b92a0d10753a
 
  If you are an English speaker, you know that’s not new. We also have our struggles with “your” and “you’re”, “whose” and “who’s”, “these” and “this”. Even if you know English to perfection, sometimes your brain just goes blank and you don’t know what’s the correct form anymore. But the [**_porque, por que, porqué_ and_por qué_**  problem](https://www.rae.es/espanol-al-dia/porque-porque-por-que-por-que-0) seems even more complicated than that. So read on to discover rules, eloquent examples in Spanish and the correct**Spanish pronunciation** for each situation.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## 1\. Por qué – how to ask**“** why?” in Spanish
 
  Let’s start with the two most common _porques:**por qué**_   **and_porque_ – “why?” and “because”** – the question and the answer.
@@ -39,10 +42,16 @@ thumbnail: https://thmb.techidaily.com/7bf87c712048fd1b5c49af691f0f5b92a0d10753a
 * _No sé**por qué** rechazaste la oferta._ – “I don’t know**why** you refused the offer.”
 * _Quiero saber**por qué** está tan feliz._ – “I want to know**why** he/she is so happy.”
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![por que](https://edge.mondly.com/blog/wp-content/uploads/2019/08/por-que-scaled-960x554.jpg "Porque Vs Por Que: What'S The Difference? 2")
 
  “Let’s write” by Kelly Sikkema©
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<!-- affiliate ads end -->
 ## 2\. Porque – “because” or how to give reasons in Spanish
 
  As you already know, whenever you ask “why?” in English, the other person will probably begin their answer using “because”. Well, Spanish has the same rules: whenever you ask someone**“por qué”,** they will probably begin their answer with the plain and simple**“porque”** with no spaces and no accents. Let’s see some examples:
@@ -61,6 +70,9 @@ thumbnail: https://thmb.techidaily.com/7bf87c712048fd1b5c49af691f0f5b92a0d10753a
 
  But it’s always better to be safe and learn all the possible outcomes than learn only half of them and feel sorry afterwars. So let’s move on to the more problematic_porques:_ **_por que_ (for which)** and **_el porqué_ (the reason)_._**
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## 3\. Por que – “For which”
 
  The knottiest of the four_porques_ is definitely the**_por que_** that translates to**“for which”.** Even in English we rarely use this word arrangement in a sentence.
@@ -85,6 +97,9 @@ Well, now it’s all starting to make sense, doesn’t it?
 
  “Studying” by David Iskander©
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ## 4\. El porqué – The reason
 
  Bare with me. This is the last**“porqué”** and the easiest**“porqué”.**
@@ -105,6 +120,10 @@ Well, now it’s all starting to make sense, doesn’t it?
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+</a>
+<!-- affiliate ads end -->
 ### See_porque_ vs_por que_ and_porqué_ vs_por qué_ in action
 
  Do you want to**practice what you’ve learned** about the four_porques_ ? Check Mondly, the revolutionary language learning platform that makes language learning fun, fast and easy!
@@ -137,3 +156,54 @@ Well, now it’s all starting to make sense, doesn’t it?
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-25-animated-visionaries-shaping-tiktok-trends/"><u>[New] 2024 Approved  25 Animated Visionaries Shaping TikTok Trends</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-3-pro-level-plans-to-preserve-precise-gaming-moments/"><u>[New] 3 Pro-Level Plans to Preserve Precise Gaming Moments</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-sleep-inducing-series-analyzing-video-bedtime-stories/"><u>[New] The Sleep-Inducing Series  Analyzing Video Bedtime Stories</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-best-in-class-android-storage-in-the-cloud-for-2024/"><u>[Updated] Best-in-Class Android Storage in the Cloud for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-channel-king-and-queen-academy-youtube-excellence/"><u>[Updated] In 2024, Channel King & Queen Academy  YouTube Excellence</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-innovative-approaches-to-android-video-capture/"><u>[Updated] In 2024, Innovative Approaches to Android Video Capture</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-the-finest-open-world-games-to-engage-with/"><u>2024 Approved  The Finest Open World Games to Engage With</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/3-leading-apps-for-seamless-multilingual-acquisition/"><u>3 Leading Apps for Seamless Multilingual Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/anfangsgrunde-des-deutschen-nummern-von-1-bis-100-erklaren/"><u>Anfangsgründe Des Deutschen: Nummern Von 1 Bis 100 Erklären</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprende-la-secuencia-del-calendario-de-espana/"><u>Aprende La Secuencia Del Calendario De España</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cataloging-the-iberian-linguistic-kinship/"><u>Cataloging the Iberian Linguistic Kinship</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/catch-the-latino-vibe-top-50-coolest-latin-maxims-and-proverbs/"><u>Catch the Latino Vibe - Top 50 Coolest Latin Maxims & Proverbs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/catch-your-friends-attention-top-50-latin-idioms-and-quotations/"><u>Catch Your Friends' Attention: Top 50 Latin Idioms & Quotations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/clicking-through-revised-policies-now/"><u>Clicking Through: Revised Policies Now!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579581581-conquer-slovak-in-minutes-easy-online-learning-pathway/"><u>Conquer Slovak in Minutes: Easy Online Learning Pathway!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daily-growth-journey-honoring-the-anniversary-of-1500-free-classes/"><u>Daily Growth Journey: Honoring the Anniversary of 1500 Free Classes</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/detailed-breakdown-the-pros-and-cons-of-the-pricy-thermaltake-massive-laptop-cooling-pad/"><u>Detailed Breakdown: The Pros and Cons of the Pricy Thermaltake Massive Laptop Cooling Pad</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/digital-dojo-learn-lithuanian-with-precision-and-flair/"><u>Digital Dojo: Learn Lithuanian with Precision and Flair</u></a></li>
+<li><a href="https://win11.techidaily.com/dissecting-the-downfalls-of-modern-standby-in-windows-os/"><u>Dissecting the Downfalls of Modern Standby in Windows OS</u></a></li>
+<li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-nubia-red-magic-8s-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Nubia Red Magic 8S Pro | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fortify-finances-with-fluent-corporate-language-skills/"><u>Fortify Finances with Fluent Corporate Language Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/getting-it-right-an-expert-written-on-english-grammar-conjunctions-and-contractions/"><u>Getting It Right: An Expert' Written on English Grammar Conjunctions & Contractions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-communication-the-value-of-german-vs-french/"><u>Global Communication: The Value of German vs French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grasping-the-essentials-of-english-grammar-a-focus-on-contractions/"><u>Grasping the Essentials of English Grammar: A Focus on Contractions</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-remove-icloud-from-iphone-11-smoothly-by-drfone-ios/"><u>How To Remove iCloud From iPhone 11 Smoothly</u></a></li>
+<li><a href="https://techidaily.com/how-to-repair-ios-system-issues-of-apple-iphone-13-pro-max-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair iOS System Issues of Apple iPhone 13 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-say-i-love-you-in-hungarian/"><u>How To Say I Love You In Hungarian</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/immersive-spanish-lessons-that-enthrall/"><u>Immersive Spanish Lessons That Enthrall</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-converting-spoken-words-to-text-in-powerpoint/"><u>In 2024, Converting Spoken Words to Text in PowerPoint</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-motorola-moto-g73-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Fake the Location to Get Around the MLB Blackouts on Motorola Moto G73 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-oneplus-nord-ce-3-lite-5g-drfone-by-drfone-android/"><u>In 2024, How To Use Allshare Cast To Turn On Screen Mirroring On OnePlus Nord CE 3 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/languages-lost-love-found-relationship-resilience/"><u>Languages Lost, Love Found: Relationship Resilience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577875476-make-a-statement-in-croatia-speak-its-language-with-these-top-7-motivations/"><u>Make a Statement in Croatia: Speak Its Language with These Top 7 Motivations!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-mission-investing-in-ukrainian-speakers-for-no-expense/"><u>Mondly's Mission: Investing in Ukrainian Speakers, for No Expense</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-new-help-section-a-leap-forward-in-customer-service/"><u>Mondly's New Help Section: A Leap Forward in Customer Service</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-learners-arabic-adventure-starts-here/"><u>New Learner's Arabic Adventure Starts Here</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/privacy-adjusted-understanding-your-rights/"><u>Privacy Adjusted - Understanding Your Rights</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/score-the-game-best-affordable-recording-apps-for-2024/"><u>Score the Game  Best Affordable Recording Apps for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580912312-slovak-in-a-flash-online-learning-for-busy-lives/"><u>Slovak in a Flash - Online Learning for Busy Lives!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speedy-polish-mastery-for-novices/"><u>Speedy Polish Mastery for Novices</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/step-by-step-implementing-auto-captions-in-reels-for-2024/"><u>Step-by-Step  Implementing Auto Captions in Reels for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ten-powerful-reasons-to-embrace-the-german-language/"><u>Ten Powerful Reasons to Embrace the German Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-pathway-1500-days-enlightened/"><u>The Pathway: 1,500 Days Enlightened</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-your-potential-mondly-endorses-ukraines-linguistic-renaissance/"><u>Unlock Your Potential: Mondly Endorses Ukraine's Linguistic Renaissance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unprecedented-ar-app-with-vocal-recognition/"><u>Unprecedented AR App with Vocal Recognition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worlds-lengthiest-term-and-its-tale/"><u>World's Lengthiest Term and Its Tale</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldly-speech-patterns-finding-a-home-in-english/"><u>Worldly Speech Patterns Finding a Home in English</u></a></li>
+</ul></div>
