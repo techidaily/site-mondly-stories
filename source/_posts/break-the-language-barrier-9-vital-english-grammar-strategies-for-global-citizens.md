@@ -1,7 +1,7 @@
 ---
 title: "Break the Language Barrier: 9 Vital English Grammar Strategies for Global Citizens"
-date: 2024-07-12T09:07:49.289Z
-updated: 2024-07-13T09:07:49.289Z
+date: 2024-08-15T17:40:42.781Z
+updated: 2024-08-16T17:40:42.781Z
 tags:
   - speak
   - english
@@ -36,6 +36,9 @@ thumbnail: https://thmb.techidaily.com/848032c0813eed1e619997cdd0bea2d2fe7603582
 
  And the list can and should continue (check the English grammar courses from Oxford for more). But in today’s lesson we’re focussing more on curriculum and tips, so let’s move on to your next step.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<!-- affiliate ads end -->
 ## 2\. Continue with verbs and verb tenses
 
  Verbs and verb tenses are important because they can make your whole language sound off if you don’t use the correct form. And what better way to understand verb tenses than examples?
@@ -81,12 +84,18 @@ thumbnail: https://thmb.techidaily.com/848032c0813eed1e619997cdd0bea2d2fe7603582
 
  The experts behind Mondly know how amazing the human brain is. This is why they carefully selected the content so that you’ll practice and the brain will make the connections itself. You don’t focus on the process but on the final result: speaking English like a native.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 5\. Learn the most common exceptions
 
  Forget about rules. Focus on the most common exceptions. Once you begin using the inductive learning method, rules will follow naturally. So it’s the exception you need to study and master.
 
  Whether we are talking about adjective forms, irregular verbs, or nouns without plurals, exceptions are fewer and can help you achieve the level of English fluency and correctness you always dreamed you’d have.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 6\. Practice English Grammar with Oxford
 
  Being the best always requires hard work and practice. Thus, if you want to take a step further and grow from beginner to advanced and later proficient, you should practice grammar with the special workbooks from [Oxford](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
@@ -94,15 +103,24 @@ thumbnail: https://thmb.techidaily.com/848032c0813eed1e619997cdd0bea2d2fe7603582
  Add at least 15 minutes of grammar exercises from Oxford to your learning routine, and soon enough, your brain will begin to make the connections naturally and faster.
 
 ![english grammar lessons](https://edge.mondly.com/blog/wp-content/uploads/2020/04/english-grammar-lessons-600x555.jpg "9 English Grammar Tips From An Esl Speaker 2")
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 
  “Find your favorite book” by 🇸🇮 Janko Ferlič©
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 7\. Don’t overthink it
 
  Go with the flow and let the inductive method work. Trust your instinct. In time, once you get used to the language, you’ll be able to speak English as easily as you speak your native language.
 
  Don’t calculate your next ten moves. Instead, think directly in English and just speak. If you overthink a phrase now, you’ll overthink it forever.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->
 ## 8\. Read your favorite books in English
 
  What better way is there to get used to English grammar in context than reading your favorite books in English? I, for one, started with Harry Potter because it is easy to read and it does not use complex vocabulary.
@@ -148,3 +166,44 @@ thumbnail: https://thmb.techidaily.com/848032c0813eed1e619997cdd0bea2d2fe7603582
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-effortless-youtube-video-to-text-conversion-at-no-cost/"><u>[New] 2024 Approved  Effortless YouTube Video to Text Conversion at No Cost</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-11-best-practices-for-capturing-online-conferences-for-free/"><u>[New] In 2024, 11 Best Practices for Capturing Online Conferences for Free</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-top-tweets-from-tiktok-stars-a-viral-snapshot/"><u>[Updated] Top Tweets From TikTok Stars  A Viral Snapshot</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-asus-rog-phone-8-pro-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Asus ROG Phone 8 Pro Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/8-life-altering-reasons-for-being-bilingual/"><u>8 Life-Altering Reasons for Being Bilingual</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accelerate-tagalog-learning-in-minutes-not-days/"><u>Accelerate Tagalog Learning in Minutes, Not Days</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apples-daily-pick-the-global-favorite/"><u>Apple's Daily Pick: The Global Favorite</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bengalian-easy-fast-language-learning-each-day/"><u>Bengalian Easy: Fast Language Learning Each Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decadent-delights-multilingual-names/"><u>Decadent Delights, Multilingual Names</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/discover-the-small-stuff-zooming-into-roblox-pixels/"><u>Discover the Small Stuff  Zooming Into Roblox Pixels</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/early-risers-late-sleepers-good-morning-in-10-different-languages/"><u>Early Risers, Late Sleepers: Good Morning In 10 Different Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/edunets-showcase-at-mansion-house-london/"><u>Edunet's Showcase at Mansion House, London</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-the-top-5-digital-tools-transforming-language-education/"><u>Explore the Top 5 Digital Tools Transforming Language Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/families-of-romantic-dialects-explored/"><u>Families of Romantic Dialects Explored</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/find-the-most-effective-strategy-to-learn-finnish-online/"><u>Find the Most Effective Strategy to Learn Finnish Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-language-accessibility-mondly-enhances-oculus-quest-vr/"><u>Global Language Accessibility: Mondly Enhances Oculus Quest VR</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/guide-to-developing-a-website-with-the-help-of-chatgpt/"><u>Guide to Developing a Website with the Help of ChatGPT</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-find-ispoofer-pro-activation-key-on-nokia-g42-5g-drfone-by-drfone-virtual-android/"><u>How to Find iSpoofer Pro Activation Key On Nokia G42 5G? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-your-vivo-t2-5g-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>How to Mirror Your Vivo T2 5G Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-special-features-virtual-location-on-nokia-c12-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Nokia C12? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-looking-for-a-location-changer-on-poco-c51-look-no-further-drfone-by-drfone-virtual-android/"><u>In 2024, Looking For A Location Changer On Poco C51? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-tips-for-scaling-your-youtube-videos/"><u>In 2024, Tips for Scaling Your YouTube Videos</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-huawei-p60-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Huawei P60 | Dr.fone</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-unleash-your-inner-influencer-9-essential-instagram-steps/"><u>In 2024, Unleash Your Inner Influencer  9 Essential Instagram Steps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/italian-travelers-100plus-helpful-italian-phrases-for-your-trip/"><u>Italian Travelers: 100+ Helpful Italian Phrases For Your Trip</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leveraging-apples-tech-to-amplify-student-potential-with-mondly/"><u>Leveraging Apple's Tech to Amplify Student Potential with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-popularity-in-asia-tri-tiered-leaders/"><u>Linguistic Popularity in Asia: Tri-Tiered Leaders</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-the-art-of-business-interaction-and-conversation/"><u>Mastering the Art of Business Interaction and Conversation</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-how-to-remove-audio-from-mkv-2023-update-for-2024/"><u>New How to Remove Audio From MKV-2023 Update for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-years-aspirations-method-to-success/"><u>New Year's Aspirations: Method to Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speedy-polish-comprehensibility-strategy/"><u>Speedy Polish Comprehensibility Strategy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-strategic-advantage-of-bilingualism-in-english/"><u>The Strategic Advantage of Bilingualism in English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transformative-tech-education-supported-by-mondly-and-apples/"><u>Transformative Tech Education Supported by Mondly and Apples</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-ukraine-russia-language-parallels/"><u>Understanding Ukraine-Russia Language Parallels</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-the-local-speak-key-russian-expressions-explained/"><u>Unlock the Local Speak: Key Russian Expressions Explained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-potential-ai-in-education-and-language-studies/"><u>Unlocking Potential: AI In Education & Language Studies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/what-is-commonly-spoken-by-israelis/"><u>What Is Commonly Spoken by Israelis?</u></a></li>
+</ul></div>

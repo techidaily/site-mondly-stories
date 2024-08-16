@@ -1,7 +1,7 @@
 ---
 title: "Echoes From Olympus: The Lingual Journey of Greeks"
-date: 2024-07-12T09:12:11.114Z
-updated: 2024-07-13T09:12:11.114Z
+date: 2024-08-15T17:36:23.972Z
+updated: 2024-08-16T17:36:23.972Z
 tags:
   - speak
   - english
@@ -74,6 +74,9 @@ Other literary works of art representative of this period include:
 
 ![ancient greece language](https://edge.mondly.com/blog/wp-content/uploads/2023/10/ancient-greece-language.jpg "Ancient Greek Language Influence On Modern Languages 6")
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Ancient Greek Writing System and Alphabet
 
  Did you know the word **‘alphabet’ originates from the initial two letters of the Greek alphabet,_‘alpha’_ and_‘beta’_ ?** While this may seem like a fun piece of unimportant trivia, you’ll soon discover that the influence of the ancient Greek language on modern languages is far greater than we think.
@@ -82,6 +85,9 @@ Other literary works of art representative of this period include:
 
  However, the earliest attested form of the Greek language is a clay tablet written in the Linear B script. Historians claim that it dates to between 1450 and 1350 BC. Unrelated to the Greek alphabet, which emerged around the 8th century BC, Linear B last appeared in the 13th century BC. The centuries between the two writing scripts, where no Greek writings have been found, is referred to as the Greek Dark Ages.
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cultural Influences of Ancient Greek on the Western Civilization
 
  Ancient Greece’s influence on Western civilization is undeniable, and you’ll soon see why. For example, where do you think the Olympic Games came from? Or where did democracy originate? They’re both products of Ancient Greece, of course!
@@ -92,6 +98,9 @@ Other literary works of art representative of this period include:
 
  From politics and governance to philosophy and science, Greek terminologies and ideas laid the foundations for Western thought. Words like ‘democracy’, ‘philosophy’, and ‘astronomy’ are testimonials of Ancient Greek’s influence on today’s world. But let’s go into a little more detail.
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Ancient Greek influence on governance and philosophy
 
  Given the fact that democracy and republicanism originated in ancient Greece, it’s no wonder that the lexicon of modern governance is replete with Greek-rooted words.
@@ -118,6 +127,9 @@ Other literary works of art representative of this period include:
 
  Just as significant for the modern world are the ancient Greek art and architecture. The principles of symmetry, harmony, and proportionality influenced Western architectural designs, including the construction of monuments and public buildings. The Greek column, for example, is a beloved element we’ve seen even in fashion!
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<!-- affiliate ads end -->
 ### Ancient Greek influence on science and mathematics
 
  If we ask scientists, they’ll say that ancient Greeks made their most significant contributions to mathematics, astronomy, and medicine. For example, **the principles and theorems formulated by Pythagoras are integral to the scientific heritage that has shaped Western civilization.** Nowadays, children as young as 12 or 13 learn Pythagoras’ theorems in geometry – which, by the way, is another word of Greek origin.
@@ -134,6 +146,9 @@ Other literary works of art representative of this period include:
 
  Whenever you say a word like ‘psychology’, ‘theater’, or ‘chronology’, you pay tribute to the ancient Greek language. Still, the linguistic legacy is not limited to vocabulary but extends to idiomatic expressions, grammatical structures, and even rhetorical styles. Keep in mind the fact that this influence happened despite the geographical distance between ancient Greece and the English-speaking world.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Enriching the modern lexicon
 
  So, how does the ancient Greek language live on through the modern languages? Well, as we already settled, one of the most striking manifestations of its influence is on the vocabulary. The terms beginning with ‘ph-’ are probably the most obvious examples. **Words like ‘philosophy’, ‘physical’, ‘photograph’, ‘phrase’, and ‘philanthropy’ all have roots in ancient Greek.**
@@ -176,6 +191,9 @@ Other literary works of art representative of this period include:
 
  As we already discussed, ancient Greece and its fascinating mythology have been very influential in Western culture. And if you need more proof to be sure of it, stick around, and let’s look at some**iconic expressions that originated from Greek myths.**
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
 ### 1\. Achilles’ heel
 
 _Describes a weakness in spite of overall great strength or resilience._
@@ -196,6 +214,9 @@ _Describes a weakness in spite of overall great strength or resilience._
 
  Thus, he was tasked with completing twelve extremely challenging “labors”. These labors included daunting tasks such as retrieving the guardian dog from the underworld and defeating the multi-headed Hydra. Hence, the term ‘Herculean’ describes any job or task that is incredibly difficult and requires enormous strength.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<!-- affiliate ads end -->
 ### 4\. The Midas Touch
 
 _Refers to a person who has good fortune._
@@ -211,6 +232,9 @@ _Refers to a person who has good fortune._
  These are just a few of the witty expressions Greek myths left us with. So, feel free to expand your search and use them wisely in your day-to-day conversations. Not only are they a fun way to sound cooler, but they will also broaden your knowledge of the world. I mean, you definitely can not call someone a ‘narcissist’ without knowing Narcissus’ legend, right?
 
 ![what is greece's language](https://edge.mondly.com/blog/wp-content/uploads/2023/10/what-is-greeces-language.jpg "Ancient Greek Language Influence On Modern Languages 9")
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<!-- affiliate ads end -->
 
 ## Differences Between Ancient Greek and Modern Greek
 
@@ -226,18 +250,30 @@ _Refers to a person who has good fortune._
 
  To summarize everything we learned about the ancient Greek language, let’s look at some frequently asked questions.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Is ancient Greek still spoken today?
 
  Just like Latin, the ancient Greek language is still used in scholarly circles and ecclesiastical domains, preserved in texts and liturgies. However, nobody speaks ancient Greek natively anymore.
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### What are the main influences of ancient Greek on the English language?
 
  A lot of English words, concepts, and idiomatic expressions are of Greek origin. For example, the words that begin with the letter ‘ph’ are particularly easy to trace back to Greek.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<!-- affiliate ads end -->
 ### What writing system did ancient Greeks use?
 
  The earliest attested writing system used by ancient Greeks is a clay tablet written in the Linear B script. It is hypothesized to be descended from the older Linear A script which is undeciphered. However, around the 8th century BCE, Greeks adopted the Greek alphabet used today.
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### How can I learn to speak ancient Greek?
 
  Learning to speak ancient Greek may prove difficult because we still don’t know how the ancient Greek language sounded. For this reason, you can never be sure whether your pronunciation is correct or not. However, learning the language is not impossible. Our advice is to learn modern Greek first and then move to its predecessor with the help of classic texts and scholarly resources.
@@ -247,6 +283,9 @@ _Refers to a person who has good fortune._
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Speak Greek like a true philosopher
 
  The Modern Greek language may not be the exact same ancient lingo Platon spoke. But it is just as cool or even cooler!
@@ -273,3 +312,54 @@ _Refers to a person who has good fortune._
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://sound-issues.techidaily.com/2024-fix-rainbow-six-siege-voice-chat-not-working/"><u>[2024 Fix] Rainbow Six Siege Voice Chat Not Working</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-frontier-fantasies-selecting-the-most-impressive-titles/"><u>[New] 2024 Approved  Frontier Fantasies  Selecting the Most Impressive Titles</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-transform-meetings-with-easy-to-follow-zoom-sharing-tips/"><u>[New] In 2024, Transform Meetings with Easy-to-Follow Zoom Sharing Tips</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ptimizing-youtube-closures-a-comprehensive-guide-to-crafting-effective-end-screens-and-cards-for-2024/"><u>[New] Optimizing YouTube Closures  A Comprehensive Guide to Crafting Effective End Screens and Cards for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-androids-best-cloud-space-solutions/"><u>[Updated] Android's Best Cloud Space Solutions</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-essential-tips-for-making-youtube-introductory-trailers/"><u>[Updated] Essential Tips for Making YouTube Introductory Trailers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-achieving-a-noiseless-presence-on-social-video-platforms/"><u>2024 Approved  Achieving a Noiseless Presence on Social Video Platforms</u></a></li>
+<li><a href="https://fox-that.techidaily.com/cant-get-hey-siri-working/"><u>Can't Get Hey Siri Working</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/google-endorsed-mondly-your-language-mastery-guide/"><u>Google Endorsed: Mondly - Your Language Mastery Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/google-endorses-mondly-for-immersive-language-mastery/"><u>Google Endorses Mondly for Immersive Language Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/happiness-abroad-on-independence-day/"><u>Happiness Abroad on Independence Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/honterus-the-heartbeat-of-motivation/"><u>Honterus: The Heartbeat of Motivation</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-realme-note-50-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Realme Note 50? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-top-5-from-infinix-hot-40i-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 5 from Infinix Hot 40i to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/innovative-5-tools-revolutionizing-language-education/"><u>Innovative 5 Tools Revolutionizing Language Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/israelian-voyage-preparation-6-must-know-terms-and-insights/"><u>Israelian Voyage Preparation: 6 Must-Know Terms and Insights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/kommunikationskultur-deutsches-grazensummen-abseits-von-hallo/"><u>Kommunikationskultur: Deutsches Gräzensummen Abseits Von Hallo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leverage-team-potential-through-superior-linguistic-software/"><u>Leverage Team Potential Through Superior Linguistic Software</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-legacy-milestone-achievements-at-mondlylanguages/"><u>Linguistic Legacy: Milestone Achievements at MondlyLanguages</u></a></li>
+<li><a href="https://win11.techidaily.com/mastering-windows-11-recovering-without-admin-creds/"><u>Mastering Windows 11: Recovering without Admin Creds</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-by-pearson/"><u>Mondly By Pearson</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-puzzles-turkey-and-koreas-verbal-ties/"><u>Multilingual Puzzles: Turkey & Korea's Verbal Ties</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-complexity-the-most-tricky-global-languages/"><u>Navigating Complexity: The Most Tricky Global Languages</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-ranking-the-best-slow-motion-video-editing-programs/"><u>New Ranking the Best Slow Motion Video Editing Programs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/online-language-bridge-by-pearson-education/"><u>Online Language Bridge by Pearson Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/optimal-methods-for-learning-lithuanian-virtually/"><u>Optimal Methods for Learning Lithuanian Virtually</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/peering-into-mondlys-educational-techniques/"><u>Peering Into Mondly’s Educational Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-ukrainian-understanding-through-deliberate-10-minute-practices-93-chars/"><u>Quick Ukrainian Understanding Through Deliberate 10-Minute Practices (93 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quickbulgarian-quest-learn-in-bursts/"><u>QuickBulgarian Quest - Learn in Bursts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rapidly-gain-proficiency-with-urdu-online/"><u>Rapidly Gain Proficiency with Urdu Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/redefining-language-learning-in-the-digital-age-via-ai/"><u>Redefining Language Learning in the Digital Age via AI</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revisiting-gamings-golden-age-the-ultimate-guide-to-super-mario-bros-on-the-vintage-handheld-gem/"><u>Revisiting Gaming's Golden Age: The Ultimate Guide to Super Mario Bros. On the Vintage Handheld Gem</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/seamless-cuts-with-m1-the-future-of-video-editing-unveiled-for-2024/"><u>Seamless Cuts with M1  The Future of Video Editing Unveiled for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seamless-online-introduction-to-the-romance-language/"><u>Seamless Online Introduction to the Romance Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sensorylinguistics-a-vr-approach-to-language/"><u>SensoryLinguistics: A VR Approach to Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/solving-the-issue-of-unwanted-humming-sounds-in-your-earbuds/"><u>Solving the Issue of Unwanted Humming Sounds in Your Earbuds</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-slovak-straightforward-sneak-in-learning-during-your-free-minutes/"><u>Speak Slovak Straightforward: Sneak in Learning During Your Free Minutes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-by-step-guide-for-novice-french-speakers-pronunciation/"><u>Step-by-Step Guide for Novice French Speakers' Pronunciation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-by-step-guide-easy-online-latino-study/"><u>Step-By-Step Guide: Easy Online Latino Study</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/tackling-brother-printer-not-printing-issue-step-by-step-winoses/"><u>Tackling Brother Printer Not Printing Issue, Step by Step, WinOSes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-best-way-to-study-portuguese-6-tips-that-will-work-wonders/"><u>The Best Way To Study Portuguese - 6 Tips That Will Work Wonders</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-richness-of-romantic-vernaculars/"><u>The Richness of Romantic Vernaculars</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/travel-talk-essential-french-for-every-francophile/"><u>Travel Talk: Essential French for Every Francophile</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-the-science-of-second-language-acquisition/"><u>Understanding the Science of Second Language Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-fluency-excellent-ways-to-boost-verbal-abilities/"><u>Unlock Fluency: Excellent Ways to Boost Verbal Abilities</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unravel-english-core-with-oxford-and-mondly/"><u>Unravel English Core with Oxford & Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-children-excel-in-multilingualism/"><u>Why Children Excel in Multilingualism</u></a></li>
+</ul></div>

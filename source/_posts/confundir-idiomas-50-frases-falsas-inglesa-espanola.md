@@ -1,7 +1,7 @@
 ---
 title: "Confundir Idiomas: 50 Frases Falsas Inglesa-Española"
-date: 2024-07-12T09:05:43.306Z
-updated: 2024-07-13T09:05:43.306Z
+date: 2024-08-15T17:42:47.803Z
+updated: 2024-08-16T17:42:47.803Z
 tags:
   - speak
   - english
@@ -42,6 +42,9 @@ thumbnail: https://thmb.techidaily.com/3cd047344d86e8920c72e515095d66dfd7e255dbc
 
  Some of the most popular examples are: _hospital, horrible, actor, artificial, agenda, animal, original, idea, flexible, vulnerable, superficial, reunion_ (_reunión_ in Spanish)_, melon, interminable, inevitable, tropical, experimental, excursion_ (_excursión_ in Spanish)_, capital, chocolate, probable, conclusion_ (_conclusión_ in Spanish) _, doctor, director, festival, general, individual, nostalgia, panorama, television_ (_televisión_ in Spanish)_, perfume, total, similar, terror_ and_verbal._
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<!-- affiliate ads end -->
 ## Near-perfect English-Spanish cognates
 
  Did you know that about 90% of Spanish cognates have the same meaning in English? The rest of them are, obviously, false friends words. This means you have only a 10% chance of saying something embarrassing or awkward. That’s not too bad, isn’t it? Besides, after reading this article the percent will surely drop significantly. Even below 0 if you also start [learning Spanish with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4685&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4685?mother%5Flang=en%5Fus?target%5Flang=es&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4685?mother%5Flang=en%5Fus?target%5Flang=es) right now (wink wink).
@@ -88,6 +91,9 @@ thumbnail: https://thmb.techidaily.com/3cd047344d86e8920c72e515095d66dfd7e255dbc
 * activ**ate** and   _activ**ar**_
 
 ![english spanish cognates](https://edge.mondly.com/blog/wp-content/uploads/2020/04/english-spanigh-cognates-600x399.jpg "50+ Most Popular English-Spanish Cognates And False Cognates 3")
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  “Mommy, what are cognates?” by Josh Applegate©
 
@@ -119,6 +125,9 @@ thumbnail: https://thmb.techidaily.com/3cd047344d86e8920c72e515095d66dfd7e255dbc
 * calm and   _calm**ar**_
 * control and   _control**ar**_
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Spanish cognates that change “-ly” to “-mente”
 
 * absolute**ly** and   _absoluta**mente**_
@@ -132,6 +141,9 @@ thumbnail: https://thmb.techidaily.com/3cd047344d86e8920c72e515095d66dfd7e255dbc
 * complete**ly** and   _completa**mente**_
 * exact**ly** and   _exacta**mente**_
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Spanish-English False Friend Words
 
  The absolute trouble-makers, the creators of embarrassing situations, the rebels that don’t obey the rules are, undoubtedly, the false friend words. As already mentioned, these words may be similar but have completely meanings. So don’t let yourself be fooled by their appearance. Here’s a list of some of the most “dangerous” pairs of false friend words:
@@ -161,6 +173,9 @@ thumbnail: https://thmb.techidaily.com/3cd047344d86e8920c72e515095d66dfd7e255dbc
  Even experienced Spanish second-language speakers get headaches with this one. Although it looks like the English “large”,_largo_ actually means “long” in Spanish. Mind-twisting, I know.
 
 ![false cognates](https://edge.mondly.com/blog/wp-content/uploads/2020/04/false-cognates-600x400.jpg "50+ Most Popular English-Spanish Cognates And False Cognates 4")
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 
  “Haha! Gotcha!” by olio creative©
 
@@ -193,6 +208,10 @@ _Realizar_ in Spanish means “to do” or “to perform” and not “to realiz
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
 ## Speak Spanish in just 10 minutes a day
 
  All these funny little examples convinced you it’s high time you learned Spanish, didn’t they? Lucky for you, we have the perfect tool for learning Spanish: Mondly, the award-winning language learning app that makes language learning fun, fast and easy.
@@ -223,3 +242,61 @@ _Realizar_ in Spanish means “to do” or “to perform” and not “to realiz
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-correcting-audio-absence-in-obs-recordings-quickly/"><u>[New] 2024 Approved  Correcting Audio Absence in OBS Recordings Quickly</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-insta-growth-hacks-todays-essential-hashtags-guide-for-2024/"><u>[New] Insta Growth Hacks  Today's Essential Hashtags Guide for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-masterful-designers-top-insta-hlv-page-builders-for-2024/"><u>[New] Masterful Designers  Top Insta HLV Page Builders for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-quick-fixes-for-windows-11-photo-app-freezes/"><u>[New] Quick Fixes for Windows 11 Photo App Freezes</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-mastering-live-tv-access-a-top-ranked-list-review/"><u>[Updated] Mastering Live TV Access  A Top-Ranked List Review</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-proven-methods-for-twitter-brand-awareness-for-2024/"><u>[Updated] Proven Methods for Twitter Brand Awareness for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-vimeo-in-a-nutshell-the-video-sharing-experience-for-2024/"><u>[Updated] Vimeo in a Nutshell  The Video Sharing Experience for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-advanced-palette-tweaks-by-professionals/"><u>2024 Approved  Advanced Palette Tweaks by Professionals</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-exploring-the-best-5-book-promo-videos-for-authors/"><u>2024 Approved  Exploring the Best 5 Book Promo Videos for Authors</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-streamlined-webp-to-jpg-conversion-methods/"><u>2024 Approved  Streamlined WebP to JPG Conversion Methods</u></a></li>
+<li><a href="https://fox-access.techidaily.com/augmenting-learning-with-vr-for-2024/"><u>Augmenting Learning with VR for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/best-vivo-y100i-power-5g-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>Best Vivo Y100i Power 5G Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/connect-worlds-quickly-sharing-tiktoks-with-facebook/"><u>Connect Worlds Quickly  Sharing TikToks with Facebook</u></a></li>
+<li><a href="https://win-forum.techidaily.com/elevating-your-presence-on-major-social-platforms-tips-for-facebook-twitter-instagram-and-youtube/"><u>Elevating Your Presence on Major Social Platforms: Tips for Facebook, Twitter, Instagram & YouTube</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/eng-speaks-other-languages-a-lexical-mosaic/"><u>ENG Speaks Other Languages: A Lexical Mosaic</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/engaging-students-with-dynamic-spanish-learning/"><u>Engaging Students with Dynamic Spanish Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhance-your-language-learning-via-mondly/"><u>Enhance Your Language Learning via Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/entertain-edoardo-discover-20plus-authentic-italian-slang-words/"><u>Entertain Edoardo: Discover 20+ Authentic Italian Slang Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enunciate-elegance-tongue-twisters-for-improvement/"><u>Enunciate Elegance: Tongue Twisters for Improvement</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/eternal-savings-on-mondly-ultimate-plan/"><u>Eternal Savings on Mondly Ultimate Plan</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/european-and-brazilian-portuguese-key-features-showdown/"><u>European & Brazilian Portuguese: Key Features Showdown</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-online-avenues-for-flawless-lithuanian-learning/"><u>Explore Online Avenues for Flawless Lithuanian Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-porque-vs-por-que-a-linguistic-dive/"><u>Exploring 'Porque' Vs 'Por Que': A Linguistic Dive</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/exploring-all-windows-movie-maker-editions/"><u>Exploring All Windows Movie Maker Editions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-language-bonds-turkey-and-korea/"><u>Exploring Language Bonds: Turkey and Korea</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-the-distinctive-aspects-of-pt-buttons-worldwide/"><u>Exploring the Distinctive Aspects of PT Buttons Worldwide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressive-french-greetings-for-every-occasion-and-setting/"><u>Expressive French Greetings for Every Occasion & Setting</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/first-augmented-reality-language-app-with-speech-recognition/"><u>First Augmented Reality Language App With Speech Recognition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/first-impressions-count-indonesian-greeting-basics/"><u>First Impressions Count: Indonesian Greeting Basics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/first-steps-in-urdu-key-words-and-phrases-guide/"><u>First Steps in Urdu: Key Words & Phrases Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/focus-fluency-and-fast-learning-with-these-mental-exerciples/"><u>Focus, Fluency, and Fast Learning with These Mental Exerciples</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/foraying-into-the-realm-of-arabic-language/"><u>Foraying Into the Realm of Arabic Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-expression-excellence-mastering-the-enchante-salute/"><u>French Expression Excellence: Mastering the 'Enchanté' Salute</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-greetings-how-to-say-hello-in-french/"><u>French Greetings: How To Say Hello In French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-fan-to-fluent-korean-lessons-on-squid-game/"><u>From Fan to Fluent: Korean Lessons on Squid Game</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-latin-to-modern-expressions-romance-languages/"><u>From Latin to Modern Expressions: Romance Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-conversationalist-essential-chinese-greeting-skills/"><u>From Novice to Conversationalist: Essential Chinese Greeting Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-thespis-to-twitter-elizabethan-terms-today/"><u>From Thespis to Twitter: Elizabethan Terms Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-zero-to-bilingual-your-french-self-learning-plan/"><u>From Zero to Bilingual: Your French Self-Learning Plan</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fueling-dreams-with-johannes-honterus/"><u>Fueling Dreams with Johannes Honterus</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/future-proof-energy-solutions-elite-power-inverter-choices/"><u>Future-Proof Energy Solutions: Elite Power Inverter Choices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/galaxy-words-a-deep-dive-into-the-unique-linguistics-of-star-wars/"><u>Galaxy Words: A Deep Dive Into the Unique Linguistics of Star Wars</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-aufrichtige-bedauernsatze-sprechen/"><u>German: Aufrichtige Bedauernsätze Sprechen</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-everything-you-need-to-know-about-unlocked-apple-iphone-15-drfone-by-drfone-ios/"><u>In 2024, Everything You Need To Know About Unlocked Apple iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-frp-hijacker-by-hagard-download-and-bypass-your-xiaomi-redmi-note-12t-pro-frp-locks-by-drfone-android/"><u>In 2024, FRP Hijacker by Hagard Download and Bypass your Xiaomi Redmi Note 12T Pro FRP Locks</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-seamless-navigation-to-your-individual-playlist-library-on-youtube/"><u>In 2024, Seamless Navigation to Your Individual Playlist Library on YouTube</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/navigating-obstacles-learn-why-your-chatgpt-account-may-be-locked-and-what-steps-you-can-take-to-regain-access/"><u>Navigating Obstacles: Learn Why Your ChatGPT Account May Be Locked and What Steps You Can Take to Regain Access</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-is-vn-video-editor-pro-worth-the-download-a-comprehensive-review/"><u>New 2024 Approved Is VN Video Editor Pro Worth the Download? A Comprehensive Review</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/push-through-faulty-asus-camera-glitches/"><u>Push Through Faulty ASUS Camera Glitches</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/seamless-social-integration-twitter-and-facebook-connections-for-2024/"><u>Seamless Social Integration  Twitter & Facebook Connections for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/securing-your-work-top-10-photo-watermark-solutions/"><u>Securing Your Work  Top 10 Photo Watermark Solutions</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/simple-solutions-to-fix-android-systemui-has-stopped-error-for-vivo-g2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Simple Solutions to Fix Android SystemUI Has Stopped Error For Vivo G2 | Dr.fone</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/softbox-lights-guide-leading-brands-of-2024/"><u>SoftBox Lights Guide - Leading Brands of 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/eygnwmwn-glwttothpeio-gkreman/"><u>Ευγνώμων Γλωττοτηπειό Γκρεμάν</u></a></li>
+</ul></div>

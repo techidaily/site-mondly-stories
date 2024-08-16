@@ -1,7 +1,7 @@
 ---
 title: Cross-Border Easter Messages in Multiple Dialects
-date: 2024-07-12T09:04:29.645Z
-updated: 2024-07-13T09:04:29.645Z
+date: 2024-08-15T17:44:02.975Z
+updated: 2024-08-16T17:44:02.975Z
 tags:
   - speak
   - english
@@ -49,6 +49,15 @@ thumbnail: https://thmb.techidaily.com/c2e520b7fa2ea279c78f437762c6d9b1bb9afdd3b
 * Swedish –_Glad påsk!_
 * Turkish –_Paskalyanız kutlu olsun!_
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
+
+ It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
+
+  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
+
+  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<!-- affiliate ads end -->
 ## The origins of Easter
 
  Easter, much like [Christmas](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , has its origins in both Christianity and ancient pagan culture. Originally, it was a celebration of the spring equinox in pagan culture, but later it became a Christian holiday that commemorates the resurrection of Jesus Christ. Today, Easter is typically celebrated around the time of the Jewish Passover.
@@ -59,6 +68,10 @@ thumbnail: https://thmb.techidaily.com/c2e520b7fa2ea279c78f437762c6d9b1bb9afdd3b
 
  Christians celebrate Easter as a happy holiday because it fulfills the Old Testament prophecies and shows God’s plan to save everyone. Easter celebrates the Resurrection of Jesus Christ, which defeated death on the third day and gives hope for salvation. Christians believe that Jesus’ death paid for humanity’s sins and his Resurrection gives believers hope for their own resurrection.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<!-- affiliate ads end -->
 ### What day is Easter?
 
  Easter is a “movable feast”, which means that it does not occur on a fixed date every year. Instead, it is celebrated on the first Sunday following the first full moon after the spring equinox (which falls on March 21), according to the Gregorian calendar. This means Easter can be observed on a Sunday between March 22 and April 25\. However, the Eastern Orthodox Church follows a slightly different method of calculation, which is based on the Julian calendar. As a result, Easter in the Eastern Orthodox tradition can fall on any Sunday between April 4 and May 8.
@@ -86,11 +99,17 @@ thumbnail: https://thmb.techidaily.com/c2e520b7fa2ea279c78f437762c6d9b1bb9afdd3b
  While we all love the Easter bunny, we can’t help but wonder how it became a central symbol of the celebration of Jesus Christ’s resurrection.
 
 !['Easter bunny' by Gary Bendig©](https://edge.mondly.com/blog/wp-content/uploads/2023/03/easter-bunny-960x640.jpg "Happy Easter In Different Languages &Amp; Easter Traditions 3")
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 
  One theory suggests that the rabbit symbol comes from the pagan festival of_Eostre_ , which celebrated the goddess of fertility and spring. The rabbit was her animal symbol, representing fertility due to their high reproduction rates.
 
  In the 1700s, German immigrants reportedly brought over their tradition of an egg-laying hare called “Osterhase” or “Oschter Haws” from the Old Country to America. According to legend, children would create nests for the bunny to leave his colorful eggs. The custom spread across America, and over time, the Easter Bunny’s delivery of treats expanded to include chocolate and toys.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## What is the Easter egg hunt tradition?
 
  It might seem like a mistake to say that the Easter Bunny lays eggs since rabbits are mammals and give birth to live young. However, both rabbits and eggs are ancient symbols of fertility and renewal and have long been associated with the celebration of Easter. For Christians, Easter eggs have a special meaning as the egg symbol was likened to the tomb from which Christ arose. Decorating eggs for Easter has been a tradition since the 13th century when eggs were forbidden during Lent. By decorating eggs, people would make eating them on Easter Sunday even more special after the fasting period was over.
@@ -99,6 +118,18 @@ thumbnail: https://thmb.techidaily.com/c2e520b7fa2ea279c78f437762c6d9b1bb9afdd3b
 
  Nowadays, the Easter egg hunt has become a fun activity enjoyed by children and parents alike.
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Easter traditions around the world
 
 * In**Greece** , people dye the eggs only in red shades as red represents the blood of Jesus Christ.
@@ -110,6 +141,9 @@ thumbnail: https://thmb.techidaily.com/c2e520b7fa2ea279c78f437762c6d9b1bb9afdd3b
 * In**Haux, France** , locals serve a giant omelet in the town’s main square. The omelet is made of more than 15,000 eggs and feeds up to 1,000 people.
 * In**Vatican City** , on Good Friday, the Pope marks the Way of the Cross by beginning a procession at the Colosseum. Participants in the procession carry candles and stop 14 times along the way to represent the Stations of the Cross as they make their way around the amphitheater and up to Palatine Hill.
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Easter greetings in different countries
 
  What do you say on Easter? Eastern Orthodox, Oriental Orthodox, Catholic, and Anglican Christians use the [Paschal greeting](https://www.oca.org/orthodoxy/paschal-greetings) , also known as the Easter Acclamation. The greeting and reply are:
@@ -134,6 +168,9 @@ thumbnail: https://thmb.techidaily.com/c2e520b7fa2ea279c78f437762c6d9b1bb9afdd3b
 
  The Easter menu during La Semana Santa (‘The Holy Week’) includes_torrijas_ which is a kind of French toast and_potaje de vigilia_ which is a chickpea soup.
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 2\. French –_Joyeuses Pâques !_
 
 _Pâques_ (‘Easter’ in French) is an important holiday in France as families get together to celebrate and eat the traditional lamb cooked in the oven with Provençal herbs, garlic, cumin, and olive oil.
@@ -148,6 +185,9 @@ _Pâques_ (‘Easter’ in French) is an important holiday in France as families
 
  The Easter menu also included yeast pastries like_Hefezopf_ or_Osterkranz_ , which can be stuffed with nuts and dried fruits and eaten with butter or jam.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 4\. Italian –_Buona Pasqua!_
 
  Easter (_Pasqua_ in Italian) is a significant holiday in Italy, second only to Christmas. While the days before Easter include solemn masses, the holiday itself is a joyous celebration with many traditions._La Pasquetta_ , the day after Easter Sunday, is also a public holiday throughout Italy.
@@ -162,12 +202,18 @@ _Pâques_ (‘Easter’ in French) is an important holiday in France as families
 
 In both countries, people eat salt cod on Good Friday.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 ## 6\. Turkish –_Paskalyanız kutlu olsun!_
 
  Considering that 99 percent of the Turkish population is Muslim, it’s safe to say that Turkey doesn’t really celebrate Easter. However, some Christian Turkish citizens do.
 
  While you can say_Paskalyanız kutlu olsun_ to wish someone a Happy Easter in Turkish,_Paskalya Bayramınız kutlu olsun_ is the more “correct” version. Adding_“bayram”_ gives the meaning of having a holiday to celebrate.
 
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 7\. Romanian –_Paște Fericit!_
 
  Romania is a highly religious country, so Easter is a significant celebration for Romanians. During the three days of Easter (and even after), most locals will greet each other using the Paschal greeting_Hristos a Înviat – Adevărat a Înviat_ which means “Christ is Risen! – Truly He is Risen!”.
@@ -221,3 +267,50 @@ In both countries, people eat salt cod on Good Friday.
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-superior-online-speech-recorders/"><u>[New] Superior Online Speech Recorders</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-maximizing-visuals-a-step-by-step-guide-for-buying-a-4k-monitor/"><u>[Updated] 2024 Approved  Maximizing Visuals  A Step-by-Step Guide for Buying a 4K Monitor</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-exploring-the-extensive-features-of-logitechs-4k-cam/"><u>[Updated] In 2024, Exploring the Extensive Features of Logitech's 4K Cam</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/2022-start-fluently-with-a-95-off-language-quest/"><u>2022: Start Fluently with a 95%% Off Language Quest</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-freenoweb-cam-app-assessment-and-comparison-guide/"><u>2024 Approved  FreenoWeb Cam App Assessment & Comparison Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/9-keys-to-enhancing-your-expressiveness-in-speech/"><u>9 Keys to Enhancing Your Expressiveness in Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/building-blocks-mastering-russian-number-skills/"><u>Building Blocks: Mastering Russian Number Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/career-advantages-with-cognition-the-top-4-reasons-to-learn-languages-later-in-life/"><u>Career Advantages with Cognition: The Top 4 Reasons to Learn Languages Later in Life</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cognitive-enrichment-in-your-forties-top-reasons-to-learn-a-language-later-in-life/"><u>Cognitive Enrichment in Your Forties: Top Reasons to Learn a Language Later in Life</u></a></li>
+<li><a href="https://facebook.techidaily.com/customizing-child-data-settings-in-facebook-powered-messengers/"><u>Customizing Child Data Settings in Facebook-Powered Messengers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/digital-ease-the-fastest-path-to-proficient-czech-use/"><u>Digital Ease: The Fastest Path to Proficient Czech Use</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-the-future-with-a-lifetime-subscription-to-mondly-pro-at-discounted-prices/"><u>Embrace the Future with a Lifetime Subscription to Mondly Pro at Discounted Prices!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/engage-in-world-english-via-pearson-platforms/"><u>Engage in World English via Pearson Platforms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/english-spanish-cognates-and-false-cognates-over-50-of-the-most-common-words-and-phrases/"><u>English-Spanish Cognates And False Cognates: Over 50 Of The Most Common Words And Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhance-fluency-with-friends-through-vr-multilingualism/"><u>Enhance Fluency With Friends Through VR Multilingualism</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/evaluating-effectiveness-of-german-and-french-in-communication/"><u>Evaluating Effectiveness of German & French in Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exacting-education-pearsons-gsl-meets-mondly/"><u>Exacting Education: Pearson’s GSL Meets Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/high-priority-on-learning-abroad-languages/"><u>High Priority on Learning Abroad Languages</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-to-reset-a-samsung-tv/"><u>How to Reset a Samsung TV</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/identificacion-de-errores-en-colores-espanol/"><u>Identificación De Errores en Colores Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/improved-terms-and-conditions-declaration/"><u>Improved Terms & Conditions Declaration</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-vivo-t2x-5g-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock Vivo T2x 5G Phone without Google Account?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-telegram-spy-tools-on-realme-12plus-5g-for-parents-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Telegram Spy Tools On Realme 12+ 5G for Parents | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577142908-join-our-free-access-family-get-lifetime-mondly-pro-for-no-cost/"><u>Join Our Free Access Family - Get Lifetime Mondly Pro for No Cost !</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-path-resolution-of-2024/"><u>Language Learning Path - Resolution of 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-essential-japenese-greetings/"><u>Learn Essential Japenese Greetings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lifetime-savings-on-mondly-gold/"><u>Lifetime Savings on Mondly Gold</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/macaus-tri-lingual-melting-pot-a-closer-look/"><u>Macau's Tri-Lingual Melting Pot: A Closer Look</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-croatian-conversations-the-most-important-phrases-for-travelers/"><u>Mastering Croatian Conversations: The Most Important Phrases for Travelers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-at-expo-2020-dubai-the-future-of-language-learning/"><u>Mondly At Expo 2020 Dubai: The Future Of Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-teams-up-with-pearson-schooling-corp/"><u>Mondly Teams Up with Pearson Schooling Corp</u></a></li>
+<li><a href="https://extra-support.techidaily.com/next-moment-examination-alternate-strategies-for-2024/"><u>Next Moment Examination  Alternate Strategies for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/nine-tricks-to-turn-you-into-a-persuasive-english-orator/"><u>Nine Tricks to Turn You Into a Persuasive English Orator</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pronunciacion-de-colores-hispanoamericana/"><u>Pronunciación De Colores Hispanoamericana</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quickbangla-lessons-learn-with-just-10-minsday/"><u>QuickBangla Lessons: Learn with Just 10 Mins/Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/soviet-speech-the-common-thread-of-uk-and-russ/"><u>Soviet Speech: The Common Thread of Uk & Russ</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-a-local-in-17-key-spanish-phrases/"><u>Speak Like a Local in 17 Key Spanish Phrases</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/taking-over-ig-monthly-strategies-to-hit-the-1k-follower-goal/"><u>Taking Over IG  Monthly Strategies to Hit the 1K Follower Goal</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581476882-the-power-of-music-when-learning-a-new-language-sing-that-language/"><u>The Power Of Music When Learning A New Language – Sing That Language!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-three-asian-languages-quick-sort-and-keep-track/"><u>Top Three Asian Languages: Quick Sort & Keep Track</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/uniting-hearts-through-multilingual-understanding/"><u>Uniting Hearts Through Multilingual Understanding</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/which-is-more-beneficial-learning-german-or-french/"><u>Which Is More Beneficial? Learning German or French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/word-whizzes-discover-ultimate-term/"><u>Word Whizzes Discover Ultimate Term</u></a></li>
+</ul></div>

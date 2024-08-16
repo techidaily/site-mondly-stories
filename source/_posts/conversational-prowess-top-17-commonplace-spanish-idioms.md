@@ -1,7 +1,7 @@
 ---
 title: "Conversational Prowess: Top 17 Commonplace Spanish Idioms"
-date: 2024-07-12T09:11:00.654Z
-updated: 2024-07-13T09:11:00.654Z
+date: 2024-08-15T17:37:33.280Z
+updated: 2024-08-16T17:37:33.280Z
 tags:
   - speak
   - english
@@ -32,6 +32,9 @@ thumbnail: https://thmb.techidaily.com/01a181b2c169140bb50e16f105fae6a9a347e6262
 
 **English equivalent:** Although in English we often use the literal translation too, we are more familiar with the ‘official’ version of this saying:**“tell me who your friends are and I’ll tell you who you are”.** In addition,**“birds of a feather flock together”** has a similar meaning and can be used as an alternative.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<!-- affiliate ads end -->
 ### 2\. No hay mal que por bien no venga
 
 **Literal translation:** There’s no bad from which something good doesn’t come.
@@ -40,6 +43,9 @@ thumbnail: https://thmb.techidaily.com/01a181b2c169140bb50e16f105fae6a9a347e6262
 
  Absolutely the best Spanish saying you can use to encourage someone to be hopeful even when things are not great.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. Más vale tarde que nunca
 
 **English equivalent:** “Better late than never.”
@@ -50,6 +56,9 @@ thumbnail: https://thmb.techidaily.com/01a181b2c169140bb50e16f105fae6a9a347e6262
 
  “Valldemossa, Spain” by Patrick Baum©
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 4\. Cuando el río suena, agua lleva
 
 **Literal translation:** When the river makes noise, it’s carrying water.
@@ -72,6 +81,9 @@ thumbnail: https://thmb.techidaily.com/01a181b2c169140bb50e16f105fae6a9a347e6262
 
 Who wouldn’t prefer cakes over bread though?
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
 ### 7\. El hábito no hace al monje
 
 **Literal translation:** The habit doesn’t make the monk.
@@ -90,6 +102,9 @@ Who wouldn’t prefer cakes over bread though?
 
  But it’s not entirely absurd though. Think about the moment you break in a nutshell. If it’s empty, it made a loud noise for literally nothing.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<!-- affiliate ads end -->
 ### 9\. El que no arriesga, no gana
 
 **Literal translation:** The person who does not risk cannot win.
@@ -99,6 +114,9 @@ Who wouldn’t prefer cakes over bread though?
  Put your neck on the line, take a leap in the dark, sail close to the wind, or run the risk of doing something. It may be worth it.
 
 ![spanish saying](https://edge.mondly.com/blog/wp-content/uploads/2021/05/spanish-saying-960x640.jpg "17 Spanish Sayings That Will Make You Sound Like A Native 3")
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  “Barcelona, Spain” by Toa Heftiba©
 
@@ -110,6 +128,10 @@ Who wouldn’t prefer cakes over bread though?
 
  This saying illustrates the ironic absence of an object or virtue in a place where it should not be lacking.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ## General Spanish sayings with no direct English equivalent
 
  Now, let’s move on to a more tricky business: Spanish sayings with no direct English equivalents. To help you fully understand these, we’ll give you some examples.
@@ -128,6 +150,9 @@ _–_   _Estoy pasando por una mala racha. Tengo que terminar un informe para el
 
 _–_ _Oye, no te desesperes. Al mal tiempo, buena cara._ (“Hey, don’t despair. It’s important to remain positive even in difficult situations.”)
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. El que tiene boca se equivoca
 
 **Literal translation:** Whoever has a mouth makes mistakes.
@@ -144,6 +169,9 @@ _–_   _Me preocupa no haberlo hecho bien en el examen de ayer. Estaba realment
 
  “Torrevieja, Spain” by Ralph (Ravi) Kayden©
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. A quien madruga, Dios le ayuda
 
 **Literal translation:** God helps those who get up early.
@@ -158,6 +186,9 @@ _–_   _Me preocupa no haberlo hecho bien en el examen de ayer. Estaba realment
 
 _– ¡Buena suerte! No olvides que a quien madruga, Dios le ayuda._ (“Good luck! Don’t forget that God helps those who are determined to get the work done.”)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 4\. Como Pedro por su casa
 
 **Literal translation:** Like Pedro in his house.
@@ -174,6 +205,9 @@ _– Tu suegra lleva aquí un tiempo. Supongo que se siente cómoda aquí._ (“
 
 _– Si, como Pedro por su casa._ (“Yes, like Peter in his house.”)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Spanish sayings about animals
 
  Sayings about [animals are common in any language and Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) makes no exception. Here are some of the most common Spanish sayings about animals.
@@ -243,3 +277,36 @@ _– No es asunto tuyo. En boca cerrada no entran moscas._ (“It’s none of yo
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-from-freelance-filmmaker-to-full-time-financier-snapchat-storytelling/"><u>[New] From Freelance Filmmaker to Full-Time Financier  Snapchat Storytelling</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-mastering-your-content-on-vimeo-free-plus-or-pro/"><u>[New] Mastering Your Content on Vimeo  Free, Plus or Pro?</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-tactics-for-effective-whatsapp-broadcast-with-facebook-videos-for-2024/"><u>[New] Tactics for Effective WhatsApp Broadcast with Facebook Videos for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-understanding-zooms-participant-clusters-for-2024/"><u>[New] Understanding Zoom's Participant Clusters for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-unleashing-your-cellphones-potential-in-videography/"><u>[New] Unleashing Your Cellphone's Potential in Videography</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-expert-curated-selection-of-best-ps3-simulators-pc-edition/"><u>[Updated] 2024 Approved  Expert-Curated Selection of Best PS3 Simulators (PC Edition)</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-photosculptor-kit/"><u>2024 Approved  PhotoSculptor Kit</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/examining-ravpowers-24w-car-charger-powerful-yet-fragile-in-depth-review/"><u>Examining RAVPower's 24W Car Charger: Powerful Yet Fragile? - In Depth Review</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-gratitude-celebrating-across-borders/"><u>Global Gratitude: Celebrating Across Borders</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-location-on-facebook-dating-for-your-xiaomi-14-pro-drfone-by-drfone-virtual-android/"><u>How to Change Location On Facebook Dating for your Xiaomi 14 Pro | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-everything-to-know-about-apple-id-password-requirements-for-apple-iphone-6-by-drfone-ios/"><u>In 2024, Everything To Know About Apple ID Password Requirements For Apple iPhone 6</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/intrigue-italian-locals-20plus-vocabulary-guide/"><u>Intrigue Italian Locals - 20+ Vocabulary Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introduccion-al-control-de-reloj-digital-en-espanol/"><u>Introducción Al Control De Reloj Digital en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jumpstart-on-japanese-number-acumen-today/"><u>Jumpstart on Japanese Number Acumen Today!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-lineage-unraveling-brazilian-and-eu-linguistic-roots/"><u>Language Lineage: Unraveling Brazilian & EU Linguistic Roots</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/majority-language-of-israeli-culture/"><u>Majority Language of Israeli Culture?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-ukrainians-embrace-free-education/"><u>Mondly: Ukrainians, Embrace FREE Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/orientacion-para-comprender-relojes-espanoles/"><u>Orientación Para Comprender Relojes Españoles</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oxford-3000-modern-mobile-learning-for-vocabulary-growth/"><u>Oxford 3000: Modern, Mobile Learning for Vocabulary Growth</u></a></li>
+<li><a href="https://extra-information.techidaily.com/pair-audio-with-video-webspace-hub/"><u>Pair Audio with Video Webspace Hub</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/thank-you-in-chinese-xiexie-and-12-other-thank-you-chinese-phrases/"><u>Thank You in Chinese: Xièxiè and 12 Other Thank You Chinese Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-inspirational-journey-of-johannes-honterus/"><u>The Inspirational Journey of Johannes Honterus</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-power-of-music-when-learning-a-new-language-sing-that-language/"><u>The Power Of Music When Learning A New Language – Sing That Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-tapestry-of-english-threads-from-abroad/"><u>The Tapestry of English: Threads From Abroad</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/time-saving-tricks-for-language-proficiency/"><u>Time-Saving Tricks for Language Proficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/timing-your-way-to-linguistic-excellence/"><u>Timing Your Way to Linguistic Excellence</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/whispers-of-love-the-art-of-italian-pick-up-lines/"><u>Whispers Of Love: The Art Of Italian Pick Up Lines</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-invest-in-your-future-with-german/"><u>Why Invest in Your Future with German</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-word-weaving-into-english-dialects/"><u>Worldwide Word Weaving Into English Dialects</u></a></li>
+</ul></div>

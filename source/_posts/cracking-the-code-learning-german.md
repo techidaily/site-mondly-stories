@@ -1,7 +1,7 @@
 ---
 title: "Cracking the Code: Learning German"
-date: 2024-07-12T09:09:48.248Z
-updated: 2024-07-13T09:09:48.248Z
+date: 2024-08-15T17:38:45.238Z
+updated: 2024-08-16T17:38:45.238Z
 tags:
   - speak
   - english
@@ -34,6 +34,9 @@ thumbnail: https://thmb.techidaily.com/ec364dbb6168e683e422487379a99c7901eeab42b
 
 **Verdict: false assumption.**
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. German words are neverending
 
  Or so they seem. The German language is famous for having some of the [longest words in the world](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . But did you know that these words are, in fact, compounds? This means that German puts different words together to create a new word. In turn, English uses spaces or hyphens to make everything much easier to read. German, unfortunately, spells everything together. For example,_rindfleischetikettierungsüberwachungsaufgabenübertragungsgesetz_ (63 letters) means “law delegating beef label monitoring”.
@@ -42,6 +45,9 @@ thumbnail: https://thmb.techidaily.com/ec364dbb6168e683e422487379a99c7901eeab42b
 
 **Verdict: true assumption, but not as scary as it seems.**
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. Multiple genders AND formal vs. informal language
 
  Everyone who doesn’t speak English as a first language will probably groan at this one. The German language has three genders: feminine, masculine and neuter. But so do almost all the other languages. English just got lucky.
@@ -57,6 +63,10 @@ thumbnail: https://thmb.techidaily.com/ec364dbb6168e683e422487379a99c7901eeab42b
 
 !['German hard to learn' by Sebastian Herrmann©](https://edge.mondly.com/blog/wp-content/uploads/2022/04/german-hard-to-learn-960x640.jpg "Is German Hard To Study? 3")
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
+LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ### 4\. German grammar is too hard to learn
 
  It’s true that German grammar is a bit more complex, but German is a very logical language. Once you will understand the basics, you’ll have no problem going forward with the rest of the curriculum. In addition, due to the shared vocabulary, there are many English and German phrases that follow the same order. For example:
@@ -69,6 +79,9 @@ Doesn’t this sound familiar?
 
 **Verdict: false assumption.**
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Is German hard to learn?
 
  Yes and no. Compared to the very popular [Romance language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) Spanish and French, German is regarded as hard to learn. But in truth,**German is actually easier to learn than a lot of other languages.**
@@ -83,6 +96,9 @@ Doesn’t this sound familiar?
 
  Moreover, your progress can also be influenced by the learning method you’re using. While dry memorization techniques used to be the norm until a few years ago, nowadays learning German can be much more enjoyable.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
 ## Can German be easy to learn?
 
  Definitely yes. As complex as the German language may be, the language learning app [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6661&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6661?mother%5Flang=en%5Fus?target%5Flang=de&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6661?mother%5Flang=en%5Fus?target%5Flang=de) can make it fun and quite easy to learn. Millions of people have learned German with Mondly and they all agree that German is not as hard to learn as ‘advertised’.
@@ -94,6 +110,23 @@ Doesn’t this sound familiar?
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
+VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
+
+Key features:
+
+•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
+•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
+•	Visual effects, advanced color correction and trendy Instagram-like filters   
+•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
+•	Non-linear editing: edit several files with simultaneously 
+•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
+•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
+•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
+•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
+</a>
+<!-- affiliate ads end -->
 ### Study German in just 10 minutes a day
 
  Do you want to understand German fast? Get Mondly, the award-winning language learning app that will help you speak German from day 1.
@@ -126,3 +159,51 @@ Doesn’t this sound familiar?
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-cyberlink-vs-alternatives-the-ultimate-recording-showdown/"><u>[New] Cyberlink Vs. Alternatives  The Ultimate Recording Showdown</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-beginners-guide-to-spanish-numbers/"><u>A Beginner's Guide To Spanish Numbers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-global-guide-to-grateful-gestures-in-30-languages-156/"><u>A Global Guide to Grateful Gestures in 30 Languages (156)</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/aesthetic-all-stars-popular-instagram-filters/"><u>Aesthetic All-Stars  Popular Instagram Filters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/age-is-just-a-number-for-multilingualism-advantages/"><u>Age Is Just a Number for Multilingualism Advantages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ahoy-the-pirate-way-of-speaking/"><u>Ahoy, the Pirate Way of Speaking</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/alien-alphabets-decoding-the-scripts-in-star-wars-world/"><u>Alien Alphabets: Decoding the Scripts in Star Wars World</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/americas-favored-international-language-education-choices/"><u>America's Favored International Language Education Choices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprender-a-contar-el-tiempo-y-las-horas-en-espanol/"><u>Aprender a Contar El Tiempo Y Las Horas en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bengali-boost-learn-efficiently-live-linguistically/"><u>Bengali Boost: Learn Efficiently, Live Linguistically</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brazilian-vs-eu-portuguese-a-linguistic-comparison/"><u>Brazilian Vs. EU Portuguese: A Linguistic Comparison</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/break-barriers-learn-languages-anywhere-mondlys-vr-language-program/"><u>Break Barriers, Learn Languages Anywhere - Mondly's VR Language Program</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breakfast-brilliance-achieving-ideal-fried-egg-texture-worldwide-91-characters/"><u>Breakfast Brilliance: Achieving Ideal Fried Egg Texture Worldwide (91 Characters)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-cultures-with-appropriate-japanese-phrases/"><u>Bridging Cultures with Appropriate Japanese Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/capture-germanys-spoken-elegance-top-25-sayings-list/"><u>Capture Germany's Spoken Elegance: Top 25 Sayings List</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comparative-analysis-the-nuances-of-por-que-and-por-que/"><u>Comparative Analysis: The Nuances of Por Que and Por Qué</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581082585-conquer-a-new-tongue-in-minutes-start-with-slovak-today/"><u>Conquer a New Tongue in Minutes - Start with Slovak Today!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580131323-conquer-communication-with-unbeatable-linguistic-savings-this-year/"><u>Conquer Communication with Unbeatable Linguistic Savings This Year!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conversational-keys-to-italian-culture-top-10-welcoming-words/"><u>Conversational Keys to Italian Culture: Top 10 Welcoming Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cross-country-leader-apples-choice-of-the-day/"><u>Cross-Country Leader: Apple's Choice of the Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cross-cultural-chatter-korean-and-turkish/"><u>Cross-Cultural Chatter: Korean & Turkish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/culinary-secrets-cooking-the-best-fried-eggs-in-7-steps-93-characters/"><u>Culinary Secrets: Cooking the Best-Fried Eggs in 7 Steps (93 Characters)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultivating-bilingual-advocates-through-esl-programs/"><u>Cultivating Bilingual Advocates Through ESL Programs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-dialogues-the-turkish-korean-connection/"><u>Cultural Dialogues: The Turkish-Korean Connection</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/disentangling-por-que-from-por-que/"><u>Disentangling 'Por Qué' From 'Por Que'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/earths-linguistic-heavyweights-countdown-to-5/"><u>Earth's Linguistic Heavyweights: Countdown to #5</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/efficient-bokmaal-learning-quick-10-minute-fixes/"><u>Efficient Bokmaal Learning, Quick 10-Minute Fixes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/einfaches-deutsch-von-1-bis-100-zahlen-lernen/"><u>Einfaches Deutsch: Von 1 Bis 100 Zählen Lernen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevate-conversations-with-these-top-50-latin-quotables/"><u>Elevate Conversations with These Top 50 Latin Quotables</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embarking-on-the-most-suitable-new-language-learning-adventure/"><u>Embarking On The Most Suitable New Language Learning Adventure</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-open-your-iphone-12-mini-without-a-home-button-drfone-by-drfone-ios/"><u>How To Open Your iPhone 12 mini Without a Home Button | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581366510-huaweis-appgallery-unveils-new-player-mondly/"><u>Huawei's AppGallery Unveils New Player, Mondly!</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-vivo-v27-pro-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Vivo V27 Pro online without jailbreak</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-ios-compatible-ps2-games-simulator-roundup/"><u>In 2024, IOS-Compatible PS2 Games Simulator Roundup</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577153589-mastering-hindi-made-easy-top-8-reasons-why-choose-mondlys-online-platform/"><u>Mastering Hindi Made Easy: Top 8 Reasons Why Choose Mondly's Online Platform!</u></a></li>
+<li><a href="https://extra-support.techidaily.com/melodic-mambos-macaws-for-2024/"><u>Melodic Mambos Macaws for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581331881-mondly-by-pearson/"><u>Mondly by Pearson</u></a></li>
+<li><a href="https://review-topics.techidaily.com/mov-to-huawei-nova-y71-converter-convert-mov-files-for-huawei-nova-y71-by-aiseesoft-video-converter-play-mov-on-android/"><u>MOV to Huawei Nova Y71 converter-convert .mov files for Huawei Nova Y71</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/obs-studio-vs-fraps-performance-showdown-for-2024/"><u>OBS Studio vs Fraps  Performance Showdown for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/optimizedusageofyourwebcamrecorder-for-2024/"><u>OptimizedUsageOfYourWebcamRecorder for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577696916-quick-mastery-conquer-japanese-numbers-in-minutes/"><u>Quick Mastery: Conquer Japanese Numbers in Minutes!</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/sharing-vimeo-content-instagram-tips/"><u>Sharing Vimeo Content  Instagram Tips</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/the-ultimate-guide-to-controlling-sounds-on-windows-11/"><u>The Ultimate Guide to Controlling Sounds on Windows 11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579374633-year-end-savings-alert-save-big-on-mondly-pro/"><u>Year-End Savings Alert: Save Big on Mondly Pro!</u></a></li>
+</ul></div>

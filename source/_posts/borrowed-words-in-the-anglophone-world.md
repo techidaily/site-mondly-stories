@@ -1,7 +1,7 @@
 ---
 title: Borrowed Words in the Anglophone World
-date: 2024-07-12T09:05:13.788Z
-updated: 2024-07-13T09:05:13.788Z
+date: 2024-08-15T17:43:17.408Z
+updated: 2024-08-16T17:43:17.408Z
 tags:
   - speak
   - english
@@ -40,6 +40,14 @@ thumbnail: https://thmb.techidaily.com/d77d95aa486b91c6469c5ee9cc4e937e8d3af5aa5
 
  While the question may sound funny (“where did English come from?”), it is a popular inquiry among Google users for obvious reasons. After all, 1.3 billion people worldwide speak English either natively or as a second language. It’s only natural for them to be curious about the origin of the English language.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
+
+ Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
+
+ DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
+ PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ## English Words from Foreign Languages
 
 1. Guru (Sanskrit)
@@ -82,10 +90,16 @@ thumbnail: https://thmb.techidaily.com/d77d95aa486b91c6469c5ee9cc4e937e8d3af5aa5
 * **Loan translation,** also known as calque, which involves borrowing words, phrases, or expressions by translating their literal meanings into the borrowing language.
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "100+ English Words Borrowed From Other Languages 5")
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
+<!-- affiliate ads end -->
 
 ##### Improve your English fast 🚀
 
  With Mondly, English mastery is at your fingertips – and in your native tongue. Start today ![Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-9827&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-9827%26mt%3D8)
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 
 ## French loanwords: English words that are actually French
 
@@ -137,6 +151,9 @@ thumbnail: https://thmb.techidaily.com/d77d95aa486b91c6469c5ee9cc4e937e8d3af5aa5
 
  Unlike French loanwords which have been adapted into British English, most of the**Spanish loanwords entered English via the North American English route.** Cultural exchanges between [Spanish-speaking](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and English-speaking communities led to an influx of loanwords related to food and music in particular. For example, words like “guacamole”, “salsa” and “piñata” have been borrowed into English from Spanish due to the popularity of the Mexican culture in the United States.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Italian loanwords: English words that are actually Italian
 
 | Zucchini  |
@@ -165,6 +182,9 @@ thumbnail: https://thmb.techidaily.com/d77d95aa486b91c6469c5ee9cc4e937e8d3af5aa5
 
  Thanks to Italy’s cultural influence throughout history, especially during the Renaissance period, many languages borrowed its words. Italian words related to art, music, architecture and cuisine have an especially high predominance in the English vocabulary.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## German loanwords: English words that are actually German
 
 | Pretzel      |
@@ -189,6 +209,9 @@ thumbnail: https://thmb.techidaily.com/d77d95aa486b91c6469c5ee9cc4e937e8d3af5aa5
 
  Some of the first German words were borrowed into English during the interactions between Germanic-speaking tribes and English-speaking communities in early medieval Europe. Words related to everyday life, family, and community were among the earliest borrowings. Later, thanks to Germany’s influence in various fields, English borrowed German words related to science and technology, music, philosophy, literature and engineering.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Understanding the Size of the English Vocabulary
 
  How many words are there in English? Many sources agree that**the English language consists of roughly 470,000 words.** However, most linguists advise to take that with a pinch of salt. While some words have become obsolete, new additions are always making their way into the English vocabulary, so it’s difficult to put our finger on an exact number. Then, there’s also the question of different variations of a single word like “go”, “went”, “gone”. Do we count that as a single word or as three separate ones?
@@ -250,3 +273,40 @@ Coming Soon
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-filming-made-simple-steps-for-pcs-iphones-and-macbooks/"><u>[New] Filming Made Simple  Steps for PCs, iPhones & MacBooks</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-bite-size-broadcasting-battle-which-platform-dominates-in-shorter-videos/"><u>[New] In 2024, Bite-Size Broadcasting Battle  Which Platform Dominates in Shorter Videos?</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-facebook-video-downloader-winmacosmobile-power-up/"><u>2024 Approved  Facebook Video Downloader  Win/macOS/Mobile Power-Up</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-how-the-lg-ultrauhd-49-tv-model-um7n-stacks-up-in-budget-friendly-4k-viewing-experience/"><u>Discover How the LG UltraUHD 49 TV Model UM7n Stacks Up in Budget-Friendly 4K Viewing Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-love-languages-discovering-more-i-love-you-words/"><u>Global Love Languages: Discovering More 'I Love You' Words</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-nokia-g22-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Nokia G22? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-oneplus-nord-ce-3-lite-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For OnePlus Nord CE 3 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/innovating-intelligence-tomorrows-tools-for-today-writers/"><u>Innovating Intelligence: Tomorrow's Tools for Today' Writers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/intoxicating-introductions-from-francophone-lovers/"><u>Intoxicating Introductions From Francophone Lovers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/japans-linguistic-gateway-free-online-tools-for-self-learning/"><u>Japan's Linguistic Gateway: Free Online Tools for Self-Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leveraging-internet-tools-best-practices-for-language-learning/"><u>Leveraging Internet Tools: Best Practices for Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-social-interactions-in-a-new-world-essentials-of-latam-languages/"><u>Mastering Social Interactions in a New World: Essentials of LatAm Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-spanish-greetings-10-essential-phrases/"><u>Mastering Spanish Greetings: 10 Essential Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-kids-and-parental-control-a-2017-google-play-gem/"><u>Mondly Kids & Parental Control: A 2017 Google Play Gem</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/open-doors-with-linguistic-skills/"><u>Open Doors with Linguistic Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pasos-simples-para-aprender-a-leer-el-tiempo-en-espanol/"><u>Pasos Simples Para Aprender a Leer El Tiempo en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/persian-language-heritage-and-its-learning-advantages/"><u>Persian Language Heritage & Its Learning Advantages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/predominant-language-studies-abroad-from-the-states/"><u>Predominant Language Studies Abroad From the States</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/pro-filmmaking-lenses-the-ten-most-critical-choices-for-2024/"><u>Pro Filmmaking Lenses  The Ten Most Critical Choices for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/progopro-series-camera-comparison-for-2024/"><u>ProGoPro Series Camera Comparison for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-latvian-language-drills-10-minutesday/"><u>Quick Latvian Language Drills, 10 Minutes/Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-italian-voyagers-handbook-key-expressions-and-vocabulary-guide/"><u>The Italian Voyager’s Handbook: Key Expressions and Vocabulary Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-simplicity-of-babels-next-generation-learners/"><u>The Simplicity of Babel's Next Generation Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-list-of-multilingual-movie-magic/"><u>The Ultimate List of Multilingual Movie Magic</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/things-you-should-know-when-unlocking-total-wireless-of-apple-iphone-14-pro-max-drfone-by-drfone-ios/"><u>Things You Should Know When Unlocking Total Wireless Of Apple iPhone 14 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/tricks-to-turn-off-youtube-videos-without-compromise-for-2024/"><u>Tricks to Turn Off YouTube Videos Without Compromise for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/triple-the-talent-essential-brain-workouts-to-master-new-tongues/"><u>Triple the Talent: Essential Brain Workouts to Master New Tongues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-farsis-past-and-modern-day-advantages/"><u>Unlocking Farsi’s Past and Modern-Day Advantages</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-2024-approved-create-stunning-animations-with-these-12-free-tools-for-windows-and-mac/"><u>Updated 2024 Approved Create Stunning Animations with These 12 Free Tools for Windows and Mac</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/valkommen-till-sverige-svensk-visa/"><u>Välkommen Till Sverige: Svensk Visa</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/virtual-chatrooms-practice-spanish-mingle-socially/"><u>Virtual Chatrooms: Practice Spanish, Mingle Socially</u></a></li>
+<li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>Which is the Best Fake GPS Joystick App On Lenovo ThinkPhone? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-learners-forum-at-bett-2022/"><u>Worldwide Learners' Forum at BETT 2022</u></a></li>
+</ul></div>

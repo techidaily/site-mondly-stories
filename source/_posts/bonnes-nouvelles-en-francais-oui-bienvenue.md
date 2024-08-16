@@ -1,7 +1,7 @@
 ---
 title: "Bonnes Nouvelles en Français: Oui, Bienvenue"
-date: 2024-07-12T09:06:59.345Z
-updated: 2024-07-13T09:06:59.345Z
+date: 2024-08-15T17:41:32.734Z
+updated: 2024-08-16T17:41:32.734Z
 tags:
   - speak
   - english
@@ -48,12 +48,18 @@ thumbnail: https://thmb.techidaily.com/b07f8aafe5ebbf14ba4a69b2b5bb7f9ec0a78d9ab
 
  “Strasbourg, France” by Patrick Robert Doyle©
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ## 2\. The informal “you’re welcome”:_je t’en prie_
 
  Like_‘de rien’_ , which is certainly the most casual way to say you’re welcome in French, ‘_je t’en prie’_ is another informal way to respond to someone who expressed their gratitude towards you.
 
  It is most common amongst very close friends and family members. This particular form is most appropriate when you want to express a higher level of gratitude than_‘de rien’_ , but with somebody close to you, with whom your relationship is casual.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### The literal translation of_‘je t’en prie’_
 
  Essentially, the literal translation of ‘je t’en prie’ is ‘I pray you it’. Don’t look too far into this – it certainly doesn’t translate as such to French speakers!
@@ -70,6 +76,9 @@ thumbnail: https://thmb.techidaily.com/b07f8aafe5ebbf14ba4a69b2b5bb7f9ec0a78d9ab
 
  This should make_‘je vous en prie’_ nice and easy to remember. Just be careful not to use it with close friends. Using_‘vous’_ will sound unnatural if you are in close company. Likewise, always use this version of you’re welcome in French if you are speaking with somebody you do not know, no matter their level of seniority.
 
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### The literal translation of_‘je vous en prie’_
 
  Again, the literal translation of ‘je vous en prie’ is ‘I pray you it’. The important thing to remember here is not the literal translation, but when exactly you should use_‘vous’_ instead of_‘tu’_ .
@@ -85,6 +94,9 @@ thumbnail: https://thmb.techidaily.com/b07f8aafe5ebbf14ba4a69b2b5bb7f9ec0a78d9ab
  Notice that in the example above, our speakers are clearly in a shop. They use the formal ‘vous’ as they do not know each other.
 
 ![you're welcome](https://edge.mondly.com/blog/wp-content/uploads/2021/05/youre-welcome-960x640.jpg "4 Popular Ways To Say You’re Welcome In French 3")
+<!-- affiliate ads begin -->
+<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  “Southern France, Toulouse” by DAT VO©
 
@@ -112,6 +124,9 @@ Example:
 
  Furthermore,_‘avec plaisir’_ is what you should use if you travel to southern France and want to sound like a local. It literally translates to “with pleasure”, but it is the French correspondent of “my pleasure”.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<!-- affiliate ads end -->
 ## Which version of you’re welcome in French should you use and when?
 
  As with any language, it’s important to understand which form of an expression to use in the right context in order to avoid embarrassment in certain situations.
@@ -135,6 +150,9 @@ _Th_ _is post is delivered to you by James A. Smith._
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<!-- affiliate ads end -->
 ### Speak French fluently in just 10 minutes a day
 
  **Do you want to [speak French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) like a fluent speaker?** Get Mondly, the award-winning language learning app that will help you speak French as if you were Paris-born.
@@ -163,3 +181,69 @@ _Th_ _is post is delivered to you by James A. Smith._
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-mp3-conversion-hack-youtube-to-macs-mp3-tutorial/"><u>[New] 2024 Approved  MP3 Conversion Hack  YouTube to Mac's MP3 Tutorial</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-the-ultimate-checklist-for-fpv-drone-propeller-selection/"><u>[New] 2024 Approved  The Ultimate Checklist for FPV Drone Propeller Selection</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-cracking-the-code-calculating-your-income-from-youtubes-cpm-for-2024/"><u>[New] Cracking the Code  Calculating Your Income From YouTube's CPM for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-snapshot-strategies-maintaining-consistent-snapstreaks/"><u>[New] In 2024, Snapshot Strategies  Maintaining Consistent Snapstreaks</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-techniques-to-deactivate-auto-played-podcast-suggestions-in-spotify/"><u>[New] Techniques to Deactivate Auto-Played Podcast Suggestions in Spotify</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-the-sound-solution-for-twitters-video-content/"><u>[New] The Sound Solution for Twitter's Video Content</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-mastering-mac-screenshots-and-screen-recording/"><u>[Updated] 2024 Approved  Mastering Mac Screenshots & Screen Recording</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-how-to-edit-youtube-videos-by-the-youtube-video-editor/"><u>[Updated] How to Edit Youtube Videos by the YouTube Video Editor</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-instagrams-finest-frames-iphone-plus-android-edition/"><u>[Updated] In 2024, Instagram's Finest Frames  IPhone + Android Edition</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-instructor-friendly-screen-recording-software-guide-for-2024/"><u>[Updated] Instructor-Friendly Screen Recording Software Guide for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-angle-adjustments-the-instagram-guide-for-perfecting-photo-flips/"><u>2024 Approved  Angle Adjustments  The Instagram Guide for Perfecting Photo Flips</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-recovery-of-windows-photo-viewer-functionality-on-win10/"><u>2024 Approved  Recovery of Windows Photo Viewer Functionality on Win10</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-transfer-music-from-itel-a05s-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Transfer Music from Itel A05s to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/6-top-danish-features-for-non-native-language-enthusiasts/"><u>6 Top Danish Features for Non-Native Language Enthusiasts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-tribute-to-lifelong-daily-learning/"><u>A Tribute to Lifelong Daily Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accents-around-the-globe-from-cockney-to-kangaroo-english/"><u>Accents Around the Globe: From Cockney to Kangaroo-English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/assessing-the-practicality-between-german-and-french/"><u>Assessing the Practicality Between German & French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/best-practices-in-language-education-software/"><u>Best Practices in Language Education Software</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-language-gaps-oculus-quests-latest-update-with-mondly/"><u>Bridging Language Gaps: Oculus Quest's Latest Update with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprendre-lanatomie-de-base-les-segments-corporels-en-francais/"><u>Comprendre L'Anatomie De Base : Les Segments Corporels en Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/continental-verbal-prowess-leading-triad-of-asian-languages/"><u>Continental Verbal Prowess: Leading Triad of Asian Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cut-through-red-tape-easy-to-access-latino-schools/"><u>Cut Through Red Tape: Easy-to-Access Latino Schools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/delving-into-the-world-of-chinese-social-communication/"><u>Delving Into the World of Chinese Social Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dialogue-dive-plunge-into-global-conversations-virtually/"><u>Dialogue Dive: Plunge Into Global Conversations Virtually</u></a></li>
+<li><a href="https://fox-info.techidaily.com/dji-robomaster-s1-review-a-super-fun-tank-drone-with-coding-and-battling/"><u>DJI RoboMaster S1 Review: A Super-Fun Tank Drone with Coding and Battling</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/echoes-within-formats-mp4s-guide-to-effortless-audio-retrieval-techniques/"><u>Echoes Within Formats MP4s Guide to Effortless Audio Retrieval Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/edunets-voyage-linking-teachers-globally/"><u>Edunet's Voyage: Linking Teachers Globally</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ernsthaftes-erlernen-von-deutschen-tagen-der-woche/"><u>Ernsthaftes Erlernen Von Deutschen Tagen Der Woche</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expertly-guiding-through-english-grammars-maze-9-essential-hints-from-an-esl-maestro/"><u>Expertly Guiding Through English Grammar's Maze: 9 Essential Hints From an ESL Maestro</u></a></li>
+<li><a href="https://win-dash.techidaily.com/find-and-download-updated-sound-driver-packs-compatible-with-windows-os/"><u>Find and Download Updated Sound Driver Packs Compatible with Windows OS</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fluency-for-later-life-why-pickup-a-new-tongue-after-age-50/"><u>Fluency for Later Life: Why Pickup a New Tongue After Age 50?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/forecasting-the-best-language-for-me-next/"><u>Forecasting The Best Language For Me Next?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hearken-hearth-tracing-viking-speech-patterns/"><u>Hearken, Hearth: Tracing Viking Speech Patterns</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-to-diagnose-and-fix-problems-preventing-mozilla-thunderbird-from-starting/"><u>How to Diagnose and Fix Problems Preventing Mozilla Thunderbird From Starting</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-nokia-c12-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Nokia C12 Quickly? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-deleted-photos-on-poco-x6-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Retrieve  deleted photos on Poco X6</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577334805-how-to-say-i-love-you-in-hungarian/"><u>How to Say I Love You in Hungarian</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-comprehensive-breakdown-of-polarr-photo-editors-features/"><u>In 2024, Comprehensive Breakdown of Polarr Photo Editor's Features</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-digital-divas-top-ten-gamers-on-youtube/"><u>In 2024, Digital Divas  Top Ten Gamers on YouTube</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-on-nokia-c110-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location on Nokia C110 | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-navigating-windows-movie-maker-for-efficient-video-projects-in-windows-8/"><u>In 2024, Navigating Windows Movie Maker for Efficient Video Projects in Windows 8</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579969714-jumpstart-your-urdu-learning-now/"><u>Jumpstart Your Urdu Learning Now!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lackluster-experience-in-godfall-the-first-and-only-sony-ps5-game-struggles-to-impress/"><u>Lackluster Experience in Godfall: The First and Only Sony PS5 Game Struggles to Impress</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-triumphs-earned-a-place-among-top-10-ed-tech-prowess/"><u>Mondly Triumphs, Earned a Place Among Top 10 Ed-Tech Prowess</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-simple-guide-to-fcp-x-how-to-add-effects-in-3-steps/"><u>New 2024 Approved Simple Guide to FCP X How To Add Effects in 3 Steps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-era-of-filters-mondly-and-pearson-unite/"><u>New Era of Filters: Mondly and Pearson Unite</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/one-of-the-best-mondly-for-kids-on-google-play/"><u>One Of The Best: Mondly for Kids on Google Play</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/online-learning-learn-bengali-daily/"><u>Online Learning: Learn Bengali Daily</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/overwatch-video-capture-quick-simple-and-effective-for-2024/"><u>Overwatch Video Capture – Quick, Simple, and Effective for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pioneering-proto-dutch-a-linguistic-map/"><u>Pioneering Proto-Dutch: A Linguistic Map</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-urdu-skills-just-10-minsday/"><u>Quick Urdu Skills, Just 10 Mins/Day!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/selecting-your-preferred-future-linguistic-pursuit/"><u>Selecting Your Preferred Future Linguistic Pursuit</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/six-intriguing-factors-to-enroll-in-mondly-for-arabic-learning/"><u>Six Intriguing Factors to Enroll in Mondly for Arabic Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-love-no-matter-the-language/"><u>Speak Love, No Matter the Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-mastery-decoding-hard-to-pronounce-words/"><u>Speaking Mastery: Decoding Hard-to-Pronounce Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sunrise-speak-a-guide-to-mornings-in-10-cultures/"><u>Sunrise Speak: A Guide to Mornings in 10 Cultures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essentials-of-pinyin-alphabet/"><u>The Essentials of Pinyin Alphabet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-corporate-communication-with-elite-language-apps/"><u>Transform Corporate Communication with Elite Language Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-lives-with-arabic-and-mondly-top-6-benefits-await/"><u>Transform Lives with Arabic & Mondly: Top 6 Benefits Await!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukrainian-russian-relations-through-language/"><u>Ukrainian-Russian Relations Through Language</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On Lenovo ThinkPhone? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-witchcraft-and-trick-or-treating/"><u>Worldwide Witchcraft and Trick-or-Treating</u></a></li>
+</ul></div>

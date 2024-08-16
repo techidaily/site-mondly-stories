@@ -1,7 +1,7 @@
 ---
 title: British Spoken Tongue vs American
-date: 2024-07-12T09:06:48.909Z
-updated: 2024-07-13T09:06:48.909Z
+date: 2024-08-15T17:41:42.410Z
+updated: 2024-08-16T17:41:42.410Z
 tags:
   - speak
   - english
@@ -63,6 +63,9 @@ thumbnail: https://thmb.techidaily.com/faf305db1bff9ec7cfb8fafeb68d0a5e6478101d4
 
  Previous  Next
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Spellings differences: is it “colour” or “color”?
 
  That’s simple! “Colour” is the British spelling and “color” is the American spelling. Always remember that, when it comes to spelling, American English uses a simplified version. The explanation goes back to 1828 when Noah Webster wrote the first American dictionary –_An American Dictionary of the English Language._ Webster said he chose alternative spellings that were already in use in the United States “on such grounds as simplicity, analogy or etymology”.
@@ -95,18 +98,27 @@ thumbnail: https://thmb.techidaily.com/faf305db1bff9ec7cfb8fafeb68d0a5e6478101d4
 
  Although spelling, accent, and vocabulary differences are the most notorious distinctions, American English and British English are divergent in some [grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) matters as well.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Collective nouns
 
  In American English, collective nouns such as “band”, “team”, “family” or “crew” are considered plural. In contrast, British English considers collective nouns either singular or plural, but more often plural as a way to emphasize the members of the group.
 
  Thus, while**“The band is playing”** in the US, in the UK**“The band are playing”** . Likewise, if I’m in the US,**“My team is winning”** . But if I’m in the UK,**“My team are winning”** .
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<!-- affiliate ads end -->
 ### Learned or learnt?
 
 **Learned** and**learnt** are both the correct past participle and past tense forms of the verb “to learn”. Easily overlooked in speech, but much more obvious in writing, this subtle difference addresses verbs.
 
  Many verbs that are irregular in the past tense in British English (_dreamt, burnt, learnt_), have been made regular in American English (_dreamed, burned, learned_).
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### Got or gotten?
 
  In the UK, the past participle of “get” – “gotten” – is considered archaic and was replaced with “got” some time ago. Americans, on the other hand, still use “gotten” as the past participle of “get”.
@@ -126,6 +138,9 @@ thumbnail: https://thmb.techidaily.com/faf305db1bff9ec7cfb8fafeb68d0a5e6478101d4
  In British English, “at” is generally used in relation to time and place. In contrast, in American English, “on” is used in relation to time and “in” is used in relation to place.
 
 ![british american english](https://edge.mondly.com/blog/wp-content/uploads/2020/06/british-american-english-600x600.jpg "British English Vs American English Differences: Spelling, Pronunciation And More 3")
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 
  British English vs American English
 
@@ -135,6 +150,9 @@ thumbnail: https://thmb.techidaily.com/faf305db1bff9ec7cfb8fafeb68d0a5e6478101d4
 
  Additionally, in Britain, you are likely to hear “needn’t” a lot and in the US not at all. In its place, Americans use “don’t need to”.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## British accent vs American accent
 
  The biggest difference between British English and American English is, undoubtedly, the accent. The reason why these two variations sound so different is known as rhotacism, the change of a particular consonant into a rhotic consonant. In this case, the consonant is “r”.
@@ -184,3 +202,65 @@ thumbnail: https://thmb.techidaily.com/faf305db1bff9ec7cfb8fafeb68d0a5e6478101d4
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-android-audio-recording-tips-no-root-required/"><u>[New] Android Audio Recording Tips - No Root Required</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-exhaustive-explanation-unveiling-the-google-podcasts-app/"><u>[New] Exhaustive Explanation  Unveiling the Google Podcasts App</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-from-snapshots-to-spectacular-exploring-polarrs-edits-deeply/"><u>[New] From Snapshots to Spectacular  Exploring Polarr's Edits Deeply</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-a-compreshift-guide-to-creating-profitable-and-engaging-youtube-collaborations/"><u>[New] In 2024, A Compreshift Guide to Creating Profitable & Engaging YouTube Collaborations</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-breaking-barriers-making-your-post-a-sensation-on-fb/"><u>[Updated] 2024 Approved  Breaking Barriers  Making Your Post a Sensation on FB</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-the-essential-guide-to-du-recorder-functionality/"><u>[Updated] In 2024, The Essential Guide to Du Recorder Functionality</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-the-ultimate-cheat-sheet-inserting-vimeo-videos-into-slides/"><u>[Updated] In 2024, The Ultimate Cheat Sheet  Inserting Vimeo Videos Into Slides</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-mastering-quick-retrieval-of-hidden-reddit-threads/"><u>2024 Approved  Mastering Quick Retrieval of Hidden Reddit Threads</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/5-common-misconceptions-about-learning-multiple-languages/"><u>5 Common Misconceptions About Learning Multiple Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/9-impactful-gains-from-linguistic-diversification/"><u>9 Impactful Gains From Linguistic Diversification</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-chronicle-of-linguistic-development-over-time/"><u>A Chronicle of Linguistic Development Over Time</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-guide-to-conversational-russian-essentials-for-adventurers/"><u>A Guide to Conversational Russian Essentials for Adventurers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-world-within-reach-mondly-languages-two-year-dream-quest/"><u>A World Within Reach: Mondly Languages, Two-Year Dream Quest</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/abschiedsbittelemente-fur-deutschsprachige-beziehrangelegenheiten/"><u>Abschiedsbittelemente Für Deutschsprachige Beziehrangelegenheiten</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/asias-most-commonly-used-languages-efficient-backup/"><u>Asia’s Most Commonly Used Languages: Efficient Backup</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ausdauer-der-sprache-deutsche-grusse-abseits-von-hallo/"><u>Ausdauer Der Sprache: Deutsche Grüße Abseits Von Hallo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beat-the-wait-with-daily-slovak-learning-sessions-just-10-minutes-each/"><u>Beat the Wait with Daily Slovak Learning Sessions, Just 10 Minutes Each!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/become-a-linguistic-pro-mondly-clinches-the-title/"><u>Become a Linguistic Pro: Mondly Clinches the Title</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/belgiums-polyglot-population-speaks-which/"><u>Belgium's Polyglot Population Speaks Which?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beyond-the-fourth-decade-motivating-reasons-for-pursuing-new-linguistic-skills-post-forty/"><u>Beyond the Fourth Decade: Motivating Reasons for Pursuing New Linguistic Skills Post-Forty</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/break-language-barriers-oculus-quest-adds-mondly-to-its-app-suite/"><u>Break Language Barriers: Oculus Quest Adds Mondly to Its App Suite</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breakthrough-tips-in-english-grammar-from-an-experienced-esl-orator/"><u>Breakthrough Tips in English Grammar From an Experienced ESL Orator</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-cultures-with-germanys-essential-idioms-top-25/"><u>Bridging Cultures with Germany's Essential Idioms (Top 25)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-cultures-with-japenese-on-calls/"><u>Bridging Cultures with Japenese On-Calls</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/catalan-catch-up-minutes-a-day-words-gained/"><u>Catalan Catch-Up: Minutes a Day, Words Gained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/celebrating-1500-free-daily-lessonsback-buttonfilter-button/"><u>Celebrating 1500 Free Daily LessonsBack ButtonFilter Button</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/charisma-unleashed-essential-flirtatious-quips-and-one-liners/"><u>Charisma Unleashed: Essential Flirtatious Quips and One-Liners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/charting-the-course-learning-german-from-scratch/"><u>Charting the Course: Learning German From Scratch</u></a></li>
+<li><a href="https://win-dash.techidaily.com/complete-setup-instructions-for-the-epson-perfection-v39-scanner-on-recent-windows-versions/"><u>Complete Setup Instructions for the Epson Perfection V39 Scanner on Recent Windows Versions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/connect-worldwide-mondlys-exceptional-language-app/"><u>Connect Worldwide: Mondly's Exceptional Language App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/contrasting-vernaculars-ukraine-vs-russian/"><u>Contrasting Vernaculars: Ukraine Vs Russian</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conversalab-interactive-language-learning-experience/"><u>ConversaLab: Interactive Language Learning Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cross-border-easter-messages-in-multiple-dialects/"><u>Cross-Border Easter Messages in Multiple Dialects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-liaisons-techniques-for-effective-cross-border-collaboration/"><u>Cultural Liaisons: Techniques for Effective Cross-Border Collaboration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daily-routine-learning-urdu-in-moments/"><u>Daily Routine: Learning Urdu in Moments</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-africas-multilingual-dna/"><u>Decoding Africa's Multilingual DNA</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-russian-alphabets-for-pristine-speech/"><u>Decoding Russian Alphabets for Pristine Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-turkish-korean-communication-riddles/"><u>Decoding Turkish-Korean Communication Riddles</u></a></li>
+<li><a href="https://windows11.techidaily.com/deletion-directives-for-software-in-windows-11-the-quick-way-116-chars/"><u>Deletion Directives for Software in Windows 11: The Quick Way (116 Chars)</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/destiny-2-players-rejoice-as-the-persistent-error-code-centipede-is-now-solved/"><u>Destiny 2 Players Rejoice as the Persistent Error Code 'Centipede' Is Now Solved</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deutsche-verantwortungsausdrucke-lernen/"><u>Deutsche Verantwortungsausdrücke Lernen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-a-new-dimension-of-learning-languages-with-mondly/"><u>Dive Into a New Dimension of Learning Languages with Mondly</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-itel-a05s-device-sim-by-drfone-android/"><u>Easily Unlock Your Itel A05s Device SIM</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevating-usability-mondly-and-pearsons-buttonjunction/"><u>Elevating Usability: Mondly & Pearson's ButtonJunction</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-language-independence-with-no-cost-japanese-resources/"><u>Embrace Language Independence with No Cost Japanese Resources</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/empowering-ukraines-citizens-through-learning/"><u>Empowering Ukraine's Citizens Through Learning</u></a></li>
+<li><a href="https://techidaily.com/how-to-hard-reset-samsung-galaxy-s23-without-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Hard Reset Samsung Galaxy S23 Without Password | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-a-thorough-insight-into-androids-lightroom-application/"><u>In 2024, A Thorough Insight Into Android's Lightroom Application</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-beyond-basics-advanced-imaging-and-video-with-hero5-black/"><u>In 2024, Beyond Basics  Advanced Imaging & Video with Hero5 Black</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-obs-studio-and-skype-a-perfect-duo-explained/"><u>In 2024, OBS Studio & Skype  A Perfect Duo Explained</u></a></li>
+<li><a href="https://review-topics.techidaily.com/mov-playback-issues-on-motorola-moto-g-5g-2023-by-aiseesoft-video-converter-play-mov-on-android/"><u>MOV playback issues on Motorola Moto G 5G (2023)</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/premier-tech-list-top-17-software-for-photo-background-eradication-for-2024/"><u>Premier Tech List  Top 17 Software for Photo Background Eradication for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-complete-guide-to-applying-vhs-filters-on-pconline-sites-for-2024/"><u>The Complete Guide to Applying VHS Filters on PC/Online Sites for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577245493-the-fastest-way-to-learn-korean-at-home-choose-wisely/"><u>The Fastest Way to Learn Korean at Home – Choose Wisely</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579187330-the-finest-3-online-schools-learn-languages-with-precision-and-passion/"><u>The Finest 3 Online Schools: Learn Languages with Precision & Passion!</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/top-10-mac-exclusive-free-drawing-platforms/"><u>Top 10 Mac-Exclusive Free Drawing Platforms</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/top-10-telegram-spy-tools-on-apple-iphone-15-pro-for-parents-drfone-by-drfone-virtual-ios/"><u>Top 10 Telegram Spy Tools On Apple iPhone 15 Pro for Parents | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/update-your-intel-nuc-drives-with-ease-and-enhance-your-computers-speed/"><u>Update Your Intel NUC Drives with Ease and Enhance Your Computer's Speed!</u></a></li>
+</ul></div>

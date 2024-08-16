@@ -1,7 +1,7 @@
 ---
 title: Contare Con Cuore - Un'Introduzione Alle Cifre Italiane (1-1000)
-date: 2024-07-12T09:03:55.032Z
-updated: 2024-07-13T09:03:55.032Z
+date: 2024-08-15T17:44:37.801Z
+updated: 2024-08-16T17:44:37.801Z
 tags:
   - speak
   - english
@@ -52,6 +52,9 @@ Here’s how to write and pronounce the Italian numbers 1-10:
 
 **Good to know:**Italian cardinal numbers don’t change suffixes according to the gender of the noun they determine. The only exception is 1_(uno)_. Thus, when you talk about a feminine noun, you’ll say_una_instead of_uno_:_Ho comprato una casa_(“I bought a house.”)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ## Italian numbers 11-20
 
  Imagine this: you are on the famous Amalfi Coast. The weather is perfect. And let’s say you want to buy 12 slices of the yummiest Italian pizza you’ve ever seen: two slices for you and each one of your friends. The problem is you only have 10 fingers to sign to the lady at the counter. Wouldn’t it be easier if you knew some [Italian expressions](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ?
@@ -88,6 +91,9 @@ Let’s see some examples:
 * to say “18 years”, you’ll say_diciotto anni_
 * to say “20 children”, you’ll say_venti bambini_
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Italian numbers to 30 and beyond
 
  Essentially, Italian numbers are very similar to English numbers. Once you get to 20, you just put together the tens with the single numbers (units). The best part is that Italian doesn’t even require spaces or hyphens. For example, if you want to say 22 (“twenty-two”), in Italian you say venti (20) + due (2) = _**venti** due_ (22).
@@ -100,6 +106,9 @@ Let’s see some examples:
 
  See how easy Italian numbers are? The only thing you have to remember is that the final vowel of the tens disappears when you add 1_(uno)_ or 8_(otto)_ . Thus, you’ll say _**vent** uno_ and not “ventiuno”. Additionally, number 3_(tre)_ gains an accent mark on the final vowel. For example, 33 will be_trentatré_ and 83 will be_ottantatré._
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### Count tens in Italian
 
  Except for 10_(dieci)_ and 20_(venti)_ , all tens digits in Italian are based on their roots. Once you know all of them, you’ll know how to count to 100 – which is_cento_ – in Italian.
@@ -133,6 +142,9 @@ Let’s see some examples:
 * 84 – _ottanta**quattro**_
 * 98 – _novant**otto**_
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<!-- affiliate ads end -->
 ## Italian numbers 100 to 1000 and beyond
 
  The same rules apply to bigger numbers as well. Add the suffix_cento_ to the multiplier digit and here are your hundreds:
@@ -160,6 +172,13 @@ Let’s see some examples:
  And now you also understood where_grazie mille_ comes from. Literally meaning “a thousand thanks” or “a thousand thanks yous”,_grazie mille_ means “thank you very much” in Italian.
 
 ![italian numbers pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2020/05/italian-numbers-pronunciation-960x640.jpg "Italian Numbers Made Easy - Count To 1000 And Beyond In Italian 3")
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
 
  “The Amalfi Coast” by Gregory Smirnov©
 
@@ -235,3 +254,44 @@ Let’s see some examples:
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-approaches.techidaily.com/new-rise-above-struggles-10-empowering-movies-for-life/"><u>[New] Rise Above Struggles  10 Empowering Movies for Life</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-advanced-techniques-in-fbx-game-capture-systems-for-2024/"><u>[Updated] Advanced Techniques in FBX Game Capture Systems for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-effortless-no-cost-screening-of-android-gadgets/"><u>[Updated] Effortless, No-Cost Screening of Android Gadgets</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-online-overtures-10-influential-youtube-stars/"><u>[Updated] In 2024, Online Overtures  10 Influential YouTube Stars</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-obs-broadcasting-your-skype-voice-capture-methods/"><u>[Updated] OBS Broadcasting  Your Skype Voice Capture Methods</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-podcast-summary-genius-guidance-and-examples/"><u>[Updated] Podcast Summary Genius  Guidance & Examples</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-top-6-hdmi-21-monitor-you-can-find-detailed-comparison-for-2024/"><u>[Updated] Top 6 HDMI 2.1 Monitor You Can Find [Detailed Comparison] for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-vibing-with-visuals-merging-music-and-imagery-on-ig/"><u>[Updated] Vibing with Visuals  Merging Music and Imagery on IG</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-sonic-overlay-for-serene-scenery-on-screens/"><u>2024 Approved  Sonic Overlay for Serene Scenery on Screens</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-the-entrepreneurs-guide-to-mobility-launching-channels-with-minimal-hassle/"><u>2024 Approved  The Entrepreneur's Guide to Mobility  Launching Channels with Minimal Hassle</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-reset-realme-narzo-60x-5g-without-volume-buttons-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Reset Realme Narzo 60x 5G Without Volume Buttons | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/8-quick-fixes-unfortunately-snapchat-has-stopped-on-meizu-21-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Quick Fixes Unfortunately, Snapchat has Stopped on Meizu 21 Pro | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/8-superb-tablet-titans-to-take-your-photo-editing-skills-further/"><u>8 Superb Tablet Titans to Take Your Photo Editing Skills Further</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/acclaimed-cloud-services-for-data-management-on-android-2024-list/"><u>Acclaimed Cloud Services for Data Management on Android (2024 List)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/achieving-unprecedented-success-using-mondly/"><u>Achieving Unprecedented Success Using Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-the-best-online-routes-to-mastering-czech/"><u>Discover the Best Online Routes to Mastering Czech</u></a></li>
+<li><a href="https://network-issues.techidaily.com/end-window-flickering-in-devices/"><u>End Window Flickering in Devices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581835541-french-shades-quickly-say-them-right/"><u>French Shades: Quickly Say Them Right</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-family-spandex-speakers-countries/"><u>Global Family: Spandex Speakers' Countries</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hangul-basics-effortlessly-embrace-the-korean-language/"><u>Hangul Basics: Effortlessly Embrace the Korean Language</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/how-much-could-you-make-on-youtube-snippets-in-2024/"><u>How Much Could You Make on YouTube Snippets, In 2024</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/innovative-hardware-solutions-curated-by-team-tom/"><u>Innovative Hardware Solutions Curated by Team Tom</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-newcomers-to-english/"><u>Introducing Newcomers to English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578510022-master-slovak-quickly-daily-lessons-for-rapid-fluency/"><u>Master Slovak Quickly: Daily Lessons for Rapid Fluency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-breakthrough-in-language-learning-2022-edition/"><u>Mondly's Breakthrough in Language Learning, 2022 Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-english-grammar-complexities-top-insights-from-an-esteemed-esl-speaker/"><u>Navigating English Grammar Complexities: Top Insights From an Esteemed ESL Speaker</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sensational-sentences-the-strategy-of-speak-up-lines/"><u>Sensational Sentences: The Strategy of Speak-Up Lines</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581539142-speak-bulgarian-flawlessly-minutes-only/"><u>Speak Bulgarian Flawlessly - Minutes Only!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tech-powered-classrooms-with-mondly-and-apple/"><u>Tech-Powered Classrooms with Mondly and Apple</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ten-years-of-button-filter-excellence-mondlyback/"><u>Ten Years of Button Filter Excellence: MondlyBack</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-timeline-to-babel-like-multilingualism-fact-or-fiction/"><u>The Timeline to Babel-Like Multilingualism: Fact or Fiction?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-16-german-thanks-you-examples-for-every-occasion/"><u>Top 16 German Thanks You Examples for Every Occasion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-language-learners-guide-international-cinema/"><u>Top Language Learners' Guide: International Cinema</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/top-tier-collage-creation-on-android-at-a-glance/"><u>Top-Tier Collage Creation on Android at a Glance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580764956-triple-threat-in-language-acquisition-easy-pathways-to-fluency/"><u>Triple Threat in Language Acquisition: Easy Pathways to Fluency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/turkish-letter-system-unveiled-a-simple-learning-path-for-newbies/"><u>Turkish Letter System Unveiled: A Simple Learning Path for Newbies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-celebrations-a-tapestry-of-easter-speeches/"><u>Worldwide Celebrations: A Tapestry of Easter Speeches</u></a></li>
+</ul></div>

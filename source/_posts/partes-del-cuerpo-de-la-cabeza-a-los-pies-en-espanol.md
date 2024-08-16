@@ -1,0 +1,253 @@
+---
+title: "Partes Del Cuerpo: De La Cabeza A Los Pies En Español"
+date: 2024-08-15T17:45:14.214Z
+updated: 2024-08-16T17:45:14.214Z
+tags:
+  - speak
+  - english
+  - learning
+categories:
+  - languages
+description: "This Article Describes Partes Del Cuerpo: De La Cabeza A Los Pies En Español"
+excerpt: "This Article Describes Partes Del Cuerpo: De La Cabeza A Los Pies En Español"
+keywords: Partes Del Cuerpo (Body Parts),Anatomía Humana (Human Anatomy),Cabeza (Head),Pies (Feet),Anatomía en Español (Anatomy in Spanish),Cuerpo Humano (Human Body),Anatomía De La Cabeza Al Pie (Anatomy From Head to Foot)
+thumbnail: https://thmb.techidaily.com/8cc7746fe0672e4725ddd5d1492632738fafd136f8e04394f483f1432a572415.png
+---
+
+## Partes Del Cuerpo: De La Cabeza A Los Pies En Español
+
+ The names of the body parts in Spanish are some of the most basic and useful words a Spanish language_aficionado_ can learn. Whether you are at the doctor’s office, in a clothing store, or scuba diving in Mexico, various parts of the body can come up in conversation more often than you think.
+
+
+
+ Does your head hurt and you need a pill? Do you need to disinfect your hands? Do you have to tell someone they have beautiful eyes? Let’s learn the names of the body parts in Spanish so you can say all that and even more!
+
+## The main parts of the body in Spanish
+
+ The main or the general parts of the body are the ones you’ll probably use the most in your daily conversations. That’s why we are going to focus on these high-frequency, high-value words first and then move to the other body parts.
+
+ The first thing you ought to know is that ‘the body’ is called_‘el cuerpo’_ in Spanish and ‘the human body’ is_‘el cuerpo humano’_ . Furthermore, ‘the parts of the body’ are_‘las partes del cuerpo’_ and ‘the skeleton’ is_‘el esqueleto’_ .
+
+**The most commonly used words for body parts in Spanish are:**
+
+* (the) head —_(la) cabeza_
+* (the) hair —_(el) pelo_
+* (the) neck —_(el) cuello_
+* (the) chest —_(el) pecho_
+* (the) arm —_(el) brazo_
+* (the) finger —_(el) dedo_
+* (the) foot —_(el) pie_
+* (the) face —_(la) cara_
+* (the) eye —_(el) ojo_
+* (the) hand —_(la) mano_
+* (the) nose —_(la) nariz_
+* (the) mouth —_(la) boca_
+* (the) leg —_(la) pierna_
+* (the) knee —_(la) rodilla_
+
+ Are you all ears? To learn the correct pronunciation of the names of these body parts in Spanish, you can play this short video:
+
+ Easy enough, isn’t it? By the way, if you want to learn even more,[Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6369&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6369?mother%5Flang=en%5Fus?target%5Flang=es&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6369?mother%5Flang=en%5Fus?target%5Flang=es) teaches everything Spanish: from body parts to [numbers](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ,[days of the week](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , conversations, grammar and beyond.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
+## Body parts in Spanish: head
+
+ Now that you know that ‘head’ in Spanish is_‘cabeza’_ , let’s move forward to all the body parts you can find on and in the head. For example, did you know that ‘brain’ in Spanish is ‘cerebro’? If you are an X-men fan and know that ‘cerebro’ is also the name of a machine used by Professor X to amplify his telepathic ability, this one won’t be too difficult to remember.
+
+![cow head](https://edge.mondly.com/blog/wp-content/uploads/2021/12/cow-head-960x640.jpg "The Body Parts In Spanish – From Head To Toe 4")
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+ ‘Hi there’ by Jan Koetsier©
+
+ Considering the number of square centimeters available, the head area is probably the most “crowded” area on the human body. Here are all the body parts you can find in this region:
+
+* (the) brain —_(el) cerebro_
+* (the) face —_(la) cara_
+* (the) hair —_(el pelo)_
+* (the) forehead — (_la) frente_
+* (the) cheek — (_la) mejilla_
+* (the) ear —_(la) oreja_ (the inside ear is ‘_el oído’)_
+* (the) eye —_(el) ojo_
+* (the) eyelid —_(el) párpado_
+* (the) eyelashes — (_las) pestañas_
+* (the) eyebrows —_(las) cejas_
+* (the) nose —_(la) nariz_
+* (the) mouth —_(la boca)_
+* (the) lips —_(los) labios_
+* (the) tongue —_(la) lengua_
+* (the) tooth —_(el) diente_ (plural:_los dientes_)
+* (the) throat — (_la) garganta_
+* (the) jaw —_(la) la mandíbula_
+* (the) chin — (_la) barbilla_
+* (the) skull — (_el) cráneo_
+
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
+## Body parts in Spanish: from neck to torso
+
+ Time to explore the area where the most important organ lies: the heart. Some will argue that_el cerebro_ (‘the brain’) is more important, but the heart (‘el corazón’) is the one pumping blood all over the body. By the way, did you know that every day your heart beats about 115,000 times and pumps about 6,000-7,500 liters (1,500-2,000 gallons) of blood? To better take care of it, make sure you laugh a lot. Laughing reduces stress, boosts your immune system, and makes your heart stronger.
+
+ But let’s not get cold feet and discover what are the Spanish names of the body parts located between neck and torso.
+
+* (the) neck — _(el) cuello_
+* (the) organs — _(los) órganos_
+* (the) heart — _(el) corazón_
+* (the) stomach — _(el) estómago_  (or _‘el vientre’_  if you are referring to the abdomen)
+* (the) lungs — _(los) pulmones_
+* (the) liver — _(el) hígado_
+* (the) kidneys — _(los) riñones_
+* (the) intestines — _(los) intestinos_
+* (the) skin — _(la) piel_
+* (the) muscle — _(el)_ _músculo_
+* (the) bone — _(el) hueso_
+* (the) spine — _(la) espina_
+* (the) backbone — _(la) columna vertebral_
+* (the) back — _(la) espalda_
+* (the) shoulder — _(el) hombro_
+* (the) arm — _(el) brazo_
+* (the) forearm —_(el) antebrazo_
+* (the) elbow — _(el) codo_
+* (the) wrist —_(la) muñeca_
+* (the) hand — _(la) mano_
+* (the) palm — _(la) palma_
+* (the) finger — _(el) dedo_
+* (the) thumb — _(el) pulgar_
+* (the) fingernails — _(las) uñas_
+* (the) chest — _(el) pecho_
+* (the) breast —_(el) seno_
+* (the) ribs — _(las) costillas_
+* (the) waist — _(la) cintura_
+* (the) navel — _(el) ombligo_
+* (the) hip — _(la) cadera_
+* (the) torso — _(el) torso_
+
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
+LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
+## Body parts in Spanish: legs and feet
+
+![legs](https://edge.mondly.com/blog/wp-content/uploads/2021/12/legs-960x718.jpg "The Body Parts In Spanish – From Head To Toe 5")
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
+
+ ‘Underwater legs’ by Amy Humphries©
+
+ We promised that we are going to give you the Spanish names of all the body parts from head to toe, didn’t we? Here is the entire ‘body of knowledge’ you need for legs, feet and toes.
+
+* (the) buttocks — _(las) nalgas_
+* (the) leg — _(la) pierna_
+* (the) thigh — _(el) muslo_
+* (the) knee — _(la) rodilla_
+* (the) calf — _(la) pantorrilla_
+* (the) ankle — _(el) tobillo_
+* (the) foot — _(el) pie_
+* (the) toe — _(el) dedo del pie_ (_‘_ _dedo’_  can refer to both fingers and toes)
+* (the) heel — _(el) talón_
+
+## Grammar rules and practice
+
+ In terms of grammar, there’s nothing too difficult when it comes to the parts of the body in Spanish. You just have to remember that, in Spanish, names of parts of the body are more likely to be accompanied by the definite articles_el, la, los_ and_las_ (meaning ‘the’) instead of the usual English possessive adjectives like ‘my’, ‘your’, ‘our’ or ‘their’.
+
+For example:
+
+* _Me duele **el** pie._ (‘**My** foot hurts.’)
+* _Protéjase **las** manos con guantes._ (‘Protect **your** hands with gloves.’)
+
+ However, Spanish doesn’t shy away from using possessive adjectives when things need to be clear.
+
+* _**Sus** brazos son atléticos._ (‘**His** arms are athletic.’)
+* _Sal de **tu** pecho._ (‘Get it off **your** chest.’)
+
+ Additionally, there are situations when Spanish uses the definite article, but English drops even the possessive adjective.
+
+* _Tengo **los** ojos azules._ (I have blue eyes.)
+
+* [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fbody-parts-in-spanish%2F&t=The+Body+Parts+in+Spanish+%E2%80%93+From+Head+to+Toe "Share on Facebook")
+* [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
+
+---
+
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
+### From 0 to conversational in Spanish
+
+ The right [Spanish words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) are always on the tip of your tongue? Do you drag your feet every time you need to [learn a new language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ? Get Mondly, the award-winning language learning app that will [make learning Spanish a breeze](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
+
+ It can be really tricky to speak Spanish fluently if you don’t actively live in Spain. Lucky for you, Mondly is the next best thing. It doesn’t cost an arm and a leg and it will get you conversational fast with:
+
+* practical topics,
+* hands-on, interactive language lessons,
+* real-life conversations,
+* … and so much more.
+
+ **Start using Mondly for free on your computer or download the app and learn Spanish anytime, anywhere.**
+
+[Learn Spanish](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-6369&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-6369%26utm%5Fsource%3Dblog-post-id-6369&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-6369%26utm%5Fsource%3Dblog-post-id-6369&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-6369%26utm%5Fsource%3Dblog-post-id-6369&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-6369%26mt%3D8 "Learn Spanish")
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-skills.techidaily.com/new-thrifty-cloud-haven-budget-storage-bulk-files-handling/"><u>[New] Thrifty Cloud Haven  Budget Storage, Bulk Files Handling</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-exploring-the-best-tools-for-snapshots-and-video-capture/"><u>[Updated] 2024 Approved  Exploring the Best Tools for Snapshots and Video Capture</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-swipe-right-to-fb-vids-swipe-left-for-mp4s-for-2024/"><u>[Updated] Swipe Right to FB Vids, Swipe Left for MP4s for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-min-sprints-to-bulgarian-language-bliss/"><u>10-Min Sprints to Bulgarian Language Bliss</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-tale-of-two-iberian-tongues-spanish-vs-portuguese/"><u>A Tale of Two Iberian Tongues: Spanish Vs. Portuguese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/amores-acoustic-alleyway-urban-italian-flirts/"><u>Amore's Acoustic Alleyway: Urban Italian Flirts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/become-a-pro-in-finnish-through-advanced-online-methods/"><u>Become a Pro in Finnish Through Advanced Online Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/briskly-bridge-to-slovak-skills-with-daily-digital-sessions/"><u>Briskly Bridge to Slovak Skills with Daily Digital Sessions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dawn-chorus-saying-good-morning-in-10-different-vernaculars/"><u>Dawn Chorus: Saying Good Morning in 10 Different Vernaculars</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579471704-embrace-world-cultures-with-an-easy-affordable-language-course/"><u>Embrace World Cultures with an Easy, Affordable Language Course!</u></a></li>
+<li><a href="https://fox-that.techidaily.com/expert-advice-how-to-get-back-deleted-memos-on-apple-iphones/"><u>Expert Advice: How to Get Back Deleted Memos on Apple iPhones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expo-polyglot-power-the-linguistic-evolution-awaits/"><u>Expo Polyglot Power: The Linguistic Evolution Awaits</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressing-gratitude-in-mandarin-a-beginners-guide/"><u>Expressing Gratitude in Mandarin: A Beginner's Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-scholar-top-language-examination-guides/"><u>From Novice to Scholar: Top Language Examination Guides</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-observer-to-expert-learn-korean-for-squid-game-fans/"><u>From Observer to Expert - Learn Korean for Squid Game Fans</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-zte-nubia-z60-ultra-phone-without-any-data-loss-by-drfone-android/"><u>In 2024, How to Unlock ZTE Nubia Z60 Ultra Phone without Any Data Loss</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-social-media-savvy-your-guide-to-success/"><u>In 2024, Social Media Savvy  Your Guide to Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580301933-join-the-new-years-club-dive-into-mondly-pro-at-a-low-cost/"><u>Join the New Year's Club - Dive Into Mondly Pro at a Low Cost</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-gain-and-social-connection-via-virtual-worlds/"><u>Language Gain & Social Connection Via Virtual Worlds</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-leap-easy-to-master-global-tongues-list/"><u>Learning Leap: Easy-to-Master Global Tongues List</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lost-in-translation-por-que-and-por-que-explained/"><u>Lost in Translation? Por Que and Por Qué Explained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-kids-edition-secure-and-enjoyable-for-2017-parents/"><u>Mondly Kid's Edition: Secure & Enjoyable for 2017 Parents</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-years-deal-save-96-on-mondly-pro-indefinitely/"><u>New Year's Deal! Save 96%% on Mondly Pro Indefinitely!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/norges-lexicon-leapfrogging-10-minutes-a-day/"><u>Norge's Lexicon Leapfrogging, 10 Minutes A Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swift-introduction-to-turkish-phonetics-and-script-basics/"><u>Swift Introduction to Turkish Phonetics and Script Basics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579996797-ten-minute-tidbits-learn-bengali-fast/"><u>Ten-Minute Tidbits: Learn Bengali Fast!</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/the-best-animated-ideas-making-waves-on-tiktok/"><u>The Best Animated Ideas Making Waves on TikTok</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-key-to-pristine-ru-letter-speech/"><u>The Key to Pristine RU Letter Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-keyboard-conundrum-backspace-vs-escape/"><u>The Keyboard Conundrum: Backspace vs Escape</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-trio-of-languages-cantonese-portuguese-and-others-in-macau/"><u>The Trio of Languages: Cantonese, Portuguese & Others in Macau</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-3-language-learning-platforms-master-new-languages-easily/"><u>Top 3 Language Learning Platforms: Master New Languages Easily</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/ultimate-guide-from-iphone-15-icloud-activation-lock-bypass-by-drfone-ios/"><u>Ultimate Guide from iPhone 15 iCloud Activation Lock Bypass</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ultimate-guide-essential-french-expressions-for-exploring-france/"><u>Ultimate Guide: Essential French Expressions for Exploring France</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/ultimate-toolkit-for-precision-mobile-screen-recording-using-mobizen-for-2024/"><u>Ultimate Toolkit for Precision Mobile Screen Recording Using Mobizen for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579205386-unlocking-untapped-tongues-learn-abroad-at-home/"><u>Unlocking Untapped Tongues: Learn Abroad, at Home!</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-10k-groups-might-cause-amazon-to-sue/"><u>Why 10K Groups Might Cause Amazon to Sue</u></a></li>
+</ul></div>

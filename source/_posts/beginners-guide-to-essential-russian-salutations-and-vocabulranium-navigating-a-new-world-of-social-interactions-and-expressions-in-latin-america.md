@@ -1,7 +1,7 @@
 ---
 title: "Beginner's Guide to Essential Russian Salutations & Vocabulranium: Navigating a New World of Social Interactions and Expressions in Latin America"
-date: 2024-07-12T09:06:17.380Z
-updated: 2024-07-13T09:06:17.380Z
+date: 2024-08-15T17:42:14.099Z
+updated: 2024-08-16T17:42:14.100Z
 tags:
   - speak
   - english
@@ -32,12 +32,18 @@ thumbnail: https://thmb.techidaily.com/f43e24b5652ac6ca705d21d4283165ba384a70210
 
  Rooted in the phrase “to be healthy and well”, it’s not just a greeting, but a wish for good health.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->
 ### Привет (Privyet): Hi in Russian
 
 **Привет** is the most popular informal Russian greeting. It’s what you would use with your friends – the same way we use “hi” in English. Short, sweet and easy to say!
 
  If we’re being honest,**здравствуйте** and **Привет** are everything you need when it comes to Russian greetings. If you don’t want to overcrowd your mind, you can stop right here and come back later when you’re ready for more. If you want the full picture of Russian greetings now, let’s continue to discover how Russians say hello to each other.
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ## 2\. Time-specific Russian greetings
 
  Advanced Russian greetings knowledge means you’re ready to greet people depending on the time of day. Like this:
@@ -52,6 +58,10 @@ Good job, you!
  These phrases are universal and can be used in both formal and informal situations.
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Russian Greetings: Common Phrases And Basic Words 2")
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+</a>
+<!-- affiliate ads end -->
 
 ##### Learn Russian today
 
@@ -70,6 +80,18 @@ Good job, you!
 * **Приветствую (Privetstvuyu):** This is a Russian word that means “I greet” or “I welcome”. Being more formal makes it perfect for official settings. For instance, you can use it when interacting with business associates or when the degree of formality is unclear. This greeting works for both formal and informal situations, setting it apart from all the other greetings we listed here.
 
 ![hi in russian](https://edge.mondly.com/blog/wp-content/uploads/2018/11/hi-in-russian.jpg "Russian Greetings: Common Phrases And Basic Words 3")
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 4\. Russian farewells
 
@@ -81,6 +103,9 @@ Good job, you!
 * **Увидимся (Uvidimsya)** – See you: It’s relatively informal and akin to the English “see you later”. You can tell your friends Увидимся (Uvidimsya) if you expect to meet them again in the near future.
 * **До скорого (Do skorogo)** – See you soon: It’s a warm farewell, yet rather polite. In practice, it aligns more with “see you” than “see you soon”.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 5\. Helpful phrases for greetings
 
  Now that you said “hello” in Russian, how will the conversation continue? It’s true that locals, including babushkas (grandmothers), will still shower you with hospitality regardless if you speak Russian or not. However, the following basic phrases will further help you to converse in Russian.
@@ -103,6 +128,9 @@ Good job, you!
 
  Found this interesting? You might want to learn about the [Russian alphabet](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and the [Russian numbers](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) too.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Cultural insights on Russian greetings
 
  It’s one thing to know how to greet someone in Russian and it’s another to greet them the Russian way. Here’s what you should keep in mind if you’re meeting with Russian-speaking friends:
@@ -124,6 +152,9 @@ Good job, you!
 
  Здравствуйте (Zdravstvuyte) is generally used for slightly formal hellos, while Привет (Privyet) is more suitable for casuals settings. The most common way to say “goodbye” in Russian is До свидания (Do svidaniya).
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ### How can I greet someone respectfully in Russian if I don’t know their name?
 
  To greet someone respectfully in Russian you can say Здравствуйте (Zdravstvuyte) or use the time specific greetings.
@@ -165,3 +196,48 @@ Good job, you!
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-high-definition-vision-recorder-devices/"><u>[New] In 2024, High Definition Vision Recorder Devices</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-detecting-silent-communication-on-snapstreak-for-2024/"><u>[Updated] Detecting Silent Communication on Snapstreak for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-tailoring-talent-to-treasure-the-proactive-pursuit-of-video-profitability/"><u>[Updated] Tailoring Talent to Treasure  The Proactive Pursuit of Video Profitability</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-video-sharing-warriors-which-fights-better-obs-or-twitch-studio/"><u>[Updated] Video Sharing Warriors  Which Fights Better - OBS or Twitch Studio?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/2022-speak-anywhere-for-a-bargain-priced-language-bundle/"><u>2022: Speak Anywhere for a Bargain-Priced Language Bundle</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-directly-posting-tiktok-videos-onto-your-facebook-timeline/"><u>2024 Approved  Directly Posting TikTok Videos Onto Your Facebook Timeline</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/adopting-a-global-communication-lifestyle-in-24/"><u>Adopting a Global Communication Lifestyle in '24</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprender-o-portuguese-e-suas-variantes-de-boas-vindas/"><u>Aprender O Portuguese E Suas Variantes De Boas-Vindas</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/augment-realities-mondly-redefining-language-learning/"><u>Augment Realities: Mondly Redefining Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aussie-vocabulary-from-surfing-to-bbqs/"><u>Aussie Vocabulary: From Surfing to BBQs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beginning-your-italian-journey-top-10-welcoming-phrases/"><u>Beginning Your Italian Journey: Top 10 Welcoming Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beyond-borders-beyond-barriers-the-top-4-motivations-to-study-a-new-language-in-your-forties/"><u>Beyond Borders, Beyond Barriers: The Top 4 Motivations to Study a New Language in Your Forties</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bonnes-nouvelles-en-francais-oui-bienvenue/"><u>Bonnes Nouvelles en Français: Oui, Bienvenue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578537330-bonnes-nouvelles-en-francais-oui-bienvenue/"><u>Bonnes Nouvelles en Français: Oui, Bienvenue!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breaking-speech-barriers-with-english-twister-mastery/"><u>Breaking Speech Barriers with English Twister Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-borders-with-words-mondlys-affordable-linguistic-program-for-ukrainians/"><u>Bridging Borders with Words – Mondly’s Affordable Linguistic Program for Ukrainians</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/challenges-in-learning-german/"><u>Challenges in Learning German</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/childhood-as-the-peak-time-for-second-language-acquisition/"><u>Childhood as the Peak Time for Second Language Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581340946-conquer-croatias-linguistic-landscape-with-these-essential-phrases/"><u>Conquer Croatia's Linguistic Landscape with These Essential Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-finnish-with-top-rated-online-courses/"><u>Conquer Finnish with Top-Rated Online Courses</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-urdu-in-just-10-minute-sessions/"><u>Conquer Urdu in Just 10-Minute Sessions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conversational-cupid-flirting-lines-for-love-enthusiasts/"><u>Conversational Cupid: Flirting Lines for Love Enthusiasts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cross-language-welcome-primer/"><u>Cross-Language Welcome Primer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dannys-humanitarran-efforts-in-colombias-neediest-areas/"><u>Danny’s Humanitarran Efforts in Colombia's Neediest Areas</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-the-voices-of-europe-a-day-of-language-joy/"><u>Decoding the Voices of Europe: A Day of Language Joy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-the-value-in-second-languages-past-fifty/"><u>Discover the Value in Second Languages Past Fifty</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevate-enterprises-by-engineering-effective-linguistic-endeavors/"><u>Elevate Enterprises by Engineering Effective Linguistic Endeavors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevate-your-social-skills-with-these-top-italian-greetings/"><u>Elevate Your Social Skills with These Top Italian Greetings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevating-language-instruction-through-ai-systems/"><u>Elevating Language Instruction Through AI Systems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embark-on-reading-in-france-with-these-top-20-novels/"><u>Embark on Reading in France with These Top 20 Novels</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577691832-embrace-the-new-year-with-an-epic-deal-save-96-on-mondly-premium-access/"><u>Embrace the New Year with an Epic Deal - Save 96%% on Mondly Premium Access</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/exploring-classic-videogames-an-in-depth-evaluation-of-the-legendary-nintendo-game-and-watch-with-a-focus-on-super-mario-bros/"><u>Exploring Classic Videogames: An In-Depth Evaluation of the Legendary Nintendo Game & Watch with a Focus on Super Mario Bros</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-on-realme-11-pro-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos on Realme 11 Pro</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-vivo-x100-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Vivo X100? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-facebook-dating-for-your-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location On Facebook Dating for your Realme C67 4G | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-unlock-software-for-samsung-galaxy-xcover-6-pro-tactical-edition-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>In 2024, The Best Android Unlock Software For Samsung Galaxy XCover 6 Pro Tactical Edition Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://techtrends.techidaily.com/iphone-vs-android-which-one-is-right-for-you/"><u>IPhone vs Android: Which One Is Right For You?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579198473-mondly-and-apple-championed-as-ed-tech-elite-10-list-feat/"><u>Mondly & Apple Championed as Ed-Tech Elite: #10 List Feat</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577505926-one-moment-a-day-gain-mastery-over-urdu/"><u>One Moment a Day, Gain Mastery Over Urdu!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581780596-speedy-bokmal-study-sessions-10-min-dashes/"><u>Speedy Bokmål Study Sessions, 10-Min Dashes</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/utilizing-instagram-filters-to-elevate-your-photos/"><u>Utilizing Instagram Filters to Elevate Your Photos</u></a></li>
+</ul></div>

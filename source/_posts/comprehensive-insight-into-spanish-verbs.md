@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Insight Into Spanish Verbs
-date: 2024-07-12T09:05:49.847Z
-updated: 2024-07-13T09:05:49.847Z
+date: 2024-08-15T17:42:41.357Z
+updated: 2024-08-16T17:42:41.357Z
 tags:
   - speak
   - english
@@ -64,6 +64,9 @@ Spanish verbs conjugations make sense now, don’t they?
 
  Before moving on to irregular Spanish verbs and more examples, let’s also explore**the past and future of regular Spanish verbs** . What do you think? Wouldn’t that be useful?
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Spanish Preterite Tense – Regular Preterite Verb Endings
 
 **The Spanish preterite tense** or_el pretérito_ is the equivalent of the**simple past tense** in English. Naturally, the same as the simple past tense,**the Spanish preterite tense** is used to describe actions completed at some point in the past.
@@ -107,6 +110,9 @@ And the conjugation of comer will look like this:
 
  Keep in mind the fact that the first person singular (_yo_), third person singular (_él, ella_), and second person formal singular (_usted_) forms use tildes on the final letters of the verb endings. And one little tilde can make all the difference in the world! If you don’t know yet how accents work, take a look at our article on **[Spanish accents and how to master them all](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .**
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Spanish Simple Future Tense – Regular Simple Future Verb Endings
 
  In Spanish, there are two ways to form the future tense:**the informal future tense** (the verb_ir_ \+ a + infinitive ->_voy a comer_) and**the simple future tense,** which we will illustrate in this article.
@@ -139,12 +145,22 @@ And the conjugation of comer will look like this:
 * _Vosotros / Vosotras escrib**iréis**_
 * _Ellos / Ellas / Ustedes escrib**irán**_
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Yearly Membership</a>
+<!-- affiliate ads end -->
 ## Spanish verbs: how to master irregular Spanish verbs
 
  Remember how you managed to learn**irregular English verbs** ? Well, there are tricks that you can use, but the truth is that, in time,**irregular Spanish verbs** will just… come to you. No joke. Once you get used to the language and use it all the time, your brain will start making connections.
 
  As you already know,**irregular verbs** are “rebel” verbs that follow no regular set of rules. Statistically, in Spanish, almost all verbs ending in_\-ar_ are regular, almost all verbs ending in_\-er_ are irregular and less than half of all verbs ending in_\-ir_ are irregular. So, let’s disentangle this complicated situation of**irregular Spanish verbs** and look for some patterns to help us learn faster.
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1\. Stem-Changing Verbs in Spanish
 
  The easiest type of**irregular verbs in Spanish** are the ones that require stem-changing but keep the regular endings. By the way, the stem of a verb is the result you get when you remove the infinitive suffix (meaning the_\-ar_ ,_\-er_ , or_\-ir_) from the infinitive form. For example, the stems of_deber_ ,_hablar_ and_vivir_ are “deb-“, “habl-” and “viv-“.
@@ -199,6 +215,9 @@ And the conjugation of comer will look like this:
 
 _Adquirir_ (to acquire) and_inquirir_ (to inquire) are just as rebellious because to the final letter “i” of their stem, we will need to add an “e”. Thus, “I acquire” will be “Yo adquiero”.
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 2\. Spanish verbs with an irregular “yo” form
 
  This category includes two types of verbs:  
@@ -223,6 +242,9 @@ _Adquirir_ (to acquire) and_inquirir_ (to inquire) are just as rebellious becaus
  –_dar_ (to give) –_Yo doy_ ,_Tú das_
  –_ver_ (to see) –_Yo veo_ ,_Tú ves_
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Spanish verbs conjugation examples –_ser, estar, ir_
 
  Now that we managed to paint the big picture for both**regular and irregular Spanish verbs** , let’s finish this lesson with some eloquent examples of the most “rebel” verbs of the Spanish language:_ser_ (to be),_estar_ (to be, to be situated) and_ir_ (to go). Here’s the**present tense** ,**preterite tense** , and**future tense conjugation** for each and every one of them:
@@ -317,3 +339,47 @@ Well… this is it! This is our full lesson on**Spanish verbs.**
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/outube-live-pro-tips-outfitting-with-excellent-webcams-for-2024/"><u>[New] YouTube Live Pro Tips  Outfitting with Excellent Webcams for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-from-raw-to-masterpiece-the-premier-free-mobile-editors-for-android/"><u>[Updated] 2024 Approved  From Raw to Masterpiece  The Premier Free Mobile Editors for Android</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-2024-approved-the-social-media-sensations-most-liked-and-watched-amazon-originals/"><u>[Updated] 2024 Approved  The Social Media Sensations  Most Liked & Watched Amazon Originals</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-synthesizing-sound-and-slides-incorporating-melodies-in-ppt/"><u>[Updated] Synthesizing Sound and Slides  Incorporating Melodies in PPT</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-compelling-motives-for-embracing-multilingualism/"><u>10 Compelling Motives for Embracing Multilingualism</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581666702-100plus-essential-croatian-phrases-youll-need-before-traveling-to-croatia/"><u>100+ Essential Croatian Phrases You’ll Need Before Traveling to Croatia</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/2024-approved-elevating-ad-revenue-through-animated-campaigns-on-facebook/"><u>2024 Approved  Elevating Ad Revenue Through Animated Campaigns on Facebook</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-instantly-personalize-your-phones-from-tiktok-sounds-to-ringtones/"><u>2024 Approved  Instantly Personalize Your Phones  From TikTok Sounds to Ringtones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/93-must-know-phrases-to-unlock-a-world-of-travel-in-spanish/"><u>93 Must-Know Phrases to Unlock a World of Travel in Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-polyglot-commemoration-for-teaching-excellence/"><u>A Polyglot Commemoration for Teaching Excellence</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-tapestry-of-classroom-vocabulary-international-day-honors/"><u>A Tapestry of Classroom Vocabulary: International Day Honors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accelerate-your-portuguese-journey-with-these-top-6-proven-methods/"><u>Accelerate Your Portuguese Journey with These Top 6 Proven Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aid-to-the-poorest-foundation-danny-colombia-way/"><u>Aid to the Poorest: Foundation Danny Colombia Way</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/astrolingua-the-world-of-star-wars-multifaceted-language/"><u>Astrolingua: The World of Star Wars' Multifaceted Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/back-to-school-latin-made-fun-and-easy-for-students-of-all-ages/"><u>Back to School: Latin Made Fun and Easy for Students of All Ages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breath-and-bravery-mastering-pronunciation-with-twisters/"><u>Breath and Bravery: Mastering Pronunciation with Twisters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultivating-language-proficiency-with-dark-on-netflix/"><u>Cultivating Language Proficiency with 'Dark' On Netflix</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-connections-through-language-the-essence-of-bonjour/"><u>Cultural Connections Through Language: The Essence of 'Bonjour'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580817970-daily-dose-of-slovak-language-instant-proficiency/"><u>Daily Dose of Slovak Language, Instant Proficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dannys-aid-network-in-colombia-strengthening-society/"><u>Danny's Aid Network in Colombia: Strengthening Society</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-conversation-10-must-know-italian-salutations/"><u>Dive Into Conversation: 10 Must-Know Italian Salutations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-romance-pickup-line-poems/"><u>Embrace Romance: Pickup Line Poems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/engaging-spanish-learning-for-kids-games-songs-and-activities/"><u>Engaging Spanish Learning for Kids: Games, Songs, and Activities</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhancing-functionality-mondly-and-pearson-buttonlinkage/"><u>Enhancing Functionality: Mondly & Pearson ButtonLinkage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-spanish-verb-learning-for-efficiency/"><u>Essential Spanish Verb Learning for Efficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-with-ease-google-play-best-app-mondly-kids-experience/"><u>Explore with Ease! Google Play Best App: Mondly Kids Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-macaus-multilingual-tapestry/"><u>Exploring Macau's Multilingual Tapestry</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressive-shades-in-french-quickly-learned/"><u>Expressive Shades in French Quickly Learned</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/film-based-learning-strategies-for-eloquent-communication/"><u>Film-Based Learning: Strategies for Eloquent Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/freedom-to-learn-honoring-1500-fee-free-lessons-daily/"><u>Freedom to Learn: Honoring 1500 Fee-Free Lessons Daily</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-confusion-to-clarity-understanding-english-contraction-rules/"><u>From Confusion to Clarity: Understanding English Contraction Rules</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/frying-fundamentals-for-the-ultimate-fried-egg-experience-87-characters/"><u>Frying Fundamentals for the Ultimate Fried Egg Experience (87 Characters)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/future-lexicons-shaping-tomorrows-language-landscapes/"><u>Future Lexicons: Shaping Tomorrow's Language Landscapes</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/how-to-fix-bad-pool-header-bsod-error-on-windows-10/"><u>How to Fix Bad Pool Header BSOD Error on Windows 10</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-from-novice-to-expert-advanced-screencasting-steps/"><u>In 2024, From Novice to Expert  Advanced Screencasting Steps</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-samsung-galaxy-s23-ultra-location-on-twitter-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change your Samsung Galaxy S23 Ultra Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/limostudio-lms103-lighting-kit-review-affordable-umbrella-style-lighting/"><u>LimoStudio LMS103 Lighting Kit Review: Affordable Umbrella-Style Lighting</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578492484-master-uk-idioms-and-expressions-become-a-true-brit/"><u>Master UK Idioms & Expressions: Become a True Brit</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723016699528-no-sound-from-windows-media-player-find-out-why-and-how-to-resolve-it/"><u>No Sound From Windows Media Player? Find Out Why and How to Resolve It!</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/trim-the-excessive-green-revamping-youtubes-on-a-mac/"><u>Trim the Excessive Green  Revamping YouTubes on a Mac</u></a></li>
+</ul></div>

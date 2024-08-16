@@ -1,7 +1,7 @@
 ---
 title: Compreendemos Abreços, Saudades & Boas-Vindas No Português
-date: 2024-07-12T09:08:40.044Z
-updated: 2024-07-13T09:08:40.044Z
+date: 2024-08-15T17:39:52.067Z
+updated: 2024-08-16T17:39:52.067Z
 tags:
   - speak
   - english
@@ -24,12 +24,18 @@ thumbnail: https://thmb.techidaily.com/9eb4aae367e8d7c80e3c075f7bffa3926b7f3e2ef
 
  “Hello” is a [powerful word](https://www.merriam-webster.com/words-at-play/the-origin-of-hello) . It opens doors. It makes people smile. And said the right way and at the right time, “hello” can impact someone’s day and you wouldn’t even know it. So here are the right ways to say “hello” in Portuguese and open doors everywhere you go.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<!-- affiliate ads end -->
 ### “Hello” in Portuguese – Olá
 
 _Olá_ is the best choice for most social situations regardless of the person you are addressing. It’s somehow formal, but also friendly.
 
  Be careful with your Portuguese pronunciation though! A lot of people accidentally mistake Portuguese for Spanish. You don’t want to do that. Just say “OH-lah” and everybody from Brazil to Mozambique will understand that you are saying “hello” in Portuguese.
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<!-- affiliate ads end -->
 ### “Hi” in Portuguese – Oi
 
  Friendly and very informal,_Oi!_ is one of the most common ways to greet your friends in Brazil (people from Portugal use it as well, but not as much as_olá)_ . This is how you could greet your mates and close colleagues, but never the people you don’t really know. Don’t stress it tough! When the time comes, you will feel and just know what’s the required Portuguese greeting for that particular situation.
@@ -56,6 +62,14 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ## 2\. “Bom dia!” and other Portuguese greetings for certain moments of the day
 
 ![good morning in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/good-morning-in-portuguese-1024x642.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 3")
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  “Rio de Janeiro, Brazil” by Raphael Nogueira©
 
@@ -80,9 +94,15 @@ _Olá_ is the best choice for most social situations regardless of the person yo
  Another useful phrase for bidding farewell is “have a good day”. In Portuguese, that’s_t_ _enha um bom dia_ .
 
 ![portuguese greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/08/portuguese-greetings-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 4")
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
 
  “Ruínas da Fortaleza de Arrifana, Aljezur, Portugal” by Ferhat Deniz Fors©
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Bonus: other basic Portuguese phrases that you should know
 
  Now that you know how to greet in Portuguese, shouldn’t you also master basic words like “yes”, “no” or “thank you” in Portuguese? Let’s kill two birds with one stone and see how a basic conversation in Portuguese should sound like:
@@ -106,6 +126,18 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 * No. –_Não._
 
 ![obrigado](https://edge.mondly.com/blog/wp-content/uploads/2019/08/obrigado-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 5")
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  “Gruta do Lago Azul, Brazil” by Ademir Alves©
 
@@ -148,3 +180,52 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-achieving-excellence-in-game-recording-techniques-windows-11-style/"><u>[Updated] 2024 Approved  Achieving Excellence in Game Recording Techniques, Windows 11 Style</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-cutting-through-steps-posting-tiktok-videos-on-twitter-for-2024/"><u>[Updated] Cutting Through Steps  Posting TikTok Videos on Twitter for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/19-critical-examples-of-the-metaverse-unveiled/"><u>19 Critical Examples of the Metaverse Unveiled</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-anglers-guide-to-premium-fishing-cameras/"><u>2024 Approved  Angler’s Guide to Premium Fishing Cameras</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-from-faces-to-films-the-mi-11s-advanced-screenshot-technology/"><u>2024 Approved  From Faces to Films  The Mi 11'S Advanced Screenshot Technology</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-streamline-your-social-networking-joining-instagram-and-facebook-seamlessly/"><u>2024 Approved  Streamline Your Social Networking  Joining Instagram & Facebook Seamlessly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-tale-of-two-portoguese-back-and-filter-buttons/"><u>A Tale of Two Portoguese: Back and Filter Buttons</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/accelerated-buy-interstellar-scene-improvement/"><u>Accelerated Buy: Interstellar Scene Improvement</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accent-journey-delving-into-uk-us-and-australian-speech-patterns/"><u>Accent Journey: Delving Into UK, US, and Australian Speech Patterns</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beyond-salut-advanced-french-greetings-you-need-to-know/"><u>Beyond 'Salut': Advanced French Greetings You Need to Know</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/compreender-abrecos-e-saudacoes-em-diferentes-regioes/"><u>Compreender Abreços E Saudações Em Diferentes Regiões</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conhecer-dialetos-do-portugues-todas-as-variedades/"><u>Conhecer Dialetos Do Português - Todas as Variedades</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conversational-crescendo-korean-turkish-blend/"><u>Conversational Crescendo: Korean-Turkish Blend</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/courtiers-compendium-french-languages-of-seduction/"><u>Courtier's Compendium: French Languages of Seduction</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/das-deutsche-verabschiedungsworterbuch-prasentiert-sich/"><u>Das Deutsche Verabschiedungswörterbuch Präsentiert Sich</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effortlessly-learn-new-languages-with-these-innovative-mobile-solutions/"><u>Effortlessly Learn New Languages with These Innovative Mobile Solutions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embracing-the-past-present-mondly/"><u>Embracing the Past, Present Mondly</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/exploring-the-upside-down-world-of-instagram-videos-for-2024/"><u>Exploring the Upside-Down World of Instagram Videos for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/friendly-italy-discover-the-best-italian-ways-to-say-hello/"><u>Friendly Italy: Discover the Best Italian Ways to Say Hello</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-nokia-c12-by-fonelab-android-recover-photos/"><u>How to recover deleted photos from Nokia C12.</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-full-guide-on-mirroring-your-vivo-s17-pro-to-your-pcmac-drfone-by-drfone-android/"><u>In 2024, Full Guide on Mirroring Your Vivo S17 Pro to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-hidefake-snapchat-location-on-your-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Hide/Fake Snapchat Location on Your Realme Narzo 60 5G | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-poco-c51-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos From Poco C51 to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/inside-the-world-of-ustream-plus-alternatives-for-2024/"><u>Inside the World of Ustream, Plus Alternatives for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/make-urdu-easier-learn-for-10-minutes-daily/"><u>Make Urdu Easier: Learn for 10 Minutes Daily</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-bengali-fast-10-minute-routine/"><u>Master Bengali Fast: 10-Minute Routine</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-reveals-a-revolutionized-question-and-answer-mechanism/"><u>Mondly Reveals a Revolutionized Question & Answer Mechanism</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oration-ovations-for-worlds-pedagogues/"><u>Oration Ovations for World's Pedagogues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/orchestrate-your-own-interpretation-harmonized-language-learning/"><u>Orchestrate Your Own Interpretation: Harmonized Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pearsons-gsl-precision-unveiled-with-mondly-integration/"><u>Pearson's GSL: Precision Unveiled with Mondly Integration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pearsons-precision-innovation-integrating-gsl-and-mondly/"><u>Pearson's Precision Innovation: Integrating GSL & Mondly</u></a></li>
+<li><a href="https://change-location.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-vivo-y78t-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Vivo Y78t | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/smarter-by-design-how-chatgpt-propels-smartwatch-innovation/"><u>Smarter by Design: How ChatGPT Propels Smartwatch Innovation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-abcs-an-examination-of-us-uk-language/"><u>The ABC's: An Examination of US-UK Language</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/the-art-of-connection-thriving-amidst-algorithm-updates-for-2024/"><u>The Art of Connection  Thriving Amidst Algorithm Updates for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-lingua-love-connection-flirting-in-spanish/"><u>The Lingua-Love Connection: Flirting in Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/todos-los-dias-aprende-en-espanol-con-nosotros/"><u>Todos Los Días, Aprende en Español Con Nosotros</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-16-expressions-of-gratitude-in-deutsch/"><u>Top 16 Expressions Of Gratitude in Deutsch</u></a></li>
+<li><a href="https://location-social.techidaily.com/top-7-skype-hacker-to-hack-any-skype-account-on-your-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>Top 7 Skype Hacker to Hack Any Skype Account On your Poco F5 5G | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-guide-fixing-the-issue-when-your-steelseries-arctis-prime-microphone-fails/"><u>Troubleshooting Guide: Fixing the Issue When Your SteelSeries Arctis Prime Microphone Fails</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/united-nations-of-joy-4th-of-july/"><u>United Nations of Joy: 4Th of July</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/universal-etiquette-handbook-a-greeting-guide/"><u>Universal Etiquette Handbook: A Greeting Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unlocking-the-secrets-elevating-your-youtube-presence-in-gameplay-for-2024/"><u>Unlocking the Secrets  Elevating Your YouTube Presence in Gameplay for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-verbal-skills-premium-communication-courses/"><u>Unveiling Verbal Skills: Premium Communication Courses</u></a></li>
+<li><a href="https://howto.techidaily.com/vivo-y36i-stuck-on-screen-finding-solutions-for-stuck-on-boot-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Vivo Y36i Stuck on Screen – Finding Solutions For Stuck on Boot | Dr.fone</u></a></li>
+</ul></div>

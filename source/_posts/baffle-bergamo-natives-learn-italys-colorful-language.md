@@ -1,7 +1,7 @@
 ---
 title: "Baffle Bergamo Natives: Learn Italy's Colorful Language"
-date: 2024-07-12T09:08:44.383Z
-updated: 2024-07-13T09:08:44.383Z
+date: 2024-08-15T17:39:47.883Z
+updated: 2024-08-16T17:39:47.883Z
 tags:
   - speak
   - english
@@ -50,9 +50,15 @@ thumbnail: https://thmb.techidaily.com/4a4364521475bc98d43a49b1c82e26ef445f3c795
  What’s your favorite Italian expression so far? Here’s a quick tip: sprinkle these expressions throughout your conversations without exaggerating. While using them can give the impression that you were born in Italy, overdoing it might come across as a bit unnatural. And it goes the same for Italian slang words!
 
 ![Italian expressions](https://edge.mondly.com/blog/wp-content/uploads/2019/09/italian-expressions-960x640.jpg "Go Beyond “Ciao Bella”: 20+ Italian Slang Words &Amp; Expressions 5")
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
+<!-- affiliate ads end -->
 
 ## Funny Italian Slang Words & Phrases
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1\. Cavoli amari
 
 _Cavoli amari_ literally translates to “bitter cabbages” in Italian but refers to a tough situation or impending problems. Interestingly, Italians frequently mention cabbages! For instance,_cavoli miei_ (“my cabbages”) implies something is your personal business that others shouldn’t meddle with.
@@ -61,6 +67,9 @@ _Cavoli amari_ literally translates to “bitter cabbages” in Italian but refe
 
  When you’re clueless about something or you don’t know what to say, in Italian, you can simply say “boh!”. This one is quite similar to the Italian expression_che ne so!_ meaning “how should I know?”.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. Dai
 
  There’s no denying that Italians are experts in expression. For example, the Italian expression [“dai!”](http://www.bbc.com/culture/story/20171207-dai-the-italian-word-with-many-meanings) can be used in three quite different contexts. And if you are wondering how that is possible, well, it’s all about the correct use of intonation, mimics, and [Italian hand gestures](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
@@ -73,10 +82,21 @@ _Cavoli amari_ literally translates to “bitter cabbages” in Italian but refe
 
  Literally “slipper-man”. Italian slang_pantofolaio_ refers to someone who prefers to stay home in their slippers rather than go out. Do you recognize yourself in this description? A_pantofolaio_ is basically the Italian equivalent of “couch potato”.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
+
+ Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
+
+ DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
+ PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ### 5\. Tirare il pacco
 
  “To throw the package”. Contrary to what some may think, this has nothing to do with the delivery man. Instead, it means to stand someone up. So, Italians don’t just skip a meeting or a date, they “throw the package”.
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 6\. Schialla
 
 _Scialla_ is an Italian slang word that has become very popular lately, thanks to Gen Z. It basically means “to relax”, “to chill out” or to “keep calm”. It is generally used as an encouragement to “don’t worry”.
@@ -95,6 +115,9 @@ _Sbronza_ is for everything related to alcohol as it essentially describes the s
 
  If you have to convey the meaning of being drunk in a more formal setting, you would definitely not use_sbronza_ . Instead, you would use terms like_ubriachezza_ (“drunkness”) or_intossicazione alcolica_ (“alcohol intoxication”).
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 9\. Che casino
 
 _Casino_ in Italian has nothing to do with gambling because it is literally a “brothel”. So, this Italian expression actually means “what a mess!” and is used to describe a situation that’s a bit out of control, confusing, or crowded.
@@ -103,6 +126,9 @@ _Casino_ in Italian has nothing to do with gambling because it is literally a �
 
 _Beccarsi_ is an Italian slang verb that comes from_beccare,_ which literally means “to peck”. However, in slang or informal language,_beccarsi_ has several meanings depending on the context. The most common is “to meet” or “to catch up” with someone. For example,_Ci becchiamo dopo la scuola?_ translates to “Shall we meet up after school?”.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 11\. Americanata
 
 _Americanata_ is a playful jab, not to be taken offensively, used to describe something absurdly grandiose, extravagant, or exaggerated, reflecting a humorous observation of American culture.
@@ -133,7 +159,13 @@ _Americanata_ is a playful jab, not to be taken offensively, used to describe so
  These Italian expressions with deep meaning are essentially proverbs you can use to add a layer of sophistication to your Italian conversations. Our advice is to employ these expressions as you would in your own language: sparingly. However, ensure you introduce them at the perfect moment when their wisdom can shine and make the most impact.
 
 ![Italian slang](https://edge.mondly.com/blog/wp-content/uploads/2019/09/italian-slang-960x640.jpg "Go Beyond “Ciao Bella”: 20+ Italian Slang Words &Amp; Expressions 7")
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<!-- affiliate ads end -->
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
 ## Bonus: More Italian Slang Words and Expressions
 
 | Italian slang words and expressions          | Translation                          | Comments                                                              |
@@ -166,6 +198,9 @@ _Americanata_ is a playful jab, not to be taken offensively, used to describe so
 
 Before you go, make sure you check out these FAQs.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Is it okay to use slang when speaking Italian?
 
  Yes, using slang is okay when speaking Italian, as it can make your conversations more natural and show familiarity with the culture. Just make sure you’re mindful of the context and the company you’re in.
@@ -217,3 +252,53 @@ Before you go, make sure you check out these FAQs.
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-lessons.techidaily.com/updated-audiences-choice-in-drama-writings/"><u>[Updated] Audience's Choice in Drama Writings</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-driving-virality-on-the-worlds-largest-network-for-2024/"><u>[Updated] Driving Virality on the World’s Largest Network for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-gamers-dilemma-oculus-htc-and-sonys-vr-dominance/"><u>2024 Approved  Gamers' Dilemma  Oculus, HTC & Sony's VR Dominance</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-zero-cost-zest-the-ultimate-guide-to-free-game-film/"><u>2024 Approved  Zero Cost Zest  The Ultimate Guide to Free Game Film</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/7-inspiring-motivations-to-learn-a-second-language/"><u>7 Inspiring Motivations to Learn a Second Language</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/ai-unveiled-a-family-guide-to-gpt/"><u>AI Unveiled: A Family Guide to GPT</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/awaken-desires-with-french-eloquence/"><u>Awaken Desires with French Eloquence</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/break-language-barriers-in-minutes-6-outstanding-online-helpers/"><u>Break Language Barriers in Minutes - 6 Outstanding Online Helpers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/captivating-classrooms-joyful-language-study/"><u>Captivating Classrooms: Joyful Language Study</u></a></li>
+<li><a href="https://driver-error.techidaily.com/complete-instructions-on-how-to-get-the-latest-drivers-for-your-hp-envy-20-computer/"><u>Complete Instructions on How To Get The Latest Drivers For Your HP Envy 20 Computer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/efficient-exercises-for-elite-english-or-fancy-french-skills/"><u>Efficient Exercises for Elite English or Fancy French Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enchanting-whispers-italian-seductive-phrases/"><u>Enchanting Whispers: Italian Seductive Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/engaging-with-brit-banter-and-jargon/"><u>Engaging with Brit Banter and Jargon</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhancing-brains-with-new-dialects/"><u>Enhancing Brains with New Dialects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-english-simplified-by-oxford-and-mondly/"><u>Essential English, Simplified by Oxford & Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-education-shines-mondly-and-apples-shared-success/"><u>Global Education Shines: Mondly and Apple's Shared Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/greeting-worldwide-multilingual-introduction/"><u>Greeting Worldwide: Multilingual Introduction</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/honteruss-journey-towards-motivation/"><u>Honterus’s Journey Towards Motivation</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-previous-version-of-excel-2003-file-by-stellar-guide/"><u>How to Restore Previous Version of Excel 2003 File?</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-from-pre-windows-era-to-modern-windows-11-today/"><u>In 2024, From Pre-Windows Era  To Modern Windows 11 Today</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-show-wi-fi-password-on-samsung-galaxy-m54-5g-by-drfone-android/"><u>In 2024, How to Show Wi-Fi Password on Samsung Galaxy M54 5G</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-the-content-creators-dilemma-vimeo-or-youtube/"><u>In 2024, The Content Creator’s Dilemma  Vimeo or YouTube?</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-trivia-titans-of-the-year-best-general-knowledge-sites/"><u>In 2024, Trivia Titans of the Year - Best General Knowledge Sites</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-realme-v30t-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Realme V30T | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/intercultural-dialogue-deciphering-turkey-and-korea/"><u>Intercultural Dialogue: Deciphering Turkey and Korea</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-through-k-language-to-discern-squid-game/"><u>Journey Through K-Language to Discern Squid Game</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-arabic-effortlessly-6-reasons-using-mondly-online/"><u>Learn Arabic Effortlessly: 6 Reasons Using Mondly Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lenguaje-animal-lista-de-60-nombres-hispanoparlantes/"><u>Lenguaje Animal: Lista De 60 Nombres Hispanoparlantes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguasphere-revolutionizing-educational-vr/"><u>LinguaSphere: Revolutionizing Educational VR</u></a></li>
+<li><a href="https://extra-support.techidaily.com/mastering-nighttime-shots-iphone-photo-tactics-for-2024/"><u>Mastering Nighttime Shots  IPhone Photo Tactics for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-free-languages-for-ukraines-masses/"><u>Mondly: Free Languages for Ukraine's Masses</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-merriment-for-july-fourth/"><u>Multilingual Merriment for July Fourth</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/old-norse-voices-unveiling-viking-communication/"><u>Old Norse Voices: Unveiling Viking Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-bengali-skills-upgrade/"><u>Quick Bengali Skills Upgrade</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/reaching-new-heights-in-english-with-mondly/"><u>Reaching New Heights in English with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/romance-relations-deconstructing-the-similarities-and-differences-in-spanish-and-portuguese/"><u>Romance Relations: Deconstructing the Similarities and Differences in Spanish and Portuguese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saber-cuando-es-que-hora-en-espanol-para-iniciados/"><u>Saber Cuándo Es Qué: Hora en Español Para Iniciados</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/socializing-made-simple-top-phrases-and-words-from-south-america/"><u>Socializing Made Simple: Top Phrases and Words From South America</u></a></li>
+<li><a href="https://win-blog.techidaily.com/solution-steps-for-stability-preventing-sons-of-the-forest-from-crashing-on-pc/"><u>Solution Steps for Stability: Preventing 'Sons of the Forest' From Crashing on PC</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sverige-mojligen-valkommen-hjartligvis/"><u>Sverige Möjligen: Välkommen Hjärtligvis</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tagalog-made-simple-learn-every-day-just-10-minutes/"><u>Tagalog Made Simple: Learn Every Day, Just 10 Minutes!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-future-of-language-learning-how-to-do-it-in-the-21st-century/"><u>The Future Of Language Learning: How To Do It In The 21St Century!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-richness-of-german-vernacular-discover-25-sayings-top/"><u>The Richness of German Vernacular - Discover 25 Sayings (Top)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-worldwide-gratitude-163-trimmed-to-fit/"><u>The Ultimate Guide to Worldwide Gratitude (163) [Trimmed to Fit]</u></a></li>
+<li><a href="https://android-frp.techidaily.com/unveiling-the-latest-in-pc-components-with-toms-expert-insight/"><u>Unveiling the Latest in PC Components with Tom's Expert Insight</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vocabulary-voyage-unraveling-the-bards-lingual-roots/"><u>Vocabulary Voyage: Unraveling the Bard's Lingual Roots</u></a></li>
+</ul></div>

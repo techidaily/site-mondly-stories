@@ -1,7 +1,7 @@
 ---
 title: Comparative Study on English Grammar Patterns
-date: 2024-07-12T09:07:43.836Z
-updated: 2024-07-13T09:07:43.836Z
+date: 2024-08-15T17:40:48.359Z
+updated: 2024-08-16T17:40:48.359Z
 tags:
   - speak
   - english
@@ -63,6 +63,10 @@ thumbnail: https://thmb.techidaily.com/c283e5cd1292f67bf9915abb6f80512d4b71e7281
 
  Previous  Next
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ## Spellings differences: is it “colour” or “color”?
 
  That’s simple! “Colour” is the British spelling and “color” is the American spelling. Always remember that, when it comes to spelling, American English uses a simplified version. The explanation goes back to 1828 when Noah Webster wrote the first American dictionary –_An American Dictionary of the English Language._ Webster said he chose alternative spellings that were already in use in the United States “on such grounds as simplicity, analogy or etymology”.
@@ -95,6 +99,9 @@ thumbnail: https://thmb.techidaily.com/c283e5cd1292f67bf9915abb6f80512d4b71e7281
 
  Although spelling, accent, and vocabulary differences are the most notorious distinctions, American English and British English are divergent in some [grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) matters as well.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Collective nouns
 
  In American English, collective nouns such as “band”, “team”, “family” or “crew” are considered plural. In contrast, British English considers collective nouns either singular or plural, but more often plural as a way to emphasize the members of the group.
@@ -107,6 +114,10 @@ thumbnail: https://thmb.techidaily.com/c283e5cd1292f67bf9915abb6f80512d4b71e7281
 
  Many verbs that are irregular in the past tense in British English (_dreamt, burnt, learnt_), have been made regular in American English (_dreamed, burned, learned_).
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ### Got or gotten?
 
  In the UK, the past participle of “get” – “gotten” – is considered archaic and was replaced with “got” some time ago. Americans, on the other hand, still use “gotten” as the past participle of “get”.
@@ -121,11 +132,17 @@ thumbnail: https://thmb.techidaily.com/c283e5cd1292f67bf9915abb6f80512d4b71e7281
 
  Thus, in Britain, you’ll say**“I’ve been to the supermarket”** and in the US you’ll say**“I went to the supermarket”** .
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Prepositions
 
  In British English, “at” is generally used in relation to time and place. In contrast, in American English, “on” is used in relation to time and “in” is used in relation to place.
 
 ![british american english](https://edge.mondly.com/blog/wp-content/uploads/2020/06/british-american-english-600x600.jpg "British English Vs American English Differences: Spelling, Pronunciation And More 3")
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 
  British English vs American English
 
@@ -156,6 +173,9 @@ thumbnail: https://thmb.techidaily.com/c283e5cd1292f67bf9915abb6f80512d4b71e7281
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<!-- affiliate ads end -->
 ### Brush up your English in just 10 minutes a day
 
  Do you want to speak English like a true American? Or maybe you dream of acquiring the classy British accent? With [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5309&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5309&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5309) you can train for both.
@@ -184,3 +204,53 @@ thumbnail: https://thmb.techidaily.com/c283e5cd1292f67bf9915abb6f80512d4b71e7281
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-popsicle-projector-detailed-tutorial-on-screen-capture-tech/"><u>[New] 2024 Approved  Popsicle Projector  Detailed Tutorial on Screen Capture Tech</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-how-to-optimize-viewing-experience-on-netflix-platforms/"><u>[New] How to Optimize Viewing Experience on Netflix Platforms</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-the-zoomers-guide-to-instagram-story-clarity/"><u>[New] The Zoomer’s Guide to Instagram Story Clarity</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-top-10-affordable-accessible-tools-to-transform-videos/"><u>[New] Top 10 Affordable, Accessible Tools to Transform Videos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-revolutionary-top-8-methods-convert-subtitles-to-srt-format-seamlessly-for-2024/"><u>[Updated] Revolutionary Top 8 Methods  Convert Subtitles to SRT Format Seamlessly for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-most-popular-fb-videos-download-now/"><u>2024 Approved  Most Popular FB Videos - Download Now</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accelerated-polish-language-acquisition/"><u>Accelerated Polish Language Acquisition</u></a></li>
+<li><a href="https://fake-location.techidaily.com/apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-samsung-galaxy-xcover-6-pro-tactical-edition-drfone-by-drfone-virtual-android/"><u>Apply These Techniques to Improve How to Detect Fake GPS Location On Samsung Galaxy XCover 6 Pro Tactical Edition | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719574769106-become-a-croatian-linguist-find-out-the-best-7-benefits-today/"><u>Become a Croatian Linguist – Find Out the Best 7 Benefits Today!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brazilian-and-european-linguistic-tools-a-buttons-perspective/"><u>Brazilian & European Linguistic Tools: A Buttons Perspective</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-borders-turkish-korean-dialogue/"><u>Bridging Borders: Turkish-Korean Dialogue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/connections-in-commotion-flirtatious-german/"><u>Connections in Commotion: Flirtatious German</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-new-horizons-in-hindi-explore-7-inspiring-mondly-advantages/"><u>Conquer New Horizons in Hindi: Explore 7 Inspiring Mondly Advantages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cross-cultural-communication-learn-languages-in-a-virtual-world/"><u>Cross-Cultural Communication: Learn Languages in a Virtual World</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/eduverse-virtual-reality-for-global-communication/"><u>EduVerse: Virtual Reality for Global Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-strategies-for-acquiring-french-at-home/"><u>Essential Strategies for Acquiring French at Home</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expeditious-french-hue-pronunciation-guide/"><u>Expeditious French Hue Pronunciation Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-all-facets-of-japanese-hospitality/"><u>Explore All Facets of Japanese Hospitality</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-the-expressive-world-of-italian-bodily-language/"><u>Exploring the Expressive World of Italian Bodily Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-expert-mondlys-transformative-journey-for-you/"><u>From Novice to Expert - Mondly's Transformative Journey for You</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-goodwill-on-american-celebratory-date/"><u>Global Goodwill on American Celebratory Date</u></a></li>
+<li><a href="https://techidaily.com/how-to-perform-hard-reset-on-motorola-g24-power-drfone-by-drfone-reset-android-reset-android/"><u>How to Perform Hard Reset on Motorola G24 Power? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-say-merry-christmas-in-21-different-languages/"><u>How to Say Merry Christmas in 21 Different Languages</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-vivo-y100t-to-pc-drfone-by-drfone-android/"><u>How to Screen Mirroring Vivo Y100t to PC? | Dr.fone</u></a></li>
+<li><a href="https://driver-download.techidaily.com/how-to-secure-latest-upgrades-and-downloads-for-the-epson-xp-310-printer-model/"><u>How to Secure Latest Upgrades and Downloads for the Epson XP 310 Printer Model</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/huawei-enhances-user-experience-with-mondly/"><u>Huawei Enhances User Experience with Mondly</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-360-camera-buying-guide-how-to-choose-a-suitable-360-camera/"><u>In 2024, 360 Camera Buying Guide  How to Choose a Suitable 360 Camera</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-i-transferred-messages-from-xiaomi-14-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How I Transferred Messages from Xiaomi 14 to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-migrate-android-data-from-huawei-p60-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Migrate Android Data From Huawei P60 to New Android Phone? | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-investing-in-the-future-learning-to-proficiently-record-skype-calls/"><u>In 2024, Investing in the Future  Learning to Proficiently Record Skype Calls</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/innovative-synergy-mondly-enhances-pearsons-buttons/"><u>Innovative Synergy: Mondly Enhances Pearson's Buttons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-vernacular-infusions-in-english/"><u>International Vernacular Infusions in English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/japanese-alphabet-essentials-an-expert-compendium/"><u>Japanese Alphabet Essentials: An Expert Compendium</u></a></li>
+<li><a href="https://driver-download.techidaily.com/latest-firmware-and-software-updates-for-brother-l2690dw-printer-download-here/"><u>Latest Firmware & Software Updates for Brother L2690DW Printer - Download Here!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lerne-deutsche-wochenabschnitte-erkennen/"><u>Lerne Deutsche Wochenabschnitte Erkennen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-vietnam-with-essential-vocabulary/"><u>Navigating Vietnam with Essential Vocabulary</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/phrases-francaises-pour-repondre-merci/"><u>Phrases Françaises Pour Répondre Merci</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-up-career-stages-via-language-training/"><u>Step Up Career Stages via Language Training</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/streaming-made-easier-learning-to-use-netflixs-dual-screen-feature/"><u>Streaming Made Easier  Learning to Use Netflix's Dual-Screen Feature</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ten-years-countless-connections-at-mondly/"><u>Ten Years, Countless Connections at Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-complete-guide-to-home-cooking-mastery-tips-and-techniques/"><u>The Complete Guide to Home Cooking Mastery: Tips and Techniques</u></a></li>
+<li><a href="https://techidaily.com/the-easiest-methods-to-hard-reset-huawei-nova-y91-drfone-by-drfone-reset-android-reset-android/"><u>The Easiest Methods to Hard Reset Huawei Nova Y91 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-investment-required-to-study-german/"><u>The Investment Required to Study German</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-teamwork-via-enhanced-corporate-expression-skills/"><u>Transform Teamwork via Enhanced Corporate Expression Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/us-vs-british-vocabulary-trails/"><u>US vs British Vocabulary Trails</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579254555-year-of-linguistics-cut-costs-by-95-today/"><u>Year of Linguistics? Cut Costs by 95%% Today</u></a></li>
+</ul></div>

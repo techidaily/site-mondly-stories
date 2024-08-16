@@ -1,7 +1,7 @@
 ---
 title: "Beginner's Bible for Hangul: Efficient and Enjoyable"
-date: 2024-07-12T09:04:21.076Z
-updated: 2024-07-13T09:04:21.076Z
+date: 2024-08-15T17:44:11.525Z
+updated: 2024-08-16T17:44:11.525Z
 tags:
   - speak
   - english
@@ -56,6 +56,10 @@ thumbnail: https://thmb.techidaily.com/67b23da48fe8834c53011ffd46dfbcfae0dcd1d4b
 
  The use of Hangul met even more opposition and reforms under Japanese rule, but it eventually became the exclusive writing system in both North and South Korea after 1950.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ## Guide to the Korean Alphabet
 
 **The Korean alphabet or Hangul consists of 40 letters:**
@@ -107,6 +111,9 @@ thumbnail: https://thmb.techidaily.com/67b23da48fe8834c53011ffd46dfbcfae0dcd1d4b
 
  It may seem a bit overwhelming now, but with some study, you’ll eventually master all these rules. The secret is to see all the Korean symbols in action in an actual context. Just make sure you start practicing [Korean with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5015&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5015?mother%5Flang=en%5Fus?target%5Flang=ko&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5015?mother%5Flang=en%5Fus?target%5Flang=ko) and you won’t be sorry. Speaking your first words in Korean takes just 10 minutes a day.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
 ## Comprehensive Guide to Korean Vowel Pronunciation
 
  The Korean vowels are generally separated into two categories: monophthongs and diphthongs. While monophthongs are produced with a single articular movement, diphthongs feature an articulatory change and typically consist of two elements: a glide (or a semivowel) and a monophthong.
@@ -114,6 +121,9 @@ thumbnail: https://thmb.techidaily.com/67b23da48fe8834c53011ffd46dfbcfae0dcd1d4b
  The best part about Korean vowels is that they are easier to learn because **they don’t change depending on their position in the syllable.** Here’s a Korean alphabet chart to help you with vowel pronunciation:
 
 ![korean vowels chart](https://edge.mondly.com/blog/wp-content/uploads/2020/05/korean-vowels-chart-600x291.jpg "Korean Alphabet – A Quick Guide To Hangul 11")
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 
  Korean vowels chart for beginners
 
@@ -122,7 +132,13 @@ thumbnail: https://thmb.techidaily.com/67b23da48fe8834c53011ffd46dfbcfae0dcd1d4b
  There you have it! Now you know all the Korean characters. Make sure to practice what you’ve learned, and you can say you officially mastered Korean writing._Good job, you!_
 
 ![bts](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExdHFmbmtibDFnOHU4YnM0YnQ5Y2VxNDBtbW9sMXZ5MGRodTY3bWI3dCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/McOXfLCpYA6mAQkKDj/giphy-downsized-large.gif "Korean Alphabet – A Quick Guide To Hangul 12")
+<!-- affiliate ads begin -->
+<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<!-- affiliate ads end -->
 ## Korean Letters Design
 
  The alphabetic order of the Korean alphabet is called_ganada_ (가나다 순) and it does not mix consonants and vowels. Rather, consonants come first and vowels come next.
@@ -183,6 +199,9 @@ thumbnail: https://thmb.techidaily.com/67b23da48fe8834c53011ffd46dfbcfae0dcd1d4b
 
  Because the vowels’ names are actually the sounds they make, this bit will be easier to remember. Good luck!
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<!-- affiliate ads end -->
 ## Genius of Hangul: Korean Pronunciation
 
  For an untrained eye, Korean characters might seem meaningless, but there’s a much more complex story behind them. Scripts can transcribe languages at the level of morphemes (logographic scripts like Hanja), syllables (syllabaries like [Japanese kana](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ), segments (alphabetic scripts like the Latin script we use in English), or, sometimes, distinctive features. Well, imagine that the Korean alphabet incorporates aspects of the latter three.
@@ -221,6 +240,9 @@ Moving to vowels, their design is based on three elements:
 
 ![korean alphabet hangul](https://edge.mondly.com/blog/wp-content/uploads/2020/05/korean-alphabet-hangul-e1590392634824-600x600.jpg "Korean Alphabet – A Quick Guide To Hangul 13")
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Additional Tips for Learning Hangul
 
  Another thing you need to master in Korean writing is**letter placement within block shapes.** It’s been said that there are around 11,000 block shapes possible in the Korean alphabet. So, how do you place a letter within a block? Do you have to remember them all by heart?
@@ -242,6 +264,9 @@ Before you go, make sure you check out these frequently asked questions.
 
  Learning Hangul offers numerous benefits, including a key to understanding the Korean language, improved communication with Korean speakers, a deeper understanding of Korean culture, access to a wealth of resources in Korean, enhanced career prospects, personal development through cognitive challenges, demonstration of cultural sensitivity, and enriched travel experiences in South Korea.
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ### What are some common mistakes that learners make when learning Hangul?
 
  Some common mistakes that learners make when learning Hangul include incorrect Korean pronunciation due to not fully understanding the phonetic system, confusion between similar-looking Korean characters, overlooking the importance of stroke order in writing characters, and neglecting to practice writing characters regularly. Additionally, learners may struggle with memorizing character combinations and syllable structures, which can lead to difficulties in reading and writing Korean words correctly.
@@ -251,6 +276,9 @@ Before you go, make sure you check out these frequently asked questions.
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Speak Korean fluently in just 10 minutes a day
 
  Do you want to speak Korean fluently? Get Mondly, the award-winning language learning app that will help you speak Korean as if it were your first language.
@@ -279,3 +307,75 @@ Before you go, make sure you check out these frequently asked questions.
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-secure-your-conversations-mastering-free-and-paid-skype-captures-on-pcsmac/"><u>[New] 2024 Approved  Secure Your Conversations  Mastering Free and Paid Skype Captures on PCs/Mac</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-beyond-basics-professional-tips-from-vidas-features/"><u>[New] Beyond Basics  Professional Tips From Vida's Features</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-elevate-your-content-a-guide-to-engaging-live-thumbnails/"><u>[New] Elevate Your Content  A Guide to Engaging Live Thumbnails</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-mastering-podcast-entrances-eye-catching-scripts/"><u>[New] Mastering Podcast Entrances  Eye-Catching Scripts</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-cross-platform-movie-recording-pc-mac-and-mobile/"><u>[Updated] 2024 Approved  Cross-Platform Movie Recording  PC, Mac & Mobile</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-explore-these-8-sizzling-social-media-sensations-on-fb/"><u>[Updated] 2024 Approved  Explore These 8 Sizzling Social Media Sensations on FB</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-tailored-thumbnail-for-twitter-clips/"><u>[Updated] 2024 Approved  Tailored Thumbnail for Twitter Clips</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-enhancing-engagement-essential-video-formats-for-youtube-viewers/"><u>[Updated] Enhancing Engagement  Essential Video Formats for YouTube Viewers</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-mastery-in-stardew-navigating-the-intricacies-of-ginger-isle/"><u>[Updated] Mastery in Stardew  Navigating the Intricacies of Ginger Isle</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-top-8-ios-and-pc-tools-for-effortlessly-altering-your-videos/"><u>[Updated] Top 8 iOS & PC Tools for Effortlessly Altering Your Videos</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-essential-guide-to-iphone-voice-recording-techniques/"><u>2024 Approved  Essential Guide to iPhone Voice Recording Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/9-unseen-ways-language-changes-your-perspective/"><u>9 Unseen Ways Language Changes Your Perspective</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ace-your-tests-elite-strategies-and-key-certifications/"><u>Ace Your Tests: Elite Strategies and Key Certifications</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/adopting-english-boosts-your-career-trajectory/"><u>Adopting English: Boosts Your Career Trajectory</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beyond-the-basics-6-innovative-strategies-to-embrace-a-foreign-tongue/"><u>Beyond the Basics: 6 Innovative Strategies to Embrace a Foreign Tongue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/boost-your-language-skills-and-networking-through-mondly-vr/"><u>Boost Your Language Skills & Networking Through Mondly VR</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-communication-gaps-with-mondlys-languages/"><u>Bridging Communication Gaps with Mondly's Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-knowledge-gaps-with-ai-assistance/"><u>Bridging Knowledge Gaps With AI Assistance</u></a></li>
+<li><a href="https://facebook.techidaily.com/build-your-career-with-smart-social-media-strategies/"><u>Build Your Career with Smart Social Media Strategies</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/capture-childhood-memories-effortlessly/"><u>Capture Childhood Memories Effortlessly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/connect-conquer-create-the-top-10-reasons-to-learn-languages/"><u>Connect, Conquer, Create: The Top 10 Reasons to Learn Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/demystifying-five-popular-but-inaccurate-language-learning-stories/"><u>Demystifying Five Popular But Inaccurate Language Learning Stories</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-the-countries-that-santa-can-speak-too/"><u>Discover the Countries That Santa Can Speak Too</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/earths-dominant-tongues-leading-fifteen-list/"><u>Earth's Dominant Tongues: Leading Fifteen List</u></a></li>
+<li><a href="https://win11.techidaily.com/fixing-screen-unresponsive-message-in-windows-1111/"><u>Fixing Screen Unresponsive Message in Windows 11/11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-halloween-celebrations-from-dia-de-muertos-to-romanias-st-andrews-day/"><u>Global Halloween Celebrations: From Día De Muertos to Romania’s St. Andrew’s Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/globally-trending-app-by-apple/"><u>Globally Trending App by Apple</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/globally-how-many-are-french-fluent-key-nations/"><u>Globally, How Many Are French Fluent? Key Nations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/going-global-mondlys-selection-from-googled-editors/"><u>Going Global: Mondly's Selection From Googled Editors</u></a></li>
+<li><a href="https://driver-install.techidaily.com/gtx-760-updates-now-simple-and-swift/"><u>GTX 760: Updates Now Simple & Swift</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hello-in-spanish-and-other-basic-spanish-greetings-you-need-to-know/"><u>Hello in Spanish and Other Basic Spanish Greetings You Need to Know</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-insert-sign-in-xltm-files-by-ldigisigner-sign-a-excel-sign-a-excel/"><u>How to insert sign in .xltm files</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-honor-x8b-phone-without-google-account-by-drfone-android/"><u>How to Unlock Honor X8b Phone without Google Account?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-best-vivo-v30-lite-5g-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>In 2024, Best Vivo V30 Lite 5G Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-bypass-icloud-activation-lock-with-imei-code-from-iphone-15-by-drfone-ios/"><u>In 2024, Bypass iCloud Activation Lock with IMEI Code From iPhone 15</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-delete-gmail-account-withwithout-password-on-xiaomi-civi-3-disney-100th-anniversary-edition-by-drfone-android/"><u>In 2024, Delete Gmail Account With/Without Password On Xiaomi Civi 3 Disney 100th Anniversary Edition</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-activation-lock-on-apple-watch-or-apple-iphone-14-plus-by-drfone-ios/"><u>In 2024, How To Bypass Activation Lock On Apple Watch Or Apple iPhone 14 Plus?</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-7-apples-new-iphone-drfone-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 7, Apples New iPhone | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-optimal-video-formats-to-skyrocket-your-youtube-popularity/"><u>In 2024, Optimal Video Formats to Skyrocket Your YouTube Popularity</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-premium-top-11-list-audio-recording-essentials/"><u>In 2024, Premium Top 11 List - Audio Recording Essentials</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>In 2024, Where Is the Best Place to Catch Dratini On Apple iPhone 6s | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/insider-guide-to-italian-gestural-expression/"><u>Insider Guide to Italian Gestural Expression</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-anywhere-anytime-with-mondlys-advanced-phrases-guide/"><u>Learn Anywhere, Anytime with Mondly's Advanced Phrases Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-latvian-super-fast-a-daily-dedication/"><u>Learn Latvian Super Fast: A Daily Dedication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-echoes-36-words-birthed-by-the-globe/"><u>Linguistic Echoes: 36 Words Birthed by the Globe</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-passion-across-continents/"><u>Linguistic Passion Across Continents</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/local-lingo-made-simple-speak-like-an-aussie/"><u>Local Lingo Made Simple: Speak Like an Aussie</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/manejo-diario-semana-en-espanol/"><u>Manejo Diario: Semana en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-spanish-while-chatting-in-virtual-reality-social-spaces/"><u>Master Spanish While Chatting in Virtual Reality Social Spaces</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-voyage-to-language-success-the-best/"><u>Mondly's Voyage to Language Success, The Best</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-the-roadmap-to-linguistic-competence/"><u>Navigating The Roadmap to Linguistic Competence</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/reponses-francines-a-merci-le-choix-parfait/"><u>Réponses Francines À 'Merci': Le Choix Parfait</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/solace-for-strugglers-dannys-foundation-in-colombia/"><u>Solace for Strugglers: Danny's Foundation in Colombia</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/starters-pack-of-spanish-counting/"><u>Starter's Pack of Spanish Counting</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/step-by-step-tutorial-how-to-install-latest-ati-drivers-in-windows-os/"><u>Step-by-Step Tutorial: How to Install Latest ATI Drivers in Windows OS</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sweet-seductive-scripts-italian-love-language/"><u>Sweet Seductive Scripts: Italian Love Language</u></a></li>
+<li><a href="https://win-forum.techidaily.com/the-essential-components-of-windows-unveiling-the-mysteries-of-the-registry/"><u>The Essential Components of Windows: Unveiling the Mysteries of the Registry</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-language-chameleons-adapting-to-current-slang-trends/"><u>The Language Chameleons: Adapting to Current Slang Trends</u></a></li>
+<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-vivo-g2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Vivo G2 | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/top-8-innovative-chatbot-tools-boosting-health-and-wellbeing/"><u>Top 8 Innovative Chatbot Tools Boosting Health & Wellbeing</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/top-live-broadcast-tech-for-industry-experts/"><u>Top Live Broadcast Tech for Industry Experts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/us-birthday-a-universal-happiness/"><u>U.S. Birthday: A Universal Happiness</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/ultimate-guide-from-vivo-y78-5g-frp-bypass-by-drfone-android/"><u>Ultimate Guide from Vivo Y78 5G FRP Bypass</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-the-secrets-of-mondly-excellence/"><u>Unlocking the Secrets of Mondly Excellence</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/weekly-essentials-the-best-of-igtv/"><u>Weekly Essentials  The Best of IGTV</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578481846-why-learn-croatian-discover-these-7-reasons-to-start-your-journey-today/"><u>Why Learn Croatian? - Discover These 7 Reasons to Start Your Journey Today!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/your-first-steps-into-mastering-french-pronunciation/"><u>Your First Steps Into Mastering French Pronunciation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/zero-cost-maximum-impact-your-japanese-self-study-roadmap/"><u>Zero Cost, Maximum Impact - Your Japanese Self-Study Roadmap</u></a></li>
+</ul></div>

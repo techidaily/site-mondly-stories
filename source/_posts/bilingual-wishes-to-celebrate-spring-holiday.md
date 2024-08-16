@@ -1,7 +1,7 @@
 ---
 title: Bilingual Wishes to Celebrate Spring Holiday
-date: 2024-07-12T09:06:43.613Z
-updated: 2024-07-13T09:06:43.613Z
+date: 2024-08-15T17:41:48.399Z
+updated: 2024-08-16T17:41:48.399Z
 tags:
   - speak
   - english
@@ -49,6 +49,9 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
 * Swedish –_Glad påsk!_
 * Turkish –_Paskalyanız kutlu olsun!_
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The origins of Easter
 
  Easter, much like [Christmas](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , has its origins in both Christianity and ancient pagan culture. Originally, it was a celebration of the spring equinox in pagan culture, but later it became a Christian holiday that commemorates the resurrection of Jesus Christ. Today, Easter is typically celebrated around the time of the Jewish Passover.
@@ -71,6 +74,9 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
 
 [Start Now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-7544&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-7544&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-7544&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-7544&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-7544%26mt%3D8)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Is the Easter bunny real? Easter bunny origins
 
  Do you suspect your parents are lying to you about the existence of the Easter bunny? If so, you should really ask them about it. The internet is not always the best place to look for answers. Besides, honesty is very important in a parent-child relationship. So build up the courage and ask either a parent or a guardian. They will seem surprised by your question at first, but they will be more than happy to respond.
@@ -79,6 +85,9 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
 
  However, that doesn’t mean you shouldn’t believe in it. In a way, the Easter bunny is real as long as you believe in it because it continues to exist in your heart.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
 ### The origins of the Easter bunny
 
  The Easter bunny is a fictional hare who delivers chocolate eggs, candy, and other treats to children on Easter Sunday. Despite the Bible not mentioning it, the bunny has become a much beloved and prominent figure of the Easter celebrations.
@@ -91,6 +100,9 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
 
  In the 1700s, German immigrants reportedly brought over their tradition of an egg-laying hare called “Osterhase” or “Oschter Haws” from the Old Country to America. According to legend, children would create nests for the bunny to leave his colorful eggs. The custom spread across America, and over time, the Easter Bunny’s delivery of treats expanded to include chocolate and toys.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<!-- affiliate ads end -->
 ## What is the Easter egg hunt tradition?
 
  It might seem like a mistake to say that the Easter Bunny lays eggs since rabbits are mammals and give birth to live young. However, both rabbits and eggs are ancient symbols of fertility and renewal and have long been associated with the celebration of Easter. For Christians, Easter eggs have a special meaning as the egg symbol was likened to the tomb from which Christ arose. Decorating eggs for Easter has been a tradition since the 13th century when eggs were forbidden during Lent. By decorating eggs, people would make eating them on Easter Sunday even more special after the fasting period was over.
@@ -99,6 +111,9 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
 
  Nowadays, the Easter egg hunt has become a fun activity enjoyed by children and parents alike.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<!-- affiliate ads end -->
 ## Easter traditions around the world
 
 * In**Greece** , people dye the eggs only in red shades as red represents the blood of Jesus Christ.
@@ -128,18 +143,27 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
 
 !['Happy Easter' by Priscilla Du Preez©](https://edge.mondly.com/blog/wp-content/uploads/2023/03/happy-easter-960x640.jpg "Happy Easter In Different Languages &Amp; Easter Traditions 4")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 1\. Spanish – _¡Felices Pascuas!_
 
  ‘Easter’ in Spanish is_Pascuas_ . As previously mentioned, the Paschal greeting in Spanish is_“Cristo ha resucitado! – En verdad ha resucitado!”;_ however, Spanish people don’t really use it. Instead, they say_Felices Pascuas_ (‘Happy Easter’) or simply_Felices Fiestas_ which means ‘Happy Holidays’.
 
  The Easter menu during La Semana Santa (‘The Holy Week’) includes_torrijas_ which is a kind of French toast and_potaje de vigilia_ which is a chickpea soup.
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 2\. French –_Joyeuses Pâques !_
 
 _Pâques_ (‘Easter’ in French) is an important holiday in France as families get together to celebrate and eat the traditional lamb cooked in the oven with Provençal herbs, garlic, cumin, and olive oil.
 
  Other Easter traditions in France include chocolate, the Easter bells_(_ _Les cloches de Pâques)_ and the classic rabbits and eggs, of course!
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<!-- affiliate ads end -->
 ## 3\. German –_Frohe Ostern!_
 
  Easter (_Ostern_ in German) in Germany has a long history and some of its traditions have even spread around the world.
@@ -148,12 +172,18 @@ _Pâques_ (‘Easter’ in French) is an important holiday in France as families
 
  The Easter menu also included yeast pastries like_Hefezopf_ or_Osterkranz_ , which can be stuffed with nuts and dried fruits and eaten with butter or jam.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## 4\. Italian –_Buona Pasqua!_
 
  Easter (_Pasqua_ in Italian) is a significant holiday in Italy, second only to Christmas. While the days before Easter include solemn masses, the holiday itself is a joyous celebration with many traditions._La Pasquetta_ , the day after Easter Sunday, is also a public holiday throughout Italy.
 
  Traditional holiday foods in Italy include lamb or goat, artichokes, and special Easter breads that differ from region to region. Some popular Easter breads are_Pannetone_ sweet bread and_Colomba_ (dove-shaped) bread, which are often given as gifts.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## 5\. Portuguese –_Feliz Páscoa!_
 
  In Portugal, Easter is celebrated with great passion and religious fervor. The Holy Week of Easter_(Semana Santa)_ is like a somber carnival, with religious processions, Biblical re-enactments, and Roman period costumes, and is mostly celebrated outdoors.
@@ -221,3 +251,57 @@ In both countries, people eat salt cod on Good Friday.
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-the-insta-ode-selecting-song-lyrics-and-beats-for-vids-for-2024/"><u>[New] The Insta-Ode  Selecting Song Lyrics and Beats for Vids for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-unlocking-windows-hdr-capabilities-for-cutting-edge-video-workflows/"><u>[New] Unlocking Windows' HDR Capabilities for Cutting-Edge Video Workflows</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-years-of-excellence-with-mondlyback-filters/"><u>10 Years of Excellence with MondlyBack Filters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576468399-2022-start-fluently-with-a-95-off-language-quest/"><u>2022: Start Fluently with a 95%% Off Language Quest!</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-innovative-thumbnail-tips-for-mac-users-youtube/"><u>2024 Approved  Innovative Thumbnail Tips for Mac Users - YouTube</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-photojester-snapyour-chuckles/"><u>2024 Approved  PhotoJester  SnapYour Chuckles</u></a></li>
+<li><a href="https://android-location.techidaily.com/3-effective-methods-to-fake-gps-location-on-android-for-your-xiaomi-redmi-k70-drfone-by-drfone-virtual/"><u>3 Effective Methods to Fake GPS location on Android For your Xiaomi Redmi K70 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/50-years-of-europes-voices-celebrating-linguistic-babel/"><u>50 Years of Europe’s Voices - Celebrating Linguistic Babel</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-linguists-guide-to-croatia-mastering-114-key-phrases-for-your-exciting-journey/"><u>A Linguist’s Guide to Croatia: Mastering 114 Key Phrases for Your Exciting Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-new-lexicon-unfolds-at-mondlylanguages-visionary-journey/"><u>A New Lexicon Unfolds at MondlyLanguages - Visionary Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/adopt-the-ten-minute-method-to-learn-urdu-online/"><u>Adopt the Ten-Minute Method to Learn Urdu Online!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/advance-your-company-culture-via-efficient-language-development/"><u>Advance Your Company Culture via Efficient Language Development</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/advantages-in-two-languages-the-top-6/"><u>Advantages in Two Languages: The Top 6</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/become-fluent-in-tagalog-fast-and-easy/"><u>Become Fluent in Tagalog Fast and Easy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/best-practices-and-tools-for-at-home-french-studies/"><u>Best Practices & Tools for At-Home French Studies</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-engagement-and-growth-unlocking-youtube-analytics-via-social-blade-for-2024/"><u>Boost Engagement and Growth - Unlocking YouTube Analytics via Social Blade for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/boost-your-tagalog-skills-10-minute-daily-sessions/"><u>Boost Your Tagalog Skills - 10-Minute Daily Sessions!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/break-language-barriers-with-love-this-february/"><u>Break Language Barriers with Love This February</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/connect-with-italians-top-10-friendly-and-formal-salutations/"><u>Connect with Italians: Top 10 Friendly and Formal Salutations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conocimiento-basico-de-tiempo-en-espanol/"><u>Conocimiento Básico De Tiempo en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/crossing-cultures-turkish-and-korean-communication/"><u>Crossing Cultures: Turkish & Korean Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-conduits-pathways-to-effective-international-dialogue/"><u>Cultural Conduits: Pathways to Effective International Dialogue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daily-dose-of-latvian-mastering-in-under-an-hour/"><u>Daily Dose of Latvian: Mastering in Under an Hour</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daybreak-dialogue-expressing-good-morning-in-various-languages/"><u>Daybreak Dialogue: Expressing 'Good Morning' In Various Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-the-top-100-words-that-stump-english-learners/"><u>Decoding the Top 100 Words That Stump English Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/delicate-declarations-italys-flirty-lexicon/"><u>Delicate Declarations: Italy's Flirty Lexicon</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dialect-dichotomy-ukraine-vs-russias-vernacular/"><u>Dialect Dichotomy - Ukraine Vs Russia's Vernacular</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-8-exhilarating-advantages-of-studying-hindi-on-mondlycom/"><u>Discover 8 Exhilarating Advantages of Studying Hindi on Mondly.com</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-new-tongues-with-music-scientifically-validated-practices/"><u>Discover New Tongues with Music: Scientifically Validated Practices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effortless-latino-studies-at-home/"><u>Effortless Latino Studies at Home</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effortlessly-learn-korean-a-guide-to-the-leading-6-resources/"><u>Effortlessly Learn Korean: A Guide to the Leading 6 Resources</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevate-workforce-skills-with-elite-linguistic-apps/"><u>Elevate Workforce Skills with Elite Linguistic Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevating-your-professional-lexicon-a-strategy/"><u>Elevating Your Professional Lexicon: A Strategy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-the-worlds-diversity-learn-for-just-a-small-price-increase/"><u>Embrace the World's Diversity - Learn for Just a Small Price Increase!</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/enhancing-productivity-with-efficient-nvidia-capture-for-2024/"><u>Enhancing Productivity with Efficient NVIDIA Capture for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580629507-fluent-in-just-a-few-weeks-learn-tagalog-fast/"><u>Fluent in Just a Few Weeks? Learn Tagalog Fast</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581890717-get-up-and-learn-urdu-10-minute-rule/"><u>Get Up & Learn Urdu – 10-Minute Rule!</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-samsung-galaxy-s24-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Samsung Galaxy S24 | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-10-key-steps-for-basic-photo-color-correction/"><u>In 2024, 10 Key Steps for Basic Photo Color Correction</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-leave-a-life360-group-on-realme-gt-neo-5-se-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How To Leave a Life360 Group On Realme GT Neo 5 SE Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-sharefake-location-on-whatsapp-for-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Share/Fake Location on WhatsApp for Apple iPhone 14 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-how-to-transfersync-notes-from-apple-iphone-6-to-ipad-drfone-by-drfone-transfer-from-ios/"><u>In 2024, How to Transfer/Sync Notes from Apple iPhone 6 to iPad | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-honor-90-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Snapchat Location Spoofer to Protect Your Privacy On Honor 90 Pro? | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-unlock-your-content-potential-best-ideas-for-youtube-themes/"><u>In 2024, Unlock Your Content Potential  Best Ideas for YouTube Themes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581592909-learn-tagalog-online-in-just-10-minutes-a-day/"><u>Learn Tagalog Online in Just 10 Minutes a Day</u></a></li>
+<li><a href="https://fox-that.techidaily.com/resolving-whatsapp-icloud-backup-problems-for-seamless-chat-history-syncing-on-iphone-and-ipad/"><u>Resolving WhatsApp iCloud Backup Problems for Seamless Chat History Syncing on iPhone and iPad</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/revolutionize-your-video-content-high-quality-made-simple/"><u>Revolutionize Your Video Content High-Quality Made Simple</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581809690-simplified-terms-for-users-today/"><u>Simplified Terms for Users Today!</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/the-ultimate-guide-to-choosing-a-tunefab-recorder-for-2024/"><u>The Ultimate Guide to Choosing a Tunefab Recorder for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576803456-watching-dark-get-smart-about-german-instead/"><u>Watching Dark? Get Smart About German Instead!</u></a></li>
+</ul></div>

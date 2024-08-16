@@ -1,7 +1,7 @@
 ---
 title: Converse Confidently in German with These 25 Must-Know Phrases
-date: 2024-07-12T09:05:28.191Z
-updated: 2024-07-13T09:05:28.191Z
+date: 2024-08-15T17:43:03.382Z
+updated: 2024-08-16T17:43:03.382Z
 tags:
   - speak
   - english
@@ -26,6 +26,9 @@ thumbnail: https://thmb.techidaily.com/c79523d5da758dd05891e015a6284b16ba6ad6e3e
 
  That being said, let’s see what such idioms Germans use the most in their daily interactions.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
 ### 1._Um den heißen Brei herumreden_
 
 **Literal translation:** To talk around the hot porridge.
@@ -58,6 +61,18 @@ thumbnail: https://thmb.techidaily.com/c79523d5da758dd05891e015a6284b16ba6ad6e3e
 
  As odd as this one sounds, it will come in very handy in those situations when you can’t believe what you’re hearing or seeing. The English equivalent could be “You’ve got to be kidding me!”.
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **5.** _Seinen Senf dazugeben_
 
 **Literal translation:** To add your mustard to it.
@@ -67,6 +82,9 @@ thumbnail: https://thmb.techidaily.com/c79523d5da758dd05891e015a6284b16ba6ad6e3e
  Where there are sausages, there also must be mustard. If you want to ask someone for their opinion and sound like a fluent speaker when doing it, you better invite them to add their mustard.
 
 !['German idioms in English' by Ron Lach©](https://edge.mondly.com/blog/wp-content/uploads/2022/09/german-idioms-in-english-960x640.jpg "Top 25 German Idioms To Speak Like A German 2")
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<!-- affiliate ads end -->
 
 ### **6.** _Die Kirche im Dorf lassen_
 
@@ -100,6 +118,9 @@ thumbnail: https://thmb.techidaily.com/c79523d5da758dd05891e015a6284b16ba6ad6e3e
 
  This idiom is perfect for those who usually celebrate their victories prematurely. Its sentiment is similar to the English equivalent “Don’t count your chickens before they hatch. “
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **10.** _Da kannst du Gift drauf nehmen_
 
 **Literal translation:** You can take poison on that.
@@ -116,6 +137,9 @@ thumbnail: https://thmb.techidaily.com/c79523d5da758dd05891e015a6284b16ba6ad6e3e
 
  Now that’s a fun way of saying someone is getting on your nerves! It’s so cute that we’re actually thinking of making a petition to adopt it in English as well. Are you in?
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### **12.** _Da steppt der Bär_
 
 **Literal translation:** The bear dances there.
@@ -134,6 +158,9 @@ thumbnail: https://thmb.techidaily.com/c79523d5da758dd05891e015a6284b16ba6ad6e3e
 
 !['Common German idioms' by Gratisography©](https://edge.mondly.com/blog/wp-content/uploads/2022/09/common-german-idioms-960x640.jpg "Top 25 German Idioms To Speak Like A German 3")
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<!-- affiliate ads end -->
 ### **14.** _Das ist Schnee von gestern_
 
 **Literal translation:** That’s yesterday’s snow.
@@ -174,6 +201,9 @@ thumbnail: https://thmb.techidaily.com/c79523d5da758dd05891e015a6284b16ba6ad6e3e
 
  We don’t support insults, but this one can also be used as a joke between very – and we mean**very** – close friends.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ### **19.** _Alles hat ein Ende, nur die Wurst hat zwei_
 
 **Literal translation:** Everything has an end. Only the sausage has two.
@@ -182,6 +212,9 @@ thumbnail: https://thmb.techidaily.com/c79523d5da758dd05891e015a6284b16ba6ad6e3e
 
  Sausages again! Even when they come up with witty remarks about life itself, Germans must make a reference to_wursts_ . We do feel inspired, but we must admit we’re also drooling at this point.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<!-- affiliate ads end -->
 ### **20.** _Ich habe Schwein gehabt_
 
 **Literal translation:** I’ve had a pig.
@@ -191,7 +224,13 @@ thumbnail: https://thmb.techidaily.com/c79523d5da758dd05891e015a6284b16ba6ad6e3e
  I guess it is inevitable. If there are German idioms about sausages, there must also be German idioms about pigs. Naturally, when someone says_Ich habe Schwein gehabt_ , it means they have been lucky without having done anything themselves to earn it.
 
 !['German expressions' by Picography©](https://edge.mondly.com/blog/wp-content/uploads/2022/09/german-expressions-960x640.jpg "Top 25 German Idioms To Speak Like A German 4")
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **21.** _Haare auf den Zähnen haben_
 
 **Literal translation:** To have hair on one’s teeth.
@@ -200,6 +239,9 @@ thumbnail: https://thmb.techidaily.com/c79523d5da758dd05891e015a6284b16ba6ad6e3e
 
  That’s just weird, but okay, German. If someone’s having one of those days, it may prove helpful the lighten the mood with this funny idiom.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **22.** _Einen Kater haben_
 
 **Literal translation:** To have a cat.
@@ -210,6 +252,9 @@ thumbnail: https://thmb.techidaily.com/c79523d5da758dd05891e015a6284b16ba6ad6e3e
 
  Before you jump to conclusions, you must know that_Kater_ (‘tomcat’) comes from the word_Katarrh_ , a condition in which a lot of thick liquid is produced in your nose and throat. Over time, the pronunciation of the word changed into_Kater_ .
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<!-- affiliate ads end -->
 ### **23.** _Da haben wir den Salat_
 
 **Literal translation:** There we have the salad.
@@ -218,6 +263,9 @@ thumbnail: https://thmb.techidaily.com/c79523d5da758dd05891e015a6284b16ba6ad6e3e
 
  Sometimes we see a bad situation coming and we warn the parties involved, but they choose not to listen. Well, this idiom is perfect for the aftermath when all you want to say is: I told you so!
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ### **24.** _Einen Vogel haben_
 
 **Literal translation:** To have a bird.
@@ -230,6 +278,9 @@ thumbnail: https://thmb.techidaily.com/c79523d5da758dd05891e015a6284b16ba6ad6e3e
 
 It’s usually used as an insult, so be careful to who you are saying this.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ### **25.** _Jemandem ein Ohr abkauen_
 
 **Literal translation:** Chew off someone’s ear.
@@ -290,3 +341,43 @@ _ [Tschüss](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=10
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-pioneering-online-presence-with-cutting-edge-360-videos-for-facebook-for-2024/"><u>[New] Pioneering Online Presence with Cutting-Edge 360 Videos for Facebook for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-securely-saving-your-instagram-videos-on-pc-and-macos-for-2024/"><u>[New] Securely Saving Your Instagram Videos on PC and MacOS for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-20plus-artistic-assembly-ideas-for-a-brighter-yard/"><u>[Updated] 20+ Artistic Assembly Ideas for a Brighter Yard</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unlock-your-social-media-superpowers-top-9-instagram-techniques-to-skyrocket-popularity/"><u>[Updated] Unlock Your Social Media Superpowers  Top 9 Instagram Techniques to Skyrocket Popularity</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-convenient-chromebook-shot-techniques-method-4/"><u>2024 Approved  Convenient Chromebook Shot Techniques (Method #4)</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/clearing-space-easy-ways-to-delete-apps-on-a-samsung-television-set/"><u>Clearing Space: Easy Ways to Delete Apps on a Samsung Television Set</u></a></li>
+<li><a href="https://extra-information.techidaily.com/codec-battlegrounds-assessing-the-advantages-of-av1-and-vp9-for-2024/"><u>Codec Battlegrounds  Assessing the Advantages of Av1 and VP9 for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/ensuring-clear-audio-a-quick-guide-for-windows-users/"><u>Ensuring Clear Audio: A Quick Guide for Windows Users</u></a></li>
+<li><a href="https://win-dash.techidaily.com/find-download-and-install-surface-book-2-drivers-with-these-user-friendly-steps/"><u>Find, Download & Install Surface Book 2 Drivers with These User-Friendly Steps</u></a></li>
+<li><a href="https://win-able.techidaily.com/fixes-and-hacks-overcoming-the-rust-not-responding-issue/"><u>Fixes and Hacks: Overcoming the 'Rust Not Responding' Issue</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-broken-video-files-of-honor-on-mac-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair Broken video files of Honor on Mac?</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-guide-on-how-to-remove-apple-id-from-apple-iphone-13-by-drfone-ios/"><u>In 2024, Guide on How To Remove Apple ID From Apple iPhone 13</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Watch Hulu Outside US On Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/intrigue-italian-locals-20plus-vocabulary-guide/"><u>Intrigue Italian Locals - 20+ Vocabulary Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introduccion-al-control-de-reloj-digital-en-espanol/"><u>Introducción Al Control De Reloj Digital en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jumpstart-on-japanese-number-acumen-today/"><u>Jumpstart on Japanese Number Acumen Today!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-lineage-unraveling-brazilian-and-eu-linguistic-roots/"><u>Language Lineage: Unraveling Brazilian & EU Linguistic Roots</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lexical-divergence-in-us-and-uk/"><u>Lexical Divergence in US and UK</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/majority-language-of-israeli-culture/"><u>Majority Language of Israeli Culture?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-the-backbone-of-its-education-system/"><u>Mondly: The Backbone of Its Education System</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oxford-3000-modern-mobile-learning-for-vocabulary-growth/"><u>Oxford 3000: Modern, Mobile Learning for Vocabulary Growth</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-croatian-and-boost-your-career-discover-these-7-advantages/"><u>Speak Croatian and Boost Your Career: Discover These 7 Advantages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-volumes-older-adults-new-languages/"><u>Speaking Volumes: Older Adults, New Languages</u></a></li>
+<li><a href="https://win-answers.techidaily.com/1722985169892-step-by-step-remedy-for-steams-secured-content-error-enjoy-unrestricted-access-now/"><u>Step-by-Step Remedy for Steam's Secured Content Error: Enjoy Unrestricted Access Now!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/thank-you-in-chinese-xiexie-and-12-other-thank-you-chinese-phrases/"><u>Thank You in Chinese: Xièxiè and 12 Other Thank You Chinese Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-inspirational-journey-of-johannes-honterus/"><u>The Inspirational Journey of Johannes Honterus</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-power-of-music-when-learning-a-new-language-sing-that-language/"><u>The Power Of Music When Learning A New Language – Sing That Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-tapestry-of-english-threads-from-abroad/"><u>The Tapestry of English: Threads From Abroad</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/timing-your-way-to-linguistic-excellence/"><u>Timing Your Way to Linguistic Excellence</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-nye-goals-attainability-strategies/"><u>Top NYE Goals: Attainability Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/triumphant-strategies-securing-the-best-language-certifications/"><u>Triumphant Strategies: Securing the Best Language Certifications</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/turkish-and-korean-linguistic-journey/"><u>Turkish and Korean Linguistic Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/twinspeak-tutorials/"><u>Twinspeak Tutorials</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-free-and-functional-video-editing-software-for-32-bit-windows-for-2024/"><u>Updated Free and Functional Video Editing Software for 32-Bit Windows for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/whispers-of-love-the-art-of-italian-pick-up-lines/"><u>Whispers Of Love: The Art Of Italian Pick Up Lines</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-invest-in-your-future-with-german/"><u>Why Invest in Your Future with German</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Breakthrough Tips in English Grammar From an Experienced ESL Orator
-date: 2024-07-12T09:10:21.311Z
-updated: 2024-07-13T09:10:21.311Z
+date: 2024-08-15T17:38:12.336Z
+updated: 2024-08-16T17:38:12.336Z
 tags:
   - speak
   - english
@@ -36,6 +36,9 @@ thumbnail: https://thmb.techidaily.com/dbcd91d398192e490625be17ab539ce0390575e1c
 
  And the list can and should continue (check the English grammar courses from Oxford for more). But in today’s lesson we’re focussing more on curriculum and tips, so let’s move on to your next step.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## 2\. Continue with verbs and verb tenses
 
  Verbs and verb tenses are important because they can make your whole language sound off if you don’t use the correct form. And what better way to understand verb tenses than examples?
@@ -71,6 +74,9 @@ thumbnail: https://thmb.techidaily.com/dbcd91d398192e490625be17ab539ce0390575e1c
 
  Don’t forget that this is a central part of English grammar and mastering it will help you sound like a true native fast. Besides, mistaking one verb form for another is something you should avoid at all costs!
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<!-- affiliate ads end -->
 ## 4\. Focus on context instead of rules
 
  When it comes to [**speaking English**](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ,[Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4717&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4717&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4717) is probably the best tool that can get you there really fast. Why? Because Mondly is based on the inductive method: learn by doing, context and example, and extrapolate to rules. In other words, start thinking in English rather than construct a phrase in your native language, apply the rules and only then translate it accordingly.
@@ -87,6 +93,9 @@ thumbnail: https://thmb.techidaily.com/dbcd91d398192e490625be17ab539ce0390575e1c
 
  Whether we are talking about adjective forms, irregular verbs, or nouns without plurals, exceptions are fewer and can help you achieve the level of English fluency and correctness you always dreamed you’d have.
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 6\. Practice English Grammar with Oxford
 
  Being the best always requires hard work and practice. Thus, if you want to take a step further and grow from beginner to advanced and later proficient, you should practice grammar with the special workbooks from [Oxford](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
@@ -97,12 +106,18 @@ thumbnail: https://thmb.techidaily.com/dbcd91d398192e490625be17ab539ce0390575e1c
 
  “Find your favorite book” by 🇸🇮 Janko Ferlič©
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ## 7\. Don’t overthink it
 
  Go with the flow and let the inductive method work. Trust your instinct. In time, once you get used to the language, you’ll be able to speak English as easily as you speak your native language.
 
  Don’t calculate your next ten moves. Instead, think directly in English and just speak. If you overthink a phrase now, you’ll overthink it forever.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 8\. Read your favorite books in English
 
  What better way is there to get used to English grammar in context than reading your favorite books in English? I, for one, started with Harry Potter because it is easy to read and it does not use complex vocabulary.
@@ -111,6 +126,10 @@ thumbnail: https://thmb.techidaily.com/dbcd91d398192e490625be17ab539ce0390575e1c
 
  Seeing the English grammar in context will help you assimilate the information faster and learn to use it successfully yourself.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+</a>
+<!-- affiliate ads end -->
 ## 9\. Make English grammar your friend
 
  After reading, it’s time to practice what you’ve learned with a nice English writing session. Write about your passions, your hobbies, or just about anything you want. The idea is to practice expressing yourself in English in regard to the things you are more likely to talk about in a future conversation with an English speaker.
@@ -148,3 +167,42 @@ thumbnail: https://thmb.techidaily.com/dbcd91d398192e490625be17ab539ce0390575e1c
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-unveiling-the-art-of-facebook-reels-production/"><u>[New] 2024 Approved  Unveiling the Art of Facebook Reels Production</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-from-unverified-to-verified-amplifying-your-instagram-profile-with-proven-strategies/"><u>[New] In 2024, From Unverified to Verified  Amplifying Your Instagram Profile with Proven Strategies</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-unlock-the-art-of-iphone-photography-skill-building-tips/"><u>[New] Unlock the Art of iPhone Photography  Skill-Building Tips</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-walk-of-shadows-the-ultimate-list-of-greatest-zombie-games/"><u>[Updated] 2024 Approved  Walk of Shadows  The Ultimate List of Greatest Zombie Games</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-beat-cutting-editing-music-videos-on-ios/"><u>[Updated] Beat Cutting  Editing Music Videos on iOS</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-channel-visuals-hub-icon-and-banner-crafting-tips-for-2024/"><u>[Updated] Channel Visuals Hub  Icon & Banner Crafting Tips for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-enhancing-social-media-strategy-facebook-whatsapp-video-sharing/"><u>[Updated] Enhancing Social Media Strategy  Facebook-WhatsApp Video Sharing</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-from-inquiry-to-insight-best-practices-for-story-based-polls/"><u>[Updated] In 2024, From Inquiry to Insight  Best Practices for Story-Based Polls</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-singular-snaps-crafting-a-musical-experience-in-snapchat/"><u>[Updated] In 2024, Singular Snaps  Crafting a Musical Experience in Snapchat</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-nikon-j5-setting-new-standards-in-high-resolution-video-production/"><u>[Updated] Nikon J5  Setting New Standards in High-Resolution Video Production</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-unveiling-the-power-of-free-countdown-tools-for-time-management/"><u>[Updated] Unveiling the Power of Free Countdown Tools for Time Management</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-ignite-engagement-on-twitch-alive-tweeting-techniques/"><u>2024 Approved  Ignite Engagement on Twitch  Alive Tweeting Techniques</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/apples-operating-system-odyssey-tracing-the-path-of-ios-from-its-inception-version-10-to-version-18/"><u>Apple's Operating System Odyssey: Tracing the Path of iOS From Its Inception (Version 1.0) to Version 18.</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/expertise-summary-17-preferred-apps-for-quick-photo-editing/"><u>Expertise Summary  17 Preferred Apps for Quick Photo Editing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/greeting-globetrotters-10-languages-one-sunrise-message/"><u>Greeting Globetrotters: 10 Languages, One Sunrise Message</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hanzi-101-a-primer-on-chinese-writing/"><u>Hanzi 101: A Primer on Chinese Writing</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-nokia-g310-bootloader-easily-by-drfone-android/"><u>How to Unlock Nokia G310 Bootloader Easily</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/is-the-samsung-un65nu8000fxza-overpriced-a-comprehensive-tv-showdown/"><u>Is the Samsung UN6^5NU8000FXZA Overpriced? A Comprehensive TV Showdown!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-languages-what-really-works-and-what-doesnt/"><u>Learning Languages: What Really Works and What Doesn't</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-gifts-of-joy-on-new-anniversaries/"><u>Linguistic Gifts of Joy on New Anniversaries</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-russian-basic-numerical-skills/"><u>Mastering Russian: Basic Numerical Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-sea-roar-20-piratical-expressions-unveiled/"><u>Mastering Sea Roar: 20 Piratical Expressions Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-leads-the-augmented-reality-in-language-classes/"><u>Mondly Leads the Augmented Reality in Language Classes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/most-extended-term-exploration-initiative/"><u>Most Extended Term Exploration Initiative</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-eloquence-for-joyous-occasions/"><u>Multilingual Eloquence for Joyous Occasions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-conversation-as-a-buccaneer/"><u>Navigating Conversation as a Buccaneer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/resolve-your-warzones-directx-glitch-a-comprehensive-guide-to-a-smooth-gameplay-experience/"><u>Resolve Your 'Warzone's DirectX Glitch': A Comprehensive Guide to a Smooth Gameplay Experience.</u></a></li>
+<li><a href="https://win-blog.techidaily.com/solutions-for-restarting-a-frozen-microsoft-ie-browser/"><u>Solutions for Restarting a Frozen Microsoft IE Browser</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-croatian-with-confidence-unveil-these-top-7-advantages-now/"><u>Speak Croatian with Confidence: Unveil These Top 7 Advantages Now!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-by-step-guide-to-mastering-chinese-characters/"><u>Step-by-Step Guide to Mastering Chinese Characters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-linguistic-leap-unveiling-the-top-6-gains/"><u>The Linguistic Leap: Unveiling the Top 6 Gains</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-novice-guide-to-understanding-arabic/"><u>The Novice Guide to Understanding Arabic</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-3-multilingual-apps-for-swiftly-expanding-your-lexicon/"><u>Top 3 Multilingual Apps for Swiftly Expanding Your Lexicon</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/warm-up-your-world-with-french-mastering-the-art-of-saying-bonjour/"><u>Warm Up Your World with French: Mastering the Art of Saying 'Bonjour'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-is-mondly-the-best-language-learning-app-youll-ever-use/"><u>Why Is Mondly The Best Language Learning App You'll Ever Use</u></a></li>
+</ul></div>

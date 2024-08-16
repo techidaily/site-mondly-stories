@@ -1,7 +1,7 @@
 ---
 title: "Conversing with Confidence: Mastering Japanese Salutations"
-date: 2024-07-12T09:06:41.439Z
-updated: 2024-07-13T09:06:41.439Z
+date: 2024-08-15T17:41:50.482Z
+updated: 2024-08-16T17:41:50.482Z
 tags:
   - speak
   - english
@@ -49,6 +49,13 @@ thumbnail: https://thmb.techidaily.com/5cbe5314b93a999758b5a00e2527a722031ccfee9
 
  Unlike English, which uses the same “hello” for a lot of different social contexts, the Japanese language has a dedicated “hello” for answering the phone:**moshi moshi (もしもし).** Doesn’t that sound cute?
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Yearly Membership</a>
+<!-- affiliate ads end -->
 ## 2\. Good morning in Japanese and other relevant greetings
 
 **Good morning in Japanese**   **– O_hayō gozaimasu_**  (おはよう ございます) is the best choice for greeting someone in the early morning hours (before 10:00 a.m.). Unlike_Konnichiwa_ ,   **O_hayō gozaimasu_**  a little more formal, so it’s safe to use it with people you don’t know or when you are meeting people in a position of authority (such as your boss or your teacher).
@@ -64,9 +71,29 @@ This greeting is used both as a “hello” and as a “goodbye”.
 **Bonus tip:** Morning and evening are more carefully delimited in the Japanese culture than in the West. So it’s important to know your**_Konnichiwa_** and never use it instead of**_Konbanwa_** or**_Oyasuminasai._**
 
 ![hi in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-japanese-960x639.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 3")
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 
  “Meguro River, Matsuno, Japan” by Sora Sagano©
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
+VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
+
+Key features:
+
+•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
+•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
+•	Visual effects, advanced color correction and trendy Instagram-like filters   
+•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
+•	Non-linear editing: edit several files with simultaneously 
+•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
+•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
+•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
+•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
+</a>
+<!-- affiliate ads end -->
 ## 3.“Goodbye” in Japanese
 
  Another greeting we borrowed from the Japanese and sometimes use in our day-to-day conversations in English is**_Sayōnara_** (さよなら), a greeting that carries the connotation of farewell and translates to “goodbye”.
@@ -109,9 +136,15 @@ This greeting is used both as a “hello” and as a “goodbye”.
 * _Iie_ (いいえ) – instead of_Dou itashi mashite,_ you can say_Iie,_ which means “no” as in “it was nothing”.
 
 ![arigato](https://edge.mondly.com/blog/wp-content/uploads/2019/08/arigato-1024x706.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 5")
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  “Kyoto, Japan” by Andre Benz©
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Don’t forget about the Japanese bow
 
  Every**“hello” in Japanese** is usually accompanied by a bow, the Western world equivalent of a handshake. Our advice would be to not skip the bow if you really want to feel like you belong.
@@ -148,6 +181,9 @@ This greeting is used both as a “hello” and as a “goodbye”.
 * No problem. – _Daijōbudesu._
 
 ![sayonara](https://edge.mondly.com/blog/wp-content/uploads/2019/08/sayonara-1024x680.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 6")
+<!-- affiliate ads begin -->
+<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 
  “Tenryu-ji Temple, Kyōto-shi, Japan” by Masaaki Komori©
 
@@ -184,3 +220,43 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-10-innovative-desktopmobile-conferencing-tools/"><u>[New] 10 Innovative Desktop/Mobile Conferencing Tools</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-uniting-two-giants-transmitting-facebook-vids-on-whatsapp/"><u>[New] 2024 Approved  Uniting Two Giants  Transmitting Facebook Vids on WhatsApp</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-enhancing-audience-experience-four-ways-to-livestream-on-tv-for-2024/"><u>[New] Enhancing Audience Experience  Four Ways to Livestream on TV for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-essential-15-cameras-for-professional-vlogging-experience-for-2024/"><u>[New] Essential 15 Cameras for Professional Vlogging Experience for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-short-form-media-exploration/"><u>[New] Short Form Media Exploration</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-eliminate-hurdle-video-playback-issue-in-chrome/"><u>[Updated] Eliminate Hurdle  Video Playback Issue in Chrome</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/5-less-obvious-benefits-that-bilingualism-brings/"><u>5 Less Obvious Benefits That Bilingualism Brings</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-move-contacts-from-vivo-y56-5g-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Move Contacts From Vivo Y56 5G to iPhone (13/14/15) | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-comprehensive-list-of-germanys-most-common-thank-you-sayings/"><u>A Comprehensive List of Germany’s Most Common 'Thank You' Sayings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accelerate-learning-latin-online-naturally/"><u>Accelerate Learning Latin Online, Naturally</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accueils-francais-quelles-options-exister/"><u>Accueils Français: Quelles Options Exister?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apple-enabled-education-supported-by-mondlys-vision/"><u>Apple-Enabled Education, Supported by Mondly's Vision</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/arabic-basics-for-first-timers/"><u>Arabic Basics for First-Timers</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-retrieve-lost-photos-from-infinix-smart-8-hd-by-fonelab-android-recover-photos/"><u>Best Android Data Recovery - Retrieve Lost Photos from Infinix Smart 8 HD.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beyond-the-myths-authentic-strategies-for-language-acquisition/"><u>Beyond the Myths: Authentic Strategies for Language Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/british-and-american-dialects-key-distinctions/"><u>British & American Dialects: Key Distinctions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/captivating-classroom-experience-in-latin/"><u>Captivating Classroom Experience in Latin</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/colors-in-spanish-how-to-pronounce-them/"><u>Colors In Spanish: How To Pronounce Them</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/cutting-edge-cameras-for-your-first-foray-into-filmmaking/"><u>Cutting-Edge Cameras for Your First Foray Into Filmmaking</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciphering-germanys-charm-mastering-the-top-25-idioms/"><u>Deciphering Germany's Charm - Mastering the Top 25 Idioms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/delve-into-korean-for-a-deeper-squid-game-comprehension/"><u>Delve Into Korean for a Deeper Squid Game Comprehension</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/descifrar-la-hora-en-espanol-un-punto-de-inicio/"><u>Descifrar La Hora en Español: Un Punto De Inicio</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deutsches-bedauernsatzkonstruieren/"><u>Deutsches Bedauernsatzkonstruieren</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effective-strategies-for-learning-french-at-home/"><u>Effective Strategies for Learning French at Home</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effortlessly-enhance-your-urdu-skills-in-minutes/"><u>Effortlessly Enhance Your Urdu Skills in Minutes</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-cant-take-screenshot-due-to-security-policy-on-poco-f5-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Cant Take Screenshot Due to Security Policy on Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576146709-jumpstart-your-latvian-language-learning-today/"><u>Jumpstart Your Latvian Language Learning Today</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/mastery-of-the-digital-realm-articles-by-toms-hardware-experts/"><u>Mastery of the Digital Realm: Articles by Tom’s Hardware Experts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-pilgrimage-journey-through-one-thousand-channels/"><u>Pixel Pilgrimage  Journey Through One Thousand Channels</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577749458-sovac-slovaci-language-journey-unfolding-one-quick-lesson-daily/"><u>Sovac Slováci - Language Journey Unfolding, One Quick Lesson Daily</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/step-by-step-techniques-building-animation-with-movie-maker-for-2024/"><u>Step-by-Step Techniques  Building Animation with Movie Maker for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580375581-the-best-way-to-learn-korean-online-6-brilliant-resources/"><u>The Best Way To Learn Korean Online - 6 Brilliant Resources</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/top-methods-to-resolve-frozen-taskbar-in-windows-10/"><u>Top Methods to Resolve Frozen Taskbar in Windows 10</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579536662-unlock-global-communication-now-96-off/"><u>Unlock Global Communication, Now 96%% Off!</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-in-2024-analyzing-auditory-excellence-the-revised-assessment-of-the-cambridge-cxu-equipment-2023-edition/"><u>Updated In 2024, Analyzing Auditory Excellence The Revised Assessment of the Cambridge CXU Equipment, 2023 Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578897201-zap-up-your-skills-speed-up-slovak-learning-with-micro-lessons/"><u>Zap Up Your Skills: Speed up Slovak Learning with Micro Lessons!</u></a></li>
+</ul></div>

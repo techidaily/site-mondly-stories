@@ -1,7 +1,7 @@
 ---
 title: Basic Russian Expressions Boosting Travel Confidence
-date: 2024-07-12T09:06:29.654Z
-updated: 2024-07-13T09:06:29.654Z
+date: 2024-08-15T17:42:02.291Z
+updated: 2024-08-16T17:42:02.291Z
 tags:
   - speak
   - english
@@ -69,6 +69,9 @@ thumbnail: https://thmb.techidaily.com/97a064f556a7bb067611e98f7f33b087d43444156
 * Where are you from? –_Откуда ты? – Otkuda ty?_
 * Have a good day. –_Ну тогда до свидания. – Nu togda do svidaniya._
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 2\. Useful Russian phrases for when you are at the airport
 
  Arriving at the airport – both at the beginning and at the end of your journey – will also require some basic Russian phrases. Whether we are talking about small talk with the person sitting next to you on the airplane, passport verification or asking for directions, these Russian phrases will definitely have your back in any situation.
@@ -120,6 +123,9 @@ thumbnail: https://thmb.techidaily.com/97a064f556a7bb067611e98f7f33b087d43444156
 * I’ll be back immediately. –_Я скоро вернусь. – Ya skoro vernus._
 * Drive me to this address. –_Отвезите меня по этому адресу. – Otvezite menya po etomu adresu_ .
 
+<!-- affiliate ads begin -->
+<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 4\. Advanced Russian phrases for different hotel situations
 
  Staying at a hotel/hostel requires interaction with the staff – most of the time. If you don’t want to waste your time searching English to Russian translations on Google, make sure to learn some basic Russian that will help you to better express your needs.
@@ -134,6 +140,9 @@ thumbnail: https://thmb.techidaily.com/97a064f556a7bb067611e98f7f33b087d43444156
 * Very pleasant, thank you. –_Всё было замечательно, спасибо. – Vsyo bylo zamechatelno, spasibo._
 * Here is your bill, please look it over. – _Вот ваш счёт, проверьте пожалуйста. – Vot vash schot, proverte pozhaluysta._
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 5\. Learn Russian to experience the local cuisine
 
  Local cuisine is one of the best parts of a vacation. The experience is not whole if you don’t try at least one traditional meal. Something sweet or something salty? What is it going to be? No worries. Russian cuisine is diverse. You’ll have a great variety of dishes to choose from.
@@ -183,6 +192,9 @@ Just joking. Still is an amazing drink, though!
 * Are tickets for the theatre still available? –_Билеты в театр ещё есть? – Bilety v teatr yeshcho yest?_
 
 ![russian-travel-guide](https://edge.mondly.com/blog/wp-content/uploads/2018/07/russian-travel-guide-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 8")
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Photo by Edwin Andrade
 
@@ -211,6 +223,9 @@ Just joking. Still is an amazing drink, though!
 * What would you like? –_Что вы предпочитаете? – Chto vy predpochitayete?_
 * Can I have some ice cream? –_Можно мне мороженого? – Mozhno mne morozhenogo?_
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ## 8\. Russia Travel Guide – how to say that you have fallen in love?
 
  If you learn how to master these next phrases, you will definitely be getting your travel vocabulary to the next level.  
@@ -225,6 +240,9 @@ Just joking. Still is an amazing drink, though!
 * May I kiss you? –_Можно тебя поцеловать? – Mozhno tebya potselovat?_
 
 ![common-russian-phrases](https://edge.mondly.com/blog/wp-content/uploads/2018/07/common-russian-phrases-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 10")
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<!-- affiliate ads end -->
 
  Photo by Greg Rakozy
 
@@ -237,9 +255,16 @@ Just joking. Still is an amazing drink, though!
 * Would you like to have dinner with me? –_Поужинаем вместе? – Pouzhynayem vmeste?_
 * I love you. – Я люблю тебя. –_Ya lyublyu tebya._
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
+The ultimate burning program for all your needs!</a>
+<!-- affiliate ads end -->
 ## Bonus: Basic Russian phrases for football lovers
 
 ![russian-phrases-world-cup](https://edge.mondly.com/blog/wp-content/uploads/2018/07/russian-phrases-world-cup-1024x576.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 11")
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<!-- affiliate ads end -->
 
  Photo by Fauzan Saari
 
@@ -282,3 +307,59 @@ Just joking. Still is an amazing drink, though!
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-crafting-minecraft-perfect-circles-and-spheres-techniques/"><u>[New] In 2024, Crafting Minecraft  Perfect Circles & Spheres Techniques</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-ideal-online-audio-equipment-top-7-picks-2023/"><u>[New] In 2024, Ideal Online Audio Equipment  Top 7 Picks 2023</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-premiere-video-tools-for-iphone/"><u>[New] Premiere Video Tools for iPhone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-ultimate-sea-snag-footage-top-5-picks/"><u>[New] Ultimate Sea Snag Footage - Top 5 Picks</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-unleash-the-power-of-obs-for-superior-skype-screen-capture/"><u>[Updated] 2024 Approved  Unleash the Power of OBS for Superior Skype Screen Capture</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-audience-engagement-strategies-for-compelling-screencast-videos/"><u>[Updated] In 2024, Audience Engagement Strategies for Compelling Screencast Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-navigating-and-mastering-instagram-filters-a-2023-guide/"><u>[Updated] In 2024, Navigating and Mastering Instagram Filters  A 2023 Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-unleash-potential-deciding-between-studio-and-beta-version-for-2024/"><u>[Updated] Unleash Potential  Deciding Between Studio and Beta Version for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-filmopedia-answer-to-inquiries/"><u>2024 Approved  FilmoPedia  Answer to Inquiries</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-making-magic-transforming-ordinary-posts-into-social-sensations/"><u>2024 Approved  Making Magic  Transforming Ordinary Posts Into Social Sensations</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-art-of-saturation-and-contrast-in-gopro-editing/"><u>2024 Approved  The Art of Saturation and Contrast in GoPro Editing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579847747-a-beginners-guide-to-the-german-pronunciation-and-alphabet/"><u>A Beginner’s Guide to the German Pronunciation & Alphabet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-primer-on-german-speech-sounds-for-beginners/"><u>A Primer on German Speech Sounds for Beginners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/abracos-e-saudacoes-em-portugues-tudo-o-que-necessita-saber/"><u>Abraços E Saudações Em Português: Tudo O Que Necessita Saber</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accelerate-learning-urdu-effortlessly/"><u>Accelerate Learning Urdu, Effortlessly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accelerate-your-finnish-learning-with-digital-resources/"><u>Accelerate Your Finnish Learning with Digital Resources</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/achieving-proficient-ru-phonetics/"><u>Achieving Proficient RU Phonetics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/age-is-just-a-number-in-language-learning/"><u>Age Is Just a Number in Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ancient-communication-secrets-revealed-today/"><u>Ancient Communication Secrets Revealed Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/arabian-beginners-journey-explored/"><u>Arabian Beginner's Journey Explored</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/articulate-english-100-mastered-twisters-guide/"><u>Articulate English: 100 Mastered Twisters Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/baffle-brazilians-learn-italians-coolest-expressions/"><u>Baffle Brazilians: Learn Italian's Coolest Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beatific-bilingualism-music-assisted-linguistic-mastery/"><u>Beatific Bilingualism: Music-Assisted Linguistic Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/belgian-babel-how-many-tongues-does-it-wield/"><u>Belgian Babel: How Many Tongues Does It Wield?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/birth-of-an-ai-infused-verbal-ar-experience/"><u>Birth of an AI-Infused, Verbal AR Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578514739-boost-your-urdu-skills-in-a-flash/"><u>Boost Your Urdu Skills in a Flash!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/boosting-bilingualism-top-3-cognitive-routines/"><u>Boosting Bilingualism: Top 3 Cognitive Routines</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/boosting-teams-top-languages-for-workplace-success/"><u>Boosting Teams: Top Languages for Workplace Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breaking-language-barriers-oculus-quest-and-mondly/"><u>Breaking Language Barriers: Oculus Quest & 'Mondly'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/catalan-in-flashes-mastering-each-day/"><u>Catalan in Flashes: Mastering Each Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conversational-uk-style-learn-easy-phrases/"><u>Conversational UK Style: Learn Easy Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cosmic-conversations-diving-deep-into-star-wars-languages/"><u>Cosmic Conversations: Diving Deep Into Star Wars Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/crescendo-of-comprehension-musical-techniques-for-learning-languages/"><u>Crescendo of Comprehension: Musical Techniques for Learning Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/czech-conquerors-guide-speedy-study-strategies-online/"><u>Czech Conqueror's Guide: Speedy Study Strategies Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dialects-spoken-in-croatia/"><u>Dialects Spoken in Croatia</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-ideal-next-language-to-learn/"><u>Discovering Ideal Next-Language To Learn</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-new-tongues-for-just-055-per-lesson-this-year/"><u>Dive Into New Tongues for Just $0.55 Per Lesson This Year</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/diverse-vocabularies-common-educators-goal/"><u>Diverse Vocabularies, Common Educators Goal</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dreaming-in-diversity-mondly-languages-two-year-odyssey/"><u>Dreaming in Diversity: Mondly Languages' Two-Year Odyssey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dubai-expo-2020-shaping-global-polyglots/"><u>Dubai Expo 2020: Shaping Global Polyglots</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/echosphere-immersive-language-acquisition-in-vr/"><u>EchoSphere: Immersive Language Acquisition in VR</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-new-languages-effortlessly-snag-95-off-this-year/"><u>Embrace New Languages Effortlessly - Snag 95%% Off This Year</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embracing-english-for-personal-growth/"><u>Embracing English for Personal Growth</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581333482-find-your-voice-flawlessly-choose-mondly/"><u>Find Your Voice Flawlessly – Choose Mondly!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581066868-hello-in-indonesian-a-quick-guide-to-indonesian-greetings/"><u>Hello In Indonesian: A Quick Guide To Indonesian Greetings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577964287-how-to-study-polish-fast-a-smart-strategy-for-beginners/"><u>How to Study Polish Fast: A Smart Strategy for Beginners</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-rootjunky-apk-to-bypass-google-frp-lock-for-xiaomi-14-by-drfone-android/"><u>In 2024, Rootjunky APK To Bypass Google FRP Lock For Xiaomi 14</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/master-iphone-image-conversion-from-jpgpng-to-pdf-for-2024/"><u>Master iPhone Image Conversion  From JPG/PNG to PDF for 2024</u></a></li>
+<li><a href="https://techidaily.com/update-your-hardware-drivers-with-device-manager-on-windows-7-by-drivereasy-guide/"><u>Update your hardware drivers with Device Manager on Windows 7</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580737207-vr-babel-fish-transform-flingish-to-fluency/"><u>VR Babel Fish: Transform Flingish to Fluency</u></a></li>
+<li><a href="https://change-location.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-vivo-y27s-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Vivo Y27s? | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-your-vivo-t2-pro-5g-auto-does-not-work-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do if Your Vivo T2 Pro 5G Auto Does Not Work | Dr.fone</u></a></li>
+</ul></div>

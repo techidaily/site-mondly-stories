@@ -1,7 +1,7 @@
 ---
 title: Castilian Echoes Across Continents
-date: 2024-07-12T09:09:29.276Z
-updated: 2024-07-13T09:09:29.276Z
+date: 2024-08-15T17:39:04.245Z
+updated: 2024-08-16T17:39:04.245Z
 tags:
   - speak
   - english
@@ -85,12 +85,22 @@ thumbnail: https://thmb.techidaily.com/742c07b37bc56bb3aebc8573a3c5f52e5aeacf6ca
 
  \* the number represents the percentage of the population who speak Spanish.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<!-- affiliate ads end -->
 ### Spanish-speaking countries in North America
 
  Considering that the Spanish language came here from Europe a few centuries back, it’s fascinating that Mexico is the world’s most populous Hispanophone country. In addition to Spanish, the Mexican government recognizes 68 national languages, 63 of which are indigenous. Examples include Nahuatl, Yucatec Maya, Zapotec, Mixtec, Mayo, Yaqui, Tzeltal, Tzotzil, Chol, Totonac, Purépecha and more.
 
 * Mexico — 97% (percentage of the entire population speaking Spanish)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
 ### Spanish-speaking countries in the Caribbean
 
  If Mexico is the country with the most Spanish speakers in the world, Cuba is the country with the largest proportion of Spanish speakers in the world.
@@ -99,6 +109,9 @@ thumbnail: https://thmb.techidaily.com/742c07b37bc56bb3aebc8573a3c5f52e5aeacf6ca
 * Dominican Republic — 98%
 * Puerto Rico — 99%
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Spanish-speaking countries in Europe
 
  We’re finally almost at the end of our exploration with Spain: the home country of the Spanish language. It’s truly surprising how few people speak Spanish here! The reason for this is that a significant number of people in Spain speak Catalan.
@@ -112,7 +125,13 @@ thumbnail: https://thmb.techidaily.com/742c07b37bc56bb3aebc8573a3c5f52e5aeacf6ca
 * Equatorial Guinea — 74% (percentage of the entire population speaking Spanish)
 
 !['Spanish speakers' by Florian Wehde©](https://edge.mondly.com/blog/wp-content/uploads/2022/11/spanish-speakers-960x640.jpg "Full List Of Spanish-Speaking Countries — How Many People Speak Spanish? 3")
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Countries where Spanish is spoken although it’s not an official language
 
  Spanish is spoken in many countries around the world, although it is not an official language in all of them. Naturally, there can be a number of reasons why this happens.
@@ -121,6 +140,9 @@ thumbnail: https://thmb.techidaily.com/742c07b37bc56bb3aebc8573a3c5f52e5aeacf6ca
 
  Other countries with large minorities of Spanish speakers are Belize, the Philippines (Spanish was an official language here from 1565 to 1973), Gibraltar and Andorra.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## A brief history of the Spanish language
 
  If you want to understand how did the Spanish language become so widespread, you’ll have to turn to history.
@@ -174,3 +196,72 @@ thumbnail: https://thmb.techidaily.com/742c07b37bc56bb3aebc8573a3c5f52e5aeacf6ca
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-instagrams-hidden-gems-designing-stunning-engaging-puzzle-posts/"><u>[New] 2024 Approved  Instagram's Hidden Gems  Designing Stunning, Engaging Puzzle Posts</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-master-the-art-of-fast-instagram-videos/"><u>[New] In 2024, Master the Art of Fast Instagram Videos</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-integrate-xps-essential-movie-making-features-for-2024/"><u>[New] Integrate XP's Essential Movie Making Features for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-unlocking-twitters-full-potential-the-ultimate-guide-for-2024/"><u>[New] Unlocking Twitter’s Full Potential  The Ultimate Guide for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-channel-acquisition-101-maximizing-youtubers-earnings/"><u>[Updated] Channel Acquisition 101  Maximizing Youtubers' Earnings</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-essential-guide-to-social-media-video-ratios-on-facebook/"><u>[Updated] Essential Guide to Social Media Video Ratios on Facebook</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-googles-enhanced-technique-for-flawless-speech-transcription/"><u>[Updated] Google's Enhanced Technique for Flawless Speech Transcription</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-crafting-compelling-vo-for-visual-storytelling-success/"><u>[Updated] In 2024, Crafting Compelling VO for Visual Storytelling Success</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-invisible-modifications-the-essence-of-selective-edits/"><u>[Updated] Invisible Modifications  The Essence of Selective Edits</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-optimizing-playback-speed-with-professional-tactics-for-2024/"><u>[Updated] Optimizing Playback Speed with Professional Tactics for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-the-efficient-flow-of-content-tiktok-to-your-fb-profile/"><u>[Updated] The Efficient Flow of Content  TikTok to Your FB Profile</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/elegant-exteriors-discover-the-best-websites-for-your-laptops-look/"><u>Elegant Exteriors  Discover the Best Websites for Your Laptop's Look</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enchanting-dialogues-romancing-with-deutsch/"><u>Enchanting Dialogues: Romancing with Deutsch</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/endless-learning-opportunity-anniversary-of-1500-no-cost-sessions/"><u>Endless Learning Opportunity: Anniversary of 1500 No-Cost Sessions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/engaging-students-in-international-linguistics/"><u>Engaging Students in International Linguistics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enlighten-yourself-in-lithuanian-online-best-practices/"><u>Enlighten Yourself in Lithuanian - Online Best Practices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/entertaining-methods-for-latino-education/"><u>Entertaining Methods for Latino Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/esl-learning-english-for-non-native-speakers/"><u>ESL: Learning English for Non-Native Speakers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-croatian-expressions-a-compre-written-guide-for-efficient-communication-in-croatia/"><u>Essential Croatian Expressions – A Compre Written Guide for Efficient Communication in Croatia</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-guides-to-online-independent-and-zero-cost-japan-study/"><u>Essential Guides to Online, Independent & Zero-Cost Japan Study</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/eternal-access-to-mondlys-best-with-zero-price/"><u>Eternal Access to Mondly's Best with Zero Price!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/examining-iberian-idiosyncrasies-language-comparison-of-spanish-and-portuguese/"><u>Examining Iberian Idiosyncrasies: Language Comparison of Spanish & Portuguese</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/expert-insight-on-razer-portal-for-gamers-unveiling-the-ultimate-wireless-setup/"><u>Expert Insight on Razer Portal for Gamers: Unveiling the Ultimate Wireless Setup</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-german-culture-with-its-25-most-used-sayings/"><u>Explore German Culture with Its 25 Most Used Sayings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-us-uk-language-differences/"><u>Exploring US-UK Language Differences</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressing-affection-in-magyar-loving-words/"><u>Expressing Affection in Magyar: Loving Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressing-thanks-universal-language-lessons-156/"><u>Expressing Thanks: Universal Language Lessons (156)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressive-uk-speak-beyond-the-basics/"><u>Expressive UK Speak: Beyond the Basics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/facing-the-goliath-studying-german/"><u>Facing the Goliath: Studying German</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/farsis-intriguing-past-and-linguistic-advantages/"><u>Farsi's Intriguing Past and Linguistic Advantages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fascinating-and-fun-learning-of-spanish/"><u>Fascinating and Fun Learning of Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fast-track-to-fluency-10-minday-learning/"><u>Fast-Track to Fluency: 10 Min/Day Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fastest-ways-to-learn-a-language-quick-language-learning-techniques/"><u>Fastest Ways To Learn A Language - Quick Language Learning Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fifty-and-beyond-five-motivations-for-new-languages/"><u>Fifty and Beyond: Five Motivations for New Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/finding-ways-to-profess-love-in-hungarian/"><u>Finding Ways to Profess Love in Hungarian</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/first-footsteps-toward-fluency-in-arabic/"><u>First Footsteps Toward Fluency in Arabic</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/foreign-language-exploration-intelligence-gain/"><u>Foreign Language Exploration, Intelligence Gain</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-fluency-boosted-by-27-timeless-expressions/"><u>French Fluency Boosted by 27 Timeless Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-fluency-essentials-for-the-savvy-traveler/"><u>French Fluency Essentials for the Savvy Traveler</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-for-beginners-saying-hello-with-confidence-and-style/"><u>French for Beginners: Saying Hello with Confidence & Style</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-language-essentials-for-global-communicators-the-basics-of-friendly-salutations/"><u>French Language Essentials for Global Communicators: The Basics of Friendly Salutations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-fluency-to-mastery-overcoming-the-top-9-hardest-languages/"><u>From Fluency to Mastery: Overcoming the Top 9 Hardest Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-latin-to-local-a-guide-to-chocolates-global-voice/"><u>From Latin to Local: A Guide to Chocolate's Global Voice</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-quills-to-keystrokes-enduring-elizabethan-expressions/"><u>From Quills to Keystrokes: Enduring Elizabethan Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-runic-runes-to-oral-tradition-viking-language-unravewed/"><u>From Runic Runes to Oral Tradition: Viking Language Unravewed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-the-land-down-under-top-100-terms/"><u>From the Land Down Under: Top 100 Terms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fun-filled-journey-into-latin-language/"><u>Fun-Filled Journey Into Latin Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fundacion-danny-en-colombia-solidaridad-con-pobres/"><u>Fundacion Danny en Colombia: Solidaridad Con Pobres</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/galaxy-tongue-unveiling-star-wars-linguistic-wonders/"><u>Galaxy Tongue: Unveiling Star Wars Linguistic Wonders</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gepflegte-gute-auftaktsatze-im-deutschen/"><u>Gepflegte Gute-Auftaktsätze Im Deutschen</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-do-i-play-mkv-movies-on-edge-40-pro-by-aiseesoft-video-converter-play-mkv-on-android/"><u>How do I play MKV movies on Edge 40 Pro?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-poco-c51-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Poco C51? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-honor-70-lite-5g-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Honor 70 Lite 5G online without jailbreak</u></a></li>
+<li><a href="https://win-blog.techidaily.com/improve-your-fight-against-the-titan-quarter-in-elden-ring-with-6-quick-tweaks-for-better-performance/"><u>Improve Your Fight Against the Titan Quarter in Elden Ring with 6 Quick Tweaks for Better Performance</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-a-perfect-guide-to-remove-or-disable-google-smart-lock-on-realme-11-proplus-by-drfone-android/"><u>In 2024, A Perfect Guide To Remove or Disable Google Smart Lock On Realme 11 Pro+</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-bypassing-google-account-with-vnrom-bypass-for-vivo-x90s-by-drfone-android/"><u>In 2024, Bypassing Google Account With vnROM Bypass For Vivo X90S</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-hidefake-snapchat-location-on-your-asus-rog-phone-7-drfone-by-drfone-virtual-android/"><u>In 2024, How to Hide/Fake Snapchat Location on Your Asus ROG Phone 7 | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-vivo-v29-pro-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Vivo V29 Pro online without jailbreak</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-meditative-tunes-compilation-top-10-legal-streams/"><u>In 2024, Meditative Tunes Compilation - Top 10 Legal Streams</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-navigating-the-maze-of-tiktoks-bulk-video-transfer/"><u>In 2024, Navigating the Maze of TikTok's Bulk Video Transfer</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-virtual-pantheon-of-streaming-achievements/"><u>In 2024, Virtual Pantheon of Streaming Achievements</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/seamlessly-saving-and-showcasing-gifs-on-your-iphone-device-for-2024/"><u>Seamlessly Saving and Showcasing GIFs on Your iPhone Device for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/simplified-image-transformation-via-smartphone-luts/"><u>Simplified Image Transformation via Smartphone LUTs</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unveiling-the-primary-motives-for-organizations-disallowing-chatgpt/"><u>Unveiling the Primary Motives for Organizations Disallowing ChatGPT</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-top-gif-accelerators-online-ios-and-android-tools-for-2024/"><u>Updated Top GIF Accelerators Online, iOS, and Android Tools for 2024</u></a></li>
+</ul></div>

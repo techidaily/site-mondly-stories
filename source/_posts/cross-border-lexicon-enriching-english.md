@@ -1,7 +1,7 @@
 ---
 title: Cross-Border Lexicon Enriching English
-date: 2024-07-12T09:06:15.104Z
-updated: 2024-07-13T09:06:15.104Z
+date: 2024-08-15T17:42:16.235Z
+updated: 2024-08-16T17:42:16.235Z
 tags:
   - speak
   - english
@@ -40,6 +40,9 @@ thumbnail: https://thmb.techidaily.com/6751e55bdf4c2e1662ce3bd78f4508fbf0de25f71
 
  While the question may sound funny (“where did English come from?”), it is a popular inquiry among Google users for obvious reasons. After all, 1.3 billion people worldwide speak English either natively or as a second language. It’s only natural for them to be curious about the origin of the English language.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## English Words from Foreign Languages
 
 1. Guru (Sanskrit)
@@ -74,6 +77,9 @@ thumbnail: https://thmb.techidaily.com/6751e55bdf4c2e1662ce3bd78f4508fbf0de25f71
 30. Nemesis (Greek)
 
 ![English foreign words](https://edge.mondly.com/blog/wp-content/uploads/2024/01/english-foreign-words-600x600.png "100+ English Words Borrowed From Other Languages 4")
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
 
  Although we usually call them “borrowed words”, these are also known as loanwords. According to Oxford Languages,**a loanword** is_“a word adopted from a foreign language with little or no modification”_ . The transition from one language to another can happen through:
 
@@ -82,11 +88,17 @@ thumbnail: https://thmb.techidaily.com/6751e55bdf4c2e1662ce3bd78f4508fbf0de25f71
 * **Loan translation,** also known as calque, which involves borrowing words, phrases, or expressions by translating their literal meanings into the borrowing language.
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "100+ English Words Borrowed From Other Languages 5")
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 
 ##### Improve your English fast 🚀
 
  With Mondly, English mastery is at your fingertips – and in your native tongue. Start today ![Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-9827&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-9827%26mt%3D8)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## French loanwords: English words that are actually French
 
 | Ballet       |
@@ -137,6 +149,13 @@ thumbnail: https://thmb.techidaily.com/6751e55bdf4c2e1662ce3bd78f4508fbf0de25f71
 
  Unlike French loanwords which have been adapted into British English, most of the**Spanish loanwords entered English via the North American English route.** Cultural exchanges between [Spanish-speaking](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and English-speaking communities led to an influx of loanwords related to food and music in particular. For example, words like “guacamole”, “salsa” and “piñata” have been borrowed into English from Spanish due to the popularity of the Mexican culture in the United States.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Yearly Membership</a>
+<!-- affiliate ads end -->
 ## Italian loanwords: English words that are actually Italian
 
 | Zucchini  |
@@ -189,6 +208,9 @@ thumbnail: https://thmb.techidaily.com/6751e55bdf4c2e1662ce3bd78f4508fbf0de25f71
 
  Some of the first German words were borrowed into English during the interactions between Germanic-speaking tribes and English-speaking communities in early medieval Europe. Words related to everyday life, family, and community were among the earliest borrowings. Later, thanks to Germany’s influence in various fields, English borrowed German words related to science and technology, music, philosophy, literature and engineering.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Understanding the Size of the English Vocabulary
 
  How many words are there in English? Many sources agree that**the English language consists of roughly 470,000 words.** However, most linguists advise to take that with a pinch of salt. While some words have become obsolete, new additions are always making their way into the English vocabulary, so it’s difficult to put our finger on an exact number. Then, there’s also the question of different variations of a single word like “go”, “went”, “gone”. Do we count that as a single word or as three separate ones?
@@ -250,3 +272,49 @@ Coming Soon
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-metaverse-joke-ology-building-your-own-hilarious-memes/"><u>[Updated] 2024 Approved  Metaverse Joke-Ology  Building Your Own Hilarious Memes</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-screenmasterelite-11-an-experts-recording-guide/"><u>[Updated] 2024 Approved  ScreenMasterElite 11  An Expert's Recording Guide</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-capture-hearts-on-tiktok-designed-templates-for-visual-impact/"><u>[Updated] In 2024, Capture Hearts on TikTok  Designed Templates for Visual Impact</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-crafting-atmospheres-with-cinematic-hues/"><u>[Updated] In 2024, Crafting Atmospheres with Cinematic Hues</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-secrets-of-streaming-sound-record-and-preserve-for-2024/"><u>[Updated] Secrets of Streaming Sound  Record and Preserve for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-avoiding-common-pitfalls-using-movie-maker-on-windows-8/"><u>2024 Approved  Avoiding Common Pitfalls  Using Movie Maker on Windows 8</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/5-myths-busted-the-real-power-of-polyglots/"><u>5 Myths Busted: The Real Power of Polyglots</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-decade-of-connectivity-mondly-revealed/"><u>A Decade of Connectivity - Mondly Revealed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-world-in-words-why-learn-another-tongue/"><u>A World in Words: Why Learn Another Tongue?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/all-african-languages-a-complete-guide-to-the-continents-linguistic-diversity/"><u>All African Languages: A Complete Guide To The Continent's Linguistic Diversity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/articulate-ambition-engage-in-tongue-twister-quests/"><u>Articulate Ambition: Engage in Tongue Twister Quests</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/become-a-connoisseur-of-german-sayings-top-25/"><u>Become a Connoisseur of German Sayings (Top 25)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/best-teaching-aid-top-5-language-learning-mobile-apps/"><u>Best Teaching Aid: Top 5 Language Learning Mobile Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/boost-your-brain-with-music-effective-methods-for-multilingualism/"><u>Boost Your Brain with Music: Effective Methods for Multilingualism</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breaking-barriers-with-words-immersion-techniques-demystified/"><u>Breaking Barriers with Words: Immersion Techniques Demystified</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/catalonias-linguistic-leap-each-day/"><u>Catalonia's Linguistic Leap – Each Day!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cognitive-conditioning-for-quick-quality-linguistic-proficiency/"><u>Cognitive Conditioning for Quick, Quality Linguistic Proficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/colombias-danny-fund-a-lifeline-to-underprivileged-groups/"><u>Colombia's Danny Fund: A Lifeline to Underprivileged Groups</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/connective-horizons-proven-methods-for-intercultural-conversation/"><u>Connective Horizons: Proven Methods for Intercultural Conversation</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/conquering-social-media-with-ig-videos-planning-an-optimal-strategy/"><u>Conquering Social Media with IG Videos  Planning an Optimal Strategy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daily-bulbarian-duo-study-and-play/"><u>Daily Bulbarian Duo: Study & Play</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decode-german-eloquence-top-16-thank-you-expressions/"><u>Decode German Eloquence: Top 16 'Thank You' Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/demystifying-popular-january-aspirations/"><u>Demystifying Popular January Aspirations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/diversity-dialogues-strategic-approaches-in-multicultural-discourse/"><u>Diversity Dialogues: Strategic Approaches in Multicultural Discourse</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/does-rigidity-thwart-language-acquisition/"><u>Does Rigidity Thwart Language Acquisition?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effortless-bengali-learning-in-daily-sessions/"><u>Effortless Bengali Learning in Daily Sessions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effortless-hangul-learning-discovering-the-korean-writing-system/"><u>Effortless Hangul Learning: Discovering the Korean Writing System</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581908867-effortless-slovak-learning-in-just-ten-minutes-online/"><u>Effortless Slovak Learning in Just Ten Minutes Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/eloquent-expression-100-twisting-challenges-await/"><u>Eloquent Expression: 100 Twisting Challenges Await</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-efficient-chat-mondly-joins-huawei-apps/"><u>Embrace Efficient Chat: Mondly Joins Huawei Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-multilingualism-build-connections-in-virtual-reality/"><u>Embrace Multilingualism, Build Connections in Virtual Reality</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580476815-get-ahead-of-the-game-snag-a-lifetime-savings-deal-with-mondly/"><u>Get Ahead of the Game: Snag a Lifetime Savings Deal with Mondly</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-teleport-your-gps-location-on-lava-agni-2-5g-drfone-by-drfone-virtual-android/"><u>How To Teleport Your GPS Location On Lava Agni 2 5G? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579935808-ignite-cultural-curiosity-with-hindi-experience-7-exciting-mondly-benefits/"><u>Ignite Cultural Curiosity with Hindi - Experience 7 Exciting Mondly Benefits</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/in-depth-analysis-of-the-samsung-galaxy-tab-s6-features-like-s-pen-and-dex-mode-explored/"><u>In-Depth Analysis of the Samsung Galaxy Tab S6: Features Like S Pen & Dex Mode Explored</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580961354-learn-anywhere-speak-everywhere-enjoy-a-major-discount-on-language-lessons/"><u>Learn Anywhere, Speak Everywhere – Enjoy a Major Discount on Language Lessons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581658535-mondly-elite-never-paying-forever/"><u>Mondly Elite: Never Paying Forever!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579778647-pace-yourself-learn-japans-counting-quickly/"><u>Pace Yourself, Learn Japan's Counting Quickly!</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/purerecorder-capturing-life-in-games-without-cost-for-2024/"><u>PureRecorder  Capturing Life in Games Without Cost for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577615074-save-big-on-mondlys-ultimate-offering/"><u>Save Big on Mondly's Ultimate Offering</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581481191-this-is-the-easiest-way-to-learn-latin-online/"><u>This Is the Easiest Way to Learn Latin Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577828402-why-learn-croatian-discover-its-advantages-and-how-to-start-now/"><u>Why Learn Croatian? Discover Its Advantages and How To Start Now!</u></a></li>
+</ul></div>

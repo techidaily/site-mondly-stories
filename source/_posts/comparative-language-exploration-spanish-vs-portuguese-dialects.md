@@ -1,7 +1,7 @@
 ---
 title: "Comparative Language Exploration: Spanish Vs. Portuguese Dialects"
-date: 2024-07-12T09:07:02.542Z
-updated: 2024-07-13T09:07:02.542Z
+date: 2024-08-15T17:41:29.469Z
+updated: 2024-08-16T17:41:29.469Z
 tags:
   - speak
   - english
@@ -35,6 +35,9 @@ thumbnail: https://thmb.techidaily.com/b00ef75a586fb477d808aa5f3851d99d406553f7b
 | Lexical Similarity        | Around 90%                              |                                          |
 | Language Family           | Romance                                 |                                          |
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Mutual Intelligibility: Written vs. Spoken Forms
 
 [Spoken Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and Portuguese are less mutually intelligible than their written forms. In other words, on paper, the two languages look very similar and speakers of either language can generally read the other language without too much struggle. But when it comes to the spoken forms or the phonology, things get a bit more complicated as the pronunciation is more different than you’d expect. However, it is said that Portuguese speakers typically understand spoken Spanish better than Spanish speakers understand spoken Portuguese. After all, there’s an almost 90% lexical similarity between the two.
@@ -43,6 +46,10 @@ thumbnail: https://thmb.techidaily.com/b00ef75a586fb477d808aa5f3851d99d406553f7b
 
 ### Portuguese to Spanish
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+</a>
+<!-- affiliate ads end -->
 ### Spanish to Portuguese
 
  Do you see now why the spoken forms are less mutually intelligible than the written forms?
@@ -71,6 +78,9 @@ thumbnail: https://thmb.techidaily.com/b00ef75a586fb477d808aa5f3851d99d406553f7b
 
 [Start Now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-4427&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4427&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4427&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4427&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-4427%26mt%3D8)
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## False Friends: Watch Out for These Tricky Words
 
  Unsurprisingly, **Spanish and Portuguese share a lot of [cognates](https://dictionary.cambridge.org/dictionary/english/cognate)**  (words from different languages that look and sound similar and even share the same meaning), but they also share a lot of “false friends” or false cognates (words that look and sound the same and might share a common origin, but have different meanings). So it would be best if you would not get ahead of yourself in trying to guess the meaning of a new word that looks similar to a word you already know. Crazy misunderstandings like being pregnant instead of being embarrassed can happen when you least expect it! _(If you are not familiar with this [cognate](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) \-> the Spanish “embarazada” is similar to the English “embarrassed”, but funnily enough, it translates to “pregnant” in English.) _
@@ -97,6 +107,9 @@ thumbnail: https://thmb.techidaily.com/b00ef75a586fb477d808aa5f3851d99d406553f7b
 
  “Ponta Negra, Natal, Brazil” by Pedro Menezes©
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Spanish-Portuguese cognates
 
  Cognates are words that have a common etymological origin. Essentially, they are “linguistic cousins”. They often**look similar and have the same or similar meanings.** Since Portuguese and Spanish share nearly 90% of their vocabulary, there are a lot of such cognates between them. Here are a few examples:
@@ -146,10 +159,16 @@ thumbnail: https://thmb.techidaily.com/b00ef75a586fb477d808aa5f3851d99d406553f7b
 
  If you still have questions regarding Spanish vs. Portuguese, let’s look at some frequently asked questions:
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ### How similar are Spanish and Portuguese?
 
  There’s an almost 90% lexical similarity between Spanish and Portuguese.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Can Spanish speakers understand Portuguese and vice versa?
 
  It’s often suggested that individuals who speak Portuguese typically have a better understanding of spoken Spanish than Spanish speakers have of spoken Portuguese.
@@ -158,10 +177,16 @@ thumbnail: https://thmb.techidaily.com/b00ef75a586fb477d808aa5f3851d99d406553f7b
 
  The main difference between European Portuguese and Brazilian Portuguese is the pronunciation. However, there are also vocabulary, syntax, grammar, and spelling differences that make the two languages differ.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### What are the key pronunciation differences between Spanish and Portuguese?
 
  Portuguese, sometimes likened to Russian in its sounds, is a stress-timed language with varied vowel sounds and atonic syllable reduction. In contrast, Spanish, characterized by its smooth and consistent pronunciation, is syllable-timed, providing a rhythmic flow where each syllable takes roughly the same amount of time. Additionally, Portuguese features numerous slurred sounds, contributing to its fluid nature, while Spanish, in contrast, has more pronounced and distinct word articulation.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<!-- affiliate ads end -->
 ### Is it easier to learn Spanish if you already know Portuguese, and vice versa?
 
  Considering there’s almost a 90% lexical similarity between Spanish and Portuguese, yes. It’s definitely easier to learn Spanish if you already know Portuguese and the other way around.
@@ -205,3 +230,56 @@ thumbnail: https://thmb.techidaily.com/b00ef75a586fb477d808aa5f3851d99d406553f7b
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-determining-view-counts-direct-effect-on-creator-revenue/"><u>[New] 2024 Approved  Determining View Count's Direct Effect on Creator Revenue</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-step-by-step-audio-recording-made-simple-with-iphone/"><u>[New] In 2024, Step-By-Step Audio Recording Made Simple with iPhone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-joining-google-meet-a-step-by-step-guide-for-2024/"><u>[New] Joining Google Meet  A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-unaltered-audio-through-the-lens-of-ffmpeg-review/"><u>[New] Unaltered Audio Through the Lens of FFmpeg Review</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-dive-deep-into-tiktoks-voiceover-realm/"><u>[Updated] 2024 Approved  Dive Deep Into TikTok's Voiceover Realm</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-from-raw-footage-to-youtube-perfection-premiere-pro-techniques/"><u>[Updated] 2024 Approved  From Raw Footage to YouTube Perfection - Premiere Pro Techniques</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-affordable-easy-to-use-video-capture-tools-for-windows/"><u>[Updated] In 2024, Affordable, Easy-to-Use Video Capture Tools for Windows</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-filmmakers-dilemma-picking-between-filmora-and-democracy-creator/"><u>[Updated] In 2024, Filmmaker's Dilemma  Picking Between Filmora & Democracy Creator</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-unveiling-rokus-potential-engaging-with-facebook-live/"><u>[Updated] Unveiling Roku's Potential  Engaging with Facebook Live</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580138450-103-crucial-croatian-expressions-your-translator-on-the-go/"><u>103 Crucial Croatian Expressions: Your Translator On-the-Go</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-how-to-curve-images-in-photoshop/"><u>2024 Approved  How to Curve Images in Photoshop</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-how-to-modify-game-characters-vocal-presence-and-identity-in-free-fire-step-by-step-guide-included-free/"><u>2024 Approved  How to Modify Game Characters' Vocal Presence and Identity in Free Fire (Step-by-Step Guide Included, FREE)</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-mastering-adventures-with-the-foremost-6-gopro-mounts-revealed/"><u>2024 Approved  Mastering Adventures with the Foremost 6 GoPro Mounts Revealed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/africas-unspoken-language-wealth/"><u>Africa's Unspoken Language Wealth</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/age-defying-wisdom-the-many-rewards-of-multilingualism-after-forty-years/"><u>Age-Defying Wisdom: The Many Rewards of Multilingualism After Forty Years</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/analyzing-press-back-phenomena-in-two-englishes/"><u>Analyzing 'Press Back' Phenomena in Two Englishes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/asian-language-hierarchy-first-second-third-leaders/"><u>Asian Language Hierarchy: First, Second, Third Leaders</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578225003-best-family-app-of-year-on-google-play-mondly-kids-with-smart-controls/"><u>Best Family App of Year on Google Play: Mondly Kids with Smart Controls</u></a></li>
+<li><a href="https://extra-information.techidaily.com/beyond-the-basics-non-inshot-pc-video-tools/"><u>Beyond the Basics  Non-Inshot PC Video Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/boost-your-fluency-explore-top-6-strategies-to-mastering-portuguese/"><u>Boost Your Fluency - Explore Top 6 Strategies to Mastering Portuguese</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>Can I use iTools gpx file to catch the rare Pokemon On Apple iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/charge-up-chic-italics-top-20-slangs-unveiled/"><u>Charge Up Chic Italics: Top 20 Slangs Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-bridges-built-with-these-italian-welcoming-expressions/"><u>Cultural Bridges Built with These Italian Welcoming Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/efficient-strategies-online-learning-lithuanian-success/"><u>Efficient Strategies: Online Learning Lithuanian Success</u></a></li>
+<li><a href="https://win11.techidaily.com/effortless-pasting-snippets-via-crafted-keybinds-in-windows-11-and-11/"><u>Effortless Pasting Snippets via Crafted Keybinds in Windows 11 & 11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-urdu-guidebook-for-novice-learners/"><u>Essential Urdu Guidebook for Novice Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explorar-o-portugues-todas-as-formas-de-saudar/"><u>Explorar O Português: Todas As Formas De Saudar</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-best-practices-for-mastering-finnish-virtually/"><u>Explore Best Practices for Mastering Finnish Virtually</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-easter-a-multicultural-journey-of-well-wishing/"><u>Global Easter: A Multicultural Journey of Well-Wishing</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-samsung-galaxy-a14-4g-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Samsung Galaxy A14 4G to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-xiaomi-14-ultra-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Xiaomi 14 Ultra | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/i-mille-numero-italiani-conoscenze-importanti/"><u>I Mille Numero Italiani: Conoscenze Importanti</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ideal-scandinavian-films-to-perfect-your-danish/"><u>Ideal Scandinavian Films to Perfect Your Danish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/impressive-interactions-top-50-classics-in-latin-for-charm/"><u>Impressive Interactions - Top 50 Classics in Latin for Charm</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-tuning-into-audio-bliss-your-iphone-as-a-podcasters-companion/"><u>In 2024, Tuning Into Audio Bliss - Your iPhone as a Podcaster's Companion</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ase-video-traffic-key-youtube-seo-strategies-for-2024/"><u>Increase Video Traffic  Key YouTube SEO Strategies for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-through-tv-and-film-effective-strategies-and-tips/"><u>Language Learning Through TV And Film: Effective Strategies And Tips</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lerne-deutsche-wochenabschnitte-verinnerlichen/"><u>Lerne Deutsche Wochenabschnitte Verinnerlichen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-arabic-made-simple-explore-the-benefits-on-mondly-online/"><u>Mastering Arabic Made Simple: Explore the Benefits on Mondly Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/never-pay-more-mondly-premium-forever-free/"><u>Never Pay More: Mondly Premium - Forever Free</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/reinforce-revenue-with-robust-rhetorical-capacity-building/"><u>Reinforce Revenue with Robust Rhetorical Capacity Building</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revised-info-user-rights-outline/"><u>Revised Info: User Rights Outline</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rhythmic-revelations-the-science-of-singing-to-learn-languages/"><u>Rhythmic Revelations: The Science of Singing to Learn Languages</u></a></li>
+<li><a href="https://some-skills.techidaily.com/synchronize-and-schedule-mastering-zoom-on-your-android-phone-for-2024/"><u>Synchronize & Schedule  Mastering Zoom on Your Android Phone for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ten-minute-bulgaria-language-learning-fast/"><u>Ten-Minute Bulgaria: Language Learning Fast</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/the-ultimate-list-of-immersive-game-worlds/"><u>The Ultimate List of Immersive Game Worlds</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/verbal-virtuosity-charming-strategies-with-spanish-words/"><u>Verbal Virtuosity: Charming Strategies with Spanish Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-harmony-a-linguistic-springtime-greeting/"><u>Worldwide Harmony: A Linguistic Springtime Greeting</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/xristos-anoi3e-greek/"><u>Χριστός Ανοίξε! (Greek)</u></a></li>
+</ul></div>

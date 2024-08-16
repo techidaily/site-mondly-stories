@@ -1,7 +1,7 @@
 ---
 title: Bridging Cultures with Appropriate Japanese Phrases
-date: 2024-07-12T09:08:57.468Z
-updated: 2024-07-13T09:08:57.468Z
+date: 2024-08-15T17:39:34.523Z
+updated: 2024-08-16T17:39:34.523Z
 tags:
   - speak
   - english
@@ -45,6 +45,9 @@ thumbnail: https://thmb.techidaily.com/64b02260fc2e331299df22a1e999eab91ad890c07
 
  Curious about why there are multiple types of characters in Japanese? Here’s everything there is to know about the [Japanese writing system](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **How to say “hello” on the phone in Japanese: moshi moshi (もしもし)**
 
  Unlike English, which uses the same “hello” for a lot of different social contexts, the Japanese language has a dedicated “hello” for answering the phone:**moshi moshi (もしもし).** Doesn’t that sound cute?
@@ -67,6 +70,9 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
  “Meguro River, Matsuno, Japan” by Sora Sagano©
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 3.“Goodbye” in Japanese
 
  Another greeting we borrowed from the Japanese and sometimes use in our day-to-day conversations in English is**_Sayōnara_** (さよなら), a greeting that carries the connotation of farewell and translates to “goodbye”.
@@ -86,6 +92,9 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
  “See you soon, human” by Alain Pham©
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 4\. “Thank you” in Japanese and other polite phrases that you should know
 
  We already settled that the Japanese culture is a culture of respect and politeness. Thus, learning to say**“thank you” in Japanese** is probably one of your most important tasks to complete before visiting Japan. Lucky for you, there’s nothing difficult about that.
@@ -109,9 +118,15 @@ This greeting is used both as a “hello” and as a “goodbye”.
 * _Iie_ (いいえ) – instead of_Dou itashi mashite,_ you can say_Iie,_ which means “no” as in “it was nothing”.
 
 ![arigato](https://edge.mondly.com/blog/wp-content/uploads/2019/08/arigato-1024x706.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 5")
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  “Kyoto, Japan” by Andre Benz©
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<!-- affiliate ads end -->
 ## Don’t forget about the Japanese bow
 
  Every**“hello” in Japanese** is usually accompanied by a bow, the Western world equivalent of a handshake. Our advice would be to not skip the bow if you really want to feel like you belong.
@@ -148,6 +163,10 @@ This greeting is used both as a “hello” and as a “goodbye”.
 * No problem. – _Daijōbudesu._
 
 ![sayonara](https://edge.mondly.com/blog/wp-content/uploads/2019/08/sayonara-1024x680.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 6")
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 
  “Tenryu-ji Temple, Kyōto-shi, Japan” by Masaaki Komori©
 
@@ -184,3 +203,69 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-crafting-a-memorable-channel-presence-with-imagery/"><u>[New] 2024 Approved  Crafting a Memorable Channel Presence with Imagery</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-best-match-image-taking-and-music-merging-technology/"><u>[New] Best Match  Image Taking & Music Merging Technology</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-enhancing-photographic-expression-through-snapchat-edits/"><u>[New] Enhancing Photographic Expression Through Snapchat Edits</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-how-to-use-leading-lines-in-photography-for-iphone-photos/"><u>[New] How to Use Leading Lines in Photography for iPhone Photos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-leveraging-whatsapps-features-for-twitter-video-distribution/"><u>[New] Leveraging WhatsApp's Features for Twitter Video Distribution</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-sony-snapshot-standstill-no-video-viewing/"><u>[New] Sony Snapshot Standstill  No Video Viewing</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-the-most-trending-templates-transforming-social-video-for-2024/"><u>[New] The Most Trending Templates Transforming Social Video for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-beginners-path-to-successful-hp-screen-capturing/"><u>[Updated] Beginner's Path to Successful HP Screen Capturing</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-plant-and-play-stardew-esque-gaming-winners-for-2024/"><u>[Updated] Plant and Play  Stardew-Esque Gaming Winners for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-from-stills-to-motion-creating-engaging-timelapse-videos-on-ipad/"><u>2024 Approved  From Stills to Motion  Creating Engaging Timelapse Videos on iPad</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-telegrams-launchpad-for-aspiring-advertisers-a-starters-handbook/"><u>2024 Approved  Telegram's Launchpad for Aspiring Advertisers  A Starter's Handbook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581598414-all-the-best-ways-to-say-thank-you-in-greek/"><u>All The Best Ways To Say Thank You In Greek</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprenda-a-convidar-com-portugues-melhores-saudades-para-todos-os-tempos/"><u>Aprenda a Convidar Com Português - Melhores Saudades Para Todos Os Tempos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/asias-hottest-language-trends-top-3-speakers/"><u>Asia's Hottest Language Trends: Top 3 Speakers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/audiolocale-the-auditory-journey-to-polyglotism/"><u>Audiolocale: The Auditory Journey to Polyglotism</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/become-an-expert-speaker-our-top-3-app-based-language-platforms/"><u>Become an Expert Speaker: Our Top 3 App-Based Language Platforms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/boundless-knowledge-anniversary-of-1500-daily-fee-exempt-classes/"><u>Boundless Knowledge: Anniversary of 1,500 Daily Fee-Exempt Classes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/captivating-hearts-in-italian-the-art-of-poetic-pick-up-lines/"><u>Captivating Hearts in Italian: The Art of Poetic Pick Up Lines</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comparing-englishes-across-seas/"><u>Comparing Englishes Across Seas</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-communication-us-and-uk-styles/"><u>Cultural Communication: US & UK Styles</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/danish-film-selection-enhancing-linguistic-competence/"><u>Danish Film Selection: Enhancing Linguistic Competence</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/descifrar-la-hora-en-espanol-un-comienzo/"><u>Descifrar La Hora en Español: Un Comienzo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-dialogue-dive-into-culture-in-mondly-vr/"><u>Dive Into Dialogue, Dive Into Culture in Mondly VR</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/easy-introduction-to-hangul-asian-script-at-your-fingertips/"><u>Easy Introduction to Hangul: Asian Script at Your Fingertips</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/echoes-from-avon-everyday-expressions-lost-to-time/"><u>Echoes From Avon: Everyday Expressions Lost to Time</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/einfache-abschiedsfloskeln-in-deutscher-umgangssprache/"><u>Einfache Abschiedsfloskeln in Deutscher Umgangssprache</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/elevate-your-micro-photography-key-tips-for-filmmakers/"><u>Elevate Your Micro Photography  Key Tips for Filmmakers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577399800-embrace-tagalog-easily-quick-lessons-every-morning/"><u>Embrace Tagalog Easily - Quick Lessons Every Morning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embracing-heartfelt-conversations-with-magyar-vocabulary/"><u>Embracing Heartfelt Conversations with Magyar Vocabulary</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embracing-multilingualism-second-chances/"><u>Embracing Multilingualism: Second Chances!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/everyday-phrases-explained-deciphering-prevalent-slang/"><u>Everyday Phrases Explained: Deciphering Prevalent Slang</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/experience-global-cultures-mondly-vr-revolutionizes-language-studies/"><u>Experience Global Cultures: Mondly VR Revolutionizes Language Studies</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/expert-analysis-how-showmore-enhances-your-video-capture-techniques/"><u>Expert Analysis  How ShowMore Enhances Your Video Capture Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-ancient-scripts-to-modern-fluency-persians-journey/"><u>From Ancient Scripts to Modern Fluency: Persian's Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-kisses-to-clusters-saying-chocolate-everywhere-you-go/"><u>From Kisses to Clusters: Saying 'Chocolate' Everywhere You Go</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-watcher-to-writer-embrace-the-linguistic-journey-of-ks/"><u>From Watcher to Writer: Embrace the Linguistic Journey of KS</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-french-speaker-trends-leading-nations-reviewed/"><u>Global French Speaker Trends: Leading Nations Reviewed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/globetrotting-for-the-largest-word/"><u>Globetrotting for the Largest Word</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-reset-a-oneplus-open-phone-that-is-locked-by-drfone-android/"><u>How to Reset a OnePlus Open Phone that is Locked?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-iphone-xs-online-without-jailbreak-by-drfone-ios/"><u>How to Unlock SIM Card on iPhone XS online without jailbreak</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-vivo-y100a-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Vivo Y100A | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-zte-blade-a3y-powerful-performance-meets-budget-pricing/"><u>In-Depth Review of ZTE Blade A3Y - Powerful Performance Meets Budget Pricing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/key-differences-between-brazilian-and-european-portuguese/"><u>Key Differences Between Brazilian and European Portuguese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/love-in-deutsch-effective-pick-up-lines/"><u>Love in Deutsch: Effective Pick-Up Lines</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/maximize-mobile-viewing-sharper-chromebook-and-phone-videos-for-2024/"><u>Maximize Mobile Viewing  Sharper Chromebook and Phone Videos for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/maximize-your-language-potential-why-learn-afrikaans-through-mondly/"><u>Maximize Your Language Potential: Why Learn Afrikaans Through Mondly?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719575254325-mondly-champion-of-language-learning-germany-resonates/"><u>Mondly: Champion of Language Learning - Germany Resonates</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/navigate-through-windows-11s-best-practices-for-imports-for-2024/"><u>Navigate Through Windows 11'S Best Practices for Imports for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/navigating-the-nuances-of-twitters-video-policies/"><u>Navigating the Nuances of Twitter's Video Policies</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-animate-like-a-pro-top-10-tools-for-beginners-and-experts-alike/"><u>New In 2024, Animate Like a Pro Top 10 Tools for Beginners and Experts Alike</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/nordic-narratives-the-language-of-the-sea-roaming-warriors/"><u>Nordic Narratives: The Language of the Sea-Roaming Warriors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/norges-language-leap-10-minute-magic/"><u>Norge's Language Leap - 10-Minute Magic!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oculus-quest-gets-its-first-ever-language-app-mondly/"><u>Oculus Quest Gets Its First-Ever Language App: Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/picking-the-ideal-next-language-quest/"><u>Picking The Ideal Next-Language Quest</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/syncing-platforms-for-video-upload/"><u>Syncing Platforms for Video Upload</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-path-to-expertise-announcing-1500-no-charge-lessons-a-day/"><u>The Path to Expertise: Announcing 1500 No-Charge Lessons a Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-worlds-vocabulary-dollars-into-english/"><u>The World’s Vocabulary Dollars Into English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-basic-arabic-a-beginners-course/"><u>Unveiling Basic Arabic: A Beginner's Course</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/voyage-to-the-first-speaking-ar-product/"><u>Voyage to the First Speaking AR Product</u></a></li>
+<li><a href="https://change-location.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-vivo-y100i-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Vivo Y100i? | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/your-complete-guide-to-reset-honor-x8b-drfone-by-drfone-reset-android-reset-android/"><u>Your Complete Guide To Reset Honor X8b | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/eyxes-morfwn-klisma-dyshs/"><u>Ευχές Μόρφων Κλίσμα Δύσης</u></a></li>
+</ul></div>

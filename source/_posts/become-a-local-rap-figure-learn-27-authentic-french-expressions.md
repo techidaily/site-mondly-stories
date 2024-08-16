@@ -1,7 +1,7 @@
 ---
 title: "Become a Local Rap Figure: Learn 27 Authentic French Expressions"
-date: 2024-07-12T09:08:25.544Z
-updated: 2024-07-13T09:08:25.544Z
+date: 2024-08-15T17:40:06.137Z
+updated: 2024-08-16T17:40:06.137Z
 tags:
   - speak
   - english
@@ -51,6 +51,9 @@ thumbnail: https://thmb.techidaily.com/4c2f1c5599abfece009f925c2828de86667e5982a
  –_Oh là là, ce n’est pas la mer à boire !_ (“Come on, it’s not the end of the world!”)
 
 ![french expressions](https://edge.mondly.com/blog/wp-content/uploads/2020/07/french-expressions-1-960x539.jpg "27 French Sayings And Idioms That Will Make You Sound French-Born 2")
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  “The French way” by Alex D’Alessio©
 
@@ -66,6 +69,9 @@ _– Je ne sais pas si je dois accepter ou pas._ (“I don’t know if I should 
 
  –_La nuit porte conseil._ (“Sleep on it.”)
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ### _4\. Comme on fait son lit, on se couche._
 
 **Literal translation:** “You’ve made your bed, now lie on it.”
@@ -104,6 +110,9 @@ _– Je ne sais pas si je dois accepter ou pas._ (“I don’t know if I should 
 
 _– Je ne peux pas le faire, c’est impossible !_ (“I can’t do it, it’s impossible!)_– Impossible n’est pas français._ (”Nothing is impossible.“)
 
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### _7\. Il ne faut rien laisser au hasard._
 
 **Literal translation:** “Nothing should be left to chance.”
@@ -128,6 +137,9 @@ _– Notre nouveau collègue semble être une personne très calme._ (“Our new
 
 _– L’habit ne fait pas le moine._ (“Don’t judge a book by its cover.”)
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### _9\. Mieux vaut tard que jamais._
 
 **Literal translation:** “Late is worth more than never.”
@@ -154,6 +166,18 @@ _– Comment est-ce possible? Sadie a gagné encore une fois !_ (“How is this 
 
 _– Aux innocents les mains pleines._ (“Beginner’s luck”)
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### _11\. Mieux vaut être seul que mal accompagné._
 
 **Literal translation:** “Better alone than in a bad company.”
@@ -176,6 +200,9 @@ _– Mieux vaut être seul que mal accompagné._ (“Better alone than in a bad 
 
 _– Je viens de perdre mon emploi mais je ne vais pas perdre l’espoir._ _Après la pluie, le beau temps._ (“I’ve just lost my job but I won’t lose hope. After all, after the rain, good weather evetually comes.”)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### _13\. Les murs ont des oreilles._
 
 **Literal translation:** “The walls have ears.”
@@ -202,6 +229,9 @@ _–_   _Je suis tellement content que nous soyons arrivés en France en toute s
 
  The French are famous for their love for exquisite food and wine. French cuisine is probably one of the most notorious cuisines in the world. So it’s only natural for some of this love to find its way into everyday French sayings.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### _1\. L’appétit vient en mangeant._
 
 **Literal translation:**  “Appetite comes with eating.”
@@ -224,6 +254,15 @@ _–_   _Je suis tellement content que nous soyons arrivés en France en toute s
 
  “Take care of your own onions” by MILKOVÍ©
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
+
+ It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
+
+  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
+
+  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<!-- affiliate ads end -->
 ### _3\. S’occuper de ses oignons._
 
 **Literal translation:** “To take care of your own onions.”
@@ -234,6 +273,9 @@ _–_   _Je suis tellement content que nous soyons arrivés en France en toute s
 
  _– Sa façon de gérer cela ne vous concerne pas. Occupe-toi de tes oignons._ (“His way of dealing with this isn’t your problem. Mind your own business.”)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ### _4\. Raconter des salades._
 
 **Literal translation:** “To tell salads.”
@@ -244,6 +286,10 @@ _–_   _Je suis tellement content que nous soyons arrivés en France en toute s
 
 _– Ça suffit! Tu racontes des salades !_ (“Enough with that. What you are saying is false!”)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ### _5\. Courir sur le haricot._
 
 **Literal translation:** “To run on the bean.”
@@ -254,6 +300,9 @@ _– Ça suffit! Tu racontes des salades !_ (“Enough with that. What you are s
 
 _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Stop annoying me! You are not winning this bet.”)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ### _6\. La vie est trop courte pour boire du mauvais vin._
 
 **Literal translation:** “Life is too short to drink bad wine.”
@@ -268,6 +317,10 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
 
  Sayings about animals are common in any language. After all, they are our co-residents on this planet and we have quite a lot to learn from them. Here are some of the most common French sayings about animals.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ### _1\. À bon chat, bon rat._
 
 **Literal translation:** “To a good cat, a good rat.”
@@ -280,6 +333,9 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
 
  –_Oui, Xavier est vraiment un adversaire de taille. À bon chat, bon rat._ (“Yes, Xavier is a really good match for him. They are equally matched.”)
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### _2\. Les chiens ne font pas des chats._
 
 **Literal translation:** “Dogs don’t make cats.”
@@ -292,6 +348,9 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
 
  – _Oui, les chiens ne font pas des chats. Elle a hérité du talent de sa mère._ (“Yes, dogs don’t make cats. She inherits her mother’s talent.”)
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### _3\. Il n’y a pas de quoi fouetter un chat._
 
 **Literal translation:** “There’s no reason to whip the cat.”
@@ -302,6 +361,9 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
 
  “Bonjour!” by Waranya Mooldee©
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<!-- affiliate ads end -->
 ### _4\. Poser un lapin._
 
 **Literal translation:** “To place a rabbit.”
@@ -325,6 +387,14 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
 **Literal translation:** “To comb the giraffe.”
 
 ![french phrases](https://edge.mondly.com/blog/wp-content/uploads/2020/07/french-phrases-960x638.jpg "27 French Sayings And Idioms That Will Make You Sound French-Born 7")
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
+
+ Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
+
+ DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
+ PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 
  “La girafe” by Dan Dennis©
 
@@ -367,3 +437,47 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-windows-8-video-editor-pro/"><u>[New] 2024 Approved  Windows 8 Video Editor Pro</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-best-in-class-iphone-and-android-video-enhancers/"><u>[New] Best-In-Class iPhone and Android Video Enhancers</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-premier-vhs-inspired-tricks-for-editing-excellence-for-2024/"><u>[New] Premier VHS-Inspired Tricks for Editing Excellence for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-unleash-youtube-potential-best-mp4-editors-on-mac/"><u>[New] Unleash YouTube Potential  Best MP4 Editors on Mac</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-in-the-rings-rhythm-a-clash-with-streamers/"><u>[Updated] In the Ring's Rhythm  A Clash with Streamers</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-windows-10-mov-recording-guide-for-2024/"><u>[Updated] Windows 10 MOV Recording Guide for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-closer-look-at-five-false-beliefs-in-language-education/"><u>A Closer Look at Five False Beliefs in Language Education</u></a></li>
+<li><a href="https://location-fake.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On Apple iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/break-the-ice-with-indonesian-social-phrases/"><u>Break the Ice with Indonesian Social Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/como-decir-dias-del-mes-en-espanol/"><u>Cómo Decir 'Días Del Mes' En Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-indonesian-chit-chat-starts-here/"><u>Discovering Indonesian Chit-Chat Starts Here</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-uks-colloquialisms-a-slang-guidebook/"><u>Embrace UK's Colloquialisms: A Slang Guidebook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enjoy-the-best-of-both-worlds-get-free-mondly-plus-for-life/"><u>Enjoy the Best of Both Worlds - Get Free Mondly Plus for Life</u></a></li>
+<li><a href="https://driver-install.techidaily.com/epson-et-2650-printing-essentials-usb-drivers-download/"><u>Epson ET-2650 Printing Essentials: USB Drivers Download</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/getting-acquainted-with-zhuyin/"><u>Getting Acquainted with Zhuyin</u></a></li>
+<li><a href="https://fox-that.techidaily.com/how-to-resolve-iphone-not-getting-android-texts-expert-tips-and-fixes/"><u>How to Resolve iPhone Not Getting Android Texts – Expert Tips and Fixes</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-disabling-apple-iphone-se-2020-parental-restrictions-withwithout-password-drfone-by-drfone-ios/"><u>In 2024, Disabling Apple iPhone SE (2020) Parental Restrictions With/Without Password | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-vivo-y36i-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Vivo Y36i | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/knowledge-for-all-honoring-the-1500th-of-costless-daily-lessons/"><u>Knowledge for All: Honoring the 1500Th of Costless Daily Lessons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-the-tongue-proven-strategies-for-eloquence/"><u>Master the Tongue: Proven Strategies for Eloquence</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/mastering-parsing-avoid-these-common-errors-with-our-top-grooks-and-fixes-in-android-development/"><u>Mastering Parsing: Avoid These Common Errors with Our Top Grooks and Fixes in Android Development</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-polska-accelerated-learning/"><u>Mastering Polska: Accelerated Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mixed-language-acquisition-method/"><u>Mixed-Language Acquisition Method</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-aligns-with-pearson-institute/"><u>Mondly Aligns With Pearson Institute</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-family-edition-google-plays-best-kids-app-of-the-year/"><u>Mondly Family Edition: Google Play's Best Kids App of the Year</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/premium-top-5-storage-solutions-for-xbox/"><u>Premium Top 5 Storage Solutions for Xbox</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/proficiency-in-global-communication-german-or-french/"><u>Proficiency in Global Communication: German Or French?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/reviewing-the-pioneer-bdr-xs06-efficient-and-mobile-blu-ray-burning-for-professionals-and-enthusiasts-alike/"><u>Reviewing the Pioneer BDR-XS06: Efficient and Mobile Blu-Ray Burning for Professionals and Enthusiasts Alike</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/second-language-skills-as-a-vital-fifties-endeavor/"><u>Second Language Skills as a Vital Fifties Endeavor</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/senior-years-enhanced-by-new-linguistic-skills/"><u>Senior Years, Enhanced by New Linguistic Skills</u></a></li>
+<li><a href="https://games-able.techidaily.com/solve-chrome-glitches-load-game-issues/"><u>Solve Chrome Glitches - Load Game Issues</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/solve-video-stuttering-issues-quickly-and-easily/"><u>Solve Video Stuttering Issues. Quickly & Easily</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sprachstarter-zahlen-bis-100-in-deutscher-sprache/"><u>Sprachstarter: Zählen Bis 100 in Deutscher Sprache</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-swift-polsk-learners-handbook/"><u>The Swift Polsk Learner's Handbook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-top-10-italian-greetings-how-to-say-hello-in-italian/"><u>The Top 10 Italian Greetings: How To Say Hello In Italian</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-picks-from-157-nations-by-apple/"><u>Top Picks From 157 Nations by Apple</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukrainian-and-russian-how-similar-are-these-two-languages/"><u>Ukrainian and Russian: How Similar Are These Two Languages?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-french-skills-from-your-living-room/"><u>Unlock French Skills From Your Living Room</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unlock-superior-performance-the-9-key-advantages-of-choosing-chatgpt-plus/"><u>Unlock Superior Performance: The 9 Key Advantages of Choosing ChatGPT Plus</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-korean-mastery-the-top-6-online-linguistic-hubs/"><u>Unlocking Korean Mastery: The Top 6 Online Linguistic Hubs</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Basic Guide to French Language Sounds and Rhythms
-date: 2024-07-12T09:09:18.575Z
-updated: 2024-07-13T09:09:18.575Z
+date: 2024-08-15T17:39:15.115Z
+updated: 2024-08-16T17:39:15.115Z
 tags:
   - speak
   - english
@@ -44,10 +44,16 @@ To help you get started with the _magique_  French sounds, we put together this 
 
  It’s not a 100% faithful transliteration of French sounds, but neither can it be. As you already saw, there are many French sounds that don’t exist in English, so we’ll have to improvise. Don’t worry, though. Read on and you’ll discover how to correctly pronounce some of the most difficult of them. Remember, we’re only focusing on pronunciation, not [F rench grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) here. We’ll tackle that in the next [French lessons](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<!-- affiliate ads end -->
 ## The most common French pronunciation challenges and how to overcome them
 
  There’s no denying that French pronunciation can be challenging. Depending on your ability (or inability) to mimic sounds, speaking French with a French accent can be a piece of cake or a hornet’s nest. Here are some of the most infamous French pronunciation challenges and how to overcome them. For practice, you may start with the [days of the week in French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) pronunciation.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### The French r
 
  The Holy Grail of French pronunciation. The Gioconda of French pronunciation. And yet… an endless source of headaches for almost every beginner learning French: the infamous French “r”.
@@ -58,6 +64,9 @@ To help you get started with the _magique_  French sounds, we put together this 
 
 Repeat the phrase **_regardez mon frère_** and find out where right now.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### “u”, “eu” and “ue” in French
 
  If you think about it, they all sound almost the same. But French is a language of subtle differences. Differences you will manage to master practicing.
@@ -109,6 +118,9 @@ Well, not very different from each other, are they?
 
  “French buildings” by Orlova Maria©
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## What are French liaisons and how to master them?
 
 To put it simply, _French liaisons_  or French connecting sounds bind together two words by blending the last letter of a word with the first letter of the following word.
@@ -127,6 +139,9 @@ Now, some of these _liaisons_  are optional, others are required, and some are f
 * _deux enfants_ \[deu za(n) fa(n)\] – two children (numeral + noun)
 * _vous avez_ \[voo zah vay\] – you have (pronoun + verb)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### “Dangereuses” French liaisons
 
  Some_French liaisons_ are completely forbidden and if you want to speak French like a native, you should avoid them. This happens to avoid confusion with a similar expression or simply because, grammatically, these words aren’t linked enough to require a vocal link. Here are some situations where you shouldn’t use a_liaison_ :
@@ -140,6 +155,10 @@ Now, some of these _liaisons_  are optional, others are required, and some are f
 
  \*_h aspiré_ is different from h muet (“mute h”). It’s true that in French “h” is always a silent letter. However, in Old and Middle French, on certain words, the “h” was pronounced. This is why, if you want to say_les hôpitaux_  (“hospitals”), there is a_liaison_  between the two words because the “h” is_muet_  and not_aspiré._
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+</a>
+<!-- affiliate ads end -->
 ### Optional French liaisons
 
  This time, it is up to you whether to use the_liaison_ or not. But you should know from the beginning that when the_liaison_ is optional, most people choose not to use it.
@@ -152,6 +171,9 @@ Now, some of these _liaisons_  are optional, others are required, and some are f
 
  “Versailles Palace, France” by Louis Paulin©
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to perfect your French pronunciation
 
  There is no magic recipe that works for everyone. The key is to be persistent and find out what suits you best. Whenever you want to learn something – anything – new, daily practice is required. Even when it comes to French accent and pronunciation. If at first you don’t succeed, don’t give up. Success is the sum of our failures.
@@ -171,6 +193,9 @@ _Bonne chance!_
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Speak French fluently in just 10 minutes a day
 
  Do you want to speak French fluently fast? Get Mondly, the award-winning language learning app that will help you speak French as if it were your first language.
@@ -199,3 +224,44 @@ _Bonne chance!_
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-gopros-camera-faceoff-master-360-versus-hero-11-pro/"><u>[New] GoPro's Camera Faceoff  Master 360 versus Hero 11 Pro</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-fresh-footage-frequent-flows-dos-and-donts-for-streamlining-video-content/"><u>[New] In 2024, Fresh Footage, Frequent Flows  Do's & Don'ts for Streamlining Video Content</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-transforming-vids-10-leading-apps-for-instagram-video-editing/"><u>[New] Transforming Vids  10 Leading Apps for Instagram Video Editing</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-whats-captivating-twitter-users-the-most-in-2024/"><u>[New] What's Captivating Twitter Users the Most, In 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-quick-info-on-short-form-media/"><u>[Updated] Quick Info on Short Form Media</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-10-funniest-youtube-shorts-video-ideas/"><u>[Updated] The 10 Funniest YouTube Shorts Video Ideas</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/5-quick-methods-to-bypass-infinix-zero-5g-2023-turbo-frp-by-drfone-android/"><u>5 Quick Methods to Bypass Infinix Zero 5G 2023 Turbo FRP</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/best-ways-to-record-and-save-itunes-videos-for-2024/"><u>Best Ways to Record and Save iTunes Videos for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhance-accent-intense-tongue-twister-training/"><u>Enhance Accent: Intense Tongue Twister Training</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enrich-teams-with-highest-rated-language-development-apps/"><u>Enrich Teams with Highest Rated Language Development Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/entry-points-to-arabic-language-exploration/"><u>Entry Points to Arabic Language Exploration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/express-with-authority-top-50-latin-expressions-revealed/"><u>Express with Authority: Top 50 Latin Expressions Revealed</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-community-spotlight-a-guide-for-public-access/"><u>Facebook's Community Spotlight: A Guide for Public Access</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fifty-something-language-learning-why-it-matters-now/"><u>Fifty-Something Language Learning: Why It Matters Now</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fondamentaux-danatomie-composition-du-corps-en-francais/"><u>Fondamentaux D'Anatomie : Composition Du Corps en Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/francais-du-lunis-a-dimanche/"><u>Français Du Lunis À Dimanche</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-convert-with-ease-pure-mp4s-from-your-favorite-tiktoks/"><u>In 2024, Convert with Ease  Pure MP4s From Your Favorite TikToks</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-intercept-text-messages-on-meizu-21-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Intercept Text Messages on Meizu 21 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-nubia-z50-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Nubia Z50 Ultra | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introduccion-al-control-de-reloj-digital-en-espanol/"><u>Introducción Al Control De Reloj Digital en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-lineage-unraveling-brazilian-and-eu-linguistic-roots/"><u>Language Lineage: Unraveling Brazilian & EU Linguistic Roots</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lexical-divergence-in-us-and-uk/"><u>Lexical Divergence in US and UK</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-horizons-10-reasons-for-bilingual-mastery/"><u>Linguistic Horizons: 10 Reasons for Bilingual Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/majority-language-of-israeli-culture/"><u>Majority Language of Israeli Culture?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-the-backbone-of-its-education-system/"><u>Mondly: The Backbone of Its Education System</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-ranking-the-ultimate-selection-the-9-superior-podcast-microphones/"><u>New Ranking the Ultimate Selection The 9 Superior Podcast Microphones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/optimal-language-selection-for-my-future-growth/"><u>Optimal Language Selection for My Future Growth</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/professional-editing-techniques-for-obs-studio-success/"><u>Professional Editing Techniques for OBS Studio Success</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/smartphone-youtube-experience-apple-vs-android-review/"><u>Smartphone YouTube Experience  Apple vs Android Review</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-croatian-and-boost-your-career-discover-these-7-advantages/"><u>Speak Croatian and Boost Your Career: Discover These 7 Advantages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-volumes-older-adults-new-languages/"><u>Speaking Volumes: Older Adults, New Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-tapestry-of-english-threads-from-abroad/"><u>The Tapestry of English: Threads From Abroad</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-nye-goals-attainability-strategies/"><u>Top NYE Goals: Attainability Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/triumphant-strategies-securing-the-best-language-certifications/"><u>Triumphant Strategies: Securing the Best Language Certifications</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/turkish-and-korean-linguistic-journey/"><u>Turkish and Korean Linguistic Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/twinspeak-tutorials/"><u>Twinspeak Tutorials</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/eyxh-kalwn-piatwn-gkreman/"><u>Ευχή Καλών Πιάτων Γκρεμάν</u></a></li>
+</ul></div>

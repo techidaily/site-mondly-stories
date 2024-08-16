@@ -1,7 +1,7 @@
 ---
 title: Discovering Farsi’s Ancient Secrets, Future Opportunities
-date: 2024-07-12T09:12:12.265Z
-updated: 2024-07-13T09:12:12.265Z
+date: 2024-08-15T17:36:22.855Z
+updated: 2024-08-16T17:36:22.855Z
 tags:
   - speak
   - english
@@ -28,6 +28,9 @@ thumbnail: https://thmb.techidaily.com/1fae0ad394ab82a99f86e121c7a2e9769c50867e0
 
  In other words, the confusion arises from the fact that there’s currently no country on Earth named Persia in the same way there’s no language we can call the ‘Iranian language’. Persian does belong to the Iranian languages, but the Iranian languages are a branch of the Indo-Iranian languages in the Indo-European language family. So they are not an individual language.
 
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The Persian language – history and facts
 
  One of the most fascinating things about Persian is its long history stretching back thousands of years. The Persian language that exists today is a continuation of Middle Persian, itself a continuation of Old Persian, which was used in the Achaemenid Empire between 550 and 330 BCE. Let’s look a little bit at the history of the Persian language and discover what makes it special.
@@ -36,6 +39,9 @@ thumbnail: https://thmb.techidaily.com/1fae0ad394ab82a99f86e121c7a2e9769c50867e0
 
  Old Persian then developed into**Middle Persian,** which existed from around 300 BCE until 800 CE. Evidence of Middle Persian exists mainly in the religious texts of the Zoroastrian religion. However, **Middle Persian entered a new stage when the Islamic conquest in 651 AD happened.** The following 200 years are referred to as “the two centuries of silence” because there is very little to almost no literature available from this time period.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### The Arab rule
 
  It seems that during the Muslim conquest of Persia, the Persian language was in danger of being lost and replaced by Arabic. Luckily, Persia was one of the few places where the Arabic language did not replace the local language. However, Arabic was used by the elite and it definitely had a big impact on the vocabulary of the**Modern Persian** that was emerging.
@@ -54,6 +60,9 @@ thumbnail: https://thmb.techidaily.com/1fae0ad394ab82a99f86e121c7a2e9769c50867e0
 
  As a matter of fact, there are even some English words of Persian origin. Some of them came directly into English from Persian, but most of them came indirectly into English via a different language. Some examples include bronze, jackal, lemon, mogul, mummy, scarlet, serendipity, shawl, tulip, turban, typhoon, khaki, caravan, and paradise. Probably the most interesting borrowing is the word “checkmate,” which comes from the Persian_Shah Mat_ , meaning “the king is dead”.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<!-- affiliate ads end -->
 ## Persian vs Farsi: Is Farsi the same as Persian?
 
  The short answer is yes, Farsi and Persian are the same language. The confusion comes from the fact that ‘Persian’ is the term used by English speakers and ‘Farsi’ is the term used by Iranian speakers to refer to Persian, the official language of Iran.
@@ -64,6 +73,9 @@ thumbnail: https://thmb.techidaily.com/1fae0ad394ab82a99f86e121c7a2e9769c50867e0
 
  According to the [Academy of Persian Language and Literature](https://iranicaonline.org/articles/farhangestan) , the endonym ‘Farsi’ should be avoided in foreign languages. Instead, ‘Persian’ should be the appropriate designation in English, as it has the longest tradition in western languages and is better suited to convey the language’s role as a national and cultural continuity symbol.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Persian vs Arabic: Is Persian similar to Arabic?
 
  Considering their shared history presented above, Persian and Arabic developed to become somehow similar, but not as similar as many think.
@@ -76,6 +88,9 @@ thumbnail: https://thmb.techidaily.com/1fae0ad394ab82a99f86e121c7a2e9769c50867e0
 
  All in all, Persian and Arabic can’t be considered mutually intelligible. A speaker of either Persian or Arabic with no knowledge of the other could recognize some basic words in writing, but conversations are a whole other story.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<!-- affiliate ads end -->
 ## The benefits of learning Farsi/Persian
 
  If you’re a language learner at heart, you already know that learning any language will broaden your horizons. There’s no such thing as a ‘waste of time’ when you [learn a new language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Be it Persian, Arabic, Urdu or a more popular language such as Spanish or German – all languages are equally important.
@@ -96,6 +111,9 @@ Other benefits of learning Persian include:
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<!-- affiliate ads end -->
 ### Learn Persian online with Mondly
 
  Are you now ready to learn Persian fast? Try Mondly, the award-winning language app that is serious about making learning Persian fun.
@@ -128,3 +146,49 @@ Other benefits of learning Persian include:
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-lessons.techidaily.com/new-accelerating-attention-how-to-alter-video-speed-on-stories/"><u>[New] Accelerating Attention  How to Alter Video Speed on Stories</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-decoding-displacement-your-snapchat-time-turner-guide-for-2024/"><u>[New] Decoding Displacement  Your Snapchat Time-Turner Guide for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-scorching-speedways-ranking-the-top-5-virtual-race-titles-for-2024/"><u>[New] Scorching Speedways  Ranking the Top 5 Virtual Race Titles for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-live-youtube-streaming-unlocked-beginners-obs-tutorial/"><u>[Updated] 2024 Approved  Live Youtube Streaming Unlocked  Beginner's OBS Tutorial</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-elevate-your-fb-profile-with-these-ten-effective-tactics-for-2024/"><u>[Updated] Elevate Your FB Profile with These Ten Effective Tactics for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-achieving-professional-level-youtube-streams-using-wirecast/"><u>[Updated] In 2024, Achieving Professional-Level Youtube Streams Using WireCast</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-techniques-for-capturing-the-perfect-verbal-note/"><u>2024 Approved  Techniques for Capturing the Perfect Verbal Note</u></a></li>
+<li><a href="https://fox-http.techidaily.com/android-essentials-for-immersive-video-and-vr-content-for-2024/"><u>Android Essentials for Immersive Video and VR Content for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expert-tips-for-fixing-the-ghost-runner-catastrophic-malfunction-in-windows-11-environment/"><u>Expert Tips for Fixing the 'Ghost Runner' Catastrophic Malfunction in Windows 11 Environment</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fast-frame-rates-and-uninterrupted-play-a-guide-to-fixing-lag-issues-in-warzone/"><u>Fast Frame Rates and Uninterrupted Play: A Guide to Fixing Lag Issues in Warzone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gold-star-for-educators-mondly-kids-in-google-plays-top-2017-apps/"><u>Gold Star for Educators - Mondly Kids in Google Play's Top 2017 Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/immersive-german-learning-experience-via-dark-show/"><u>Immersive German Learning Experience via Dark Show</u></a></li>
+<li><a href="https://windows11.techidaily.com/improving-startup-order-in-windows-11/"><u>Improving Startup Order in Windows 11</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-use-phone-clone-to-migrate-your-nokia-105-classic-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Use Phone Clone to Migrate Your Nokia 105 Classic Data? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-remove-the-lock-screen-fingerprint-of-your-realme-c51-by-drfone-android/"><u>In 2024, Remove the Lock Screen Fingerprint Of Your Realme C51</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-ultimate-guide-to-toolwiz-photosapp-for-photographers/"><u>In 2024, The Ultimate Guide to Toolwiz PhotosApp for Photographers</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-apps-and-online-tools-to-track-zte-nubia-z60-ultra-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track ZTE Nubia Z60 Ultra Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jumpstart-your-2023-save-big-and-gain-lifetime-access-to-mondly-premium/"><u>Jumpstart Your 2023: Save Big & Gain Lifetime Access to Mondly Premium!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leading-3-platforms-for-quick-and-seamless-language-learning/"><u>Leading 3 Platforms for Quick & Seamless Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-catalan-quickly-just-minutes-a-day/"><u>Learn Catalan Quickly, Just Minutes a Day!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-the-ropes-of-japenese-social-dialogue/"><u>Learn the Ropes of Japenese Social Dialogue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leverage-multilingualism-why-mondly-is-ideal-for-afrikaans-learners/"><u>Leverage Multilingualism: Why Mondly Is Ideal for Afrikaans Learners</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-learn-how-everything-works-on-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>Life360 Learn How Everything Works On Google Pixel 7a | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/luscious-language-lessons-via-movies/"><u>Luscious Language Lessons via Movies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/make-2023-your-best-save-96-on-mondly-premium/"><u>Make 2023 Your Best: Save $96 on Mondly Premium!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-japanese-etiquette-key-phrases/"><u>Mastering Japanese Etiquette - Key Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-unveils-top-8-motivational-factors-to-learn-hindi-online/"><u>Mondly Unveils: Top 8 Motivational Factors to Learn Hindi Online!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-mission-for-millions-in-ukraine/"><u>Mondly's Mission for Millions in Ukraine</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-what-is-ai-generated-text/"><u>New What Is AI Generated Text?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polite-practices-in-france-learning-proper-au-revoir-and-more/"><u>Polite Practices in France: Learning Proper 'Au Revoir' & More</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-for-the-curious-childs-mind/"><u>Spanish for the Curious Child's Mind</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-fluent-latvian-in-under-an-hours-practice/"><u>Speak Fluent Latvian in Under an Hour's Practice</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-a-local-best-25-german-phrases/"><u>Speak Like a Local: Best 25 German Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spooky-festivities-a-cultural-insight/"><u>Spooky Festivities: A Cultural Insight</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tackling-the-complexity-of-german-grammar/"><u>Tackling the Complexity of German Grammar</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-slang-survival-guide-common-english-expressions/"><u>The Slang Survival Guide: Common English Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-25-german-idioms-to-speak-like-a-german/"><u>Top 25 German Idioms To Speak Like A German</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-talk-tracks-enhance-enterprise-eloquence-strategies/"><u>Transform Talk Tracks: Enhance Enterprise Eloquence Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/troubleshooting-solutions-to-reactivate-grayed-out-icloud-options-on-ios-devices/"><u>Troubleshooting: Solutions to Reactivate Grayed-Out iCloud Options on iOS Devices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-your-english-potential-with-oxford-3000-and-mondly/"><u>Unlock Your English Potential with Oxford 3000 and Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/which-language-dominates-israeli-conversations/"><u>Which Language Dominates Israeli Conversations?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-mondly-sets-the-bar-for-language-app-success/"><u>Why Mondly Sets the Bar for Language App Success</u></a></li>
+</ul></div>

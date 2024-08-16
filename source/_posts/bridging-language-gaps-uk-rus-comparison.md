@@ -1,7 +1,7 @@
 ---
 title: "Bridging Language Gaps: Uk-Rus Comparison"
-date: 2024-07-12T09:06:19.567Z
-updated: 2024-07-13T09:06:19.567Z
+date: 2024-08-15T17:42:11.844Z
+updated: 2024-08-16T17:42:11.844Z
 tags:
   - speak
   - english
@@ -36,6 +36,9 @@ thumbnail: https://thmb.techidaily.com/fb282d9804e61f76170ce10cf4356b1c491a63028
 
  From here on, there are several theories regarding the development of the Ukrainian language and its divergence from Russian, but what’s most important is that their common ancestor, Old East Slavic, spanned a territory hundreds of kilometers wide. Considering how other languages came to be and how much migration influences the process, it’s obvious that the separation happened gradually.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### The development of the Ukrainian language after the 13th century
 
  Here’s how other languages influenced (what would later be known as) Ukrainian in the following centuries:
@@ -72,11 +75,17 @@ thumbnail: https://thmb.techidaily.com/fb282d9804e61f76170ce10cf4356b1c491a63028
  So how similar are Ukrainian and Russian?**They share about 62% lexical similarity.** What many people don’t know is that Ukrainian has a higher lexical similarity with Polish,[Slovak](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and Belarusian, than it does with Russian – especially with Belarusian.
 
 !['Russian language' by Dimitry B©](https://edge.mondly.com/blog/wp-content/uploads/2022/03/russian-language-960x639.jpg "Ukrainian And Russian: How Similar Are These Two Languages? 5")
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<!-- affiliate ads end -->
 
  Since most Ukrainian speakers also speak Russian or have extensive exposure to it, ‘asymmetric intelligibility’ is the best term to describe the relationship between the two languages. In other words, Ukrainian speakers can often understand Russian, while Russian speaker doesn’t understand Ukrainian, especially Russian speakers from outside Ukraine.
 
  However, all three languages – Ukrainian, Russian and Belarusian – are in part mutually intelligible, and already knowing one can help a lot if you want to learn one of the others.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How different are Ukrainian and Russian?
 
  Now that we’ve explained the history behind Ukrainian and Russian, it’s time to look at some more practical examples. A 62% lexical similarity may sound like a lot, but these two languages are not as similar as many might think. Here are some of the most important differences between Russian and Ukrainian.
@@ -105,6 +114,10 @@ thumbnail: https://thmb.techidaily.com/fb282d9804e61f76170ce10cf4356b1c491a63028
 
  Showing 1 to 6 of 6 entries
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
 ### Sounds and pronunciation
 
  While to a non-trained ear Russian and Ukrainian might sound the same, they actually have several differences when it comes to pronunciation. For example, Ukrainian has a specific sound for “Г г” (similar to \[h\] in ‘aha!’) which Russian doesn’t have. For this letter, Russian uses the \[g\] sound which is similar to the ‘g’ in ‘go’ or ‘guard’. As a consequence, it’s very easy to differentiate a Ukrainian speaker from a Russian speaker as Ukrainians sometimes overlook the usage of \[g\] instead of \[h\].
@@ -116,6 +129,9 @@ thumbnail: https://thmb.techidaily.com/fb282d9804e61f76170ce10cf4356b1c491a63028
 * Ukrainian uses more soft consonants compared to Russian;
 * Russian \[ы\] is deeper than Ukrainian \[и\] and Russian \[э\] is more open than Ukrainian \[е\].
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Grammar
 
  When it comes to grammar, Russian and Ukrainian have similar principles and categories:
@@ -137,6 +153,9 @@ thumbnail: https://thmb.techidaily.com/fb282d9804e61f76170ce10cf4356b1c491a63028
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Learn Ukrainian, Russian and more in just 10 minutes a day
 
  Do you want to learn languages fast? Get Mondly, the award-winning language app that will help you speak Ukrainian, Russian and more from day 1.
@@ -169,3 +188,41 @@ thumbnail: https://thmb.techidaily.com/fb282d9804e61f76170ce10cf4356b1c491a63028
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-effortless-methods-to-swiftly-erase-signatures/"><u>[New] Effortless Methods to Swiftly Erase Signatures</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-gopro-face-by-face-guide-to-selectivity-for-2024/"><u>[New] Gopro Face-By-Face Guide to Selectivity for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-creating-smooth-motion-flows-the-ken-burns-effect-walkthrough/"><u>[New] In 2024, Creating Smooth Motion Flows  The Ken Burns Effect Walkthrough</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-in-2024-transforming-standard-tweets-into-hd-spectacles/"><u>[New] In 2024, Transforming Standard Tweets Into HD Spectacles</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-deciphering-the-secrets-of-zd-soft-recorder-for-2024/"><u>[Updated] Deciphering the Secrets of ZD Soft Recorder for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-minutes-to-fluency-your-daily-guide-to-latvian-learning/"><u>10 Minutes to Fluency: Your Daily Guide to Latvian Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-minute-bangla-blitz-start-your-language-adventure-today/"><u>10-Minute Bangla Blitz: Start Your Language Adventure Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579155212-10-minute-moments-make-mastering-slovak-a-reality/"><u>10-Minute Moments Make Mastering Slovak a Reality!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/7-reasons-why-you-should-learn-afrikaans-with-mondly/"><u>7 Reasons Why You Should Learn Afrikaans With Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/9-unexpected-ways-language-affects-mindset/"><u>9 Unexpected Ways Language Affects Mindset</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-decade-mondlyback-buttonfilter-triumph/"><u>A Decade: MondlyBack ButtonFilter Triumph</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/babel-fish-reimagined-uncovering-the-top-6-advantages/"><u>Babel Fish Reimagined: Uncovering the Top 6 Advantages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/captains-colloquialism-compendium-piratical-language-lesson/"><u>Captain's Colloquialism Compendium: Piratical Language Lesson</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conversational-couture-tailoring-pick-up-lines-in-spanish/"><u>Conversational Couture: Tailoring Pick-Up Lines in Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/crafting-effective-resolutions-for-the-new-year/"><u>Crafting Effective Resolutions for the New Year</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultivating-a-natural-french-accent-with-idioms/"><u>Cultivating a Natural French Accent with Idioms</u></a></li>
+<li><a href="https://driver-error.techidaily.com/device-detection-issue-absence-of-intel-chipset/"><u>Device Detection Issue: Absence of Intel Chipset</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/echoes-of-inspiration-worlds-educator-words/"><u>Echoes of Inspiration: World's Educator Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/educational-lifetime-celebrating-1500-daily-sessions-without-a-price-tag/"><u>Educational Lifetime: Celebrating 1500 Daily Sessions Without a Price Tag</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/efficiency-in-language-learning-top-7-afrikaans-strategies-on-mondly/"><u>Efficiency in Language Learning: Top 7 Afrikaans Strategies on Mondly</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-6-plus-to-other-iphone-13-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 6 Plus To Other iPhone 13 devices? | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-frp-from-samsung-galaxy-a24-by-drfone-android/"><u>In 2024, How to Bypass FRP from Samsung Galaxy A24?</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-gmail-password-on-realme-12-5g-devices-by-drfone-android/"><u>In 2024, How to Reset Gmail Password on Realme 12 5G Devices</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-poco-m6-pro-4g-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Poco M6 Pro 4G online without jailbreak</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-mastering-video-success-on-facebook-platforms/"><u>In 2024, Mastering Video Success on Facebook Platforms</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-archivists-arsenal-pivotal-80s-vhs-tricks-for-editors/"><u>In 2024, The Archivist’s Arsenal  Pivotal 80S VHS Tricks for Editors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576891755-jumpstart-your-2023-save-big-and-gain-lifetime-access-to-mondly-premium/"><u>Jumpstart Your 2023: Save Big & Gain Lifetime Access to Mondly Premium</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578245800-language-barrier-breakthroughs-with-an-epic-95-savings-opportunity/"><u>Language Barrier Breakthroughs with an Epic 95%% Savings Opportunity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581698084-learn-catalan-online-in-just-10-minutes-a-day/"><u>Learn Catalan Online in Just 10 Minutes a Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578090462-mastering-languages-made-simple-explore-our-top-triads-benefits/"><u>Mastering Languages Made Simple: Explore Our Top Triad's Benefits!</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/navigating-youtubes-community-standards-as-a-viewer-or-creator-for-2024/"><u>Navigating YouTube's Community Standards as a Viewer or Creator for 2024</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-bring-your-vision-to-life-top-free-and-paid-3d-video-creators-for-2024/"><u>New Bring Your Vision to Life Top Free and Paid 3D Video Creators for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581371814-say-hi-in-another-language-today-at-nearly-no-cost-to-you/"><u>Say Hi in Another Language Today – At Nearly No Cost to You</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-tecno-camon-20-premier-5g-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Tecno Camon 20 Premier 5G | Dr.fone</u></a></li>
+</ul></div>

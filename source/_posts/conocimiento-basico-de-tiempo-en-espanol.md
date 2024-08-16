@@ -1,7 +1,7 @@
 ---
 title: Conocimiento Básico De Tiempo en Español
-date: 2024-07-12T09:10:01.394Z
-updated: 2024-07-13T09:10:01.394Z
+date: 2024-08-15T17:38:32.231Z
+updated: 2024-08-16T17:38:32.231Z
 tags:
   - speak
   - english
@@ -57,6 +57,10 @@ But first things first.
 
 _**Nota bene:**_ If you prefer to use the 24-hour clock, you should say**_son las dieciséis_** **(“it’s 16:00”)** instead of **_son las cuatro_ (“it’s 4 o’clock p.m.”).** But that will require a little more studying on your part. Don’t worry though. Spanish numbers are just as easy as learning how to tell the time. You can master them with Mondly faster than you can say Jack Robinson. You can get started [here](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5345&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5345?mother%5Flang=en%5Fus?target%5Flang=es&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5345?mother%5Flang=en%5Fus?target%5Flang=es) .
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 ### How do you say the time in Spanish after 30?
 
  Now, the time is not always on the hour. So how do you say “half past”, “quarter past” and “quarter to” in Spanish? There are only two new words you need to remember:_**media**_ and_**cuarto**_ .
@@ -72,6 +76,9 @@ Here are some examples:
 * 5:45 –_Son las seis menos cuarto._ – It’s a quarter until six.
 
 ![telling time in spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/06/telling-time-in-spanish-600x600.jpg "How To Tell Time In Spanish - A Complete Guide For Beginners 3")
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Telling time in Spanish – a visual guide
 
@@ -86,6 +93,9 @@ Here are some examples:
 * _Son las ocho y cuarto._ (“it’s a quarter past eight”)
 * _Son las ocho y quince._ (“it’s eight and fifteen minutes”)
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Different ways of telling time in Spanish
 
  There are three formulas of telling time in Spanish. Here are different ways of telling it’s 3:10:
@@ -96,6 +106,9 @@ Here are some examples:
 
  Which one do you prefer? Additionally, if we also count it_cuarto_ and_media_ , there are no less than four different ways to tell the time in Spanish. And you’ve just mastered them all!
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## How to indicate the time of day in Spanish
 
  If you are using the 12-hour clock, you sometimes might want to also point out the time of day. For instance, “it’s two in the afternoon” translates to_**son las dos de la tarde**_ in Spanish. Not too complicated, is it? Here are some more times of day that might come in handy:
@@ -110,6 +123,9 @@ Here are some examples:
 
  To indicate that an event occurs at a specific time, use the formula **a +_la(s)_ \+ time** :_La clase de español empieza a las nueve_ – “The Spanish class begins at 9”.
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<!-- affiliate ads end -->
 ### Other useful time phrases in Spanish
 
 * _por la mañana_ – in the morning
@@ -145,6 +161,9 @@ Here are some examples:
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Speak Spanish fluently in just 10 minutes a day
 
  Do you want to [speak Spanish fluently](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) fast? Get Mondly, the award-winning language learning app that will help you speak Spanish as if you were Spanish-born.
@@ -173,3 +192,66 @@ Here are some examples:
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-unlock-hidden-potential-sharing-videos-with-ease/"><u>[New] 2024 Approved  Unlock Hidden Potential  Sharing Videos with Ease</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-nailing-the-perfect-timelapse-with-ios-devices/"><u>[New] In 2024, Nailing the Perfect Timelapse with iOS Devices</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-speedy-strategies-storing-slideshow-scripts-for-2024/"><u>[New] Speedy Strategies  Storing Slideshow Scripts for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-dji-drones-range-spectrum-basic-vs-intermediate-advanced-vs-ultra-hd-for-2024/"><u>[Updated] DJI Drones Range Spectrum  Basic Vs Intermediate, Advanced Vs Ultra HD for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-unlock-the-art-of-recording-all-your-hulu-content/"><u>[Updated] In 2024, Unlock the Art of Recording All Your Hulu Content</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-minute-milestones-achieve-slovak-expertise-with-our-online-programs/"><u>10-Minute Milestones - Achieve Slovak Expertise with Our Online Programs</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-social-media-synergy-connecting-twitch-streams-with-fb/"><u>2024 Approved  Social Media Synergy  Connecting Twitch Streams with FB</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/27-french-sayings-and-idioms-that-will-make-you-sound-french-born/"><u>27 French Sayings and Idioms That Will Make You Sound French-Born</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/7-impactful-reasons-for-multilingual-journey/"><u>7 Impactful Reasons for Multilingual Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-beginners-primer-on-friendly-interactions-in-china/"><u>A Beginner's Primer on Friendly Interactions in China</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-decade-of-connectivity-mondly-revealed/"><u>A Decade of Connectivity - Mondly Revealed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/achieving-your-nye-dreams-systematically/"><u>Achieving Your NYE Dreams Systematically</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/all-african-languages-a-complete-guide-to-the-continents-linguistic-diversity/"><u>All African Languages: A Complete Guide To The Continent's Linguistic Diversity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/americas-favorite-language-study-choices/"><u>America's Favorite Language Study Choices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ancient-greek-language-influence-on-modern-languages/"><u>Ancient Greek Language Influence on Modern Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/australian-slang-decoded-101-must-know-terms/"><u>Australian Slang Decoded: 101 Must-Know Terms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/become-a-connoisseur-of-german-sayings-top-25/"><u>Become a Connoisseur of German Sayings (Top 25)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577851696-become-a-croatian-connoisseur-heres-your-list-of-7-key-benefits/"><u>Become a Croatian Connoisseur – Here's Your List Of 7 Key Benefits!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/boost-your-brain-with-music-effective-methods-for-multilingualism/"><u>Boost Your Brain with Music: Effective Methods for Multilingualism</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/british-and-american-english-a-comparative-study/"><u>British and American English: A Comparative Study</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/carousel-of-charms-a-romantic-italian-dialogue/"><u>Carousel of Charms: A Romantic Italian Dialogue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cerebral-advantages-of-multilingualism/"><u>Cerebral Advantages of Multilingualism</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/colombias-danny-fund-a-lifeline-to-underprivileged-groups/"><u>Colombia's Danny Fund: A Lifeline to Underprivileged Groups</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/commanding-conversations-innovative-language-programs/"><u>Commanding Conversations: Innovative Language Programs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/communication-language-in-croatia/"><u>Communication Language in Croatia</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/compreenas-guide-inserting-captions-into-mp4-files-2024/"><u>Compreenas Guide  Inserting Captions Into MP4 Files 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/compreendemos-gritos-de-alegria-e-felicidade-no-portugues/"><u>Compreendemos Gritos De Alegria E Felicidade No Português</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cracking-the-code-learning-german/"><u>Cracking the Code: Learning German</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/danny-from-colombia-leading-the-charitable-battle/"><u>Danny From Colombia Leading the Charitable Battle</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciphering-spanish-diacritics-and-their-significance/"><u>Deciphering Spanish Diacritics and Their Significance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/demystifying-math-learning-russian-arithmetic-skills/"><u>Demystifying Math: Learning Russian Arithmetic Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/demystifying-popular-january-aspirations/"><u>Demystifying Popular January Aspirations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dia-a-dia-aprendiendo-los-dias-de-la-semana-en-espanol/"><u>Día a Día: Aprendiendo Los Días De La Semana en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/die-10-wichtigsten-deutschen-abschiedsworter/"><u>Die 10 Wichtigsten Deutschen Abschiedswörter</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-mondly-language-learning-leader-of-2022/"><u>Discover Mondly: Language Learning Leader of 2022</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/diversity-dialogues-strategic-approaches-in-multicultural-discourse/"><u>Diversity Dialogues: Strategic Approaches in Multicultural Discourse</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevate-your-dishes-key-tips-from-world-class-chefs-and-restaurants/"><u>Elevate Your Dishes: Key Tips From World-Class Chefs and Restaurants</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-efficient-chat-mondly-joins-huawei-apps/"><u>Embrace Efficient Chat: Mondly Joins Huawei Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-multilingualism-start-a-language-journey/"><u>Embrace Multilingualism: Start a Language Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embracing-hangul-learn-languages-fast-and-fun/"><u>Embracing Hangul: Learn Languages Fast and Fun</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/emotional-euphony-in-francophone-films/"><u>Emotional Euphony in Francophone Films</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/forgotten-the-voicemail-password-of-oneplus-11r-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of OnePlus 11R? Try These Fixes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581411545-french-lingo-fast-track-to-pronounce-right/"><u>French Lingo Fast-Track to Pronounce Right!</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-lock-from-apple-iphone-12-pro-max-by-drfone-ios/"><u>How to Bypass iCloud Lock from Apple iPhone 12 Pro Max</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-nokia-105-classic-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Nokia 105 Classic without Losing Data | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-fake-android-location-without-rooting-for-your-xiaomi-redmi-note-13-5g-drfone-by-drfone-virtual/"><u>In 2024, Fake Android Location without Rooting For Your Xiaomi Redmi Note 13 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-the-complete-process-of-recording-your-fb-messenger-conversations/"><u>In 2024, The Complete Process of Recording Your FB Messenger Conversations</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-financial-lifeline-of-podcasting/"><u>In 2024, The Financial Lifeline of Podcasting</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581063210-make-2023-your-best-save-96-on-mondly-premium/"><u>Make 2023 Your Best: Save $96 on Mondly Premium</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/mastery-in-mixing-pro-tools-prowess-tips-and-tricks-for-2024/"><u>Mastery in Mixing  Pro Tools Prowess Tips and Tricks for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-lava-blaze-2-5g-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Lava Blaze 2 5G? | Dr.fone</u></a></li>
+<li><a href="https://win-dash.techidaily.com/quick-and-effortless-download-of-synaptic-device-drivers-for-windows-systems/"><u>Quick & Effortless Download of Synaptic Device Drivers for Windows Systems</u></a></li>
+<li><a href="https://howto.techidaily.com/super-easy-ways-to-deal-with-honor-magic-v2-unresponsive-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Super Easy Ways To Deal with Honor Magic V2 Unresponsive Screen | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/the-beginners-guide-to-joining-facebook/"><u>The Beginner's Guide to Joining Facebook</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/the-quick-and-easy-sharing-of-creative-content-for-2024/"><u>The Quick and Easy Sharing of Creative Content for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/ultimate-guide-on-motorola-razr-40-ultra-frp-bypass-by-drfone-android/"><u>Ultimate Guide on Motorola Razr 40 Ultra FRP Bypass</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/ultimate-metaverse-vr-gear-list-top-8-choices-for-2024/"><u>Ultimate Metaverse VR Gear List  Top 8 Choices for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719575683005-virtual-verbal-journey-transform-flingish-to-fluent/"><u>Virtual Verbal Journey: Transform Flingish to Fluent</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/xilinx-gpu-error-cleared-back-to-service/"><u>Xilinx GPU: Error Cleared, Back to Service</u></a></li>
+</ul></div>

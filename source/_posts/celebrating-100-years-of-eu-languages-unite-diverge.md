@@ -1,7 +1,7 @@
 ---
 title: Celebrating 100 Years of EU - Languages Unite, Diverge
-date: 2024-07-12T09:07:29.840Z
-updated: 2024-07-13T09:07:29.840Z
+date: 2024-08-15T17:41:02.171Z
+updated: 2024-08-16T17:41:02.171Z
 tags:
   - speak
   - english
@@ -34,6 +34,9 @@ thumbnail: https://thmb.techidaily.com/925e71f91fee67d832ccee7c6f17e9bb429f4160d
 
  The Schuman Declaration, presented by French Foreign Minister Robert Schuman on May 9, 1950, proposed the creation of the European Coal and Steel Community (ECSC). The ECSC, with founding members France, West Germany, Italy, the Netherlands,[Belgium](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , and Luxembourg, was the first in a series of European institutions that eventually evolved into today’s European Union.
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ## European language families and branches
 
  Europe is home to several major language families, the most prominent being the**Indo-European language family.** Other significant language families include Uralic, Turkic, and Basque, each contributing to the rich linguistic landscape of the continent.
@@ -43,6 +46,14 @@ thumbnail: https://thmb.techidaily.com/925e71f91fee67d832ccee7c6f17e9bb429f4160d
  It seems that the earliest speakers of Proto-Indo-European originally lived around today’s Ukraine and the nearby regions in the Caucasus and Southern Russia. What allowed the language to spread so far and wide was, interestingly enough, the people’s success in domesticating cattle, dogs, and, above all, horses. This allowed them to distribute the language across Eurasia on their horses.
 
 !['Europe languages' by Joseph Daniel©](https://edge.mondly.com/blog/wp-content/uploads/2023/05/europe-language-960x558.jpg "The Fascinating World Of Indo-European And Other Languages Of Europe 6")
+<!-- affiliate ads begin -->
+<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
+	Home Use license is dedicated for personal, non-commercial use only. 
+	If Action! is used for commercial gain or to further any commercial purpose, 
+	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
+ 
+	company, user or members of the same household. Action! - screen and game recorder</a>
+<!-- affiliate ads end -->
 
  Because Proto-Indo-European speakers didn’t create a writing system, we don’t have any written records of their language. Linguists have tried to recreate this ancient language using different methods. Even though a perfect reconstruction may not be possible, we still have a general idea of the language and culture these early speakers shared.
 
@@ -66,6 +77,9 @@ thumbnail: https://thmb.techidaily.com/925e71f91fee67d832ccee7c6f17e9bb429f4160d
  All these branches reflect the vast geographic spread and historical development of the Indo-European languages. Who would have guessed Romance languages and Indic languages come from the same European language family? The linguistic diversity found within this influential language family is incredible, to say the least.
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "The Fascinating World Of Indo-European And Other Languages Of Europe 7")
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##### Language learning made easy
 
@@ -85,10 +99,25 @@ thumbnail: https://thmb.techidaily.com/925e71f91fee67d832ccee7c6f17e9bb429f4160d
 
  As you can see, there aren’t many Non-Indo-European languages in Europe. The vast majority is represented by the aforementioned Indo-European languages, which are equally intricate and diverse.
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Most Spoken Languages in Europe
 
  With an abundance of languages in Europe, determining the best one to learn can be a challenge. Sure, Europeans are known for their good command of English, but what’s the next best language to learn? If you want to travel or even work in Europe, surely the most practical to learn is the most spoken. To help you decide, let’s look at the**top five most spoken languages in Europe.** By number of native speakers, of course.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1\. Russian
 
  Given its wide territory, Russian is the most spoken native language in Europe. With more or less**130 million native speakers** on the European continent, Russian is the official language of Russia and Belarus. Additionally, many older people in Eastern Europe speak Russian because it was taught in schools during the Soviet Era.
@@ -104,6 +133,9 @@ thumbnail: https://thmb.techidaily.com/925e71f91fee67d832ccee7c6f17e9bb429f4160d
  Along with English, French is the only language spoken on five continents. Still, its influence in Europe remains just as strong, with no less than 67 million native speakers.
 
 !['European languages' by Aswathy N©](https://edge.mondly.com/blog/wp-content/uploads/2023/05/european-languages-960x720.jpg "The Fascinating World Of Indo-European And Other Languages Of Europe 8")
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<!-- affiliate ads end -->
 
  Colmar, France
 
@@ -123,6 +155,9 @@ thumbnail: https://thmb.techidaily.com/925e71f91fee67d832ccee7c6f17e9bb429f4160d
 
 **Honorable mentions:** Spanish, Ukrainian, Polish, Romanian and Dutch.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## The Hardest European Languages to Learn: A Linguistic Challenge
 
 [Learning a new language](https://app.adjust.com/5ixfg4k?campaign=blog-post-id-7974&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-7974&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-7974) can be challenging, and some European languages are considered particularly hard to learn due to their complex grammar, vocabulary or pronunciation.
@@ -153,6 +188,9 @@ thumbnail: https://thmb.techidaily.com/925e71f91fee67d832ccee7c6f17e9bb429f4160d
 
  Whether we’re talking about Indo-European languages or not, here are all the languages of Europe and where they are spoken:
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Languages of Europe
 
  Show 10 25 50 100  entries
@@ -191,6 +229,9 @@ thumbnail: https://thmb.techidaily.com/925e71f91fee67d832ccee7c6f17e9bb429f4160d
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<!-- affiliate ads end -->
 ### Learn the languages of Europe fast
 
  Do you want to learn some of Europe’s languages? Try Mondly, the award-winning language app that is serious about making language learning fun.
@@ -225,3 +266,36 @@ thumbnail: https://thmb.techidaily.com/925e71f91fee67d832ccee7c6f17e9bb429f4160d
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-twilight-tactics-capturing-the-best-in-low-light-portraits/"><u>[Updated] In 2024, Twilight Tactics  Capturing the Best in Low Light Portraits</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578850869-10-minute-milestones-achieve-slovak-expertise-with-our-online-programs/"><u>10-Minute Milestones - Achieve Slovak Expertise with Our Online Programs!</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-breathless-battles-olympic-short-track/"><u>2024 Approved  Breathless Battles  Olympic Short Track</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cocoa-communication-expressing-chocolate-across-cultures/"><u>Cocoa Communication: Expressing Chocolate Across Cultures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-russian-grasping-number-concepts/"><u>Decoding Russian: Grasping Number Concepts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/descifrar-horas-en-espanol-para-novatos/"><u>Descifrar Horas En Español: Para Novatos</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/disabling-iphone-7-parental-restrictions-withwithout-password-drfone-by-drfone-ios/"><u>Disabling iPhone 7 Parental Restrictions With/Without Password | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/educational-advancement-powered-by-mondlys-apple-initiative/"><u>Educational Advancement Powered by Mondly’s Apple Initiative</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/engage-naturally-the-most-useful-17-daily-spanish-expressions/"><u>Engage Naturally: The Most Useful 17 Daily Spanish Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-aussie-vernacular-sayings-and-more/"><u>Exploring Aussie Vernacular, Sayings & More</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/get-chatty-with-these-17-streetwise-spanish-terms/"><u>Get Chatty with These 17 Streetwise Spanish Terms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grammar-gap-analysis-south-america-meets-old-world/"><u>Grammar Gap Analysis: South America Meets Old World</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hello-in-portuguese-all-the-portuguese-greetings-you-need-to-know/"><u>Hello In Portuguese - All The Portuguese Greetings You Need To Know</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changeadd-location-filters-on-snapchat-for-your-itel-a05s-drfone-by-drfone-virtual-android/"><u>How to Change/Add Location Filters on Snapchat For your Itel A05s | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-best-free-apple-iphone-11-pro-max-imei-checker-by-drfone-ios/"><u>In 2024, Best Free Apple iPhone 11 Pro Max IMEI Checker</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-directly-send-snaps-from-your-phone-a-tutorial/"><u>In 2024, Directly Send Snaps From Your Phone - A Tutorial</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/israeli-peoples-chosen-dialect/"><u>Israeli People’s Chosen Dialect?</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/journey-to-intelligent-systems-with-auto-gpt-installation/"><u>Journey to Intelligent Systems with Auto-GPT Installation</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/low-cost-recorders-guide-to-webcasting-wisdom-for-2024/"><u>Low-Cost Recorder's Guide to Webcasting Wisdom for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577592209-master-languages-easily-save-big-with-our-95-promo/"><u>Master Languages Easily, Save Big with Our 95%% Promo!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-now-supported-by-huawei/"><u>Mondly Now Supported by Huawei</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/paso-a-paso-los-dias-de-la-semana-en-hispanoamerica/"><u>Paso a Paso: Los Días De La Semana en Hispanoamérica</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-lost-data-from-vivo-y27-4g-by-fonelab-android-recover-data/"><u>Recover lost data from Vivo Y27 4G</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/shattering-myths-the-path-to-genuine-multilingual-skills/"><u>Shattering Myths: The Path to Genuine Multilingual Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spearhead-sales-the-power-of-polished-professional-prose/"><u>Spearhead Sales: The Power of Polished Professional Prose</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-your-interactions-through-effective-mondly-use/"><u>Transform Your Interactions Through Effective Mondly Use</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/two-anniversary-mondlylanguages-unforgettable-aspirations/"><u>Two Anniversary: MondlyLanguages, Unforgettable Aspirations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-the-secrets-of-urdu-online/"><u>Unlock the Secrets of Urdu Online</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/untangling-nvidia-connection-problems-proven-methods-to-get-everything-plugged-in-correctly/"><u>Untangling NVIDIA Connection Problems: Proven Methods to Get Everything Plugged In Correctly</u></a></li>
+</ul></div>

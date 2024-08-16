@@ -1,7 +1,7 @@
 ---
 title: Complete Guide to Japanese Kanji & Kana Systems
-date: 2024-07-12T09:06:38.129Z
-updated: 2024-07-13T09:06:38.129Z
+date: 2024-08-15T17:41:53.688Z
+updated: 2024-08-16T17:41:53.688Z
 tags:
   - speak
   - english
@@ -120,11 +120,17 @@ In rōmaji, that’s “Kon’nichiwa, watashi no namae wa Mondly desu.”
 
  Somehow related to kanji, kana evolved from_man’yōgana_ (万葉仮名) – an ancient writing system that uses Chinese characters to represent the Japanese language phonetically. The hiragana and katakana characters we use today are simplified versions of_man’yōgana_ .
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### **When are Kana characters used?**
 
  The usage difference between hiragana and katakana is stylistic. Usually, **hiragana is used for particles, postpositions, adverbs, auxiliary verbs, function words,** or as a replacement for kanji when there’s a word with no kanji representation or whose kanji is thought to be too difficult for others to understand.
 
 ![hiragana japanese alphabet](https://edge.mondly.com/blog/wp-content/uploads/2019/05/japanese-alphabet-hiragana-960x679.png "Unlock The Secrets Of The Japanese Writing System And Alphabet: Your Ultimate Guide 15")
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<!-- affiliate ads end -->
 
  The Hiragana Japanese alphabet
 
@@ -139,6 +145,9 @@ In rōmaji, that’s “Kon’nichiwa, watashi no namae wa Mondly desu.”
  The main kana vowels are a, i, u, e and o. In hiragana, you’ll see them written like this: あ, い, う, え and お. In katakana, as I mentioned before, they have a rather angular form: ア, イ, ウ, エ and オ.
 
 ![katakana japanese alphabet](https://edge.mondly.com/blog/wp-content/uploads/2019/05/katakana-japanese-alphabet-1-960x679.png "Unlock The Secrets Of The Japanese Writing System And Alphabet: Your Ultimate Guide 16")
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  The Katakana Japanese alphabet
 
@@ -152,10 +161,16 @@ In rōmaji, that’s “Kon’nichiwa, watashi no namae wa Mondly desu.”
 
  To give you a tangible example – when you write_“yama”_ instead of 山 (katakana) or やま (hiragana), you are using rōmaji.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Common Mistakes to Avoid in Japanese Writing
 
  Let’s be honest: Japanese writing is not easy to master. If you want to do it right, it’s essential to keep your focus and avoid the following mistakes. 👇
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Mixing up Hiragana, Katakana, and Kanji
 
  It’s easy to confuse these three scripts when you’re a beginner. Make sure you start by learning their differences and uses. Mixing them up can lead to misunderstandings and errors in your writing.
@@ -170,6 +185,13 @@ If you need a refresher, you can always come back to this article.
 
  Particles are small words that indicate the relationship between words in a sentence in Japanese. Misusing them can change the meaning of the sentence and make it difficult to understand. Some Japanese particle examples are は (wa), が (ga) and を (o/wo).
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Yearly Membership</a>
+<!-- affiliate ads end -->
 ### Using incorrect verb tenses
 
  Japanese has several verb tenses, and using the wrong one can change the meaning of a sentence completely or make it sound unnatural.
@@ -182,10 +204,17 @@ If you need a refresher, you can always come back to this article.
 
  Many of us are familiar with the well-known Japanese custom of the polite bow, as well as the strong emphasis that Japanese culture places on hierarchy and etiquette, especially within the family. These values seem to be deeply ingrained in Japanese society and it’s important to respect them. It all depends on the social context!
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ### Not practicing enough
 
  Like any skill, learning Japanese writing takes practice. Not practicing enough can lead to slow progress and difficulties mastering the language. Don’t forget that practice makes perfect.
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What makes the Japanese writing system so complex?
 
  Well, now that you know a little bit more about the Japanese writing system, I think you’ll agree that it is beautiful and complex, and not anyone can master it. Persistence is the key! If you decide to accept the challenge and start learning Japanese, I promise you’ll discover a lot more along the way. Until then, here are some more fascinating facts to complete the picture:
@@ -203,18 +232,30 @@ If you need a refresher, you can always come back to this article.
 
  And… there you have it! This is your introduction to**the Japanese writing system and the Japanese alphabet.**
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 5 interesting facts about the Japanese alphabet
 
  Although there’s no “Japanese alphabet” per se, we can safely talk about the three writing systems coexisting harmoniously together. As much as you already think you know about the Japanese alphabet, there are a few interesting facts that will catch your eye and even help you understand the language better.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1\. There is a system for foreign words in the Japanese alphabet
 
  Since Japan is a big economic power, international trade increased rapidly, and with it, words from different languages. The Japanese alphabet katakana adopted words and transformed them to be easier for Japanese people to articulate them and communicate. Foreign names and pronouns are changed and “Japanized”.
 
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. There is no plural in Japanese
 
 The Japanese alphabet  has no plurals, which means there is no difference between talking about one person or a group of people. This can be easy if you want to [learn a new language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and you are afraid of the difficulty level one might have.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. Intonation is essential
 
  More than in any other language, intonation can completely change the meaning of a word. For example, あめ is used for both “rain” and “candy”. To be able to differentiate between the two and for the conversation to make sense, you need to focus on the right intonation.
@@ -225,6 +266,9 @@ The Japanese alphabet  has no plurals, which means there is no difference betwee
 
  Japanese city center
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ### 4\. Many sounds can be represented by the same Kanji symbol
 
  The Kanji alphabet is an exception to the rule that each sound is represented by one symbol. Therefore, depending on the context, the Kanji symbols can change their meaning. 月 can mean “moon” or “month” and can be read as_Getsu_ or_Tsuki_ .
@@ -251,6 +295,9 @@ The Japanese alphabet  has no plurals, which means there is no difference betwee
 
  Depending on how you define “alphabet”, the number of letters in the Japanese writing system can be anywhere from 92 to several thousand.
 
+<!-- affiliate ads begin -->
+<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<!-- affiliate ads end -->
 ### What does Japanese writing look like?
 
 ![japanese writing](https://edge.mondly.com/blog/wp-content/uploads/2019/05/japanese-writing.jpg "Unlock The Secrets Of The Japanese Writing System And Alphabet: Your Ultimate Guide 19")
@@ -292,3 +339,56 @@ The Japanese alphabet  has no plurals, which means there is no difference betwee
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-free-fast-skype-to-mp3-guide-for-call-recorders-for-2024/"><u>[New] Free, Fast  Skype to MP3 Guide for Call Recorders for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-the-ultimate-snapchat-slideshow-technique/"><u>[New] In 2024, The Ultimate Snapchat Slideshow Technique</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-instagrams-power-mastering-the-addition-of-video-descriptions-for-2024/"><u>[New] Instagram's Power  Mastering the Addition of Video Descriptions for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-ultimate-viditech-review/"><u>[Updated] 2024 Approved  Ultimate VidiTech Review</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-from-screens-to-stories-vertical-video-mastery-with-fcpx-for-2024/"><u>[Updated] From Screens to Stories  Vertical Video Mastery with FCPX for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/100plus-australian-slang-words-to-help-you-speak-like-a-true-aussie/"><u>100+ Australian Slang Words to Help You Speak Like a True Aussie</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580959940-17-spanish-sayings-that-will-make-you-sound-like-a-native/"><u>17 Spanish Sayings That Will Make You Sound Like A Native</u></a></li>
+<li><a href="https://blog-min.techidaily.com/2-ways-to-transfer-text-messages-from-poco-x5-pro-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>2 Ways to Transfer Text Messages from Poco X5 Pro to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/2017s-child-development-champion-mondly-kids-app/"><u>2017'S Child Development Champion: Mondly Kids App</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-amplifying-visuals-expert-guide-to-snapchat-zoom/"><u>2024 Approved  Amplifying Visuals  Expert Guide to Snapchat Zoom</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-elevate-your-shots-top-photo-gear-for-mobile-cameras/"><u>2024 Approved  Elevate Your Shots  Top Photo Gear for Mobile Cameras</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/50-noteworthy-latin-sayings-and-idioms-for-eloquent-company/"><u>50 Noteworthy Latin Sayings & Idioms for Eloquent Company</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/7-key-advantages-of-learning-afrikaans-with-mondly-for-travelers/"><u>7 Key Advantages of Learning Afrikaans with Mondly for Travelers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-day-to-honor-teachers-with-a-linguistic-kaleidoscope/"><u>A Day to Honor Teachers with a Linguistic Kaleidoscope</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-hitchhikers-guide-to-galactic-dialogues/"><u>A Hitchhiker's Guide to Galactic Dialogues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-voice-that-echoes-johannes-honterus/"><u>A Voice that Echoes: Johannes Honterus</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/babelhub-dubai-the-new-frontier-for-language-enthusiasts/"><u>BabelHub Dubai: The New Frontier for Language Enthusiasts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bangla-briskly-blossoms-with-just-10-minsday/"><u>Bangla Briskly Blossoms with Just 10 Mins/Day!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579824338-be-a-winner-save-up-to-96-on-mondly-pro-lifetime/"><u>Be a Winner : Save Up To 96%% on Mondly Pro Lifetime!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/become-a-polyglot-faster-leading-app-based-language-learning-experience/"><u>Become a Polyglot Faster: Leading App-Based Language Learning Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bilingual-bliss-embrace-germanys-idioms-in-25-words/"><u>Bilingual Bliss: Embrace Germany's Idioms in 25 Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/boost-your-bengali-skills-fastly/"><u>Boost Your Bengali Skills Fastly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/building-bridges-through-basic-chinese-greetings/"><u>Building Bridges Through Basic Chinese Greetings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/calendrier-francais-du-lunard/"><u>Calendrier Français Du Lunard</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprension-animalista-60-nombres-reveladores/"><u>Comprensión Animalista: 60 Nombres Reveladores</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cross-border-lexicon-enriching-english/"><u>Cross-Border Lexicon Enriching English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cross-cultural-linguistics-mental-gains/"><u>Cross-Cultural Linguistics, Mental Gains</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-convergence-bridging-societal-divides-through-talk/"><u>Cultural Convergence: Bridging Societal Divides Through Talk</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/debunking-5-language-learning-myths-with-facts-and-experience/"><u>Debunking 5 Language Learning Myths with Facts and Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-lingo-top-english-slang-terms-explained/"><u>Decoding Lingo: Top English Slang Terms Explained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-humanitys-ancestral-verbal-arts/"><u>Discovering Humanity's Ancestral Verbal Arts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-german-from-novice-to-expert-via-dark-netflix-style/"><u>Dive Into German: From Novice to Expert via Dark, Netflix Style</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-indonesian-warmth-common-greetings-guide/"><u>Dive Into Indonesian Warmth: Common Greetings Guide</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/easy-guide-how-to-bypass-honor-90-lite-frp-android-10111213-by-drfone-android/"><u>Easy Guide How To Bypass Honor 90 Lite FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/echoes-of-evolution-the-african-language-odyssey/"><u>Echoes of Evolution: The African Language Odyssey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effusive-expressions-a-tribute-to-italian-love/"><u>Effusive Expressions: A Tribute to Italian Love</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/eloquent-echoes-world-languages-quintessence/"><u>Eloquent Echoes: World Languages' Quintessence</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/empower-your-business-with-effective-language-training/"><u>Empower Your Business With Effective Language Training</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576725998-from-beginner-to-fluent-learn-afrikaans-efficiently-on-mondly-heres-why/"><u>From Beginner to Fluent: Learn Afrikaans Efficiently on Mondly - Here’s Why!</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-forgot-your-apple-id-password-and-email-on-apple-iphone-13-pro-heres-the-best-fixes-by-drfone-ios/"><u>In 2024, Forgot Your Apple ID Password and Email On Apple iPhone 13 Pro? Heres the Best Fixes</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-proven-ways-in-how-to-hide-location-on-life360-for-nokia-c12-plus-drfone-by-drfone-virtual-android/"><u>In 2024, Proven Ways in How To Hide Location on Life360 For Nokia C12 Plus | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-the-10-best-tools-to-bypass-icloud-activation-lock-from-iphone-15-pro-you-should-try-out-by-drfone-ios/"><u>In 2024, The 10 Best Tools to Bypass iCloud Activation Lock From iPhone 15 Pro You Should Try Out</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/instagrams-picture-perfect-upload-techniques-unveiled/"><u>Instagram's Picture Perfect Upload Techniques Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578596250-mondly-ukrainians-embrace-free-education/"><u>Mondly: Ukrainians, Embrace FREE Education!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579878027-speedy-bokmal-acquisition-in-daily-dashes/"><u>Speedy Bokmål Acquisition in Daily Dashes!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579320591-step-into-easier-communication-enjoy-significant-savings-on-language-classes/"><u>Step Into Easier Communication – Enjoy Significant Savings on Language Classes</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-netgear-nighthawk-x6-ac3200-router-speed-meets-security-for-your-home/"><u>Ultimate Guide to the Netgear Nighthawk X6 AC3200 Router: Speed Meets Security for Your Home</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719575671831-welcome-to-a-deal-filled-new-year-save-96-on-mondly-premium/"><u>Welcome to a Deal-Filled New Year - Save 96%% on Mondly Premium!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578502910-what-languages-does-santa-claus-speak-find-out-now/"><u>What Languages Does Santa Claus Speak? Find Out Now!</u></a></li>
+</ul></div>

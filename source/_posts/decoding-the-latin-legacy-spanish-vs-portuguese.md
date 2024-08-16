@@ -1,7 +1,7 @@
 ---
 title: "Decoding the Latin Legacy: Spanish Vs. Portuguese"
-date: 2024-07-12T09:11:56.662Z
-updated: 2024-07-13T09:11:56.662Z
+date: 2024-08-15T17:36:38.012Z
+updated: 2024-08-16T17:36:38.012Z
 tags:
   - speak
   - english
@@ -41,12 +41,18 @@ thumbnail: https://thmb.techidaily.com/b64b57a468478a5f630c27f8b893087308dc98f7c
 
  To help you observe the written mutual intelligibility between Spanish and Portuguese better, let’s look at a short basic lesson on verbs in two variations:
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Portuguese to Spanish
 
 ### Spanish to Portuguese
 
  Do you see now why the spoken forms are less mutually intelligible than the written forms?
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Examples of Similarities and Differences Between Spanish and Portuguese
 
  Let’s look at some examples to help you better understand the similarities and differences between Spanish and Portuguese.
@@ -64,6 +70,9 @@ thumbnail: https://thmb.techidaily.com/b64b57a468478a5f630c27f8b893087308dc98f7c
  Quite similar, aren’t they? But remember: that does not make them the same language. Words like_información_ (Spanish) and_informação_ (Portuguese) or_carro_ (Spanish) and_carro_ (Portuguese) may look the same, but they sound different. While the Spanish_carro_ is pronounced the same way it is written (with the strong double_r)_ , in the Portuguese_carro,_  the double_rr_ is pronounced using what is known as a voiceless fricative or a guttural_r_ . So “r” is**– only in some cases –** the Portuguese equivalent of the Spanish “j” and are both pronounced using the “h” sound.
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Spanish And Portuguese: A Comparative Analysis 2")
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##### Learn both Spanish and Portuguese with one app
 
@@ -136,6 +145,9 @@ thumbnail: https://thmb.techidaily.com/b64b57a468478a5f630c27f8b893087308dc98f7c
 * while in Spanish you have to use_muy_ before adverbs and adjectives and_mucho_ before a noun or after a verb, in Portuguese you just use_muito_ ;
 * while Portuguese speakers tend to use_a casa dela_ to express possession, the Spanish speakers just say_su casa_ as you probably already know from the well-known expression_Mi casa es su casa_ ;
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion: Embrace the Similarities and Differences
 
  The bottom line is that **Spanish and Portuguese are indeed different but also quite similar.** So, if you already speak Portuguese, learning Spanish will certainly become way easier and vice-versa. You’ll soon discover that even a small resemblance between words like [“hello” in Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and [“hello” in Portuguese](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) will make a huge difference in your learning process.
@@ -146,14 +158,32 @@ thumbnail: https://thmb.techidaily.com/b64b57a468478a5f630c27f8b893087308dc98f7c
 
  If you still have questions regarding Spanish vs. Portuguese, let’s look at some frequently asked questions:
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### How similar are Spanish and Portuguese?
 
  There’s an almost 90% lexical similarity between Spanish and Portuguese.
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ### Can Spanish speakers understand Portuguese and vice versa?
 
  It’s often suggested that individuals who speak Portuguese typically have a better understanding of spoken Spanish than Spanish speakers have of spoken Portuguese.
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### How do European Portuguese and Brazilian Portuguese differ?
 
  The main difference between European Portuguese and Brazilian Portuguese is the pronunciation. However, there are also vocabulary, syntax, grammar, and spelling differences that make the two languages differ.
@@ -162,6 +192,9 @@ thumbnail: https://thmb.techidaily.com/b64b57a468478a5f630c27f8b893087308dc98f7c
 
  Portuguese, sometimes likened to Russian in its sounds, is a stress-timed language with varied vowel sounds and atonic syllable reduction. In contrast, Spanish, characterized by its smooth and consistent pronunciation, is syllable-timed, providing a rhythmic flow where each syllable takes roughly the same amount of time. Additionally, Portuguese features numerous slurred sounds, contributing to its fluid nature, while Spanish, in contrast, has more pronounced and distinct word articulation.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<!-- affiliate ads end -->
 ### Is it easier to learn Spanish if you already know Portuguese, and vice versa?
 
  Considering there’s almost a 90% lexical similarity between Spanish and Portuguese, yes. It’s definitely easier to learn Spanish if you already know Portuguese and the other way around.
@@ -203,3 +236,67 @@ thumbnail: https://thmb.techidaily.com/b64b57a468478a5f630c27f8b893087308dc98f7c
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-amplify-youtube-visibility-crafting-effective-descriptions-and-tags/"><u>[New] 2024 Approved  Amplify YouTube Visibility  Crafting Effective Descriptions & Tags</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-from-novice-to-notoriety-steps-for-a-youtube-channel-in-gaming/"><u>[New] 2024 Approved  From Novice to Notoriety  Steps for a YouTube Channel in Gaming</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-discover-the-best-sound-alterers-7-high-quality-vocal-editing-apps/"><u>[New] Discover the Best Sound Alterers  7 High-Quality Vocal Editing Apps</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-mastering-iphones-screen-capture-features/"><u>[New] In 2024, Mastering iPhone's Screen Capture Features</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-master-the-art-of-avi-gif-conversion-via-filmora-platform/"><u>[New] Master the Art of AVI-GIF Conversion via Filmora Platform</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-straightforward-methods-to-save-insta-story-videos-for-2024/"><u>[New] Straightforward Methods to Save Insta Story Videos for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-screenshots-of-success-decoding-post-viewer-demographics/"><u>[Updated] 2024 Approved  Screenshots of Success  Decoding Post Viewer Demographics</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-frequencies-fused-mac-studios-soundscapes/"><u>[Updated] In 2024, Frequencies Fused  Mac Studios Soundscapes</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-efficient-practices-for-ps3-video-capture-setup/"><u>2024 Approved  Efficient Practices for PS3 Video Capture Setup</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-fixing-video-transmission-issues-on-facebook-chat-for-iosandroid/"><u>2024 Approved  Fixing Video Transmission Issues on Facebook Chat for iOS/Android</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-complete-guide-to-creating-a-vr-ready-environment/"><u>2024 Approved  The Complete Guide to Creating a VR-Ready Environment</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-unparalleled-tech-for-capturing-live-screens-and-videos/"><u>2024 Approved  Unparalleled Tech for Capturing Live Screens & Videos</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/about-vivo-y77t-frp-bypass-by-drfone-android/"><u>About Vivo Y77t FRP Bypass</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-pictures-from-zte-blade-a73-5g-by-fonelab-android-recover-pictures/"><u>Easy steps to recover deleted pictures from ZTE Blade A73 5G.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/google-endorsed-mondly-your-language-mastery-guide/"><u>Google Endorsed: Mondly - Your Language Mastery Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/google-endorses-mondly-for-immersive-language-mastery/"><u>Google Endorses Mondly for Immersive Language Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/happiness-abroad-on-independence-day/"><u>Happiness Abroad on Independence Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/honterus-the-heartbeat-of-motivation/"><u>Honterus: The Heartbeat of Motivation</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-fake-android-location-without-rooting-for-your-tecno-camon-20-pro-5g-drfone-by-drfone-virtual/"><u>In 2024, Fake Android Location without Rooting For Your Tecno Camon 20 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-spy-on-text-messages-from-computer-and-nokia-g42-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Spy on Text Messages from Computer & Nokia G42 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-macs-screen-capture-champions-the-premier-tools-evaluation/"><u>In 2024, Mac's Screen Capture Champions  The Premier Tools Evaluation</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-tender-tracks-ideal-music-to-accompany-a-lifelayer-change/"><u>In 2024, Tender Tracks  Ideal Music to Accompany a Lifelayer Change</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-10-fingerprint-lock-apps-to-lock-your-vivo-y100t-phone-by-drfone-android/"><u>In 2024, Top 10 Fingerprint Lock Apps to Lock Your Vivo Y100t Phone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/innovative-5-tools-revolutionizing-language-education/"><u>Innovative 5 Tools Revolutionizing Language Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/iseebell-video-doorbell-review/"><u>IseeBell Video Doorbell Review</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/kommunikationskultur-deutsches-grazensummen-abseits-von-hallo/"><u>Kommunikationskultur: Deutsches Gräzensummen Abseits Von Hallo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-bridge-a-study-of-turkish-and-korean/"><u>Language Bridge: A Study of Turkish & Korean</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-mastery-in-focus-mondlys-augmented-reality-learning-sessions/"><u>Language Mastery in Focus: Mondly's Augmented Reality Learning Sessions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leverage-team-potential-through-superior-linguistic-software/"><u>Leverage Team Potential Through Superior Linguistic Software</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-legacy-milestone-achievements-at-mondlylanguages/"><u>Linguistic Legacy: Milestone Achievements at MondlyLanguages</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/mastering-video-creation-the-complete-review-of-sj-cam-s6/"><u>Mastering Video Creation  The Complete Review of SJ-CAM S6</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-by-pearson/"><u>Mondly By Pearson</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-quest-to-become-the-1-language-learning-app/"><u>Mondly's Quest to Become the #1 Language Learning App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-complexity-the-most-tricky-global-languages/"><u>Navigating Complexity: The Most Tricky Global Languages</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-4k-is-getting-popular-these-days-while-in-this-article-introduces-top-10plus-free-4k-video-converters-for-windows-and-mac-in-case-that-you-have-/"><u>New In 2024, 4K Is Getting Popular These Days, While in This Article Introduces Top 10+ Free 4K Video Converters for Windows and Mac in Case that You Have Limited Access to 4K Video Playing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/peering-into-mondlys-educational-techniques/"><u>Peering Into Mondly’s Educational Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rapidly-gain-proficiency-with-urdu-online/"><u>Rapidly Gain Proficiency with Urdu Online</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-tecno-spark-10-5g-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Tecno Spark 10 5G? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/redefining-language-learning-in-the-digital-age-via-ai/"><u>Redefining Language Learning in the Digital Age via AI</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/atory-views-on-screenshots-from-youtube-streaming/"><u>Regulatory Views on Screenshots From YouTube Streaming</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revisiting-gamings-golden-age-the-ultimate-guide-to-super-mario-bros-on-the-vintage-handheld-gem/"><u>Revisiting Gaming's Golden Age: The Ultimate Guide to Super Mario Bros. On the Vintage Handheld Gem</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/scripting-striking-film-epilogues-for-2024/"><u>Scripting Striking Film Epilogues for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seamless-online-introduction-to-the-romance-language/"><u>Seamless Online Introduction to the Romance Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sensorylinguistics-a-vr-approach-to-language/"><u>SensoryLinguistics: A VR Approach to Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/solving-the-issue-of-unwanted-humming-sounds-in-your-earbuds/"><u>Solving the Issue of Unwanted Humming Sounds in Your Earbuds</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-slovak-straightforward-sneak-in-learning-during-your-free-minutes/"><u>Speak Slovak Straightforward: Sneak in Learning During Your Free Minutes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-by-step-guide-for-novice-french-speakers-pronunciation/"><u>Step-by-Step Guide for Novice French Speakers' Pronunciation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-by-step-guide-easy-online-latino-study/"><u>Step-By-Step Guide: Easy Online Latino Study</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swift-pathways-into-hangul-the-easiest-alphabet-lesson/"><u>Swift Pathways Into Hangul: The Easiest Alphabet Lesson</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-best-way-to-study-portuguese-6-tips-that-will-work-wonders/"><u>The Best Way To Study Portuguese - 6 Tips That Will Work Wonders</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-richness-of-romantic-vernaculars/"><u>The Richness of Romantic Vernaculars</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/travel-talk-essential-french-for-every-francophile/"><u>Travel Talk: Essential French for Every Francophile</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/travelers-guide-120plus-vietnamese-words-and-phrases-you-must-know/"><u>Traveler's Guide: 120+ Vietnamese Words And Phrases You Must Know</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/triple-threat-in-language-acquisition-easy-pathways-to-fluency/"><u>Triple Threat in Language Acquisition: Easy Pathways to Fluency!</u></a></li>
+<li><a href="https://driver-download.techidaily.com/troubleshooting-and-resolving-usb-connection-errors-on-260ci-wia-drives/"><u>Troubleshooting and Resolving USB Connection Errors on 260CI WiA Drives</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-the-science-of-second-language-acquisition/"><u>Understanding the Science of Second Language Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-fluency-excellent-ways-to-boost-verbal-abilities/"><u>Unlock Fluency: Excellent Ways to Boost Verbal Abilities</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unravel-english-core-with-oxford-and-mondly/"><u>Unravel English Core with Oxford & Mondly</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/ways-to-stop-parent-tracking-your-nokia-xr21-drfone-by-drfone-virtual-android/"><u>Ways to stop parent tracking your Nokia XR21 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-children-excel-in-multilingualism/"><u>Why Children Excel in Multilingualism</u></a></li>
+</ul></div>

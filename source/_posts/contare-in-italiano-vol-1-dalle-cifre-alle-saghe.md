@@ -1,7 +1,7 @@
 ---
 title: "Contare in Italiano Vol. 1: Dalle Cifre Alle Saghe"
-date: 2024-07-12T09:04:41.286Z
-updated: 2024-07-13T09:04:41.286Z
+date: 2024-08-15T17:43:50.303Z
+updated: 2024-08-16T17:43:50.303Z
 tags:
   - speak
   - english
@@ -52,6 +52,9 @@ Here’s how to write and pronounce the Italian numbers 1-10:
 
 **Good to know:**Italian cardinal numbers don’t change suffixes according to the gender of the noun they determine. The only exception is 1_(uno)_. Thus, when you talk about a feminine noun, you’ll say_una_instead of_uno_:_Ho comprato una casa_(“I bought a house.”)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Italian numbers 11-20
 
  Imagine this: you are on the famous Amalfi Coast. The weather is perfect. And let’s say you want to buy 12 slices of the yummiest Italian pizza you’ve ever seen: two slices for you and each one of your friends. The problem is you only have 10 fingers to sign to the lady at the counter. Wouldn’t it be easier if you knew some [Italian expressions](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ?
@@ -88,6 +91,9 @@ Let’s see some examples:
 * to say “18 years”, you’ll say_diciotto anni_
 * to say “20 children”, you’ll say_venti bambini_
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<!-- affiliate ads end -->
 ## Italian numbers to 30 and beyond
 
  Essentially, Italian numbers are very similar to English numbers. Once you get to 20, you just put together the tens with the single numbers (units). The best part is that Italian doesn’t even require spaces or hyphens. For example, if you want to say 22 (“twenty-two”), in Italian you say venti (20) + due (2) = _**venti** due_ (22).
@@ -100,6 +106,9 @@ Let’s see some examples:
 
  See how easy Italian numbers are? The only thing you have to remember is that the final vowel of the tens disappears when you add 1_(uno)_ or 8_(otto)_ . Thus, you’ll say _**vent** uno_ and not “ventiuno”. Additionally, number 3_(tre)_ gains an accent mark on the final vowel. For example, 33 will be_trentatré_ and 83 will be_ottantatré._
 
+<!-- affiliate ads begin -->
+<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Count tens in Italian
 
  Except for 10_(dieci)_ and 20_(venti)_ , all tens digits in Italian are based on their roots. Once you know all of them, you’ll know how to count to 100 – which is_cento_ – in Italian.
@@ -133,6 +142,9 @@ Let’s see some examples:
 * 84 – _ottanta**quattro**_
 * 98 – _novant**otto**_
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<!-- affiliate ads end -->
 ## Italian numbers 100 to 1000 and beyond
 
  The same rules apply to bigger numbers as well. Add the suffix_cento_ to the multiplier digit and here are your hundreds:
@@ -160,6 +172,9 @@ Let’s see some examples:
  And now you also understood where_grazie mille_ comes from. Literally meaning “a thousand thanks” or “a thousand thanks yous”,_grazie mille_ means “thank you very much” in Italian.
 
 ![italian numbers pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2020/05/italian-numbers-pronunciation-960x640.jpg "Italian Numbers Made Easy - Count To 1000 And Beyond In Italian 3")
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<!-- affiliate ads end -->
 
  “The Amalfi Coast” by Gregory Smirnov©
 
@@ -235,3 +250,53 @@ Let’s see some examples:
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/lashing-feathersticks-short-film-characters-music/"><u>[New] Flashing Feathersticks  Short Film Characters' Music</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-enhance-your-gameplay-top-gaming-monitor-extensions/"><u>[Updated] 2024 Approved  Enhance Your Gameplay  Top Gaming Monitor Extensions</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-guide-to-the-best-auto-tracking-cameras/"><u>[Updated] Guide to the Best Auto Tracking Cameras</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-high-quality-8-android-video-callers-for-groups-above-four/"><u>[Updated] In 2024, High-Quality 8 Android Video Callers for Groups Above Four</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-top-30-windows-10-utilities-you-cant-ignore/"><u>2024 Approved  Top 30 Windows 10 Utilities You Can't Ignore</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-change-location-on-facebook-marketplace-for-tecno-spark-20c-drfone-by-drfone-virtual-android/"><u>3 Ways to Change Location on Facebook Marketplace for Tecno Spark 20C | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprende-nombres-comunes-a-fauna-espanola/"><u>Aprende Nombres Comunes a Fauna Española</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/confronting-fraudgpts-deception-avoidance-techniques-unveiled/"><u>Confronting FraudGPT's Deception: Avoidance Techniques Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719575588476-discovering-indonesian-chit-chat-starts-here/"><u>Discovering Indonesian Chit-Chat Starts Here!</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/discovering-the-potential-of-next-gen-srt-systems-for-2024/"><u>Discovering the Potential of Next-Gen SRT Systems for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/educators-picks-top-5-multilingual-learning-apps/"><u>Educators' Picks: Top 5 Multilingual Learning Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-language-diversity-6-advantages-of-learning-arabic-via-mondly-online/"><u>Embrace Language Diversity: 6 Advantages of Learning Arabic via Mondly Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/empowering-ukrainians-to-speak-anywhere-anyhow-for-free/"><u>Empowering Ukrainians to Speak Anywhere, Anyhow for Free</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhance-communication-skills-in-german-via-netflix/"><u>Enhance Communication Skills in German Via Netflix</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhance-social-connectivity-mondly-added-to-huaweigallery/"><u>Enhance Social Connectivity: Mondly Added to HuaweiGallery</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/from-external-to-inshot-your-tunes-transformation-guide-for-2024/"><u>From External to InShot  Your Tunes Transformation Guide for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/1722966443623-get-the-newest-mpow-bluetooth-driver-updates-for-all-windows-versions/"><u>Get the Newest MPOW Bluetooth Driver Updates for All Windows Versions</u></a></li>
+<li><a href="https://howto.techidaily.com/google-play-services-wont-update-12-fixes-are-here-on-vivo-y100-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Play Services Wont Update? 12 Fixes are Here on Vivo Y100 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/herramientas-de-control-en-tiempo-ensenanza-basica/"><u>Herramientas De Control en Tiempo - Enseñanza Básica</u></a></li>
+<li><a href="https://techidaily.com/how-to-perform-hard-reset-on-infinix-smart-7-hd-drfone-by-drfone-reset-android-reset-android/"><u>How to Perform Hard Reset on Infinix Smart 7 HD? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578688962-how-to-say-hello-in-different-languages/"><u>How to Say “Hello” In Different Languages</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-remove-a-previously-synced-google-account-from-your-samsung-galaxy-a05s-by-drfone-android/"><u>In 2024, How to Remove a Previously Synced Google Account from Your Samsung Galaxy A05s</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-gionee-phone-without-password-by-drfone-android/"><u>In 2024, How To Unlock Gionee Phone Without Password?</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-pioneering-platforms-for-no-cost-media-downloads/"><u>In 2024, Pioneering Platforms for No-Cost Media Downloads</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-top-secret-instagram-stories-viewer-apps/"><u>In 2024, Top Secret Instagram Stories Viewer Apps</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-ultimate-8-photo-montage-synthesizer-online/"><u>In 2024, Ultimate 8 Photo Montage Synthesizer Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/is-mastering-german-an-achievement-in-disguise/"><u>Is Mastering German an Achievement in Disguise?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jumpstart-your-slovak-journey-with-daily-micro-lessons/"><u>Jumpstart Your Slovak Journey with Daily Micro-Lessons!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-with-a-twist-innovative-learning-strategies/"><u>Latin with a Twist: Innovative Learning Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-german-one-episode-at-a-time-dark/"><u>Learning German, One Episode at a Time: Dark</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-journeys-and-brain-enhancements/"><u>Linguistic Journeys and Brain Enhancements</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-links-building-bridges-between-societies/"><u>Linguistic Links: Building Bridges Between Societies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastery-at-your-fingertips-superior-online-language-learning/"><u>Mastery at Your Fingertips: Superior Online Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-unveils-its-ultimate-multilingual-toolkit/"><u>Mondly Unveils Its Ultimate Multilingual Toolkit</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-guide-to-next-level-english-fluency/"><u>Mondly's Guide to Next-Level English Fluency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-revolutionary-vr-app-shaping-future-of-linguistics/"><u>Mondly's Revolutionary VR App Shaping Future of Linguistics</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/navigating-microsoft-azure-for-text-conversion/"><u>Navigating Microsoft Azure for Text Conversion</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-2024-approved-essential-dog-bark-samples-for-audio-projects/"><u>New 2024 Approved Essential Dog Bark Samples for Audio Projects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/playful-pathways-to-fluency-in-spanish/"><u>Playful Pathways to Fluency in Spanish</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/reignite-retro-fun-select-best-pc-emulators-for-game-boy-advance-games-for-2024/"><u>Reignite Retro Fun  Select Best PC Emulators for Game Boy Advance Games for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revolutionizing-pedagogy-the-influence-of-artificial-intelligence/"><u>Revolutionizing Pedagogy: The Influence of Artificial Intelligence</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/say-hello-in-france-like-a-native-key-french-greeting-strategies/"><u>Say Hello in France Like a Native: Key French Greeting Strategies</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-top-ten-webcam-enhancers-master-stream-quality/"><u>The Top-Ten Webcam Enhancers  Master Stream Quality</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/triple-tongued-macau-revealed/"><u>Triple-Tongued Macau Revealed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/wisdom-words-language-learning-for-seniors/"><u>Wisdom Words: Language Learning for Seniors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/zero-to-hero-learn-a-new-language-for-just-half-the-price/"><u>Zero to Hero: Learn a New Language for Just Half the Price!</u></a></li>
+</ul></div>

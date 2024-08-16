@@ -1,7 +1,7 @@
 ---
 title: Bridging Cultures with Japenese On-Calls
-date: 2024-07-12T09:09:37.392Z
-updated: 2024-07-13T09:09:37.392Z
+date: 2024-08-15T17:38:55.956Z
+updated: 2024-08-16T17:38:55.956Z
 tags:
   - speak
   - english
@@ -45,6 +45,9 @@ thumbnail: https://thmb.techidaily.com/1ccc74ee674e5bb21d96568f803e367c477d95c5c
 
  Curious about why there are multiple types of characters in Japanese? Here’s everything there is to know about the [Japanese writing system](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **How to say “hello” on the phone in Japanese: moshi moshi (もしもし)**
 
  Unlike English, which uses the same “hello” for a lot of different social contexts, the Japanese language has a dedicated “hello” for answering the phone:**moshi moshi (もしもし).** Doesn’t that sound cute?
@@ -67,6 +70,9 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
  “Meguro River, Matsuno, Japan” by Sora Sagano©
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## 3.“Goodbye” in Japanese
 
  Another greeting we borrowed from the Japanese and sometimes use in our day-to-day conversations in English is**_Sayōnara_** (さよなら), a greeting that carries the connotation of farewell and translates to “goodbye”.
@@ -86,6 +92,9 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
  “See you soon, human” by Alain Pham©
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## 4\. “Thank you” in Japanese and other polite phrases that you should know
 
  We already settled that the Japanese culture is a culture of respect and politeness. Thus, learning to say**“thank you” in Japanese** is probably one of your most important tasks to complete before visiting Japan. Lucky for you, there’s nothing difficult about that.
@@ -109,9 +118,15 @@ This greeting is used both as a “hello” and as a “goodbye”.
 * _Iie_ (いいえ) – instead of_Dou itashi mashite,_ you can say_Iie,_ which means “no” as in “it was nothing”.
 
 ![arigato](https://edge.mondly.com/blog/wp-content/uploads/2019/08/arigato-1024x706.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 5")
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 
  “Kyoto, Japan” by Andre Benz©
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Don’t forget about the Japanese bow
 
  Every**“hello” in Japanese** is usually accompanied by a bow, the Western world equivalent of a handshake. Our advice would be to not skip the bow if you really want to feel like you belong.
@@ -148,6 +163,18 @@ This greeting is used both as a “hello” and as a “goodbye”.
 * No problem. – _Daijōbudesu._
 
 ![sayonara](https://edge.mondly.com/blog/wp-content/uploads/2019/08/sayonara-1024x680.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 6")
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  “Tenryu-ji Temple, Kyōto-shi, Japan” by Masaaki Komori©
 
@@ -184,3 +211,71 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-pair-monitor-logging-process/"><u>[New] Pair Monitor Logging Process</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-premium-zero-price-point-live-capture-app-for-2024/"><u>[New] Premium Zero-Price Point Live Capture App for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-cant-ignore-these-hit-tiktok-challenges/"><u>[Updated] 2024 Approved  Can't Ignore These Hit TikTok Challenges</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-broadcast-your-xbox-adventures-online/"><u>[Updated] Broadcast Your Xbox Adventures Online</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-elevate-your-online-presence-making-videos-on-mobile/"><u>[Updated] Elevate Your Online Presence  Making Videos on Mobile</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-from-songs-to-symphony-building-a-cohesive-youtube-playlist-on-webapp/"><u>[Updated] From Songs to Symphony  Building a Cohesive YouTube Playlist on Web/App</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-integrating-social-spaces-tiktok-uploads-on-facebook/"><u>[Updated] Integrating Social Spaces  TikTok Uploads on Facebook</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-professional-minecraft-videography-methods/"><u>[Updated] Professional Minecraft Videography Methods</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-tiktok-to-twitter-strategy-for-maximum-engagement/"><u>[Updated] TikTok-to-Twitter Strategy for Maximum Engagement</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-circle-designers-toolkit/"><u>2024 Approved  Circle Designer's Toolkit</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-critical-assessment-of-wirecast-and-competitors/"><u>2024 Approved  Critical Assessment of WireCast and Competitors</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/2024-approved-unlocking-aspect-ratios-the-key-to-facebook-video-success/"><u>2024 Approved  Unlocking Aspect Ratios  The Key to Facebook Video Success</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-best-tools-to-hard-reset-xiaomi-redmi-k70-drfone-by-drfone-reset-android-reset-android/"><u>3 Best Tools to Hard Reset Xiaomi Redmi K70 | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/breaking-the-silence-crafting-powerful-film-dialogues/"><u>Breaking the Silence  Crafting Powerful Film Dialogues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-connections-through-language-the-essence-of-bonjour/"><u>Cultural Connections Through Language: The Essence of 'Bonjour'</u></a></li>
+<li><a href="https://facebook.techidaily.com/cutting-off-or-keeping-connected-post-death-facebook-management/"><u>Cutting Off or Keeping Connected: Post-Death Facebook Management</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/discover-mozilla-thunderbirds-new-release-version-52-is-here-now/"><u>Discover Mozilla Thunderbird's New Release - Version 52 Is Here Now</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/engaging-spanish-learning-for-kids-games-songs-and-activities/"><u>Engaging Spanish Learning for Kids: Games, Songs, and Activities</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/english-lexicon-blunders-a-compiled-rank-of-the-worst-mistakes/"><u>English Lexicon Blunders: A Compiled Rank of the Worst Mistakes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhancing-functionality-mondly-and-pearson-buttonlinkage/"><u>Enhancing Functionality: Mondly & Pearson ButtonLinkage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ensenanza-interactiva-sobre-el-cuerpo-humano-descubriendo-desde-la-piel-a-los-pulmones/"><u>Enseñanza Interactiva Sobre El Cuerpo Humano: Descubriendo Desde La Piel A Los Pulmones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-language-arsenal-top-93-spanish-phrases-for-travelling/"><u>Essential Language Arsenal: Top 93 Spanish Phrases for Travelling</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-russian-expressions-for-international-wanderers/"><u>Essential Russian Expressions for International Wanderers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-spanish-verb-learning-for-efficiency/"><u>Essential Spanish Verb Learning for Efficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploracion-exhaustiva-del-cuerpo-humano-en-espanol-desde-la-piel-al-rinon/"><u>Exploración Exhaustiva Del Cuerpo Humano en Español: Desde La Piel Al Riñón</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-and-engage-with-fun-latin-lessons/"><u>Explore & Engage with Fun Latin Lessons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-with-ease-google-play-best-app-mondly-kids-experience/"><u>Explore with Ease! Google Play Best App: Mondly Kids Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-benefits-learn-german-now/"><u>Exploring Benefits: Learn German Now!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-macaus-multilingual-tapestry/"><u>Exploring Macau's Multilingual Tapestry</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-multilingualism-in-europe-a-celebration-journey/"><u>Exploring Multilingualism in Europe - A Celebration Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expotonguescape-dubai-2s020-crafting-future-communicators/"><u>ExpoTonguescape Dubai 2S020: Crafting Future Communicators</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressive-shades-in-french-quickly-learned/"><u>Expressive Shades in French Quickly Learned</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exuberant-echoes-of-july-4th-joy/"><u>Exuberant Echoes of July 4Th Joy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/favored-foreign-languages-for-academic-study/"><u>Favored Foreign Languages for Academic Study</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/film-based-learning-strategies-for-eloquent-communication/"><u>Film-Based Learning: Strategies for Eloquent Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/first-speaking-interface-for-ar-worlds/"><u>First Speaking Interface for AR Worlds</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/foreign-influences-on-the-english-language-borrowed-wordsback-buttonfilter-button/"><u>Foreign Influences On The English Language – Borrowed WordsBack ButtonFilter Button</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/forties-fluency-the-joy-and-wisdom-found-in-multilingualism/"><u>Forties Fluency: The Joy and Wisdom Found in Multilingualism</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/forty-plus-fluency-unleashing-the-power-of-multilingualism-today/"><u>Forty-Plus Fluency: Unleashing the Power of Multilingualism Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/foundation-of-hope-dannys-colombia-support-initiative/"><u>Foundation of Hope: Danny's Colombia Support Initiative</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/freedom-to-learn-honoring-1500-fee-free-lessons-daily/"><u>Freedom to Learn: Honoring 1500 Fee-Free Lessons Daily</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-pronunciation-quick-guide-to-colors/"><u>French Pronunciation Quick Guide to Colors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/friendly-farewells-and-welcomes-in-indonesia/"><u>Friendly Farewells & Welcomes in Indonesia</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-abcs-to-spanish-abcs-kindergarten-elementary-journey/"><u>From ABCs to Spanish ABCs: Kindergarten-Elementary Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-beginner-to-fluent-learn-afrikaans-efficiently-on-mondly-heres-why/"><u>From Beginner to Fluent: Learn Afrikaans Efficiently on Mondly - Here’s Why</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-confusion-to-clarity-understanding-english-contraction-rules/"><u>From Confusion to Clarity: Understanding English Contraction Rules</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-first-steps-to-fluent-speech-mastering-the-german-way/"><u>From First Steps to Fluent Speech: Mastering the German Way</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-shanties-to-speech-a-buccaneers-path/"><u>From Shanties to Speech: A Buccaneer’s Path</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/frying-fundamentals-for-the-ultimate-fried-egg-experience-87-characters/"><u>Frying Fundamentals for the Ultimate Fried Egg Experience (87 Characters)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fundamentos-de-la-hora-en-espanol-para-iniciados/"><u>Fundamentos De La Hora en Español Para Iniciados</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/future-lexicons-shaping-tomorrows-language-landscapes/"><u>Future Lexicons: Shaping Tomorrow's Language Landscapes</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-music-on-xiaomi-redmi-k70-pro-by-fonelab-android-recover-music/"><u>How to restore wiped music on Xiaomi Redmi K70 Pro</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/immediate-fixes-fb-messenger-video-sending-hitch-on-mobile-devices-for-2024/"><u>Immediate Fixes  FB Messenger Video Sending Hitch on Mobile Devices for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-best-gopro-tools-for-deep-sea-cinematography/"><u>In 2024, Best Gopro Tools for Deep-Sea Cinematography</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-boost-photographic-vision-get-free-and-paid-lut-upgrades/"><u>In 2024, Boost Photographic Vision - Get FREE & Paid LUT Upgrades</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-infuse-rhythms-into-your-whatsapp-story/"><u>In 2024, Infuse Rhythms Into Your WhatsApp Story</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-insiders-choice-selecting-the-superior-screen-recorder/"><u>In 2024, Insider’s Choice  Selecting the Superior Screen Recorder</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-prime-skating-moments-from-the-world-cup-22/"><u>In 2024, Prime Skating Moments From the World Cup '22</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-recording-your-screen-and-videos-on-android/"><u>In 2024, Recording Your Screen & Videos on Android</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-the-complete-reference-to-display-recording-methods/"><u>In 2024, The Complete Reference to Display Recording Methods</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/mobile-youtube-watching-iphone-and-android-edition/"><u>Mobile YouTube Watching  IPhone & Android Edition</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-comprehensive-guide-to-scholarly-writing-and-ai/"><u>The Comprehensive Guide to Scholarly Writing & AI</u></a></li>
+<li><a href="https://app-tips.techidaily.com/the-ultimate-list-of-11-superior-sound-integration-tools-for-adding-music-and-voice-to-videos-across-android-ios-mac-and-pc-platforms/"><u>The Ultimate List of 11 Superior Sound Integration Tools for Adding Music & Voice to Videos Across Android, iOS, Mac & PC Platforms</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/l-sizzle-how-to-make-your-youtube-logo-pop/"><u>Visual Sizzle  How to Make Your YouTube Logo Pop</u></a></li>
+</ul></div>

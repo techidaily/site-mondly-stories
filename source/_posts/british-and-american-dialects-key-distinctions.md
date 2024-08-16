@@ -1,7 +1,7 @@
 ---
 title: "British & American Dialects: Key Distinctions"
-date: 2024-07-12T09:05:41.141Z
-updated: 2024-07-13T09:05:41.141Z
+date: 2024-08-15T17:42:49.905Z
+updated: 2024-08-16T17:42:49.905Z
 tags:
   - speak
   - english
@@ -63,6 +63,9 @@ thumbnail: https://thmb.techidaily.com/bc4c1fafbeb0a4b8e3066f1ca761f451b6c08fbe8
 
  Previous  Next
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Spellings differences: is it “colour” or “color”?
 
  That’s simple! “Colour” is the British spelling and “color” is the American spelling. Always remember that, when it comes to spelling, American English uses a simplified version. The explanation goes back to 1828 when Noah Webster wrote the first American dictionary –_An American Dictionary of the English Language._ Webster said he chose alternative spellings that were already in use in the United States “on such grounds as simplicity, analogy or etymology”.
@@ -101,6 +104,9 @@ thumbnail: https://thmb.techidaily.com/bc4c1fafbeb0a4b8e3066f1ca761f451b6c08fbe8
 
  Thus, while**“The band is playing”** in the US, in the UK**“The band are playing”** . Likewise, if I’m in the US,**“My team is winning”** . But if I’m in the UK,**“My team are winning”** .
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Learned or learnt?
 
 **Learned** and**learnt** are both the correct past participle and past tense forms of the verb “to learn”. Easily overlooked in speech, but much more obvious in writing, this subtle difference addresses verbs.
@@ -121,6 +127,9 @@ thumbnail: https://thmb.techidaily.com/bc4c1fafbeb0a4b8e3066f1ca761f451b6c08fbe8
 
  Thus, in Britain, you’ll say**“I’ve been to the supermarket”** and in the US you’ll say**“I went to the supermarket”** .
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Prepositions
 
  In British English, “at” is generally used in relation to time and place. In contrast, in American English, “on” is used in relation to time and “in” is used in relation to place.
@@ -129,6 +138,9 @@ thumbnail: https://thmb.techidaily.com/bc4c1fafbeb0a4b8e3066f1ca761f451b6c08fbe8
 
  British English vs American English
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ### Other grammar differences
 
  Generally, the British are more likely to use formal speech, while Americans will rather go with informal expressions. For instance, Brits will use “shall” where Americans use “will” or “should”.
@@ -141,6 +153,9 @@ thumbnail: https://thmb.techidaily.com/bc4c1fafbeb0a4b8e3066f1ca761f451b6c08fbe8
 
  American accent is rhotic and Americans pronounce their “R’s” loud and clear. On the other hand, the British accent is non-rhotic and Brits usually replace their “R’s” with “H’s”. Thus, words like “water” or “card” will be pronounced_wa-tuh_ or_caahd_ .
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## British vs American: which one should you learn and use?
 
  It doesn’t matter whether you learn British English or American English. There is no such thing as “the best English”. Learn whichever you feel and like. Of course, if you intend to move to the United States, it is best to study and get used to the American accent.
@@ -156,6 +171,9 @@ thumbnail: https://thmb.techidaily.com/bc4c1fafbeb0a4b8e3066f1ca761f451b6c08fbe8
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Brush up your English in just 10 minutes a day
 
  Do you want to speak English like a true American? Or maybe you dream of acquiring the classy British accent? With [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5309&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5309&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5309) you can train for both.
@@ -184,3 +202,36 @@ thumbnail: https://thmb.techidaily.com/bc4c1fafbeb0a4b8e3066f1ca761f451b6c08fbe8
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-guidance.techidaily.com/new-iphones-prime-camera-utilities/"><u>[New] IPhone's Prime Camera Utilities</u></a></li>
+<li><a href="https://network-issues.techidaily.com/resolved-laptop-display-not-beaming-to-tv/"><u>[Resolved] Laptop Display Not Beaming to TV</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-time-travellers-guide-sharing-past-photos-as-snaps-for-2024/"><u>[Updated] Time Traveller's Guide - Sharing Past Photos as Snaps for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enchanting-dialogues-romancing-with-deutsch/"><u>Enchanting Dialogues: Romancing with Deutsch</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/endless-learning-opportunity-anniversary-of-1500-no-cost-sessions/"><u>Endless Learning Opportunity: Anniversary of 1500 No-Cost Sessions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/engaging-students-in-international-linguistics/"><u>Engaging Students in International Linguistics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/entertaining-methods-for-latino-education/"><u>Entertaining Methods for Latino Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-croatian-expressions-a-compre-written-guide-for-efficient-communication-in-croatia/"><u>Essential Croatian Expressions – A Compre Written Guide for Efficient Communication in Croatia</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-guides-to-online-independent-and-zero-cost-japan-study/"><u>Essential Guides to Online, Independent & Zero-Cost Japan Study</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/eternal-access-to-mondlys-best-with-zero-price/"><u>Eternal Access to Mondly's Best with Zero Price!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/examining-iberian-idiosyncrasies-language-comparison-of-spanish-and-portuguese/"><u>Examining Iberian Idiosyncrasies: Language Comparison of Spanish & Portuguese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-german-culture-with-its-25-most-used-sayings/"><u>Explore German Culture with Its 25 Most Used Sayings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressing-affection-in-magyar-loving-words/"><u>Expressing Affection in Magyar: Loving Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressive-uk-speak-beyond-the-basics/"><u>Expressive UK Speak: Beyond the Basics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fascinating-and-fun-learning-of-spanish/"><u>Fascinating and Fun Learning of Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fifty-and-beyond-five-motivations-for-new-languages/"><u>Fifty and Beyond: Five Motivations for New Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/finding-ways-to-profess-love-in-hungarian/"><u>Finding Ways to Profess Love in Hungarian</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/foreign-language-exploration-intelligence-gain/"><u>Foreign Language Exploration, Intelligence Gain</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-fluency-boosted-by-27-timeless-expressions/"><u>French Fluency Boosted by 27 Timeless Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-language-essentials-for-global-communicators-the-basics-of-friendly-salutations/"><u>French Language Essentials for Global Communicators: The Basics of Friendly Salutations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-latin-to-local-a-guide-to-chocolates-global-voice/"><u>From Latin to Local: A Guide to Chocolate's Global Voice</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-quills-to-keystrokes-enduring-elizabethan-expressions/"><u>From Quills to Keystrokes: Enduring Elizabethan Expressions</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirror-on-apple-iphone-11-drfone-by-drfone-ios/"><u>In 2024, How to Screen Mirror on Apple iPhone 11? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-process-of-screen-sharing-itel-p40-to-pc-detailed-steps-drfone-by-drfone-android/"><u>In 2024, Process of Screen Sharing Itel P40 to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/motioncure-heal-your-media-files/"><u>MotionCure: Heal Your Media Files</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/process-of-screen-sharing-sony-xperia-5-v-to-pc-detailed-steps-drfone-by-drfone-android/"><u>Process of Screen Sharing Sony Xperia 5 V to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/quick-fixes-for-why-is-my-realme-11-5g-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Realme 11 5G Black and White | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/step-by-step-guide-resolving-stalled-windows-updates-at-100-mark/"><u>Step-by-Step Guide: Resolving Stalled Windows Updates at 100%% Mark</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/virtual-world-warfare-understanding-meta-and-omniverse-differences/"><u>Virtual World Warfare  Understanding Meta and Omniverse Differences</u></a></li>
+</ul></div>

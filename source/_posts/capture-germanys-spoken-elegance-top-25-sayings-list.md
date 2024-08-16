@@ -1,7 +1,7 @@
 ---
 title: "Capture Germany's Spoken Elegance: Top 25 Sayings List"
-date: 2024-07-12T09:04:30.707Z
-updated: 2024-07-13T09:04:30.707Z
+date: 2024-08-15T17:44:01.622Z
+updated: 2024-08-16T17:44:01.622Z
 tags:
   - speak
   - english
@@ -34,6 +34,10 @@ thumbnail: https://thmb.techidaily.com/3e5b59b546c87eb154c3a82ef5392a8a6adfe5198
 
  Germans are usually pretty straightforward, but there are times when even they happen to beat around the bush. When such a situation occurs, you can use this idiom to invite them to get straight to the point.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 ### **2.** _Eine Extrawurst haben_
 
 **Literal translation:** To ask for an extra sausage.
@@ -50,6 +54,9 @@ thumbnail: https://thmb.techidaily.com/3e5b59b546c87eb154c3a82ef5392a8a6adfe5198
 
  Is someone lying to your face? Better remind them that_Lügen haben kurze Beine_ or lies won’t get them too far with those tiny legs. This idiom is similar to the English expression “Liar, liar, pants on fire.”
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **4.** _Ich glaube ich spinne_
 
 **Literal translation:** I believe I spider.
@@ -67,7 +74,22 @@ thumbnail: https://thmb.techidaily.com/3e5b59b546c87eb154c3a82ef5392a8a6adfe5198
  Where there are sausages, there also must be mustard. If you want to ask someone for their opinion and sound like a fluent speaker when doing it, you better invite them to add their mustard.
 
 !['German idioms in English' by Ron Lach©](https://edge.mondly.com/blog/wp-content/uploads/2022/09/german-idioms-in-english-960x640.jpg "Top 25 German Idioms To Speak Like A German 2")
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **6.** _Die Kirche im Dorf lassen_
 
 **Literal translation:** Leave the church in the village.
@@ -108,6 +130,9 @@ thumbnail: https://thmb.techidaily.com/3e5b59b546c87eb154c3a82ef5392a8a6adfe5198
 
  After all the funny idioms about food and animals, it’s time for a more grim one. If you’re absolutely certain of the information you are giving, you can assure the person you are talking to by saying_Da kannst du Gift drauf nehmen_ , which essentially means “you can bet on it.”
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **11.** _Du gehst mir auf den Keks_
 
 **Literal translation:** You’re walking on my cookie.
@@ -116,6 +141,9 @@ thumbnail: https://thmb.techidaily.com/3e5b59b546c87eb154c3a82ef5392a8a6adfe5198
 
  Now that’s a fun way of saying someone is getting on your nerves! It’s so cute that we’re actually thinking of making a petition to adopt it in English as well. Are you in?
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **12.** _Da steppt der Bär_
 
 **Literal translation:** The bear dances there.
@@ -142,6 +170,9 @@ thumbnail: https://thmb.techidaily.com/3e5b59b546c87eb154c3a82ef5392a8a6adfe5198
 
  Is someone you know constantly talking about an issue that is over and decided? _Das ist Schnee von gestern_ is perfect in this context.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **15.** _Ein Fisch auf dem Trockenen_
 
 **Literal translation:** A fish on the dry.
@@ -150,6 +181,9 @@ thumbnail: https://thmb.techidaily.com/3e5b59b546c87eb154c3a82ef5392a8a6adfe5198
 
  It’s interesting how similar this idiom is to our English equivalent. It looks like feeling out of place is finally something more languages can agree on.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<!-- affiliate ads end -->
 ### **16.** _Die Daumen drücken_
 
 **Literal translation:** Press the thumbs.
@@ -158,6 +192,9 @@ thumbnail: https://thmb.techidaily.com/3e5b59b546c87eb154c3a82ef5392a8a6adfe5198
 
  Same story here. You already know in which situations it’s suitable to use this one.
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **17.** _Du nimmst mich auf den Arm_
 
 **Literal translation:** You’re taking me on your arm.
@@ -166,6 +203,9 @@ thumbnail: https://thmb.techidaily.com/3e5b59b546c87eb154c3a82ef5392a8a6adfe5198
 
  Germans have a unique take on this idiom. Instead of pulling one’s leg, they are taken on someone’s arm. Picture the scene and you can help but giggle! Obviously, both versions are used to express disbelief about someone’s actions or claims.
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **18.** _Dumm wie Bohnenstroh_
 
 **Literal translation:** Dumb as a bean straw.
@@ -174,6 +214,9 @@ thumbnail: https://thmb.techidaily.com/3e5b59b546c87eb154c3a82ef5392a8a6adfe5198
 
  We don’t support insults, but this one can also be used as a joke between very – and we mean**very** – close friends.
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **19.** _Alles hat ein Ende, nur die Wurst hat zwei_
 
 **Literal translation:** Everything has an end. Only the sausage has two.
@@ -182,6 +225,9 @@ thumbnail: https://thmb.techidaily.com/3e5b59b546c87eb154c3a82ef5392a8a6adfe5198
 
  Sausages again! Even when they come up with witty remarks about life itself, Germans must make a reference to_wursts_ . We do feel inspired, but we must admit we’re also drooling at this point.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
 ### **20.** _Ich habe Schwein gehabt_
 
 **Literal translation:** I’ve had a pig.
@@ -218,6 +264,9 @@ thumbnail: https://thmb.techidaily.com/3e5b59b546c87eb154c3a82ef5392a8a6adfe5198
 
  Sometimes we see a bad situation coming and we warn the parties involved, but they choose not to listen. Well, this idiom is perfect for the aftermath when all you want to say is: I told you so!
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **24.** _Einen Vogel haben_
 
 **Literal translation:** To have a bird.
@@ -238,6 +287,9 @@ It’s usually used as an insult, so be careful to who you are saying this.
 
  Do you have someone in your life who just won’t stop talking? If you feel like your ear will fall off, this is the perfect example of _Jemandem ein Ohr abkauen_ .
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Why should you learn German idioms?**
 
  No matter how funny or weird, German idioms are, first and foremost, a great way to boost your German vocabulary. However, there is more to it than that. If you want to [learn German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and speak it like a fluent speaker, idioms can help you take your conversations to the next level in more than one way.**German idioms will:**
@@ -290,3 +342,44 @@ _ [Tschüss](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=10
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-best-free-downloader-turn-youtube-audio-into-premium-mp3s/"><u>[New] 2024 Approved  Best Free Downloader  Turn YouTube Audio Into Premium MP3s</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-guide-to-quick-video-recording-on-youtube/"><u>[New] 2024 Approved  Guide to Quick Video Recording on YouTube</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-free-recording-tool-for-every-android-enthusiast/"><u>[New] In 2024, Free Recording Tool for Every Android Enthusiast</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-unseen-snaps-and-hushed-user-signal-to-check-for-blocks/"><u>[New] Unseen Snaps and Hushed User  Signal to Check for Blocks</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-video-wizardry-your-guide-to-the-top-10-editing-hacks/"><u>[New] Video Wizardry  Your Guide to the Top 10 Editing Hacks</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-creating-clip-sensations-tiktoks-viral-guide/"><u>[Updated] In 2024, Creating Clip Sensations  TikTok's Viral Guide</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-composing-prime-canon-temporal-videos/"><u>2024 Approved  Composing Prime Canon Temporal Videos</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/2024-approved-how-to-make-a-meme-step-by-step/"><u>2024 Approved How to Make a Meme (Step by Step)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/8-strategies-for-perfecting-english-grammar-with-esl-insight/"><u>8 Strategies for Perfecting English Grammar with ESL Insight</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/afrikaans-for-business-success-top-reasons-learned-via-mondlys-method/"><u>Afrikaans for Business Success: Top Reasons Learned via Mondly's Method</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/age-is-just-a-number-4-compelling-motives-for-senior-language-learning/"><u>Age Is Just a Number – 4 Compelling Motives for Senior Language Learning</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/all-you-need-to-know-about-instagram-video-limits-for-2024/"><u>All You Need to Know About Instagram Video Limits for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/aperture-aces-top-picks-the-most-impressive-6-4k-dslrs/"><u>Aperture Aces' Top Picks  The Most Impressive 6 4K DSLRs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/childhood-as-a-perfect-language-learning-time/"><u>Childhood as a Perfect Language-Learning Time</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/climb-the-linguistic-ladder-for-workplace-success/"><u>Climb the Linguistic Ladder for Workplace Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/crossing-languages-turkey-and-koreas-tale/"><u>Crossing Languages: Turkey & Korea's Tale</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/flirting-in-german-success-strategies/"><u>Flirting in German: Success Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hellenic-heirs-language-legacy-and-current-usage/"><u>Hellenic Heirs: Language Legacy & Current Usage</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-frp-on-nubia-red-magic-8s-proplus-by-drfone-android-unlock-remove-google-frp/"><u>How To Bypass FRP on Nubia Red Magic 8S Pro+</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-vivo-v29-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your Vivo V29 | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-easy-ways-to-manage-your-realme-11x-5g-location-settings-drfone-by-drfone-virtual/"><u>In 2024, Easy Ways to Manage Your Realme 11X 5G Location Settings | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-delete-icloud-account-remove-your-apple-id-permanently-on-apple-iphone-7-by-drfone-ios/"><u>In 2024, How To Delete iCloud Account Remove Your Apple ID Permanently On Apple iPhone 7</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-xiaomi-13t-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Xiaomi 13T to Outlook | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-afrikaans-unveil-how-mondly-makes-learning-easy-and-effective/"><u>Mastering Afrikaans: Unveil How Mondly Makes Learning Easy & Effective</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-premium-lifetime-no-cost-plan/"><u>Mondly Premium: Lifetime, No-Cost Plan</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-corporate-lexicon-for-effective-negotiation/"><u>Navigating Corporate Lexicon for Effective Negotiation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-year-new-language-your-new-year-aspirations/"><u>New Year, New Language: Your New Year Aspirations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/silver-tongues-senior-brains-and-new-languages/"><u>Silver Tongues: Senior Brains & New Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sneak-in-some-slovak-today-daily-10-minute-language-dive/"><u>Sneak in Some Slovak Today: Daily 10-Minute Language Dive</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-number-one-your-starting-point/"><u>Spanish Number One - Your Starting Point</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-by-step-guide-learning-russian-arithmetic/"><u>Step-by-Step Guide: Learning Russian Arithmetic</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swift-path-to-urdu-mastery/"><u>Swift Path to Urdu Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tage-der-woche-deutsche-sprachreise-antreten/"><u>Tage Der Woche: Deutsche Sprachreise Antreten</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-linguistic-journey-key-immersive-strategies/"><u>The Ultimate Linguistic Journey: Key Immersive Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/upgrade-to-cutting-edge-ai-chat-companions/"><u>Upgrade to Cutting-Edge AI Chat Companions</u></a></li>
+<li><a href="https://techidaily.com/useful-ways-that-can-help-to-effectively-recover-deleted-files-from-spark-go-2024-by-fonelab-android-recover-data/"><u>Useful ways that can help to effectively recover deleted files from Spark Go (2024)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/world-teachers-day-how-to-say-teacher-in-different-languages/"><u>World Teachers’ Day | How to Say “Teacher” In Different Languages</u></a></li>
+</ul></div>

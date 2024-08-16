@@ -1,7 +1,7 @@
 ---
 title: Criptografando Um Conhecimento Em Português - Greves Gerais
-date: 2024-07-12T09:10:57.498Z
-updated: 2024-07-13T09:10:57.498Z
+date: 2024-08-15T17:37:36.426Z
+updated: 2024-08-16T17:37:36.426Z
 tags:
   - speak
   - english
@@ -24,6 +24,9 @@ thumbnail: https://thmb.techidaily.com/e576fa6a569d314a929d202ace0124c24bb9f5c7c
 
  “Hello” is a [powerful word](https://www.merriam-webster.com/words-at-play/the-origin-of-hello) . It opens doors. It makes people smile. And said the right way and at the right time, “hello” can impact someone’s day and you wouldn’t even know it. So here are the right ways to say “hello” in Portuguese and open doors everywhere you go.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ### “Hello” in Portuguese – Olá
 
 _Olá_ is the best choice for most social situations regardless of the person you are addressing. It’s somehow formal, but also friendly.
@@ -53,6 +56,9 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 * **_Quanto tempo!_ – Long time no see!** – Used the same as in English.
 * **_Como foi o seu dia?_ – How’s your day?** – Used the same as in English.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<!-- affiliate ads end -->
 ## 2\. “Bom dia!” and other Portuguese greetings for certain moments of the day
 
 ![good morning in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/good-morning-in-portuguese-1024x642.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 3")
@@ -67,6 +73,9 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
  All three of these are safe to use in any kind of interaction (formal or informal).
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->
 ## 3.“Goodbye” in Portuguese – Adeus
 
  The most common way to say “Goodbye” in Portuguese is_Adeus_ , but you can also use_Tchau_ which simply translates to “bye”.
@@ -80,9 +89,15 @@ _Olá_ is the best choice for most social situations regardless of the person yo
  Another useful phrase for bidding farewell is “have a good day”. In Portuguese, that’s_t_ _enha um bom dia_ .
 
 ![portuguese greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/08/portuguese-greetings-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 4")
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<!-- affiliate ads end -->
 
  “Ruínas da Fortaleza de Arrifana, Aljezur, Portugal” by Ferhat Deniz Fors©
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Bonus: other basic Portuguese phrases that you should know
 
  Now that you know how to greet in Portuguese, shouldn’t you also master basic words like “yes”, “no” or “thank you” in Portuguese? Let’s kill two birds with one stone and see how a basic conversation in Portuguese should sound like:
@@ -106,6 +121,10 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 * No. –_Não._
 
 ![obrigado](https://edge.mondly.com/blog/wp-content/uploads/2019/08/obrigado-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 5")
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
+The ultimate burning program for all your needs!</a>
+<!-- affiliate ads end -->
 
  “Gruta do Lago Azul, Brazil” by Ademir Alves©
 
@@ -148,3 +167,39 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-mastering-iphone-capturing-time-stretched-movies/"><u>[New] 2024 Approved  Mastering iPhone  Capturing Time-Stretched Movies</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-boost-traffic-elevate-rankings-essential-youtube-seo/"><u>[New] In 2024, Boost Traffic, Elevate Rankings - Essential YouTube SEO</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-smooth-sailing-in-transforming-ppt-slides-into-videos/"><u>[New] In 2024, Smooth Sailing in Transforming PPT Slides Into Videos</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-unveiling-changes-in-sony-bdp-s670/"><u>[New] Unveiling Changes in Sony BDP-S670</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-secure-re-entry-resuming-fb-usage-post-hack/"><u>[Updated] 2024 Approved  Secure Re-Entry  Resuming Fb Usage Post Hack</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-from-chat-room-to-global-stage-broadcast-google-meet-on-youtube/"><u>[Updated] From Chat Room to Global Stage  Broadcast Google Meet on YouTube</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-innovations-for-crafting-striking-fb-video-ads/"><u>[Updated] In 2024, Innovations for Crafting Striking FB Video Ads</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expert-tips-for-fixing-the-ghost-runner-catastrophic-malfunction-in-windows-11-environment/"><u>Expert Tips for Fixing the 'Ghost Runner' Catastrophic Malfunction in Windows 11 Environment</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gold-star-for-educators-mondly-kids-in-google-plays-top-2017-apps/"><u>Gold Star for Educators - Mondly Kids in Google Play's Top 2017 Apps</u></a></li>
+<li><a href="https://fox-info.techidaily.com/high-flying-brain-games-top-11-knowledge-channels-for-2024/"><u>High-Flying Brain Games  Top 11 Knowledge Channels for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/immersive-german-learning-experience-via-dark-show/"><u>Immersive German Learning Experience via Dark Show</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-bypass-the-required-apple-store-verification-for-apple-iphone-se-2020-drfone-by-drfone-ios/"><u>In 2024, How To Bypass the Required Apple Store Verification For Apple iPhone SE (2020) | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-oppo-f25-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Oppo F25 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-samsung-galaxy-a15-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Snapchat Location Spoofer to Protect Your Privacy On Samsung Galaxy A15 5G? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-imagecapture-reviews-hub/"><u>In 2024, ImageCapture Reviews Hub</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leading-3-platforms-for-quick-and-seamless-language-learning/"><u>Leading 3 Platforms for Quick & Seamless Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-the-ropes-of-japenese-social-dialogue/"><u>Learn the Ropes of Japenese Social Dialogue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leverage-multilingualism-why-mondly-is-ideal-for-afrikaans-learners/"><u>Leverage Multilingualism: Why Mondly Is Ideal for Afrikaans Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/luscious-language-lessons-via-movies/"><u>Luscious Language Lessons via Movies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-japanese-etiquette-key-phrases/"><u>Mastering Japanese Etiquette - Key Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-unveils-top-8-motivational-factors-to-learn-hindi-online/"><u>Mondly Unveils: Top 8 Motivational Factors to Learn Hindi Online!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polite-practices-in-france-learning-proper-au-revoir-and-more/"><u>Polite Practices in France: Learning Proper 'Au Revoir' & More</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-fluent-latvian-in-under-an-hours-practice/"><u>Speak Fluent Latvian in Under an Hour's Practice</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-a-local-best-25-german-phrases/"><u>Speak Like a Local: Best 25 German Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spooky-festivities-a-cultural-insight/"><u>Spooky Festivities: A Cultural Insight</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/the-complete-guide-to-samsung-galaxy-a05s-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>The Complete Guide to Samsung Galaxy A05s FRP Bypass Everything You Need to Know</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-slang-survival-guide-common-english-expressions/"><u>The Slang Survival Guide: Common English Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-25-german-idioms-to-speak-like-a-german/"><u>Top 25 German Idioms To Speak Like A German</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-talk-tracks-enhance-enterprise-eloquence-strategies/"><u>Transform Talk Tracks: Enhance Enterprise Eloquence Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/troubleshooting-solutions-to-reactivate-grayed-out-icloud-options-on-ios-devices/"><u>Troubleshooting: Solutions to Reactivate Grayed-Out iCloud Options on iOS Devices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-your-english-potential-with-oxford-3000-and-mondly/"><u>Unlock Your English Potential with Oxford 3000 and Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-mondly-sets-the-bar-for-language-app-success/"><u>Why Mondly Sets the Bar for Language App Success</u></a></li>
+</ul></div>

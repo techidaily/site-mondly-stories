@@ -1,7 +1,7 @@
 ---
 title: Conhecer Gritos De Olá Em Português - Guia Completo
-date: 2024-07-12T09:09:19.623Z
-updated: 2024-07-13T09:09:19.623Z
+date: 2024-08-15T17:39:13.984Z
+updated: 2024-08-16T17:39:13.984Z
 tags:
   - speak
   - english
@@ -53,9 +53,15 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 * **_Quanto tempo!_ – Long time no see!** – Used the same as in English.
 * **_Como foi o seu dia?_ – How’s your day?** – Used the same as in English.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 2\. “Bom dia!” and other Portuguese greetings for certain moments of the day
 
 ![good morning in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/good-morning-in-portuguese-1024x642.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 3")
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  “Rio de Janeiro, Brazil” by Raphael Nogueira©
 
@@ -67,6 +73,10 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
  All three of these are safe to use in any kind of interaction (formal or informal).
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+</a>
+<!-- affiliate ads end -->
 ## 3.“Goodbye” in Portuguese – Adeus
 
  The most common way to say “Goodbye” in Portuguese is_Adeus_ , but you can also use_Tchau_ which simply translates to “bye”.
@@ -80,9 +90,17 @@ _Olá_ is the best choice for most social situations regardless of the person yo
  Another useful phrase for bidding farewell is “have a good day”. In Portuguese, that’s_t_ _enha um bom dia_ .
 
 ![portuguese greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/08/portuguese-greetings-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 4")
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
+🎬 Nero Video:
+The powerful video editing program for your Windows PC</a>
+<!-- affiliate ads end -->
 
  “Ruínas da Fortaleza de Arrifana, Aljezur, Portugal” by Ferhat Deniz Fors©
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Bonus: other basic Portuguese phrases that you should know
 
  Now that you know how to greet in Portuguese, shouldn’t you also master basic words like “yes”, “no” or “thank you” in Portuguese? Let’s kill two birds with one stone and see how a basic conversation in Portuguese should sound like:
@@ -106,6 +124,9 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 * No. –_Não._
 
 ![obrigado](https://edge.mondly.com/blog/wp-content/uploads/2019/08/obrigado-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 5")
+<!-- affiliate ads begin -->
+<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  “Gruta do Lago Azul, Brazil” by Ademir Alves©
 
@@ -148,3 +169,52 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-rising-stars-of-online-videos-top-subscription-hits/"><u>[New] 2024 Approved  Rising Stars of Online Videos  Top Subscription Hits</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-streamlined-steps-for-documenting-google-voice-talks/"><u>[New] In 2024, Streamlined Steps for Documenting Google Voice Talks</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-gastronomes-blueprint-filming-feasts-for-2024/"><u>[New] The Gastronome’s Blueprint  Filming Feasts for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-academic-archiving-ranking-the-top-10-educators-video-capturers-for-2024/"><u>[Updated] Academic Archiving  Ranking the Top 10 Educator's Video Capturers for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/10plus-gpt-upgrades-for-mindful-living-and-exercise/"><u>10+ GPT Upgrades for Mindful Living and Exercise</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-decoding-video-potential-dslr-vs-mirrorless-innovation/"><u>2024 Approved  Decoding Video Potential  DSLR vs Mirrorless Innovation</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-mastering-youtube-video-composition-techniques/"><u>2024 Approved  Mastering YouTube Video Composition Techniques</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-turning-gaming-moments-into-legacy-proven-methods-for-documenting-your-sims-journey-in-sims-4/"><u>2024 Approved  Turning Gaming Moments Into Legacy  Proven Methods for Documenting Your Sims' Journey in Sims 4</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-ultimate-guide-to-superior-vr-on-google-cardboard/"><u>2024 Approved  Ultimate Guide to Superior VR on Google Cardboard</u></a></li>
+<li><a href="https://android-frp.techidaily.com/a-quick-guide-to-oneplus-nord-3-5g-frp-bypass-instantly-by-drfone-android/"><u>A Quick Guide to OnePlus Nord 3 5G FRP Bypass Instantly</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/downloading-samfw-frp-tool-30-for-realme-gt-neo-5-by-drfone-android/"><u>Downloading SamFw FRP Tool 3.0 for Realme GT Neo 5</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/elites-take-the-future-of-global-ai-technology/"><u>Elite's Take: The Future of Global AI Technology</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/eng-through-a-foreign-lens-language-adaptation/"><u>ENG Through a Foreign Lens: Language Adaptation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/erfahren-sie-die-deutschen-wochentage-in-deutscher-sprache/"><u>Erfahren Sie Die Deutschen Wochentage in Deutscher Sprache</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-insights-into-spanish-verb-conjugations/"><u>Essential Insights Into Spanish Verb Conjugations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/europes-polyglot-panorama-a-century-written-in-languages/"><u>Europe's Polyglot Panorama: A Century' Written In Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/european-language-tapestry-weaves-unity-diversity-today/"><u>European Language Tapestry Weaves Unity, Diversity Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/excellence-in-app-design-mondly-family-edition/"><u>Excellence in App Design - Mondly Family Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expanded-vr-communication-with-mondly-for-oculus-quest/"><u>Expanded VR Communication with Mondly for Oculus Quest</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-french-literature-top-20-novels-for-new-learners/"><u>Explore French Literature: Top 20 Novels for New Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-the-genesis-of-our-worlds-words/"><u>Exploring the Genesis of Our World’s Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expoeloquence-dubai-2020-elevating-global-dialogue/"><u>ExpoEloquence Dubai 2020: Elevating Global Dialogue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/find-your-latin-groove-with-online-tutoring-platforms/"><u>Find Your Latin Groove with Online Tutoring Platforms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/first-steps-to-fluency-basic-russian-for-every-traveler/"><u>First Steps to Fluency: Basic Russian for Every Traveler</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fluent-future-redefining-how-we-learn-language-skills/"><u>Fluent Future: Redefining How We Learn Language Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fluently-french-your-key-vocabulary-list-for-exploring-france/"><u>Fluently French: Your Key Vocabulary List for Exploring France</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/foray-into-arabic-beginners-blueprint/"><u>Foray Into Arabic: Beginners' Blueprint</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-hues-rapid-speak-tutorial/"><u>French Hues: Rapid Speak Tutorial</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-novel-selections-top-picks-for-new-language-learners/"><u>French Novel Selections: Top Picks for New Language Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-commitment-to-completion-a-guide/"><u>From Commitment to Completion: A Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-fan-to-fluent-speaker-learn-korean-play-squid-game/"><u>From Fan to Fluent Speaker: Learn Korean, Play Squid Game</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-newbie-to-native-speaker-a-realistic-outlook/"><u>From Newbie To Native Speaker: A Realistic Outlook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fundacion-danny-from-colombia-providing-assistance-to-those-who-need-it-most/"><u>Fundación Danny From Colombia: Providing Assistance To Those Who Need It Most</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gallant-glossary-the-eloquence-in-spanish-flirting/"><u>Gallant Glossary: The Eloquence in Spanish Flirting</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-for-beginners-a-guide-to-counting-from-1-to-100-in-german/"><u>German For Beginners: A Guide To Counting From 1 To 100 In German</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-a-challenge-worth-taking/"><u>German: A Challenge Worth Taking?</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-realme-c53-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Realme C53 | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-exploring-new-horizons-video-resources-for-dynamic-learning-spaces/"><u>In 2024, Exploring New Horizons  Video Resources for Dynamic Learning Spaces</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-x-with-a-mask-on-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone X with a Mask On | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-vivo-y36-bootloader-easily-by-drfone-android/"><u>In 2024, How to Unlock Vivo Y36 Bootloader Easily</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/is-your-iphone-11-pro-max-in-security-lockout-proper-ways-to-unlock-by-drfone-ios/"><u>Is Your iPhone 11 Pro Max in Security Lockout? Proper Ways To Unlock</u></a></li>
+<li><a href="https://win-forum.techidaily.com/navigating-social-platforms-facebook-twitter-instagram-and-youtube/"><u>Navigating Social Platforms: Facebook, Twitter, Instagram & YouTube</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/parrots-in-flight-a-deep-dive-into-bebops-essence-for-2024/"><u>Parrots in Flight  A Deep Dive Into Bebop's Essence for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/things-you-should-know-when-unlocking-total-wireless-of-apple-iphone-x-by-drfone-ios/"><u>Things You Should Know When Unlocking Total Wireless Of Apple iPhone X</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-data-from-tecno-spark-20c-by-fonelab-android-recover-data/"><u>Undelete lost data from Tecno Spark 20C</u></a></li>
+</ul></div>

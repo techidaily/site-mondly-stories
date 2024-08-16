@@ -1,7 +1,7 @@
 ---
 title: "Cross-Speaker Communication: The Evolutionary Role in English"
-date: 2024-07-12T09:05:54.728Z
-updated: 2024-07-13T09:05:54.728Z
+date: 2024-08-15T17:42:37.153Z
+updated: 2024-08-16T17:42:37.153Z
 tags:
   - speak
   - english
@@ -74,6 +74,10 @@ thumbnail: https://thmb.techidaily.com/3c65f68799b4050edde66f042974df77982abdb35
 30. Nemesis (Greek)
 
 ![English foreign words](https://edge.mondly.com/blog/wp-content/uploads/2024/01/english-foreign-words-600x600.png "100+ English Words Borrowed From Other Languages 4")
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 
  Although we usually call them “borrowed words”, these are also known as loanwords. According to Oxford Languages,**a loanword** is_“a word adopted from a foreign language with little or no modification”_ . The transition from one language to another can happen through:
 
@@ -82,10 +86,16 @@ thumbnail: https://thmb.techidaily.com/3c65f68799b4050edde66f042974df77982abdb35
 * **Loan translation,** also known as calque, which involves borrowing words, phrases, or expressions by translating their literal meanings into the borrowing language.
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "100+ English Words Borrowed From Other Languages 5")
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 
 ##### Improve your English fast 🚀
 
  With Mondly, English mastery is at your fingertips – and in your native tongue. Start today ![Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-9827&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-9827%26mt%3D8)
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 
 ## French loanwords: English words that are actually French
 
@@ -115,6 +125,9 @@ thumbnail: https://thmb.techidaily.com/3c65f68799b4050edde66f042974df77982abdb35
 
  Did you know that approximately**30% of the English vocabulary** consists of words that have their origins in**French and Latin** ? Considering that French was the language of the English king and his court for over 300 years, it’s no surprise. During that time, as many as 10,000 French loanwords came into English.
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Spanish loanwords: English words that are actually Spanish
 
 | Chinchilla |
@@ -137,6 +150,9 @@ thumbnail: https://thmb.techidaily.com/3c65f68799b4050edde66f042974df77982abdb35
 
  Unlike French loanwords which have been adapted into British English, most of the**Spanish loanwords entered English via the North American English route.** Cultural exchanges between [Spanish-speaking](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and English-speaking communities led to an influx of loanwords related to food and music in particular. For example, words like “guacamole”, “salsa” and “piñata” have been borrowed into English from Spanish due to the popularity of the Mexican culture in the United States.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<!-- affiliate ads end -->
 ## Italian loanwords: English words that are actually Italian
 
 | Zucchini  |
@@ -189,6 +205,9 @@ thumbnail: https://thmb.techidaily.com/3c65f68799b4050edde66f042974df77982abdb35
 
  Some of the first German words were borrowed into English during the interactions between Germanic-speaking tribes and English-speaking communities in early medieval Europe. Words related to everyday life, family, and community were among the earliest borrowings. Later, thanks to Germany’s influence in various fields, English borrowed German words related to science and technology, music, philosophy, literature and engineering.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Understanding the Size of the English Vocabulary
 
  How many words are there in English? Many sources agree that**the English language consists of roughly 470,000 words.** However, most linguists advise to take that with a pinch of salt. While some words have become obsolete, new additions are always making their way into the English vocabulary, so it’s difficult to put our finger on an exact number. Then, there’s also the question of different variations of a single word like “go”, “went”, “gone”. Do we count that as a single word or as three separate ones?
@@ -250,3 +269,66 @@ Coming Soon
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-broadcasting-vids-directly-from-phone-twitter-without-retweets-for-2024/"><u>[New] Broadcasting Vids Directly From Phone – Twitter, Without Retweets for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-streamline-your-content-conversion-top-5-online-gif-to-video-hubs/"><u>[New] In 2024, Streamline Your Content Conversion  Top 5 Online GIF-to-Video Hubs</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-transform-your-win11-sessions-with-advanced-zoom-skills/"><u>[New] Transform Your Win11 Sessions with Advanced Zoom Skills</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-visual-stories-in-25-steps-blending-pictures-for-maximum-engagement/"><u>[New] Visual Stories in 25 Steps  Blending Pictures for Maximum Engagement</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-harmonious-hues-recording-with-a-mac-for-2024/"><u>[Updated] Harmonious Hues  Recording with a Mac for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-mac-screenshot-format-reconfiguration-guide/"><u>[Updated] In 2024, Mac Screenshot Format Reconfiguration Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-multilingual-films-for-better-communication-skills/"><u>10 Multilingual Films for Better Communication Skills</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-power-of-video-endorsements-in-advertising/"><u>2024 Approved  The Power of Video Endorsements in Advertising</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/50-years-echoing-europes-language-babel-revealed/"><u>50 Years Echoing - Europe's Language Babel Revealed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-beginners-guide-to-french-greetings-navigating-cultural-norms/"><u>A Beginner's Guide to French Greetings: Navigating Cultural Norms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-blast-from-the-past-meets-future-savings-with-new-years-promo-on-mondly-pro/"><u>A Blast From the Past Meets Future Savings with New Year's Promo on Mondly Pro!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-duo-in-debate-the-intricacies-of-spanish-vs-portuguese/"><u>A Duo in Debate: The Intricacies of Spanish Vs. Portuguese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-guide-to-expressing-thanks-16-essential-german-terms/"><u>A Guide To Expressing Thanks: 16 Essential German Terms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/abschiedsreimende-redensarten-im-deutschen/"><u>Abschiedsreimende Redensarten Im Deutschen</u></a></li>
+<li><a href="https://games-able.techidaily.com/accessing-the-ps5s-undercover-browser/"><u>Accessing the PS5's Undercover Browser</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/affectionate-aphorisms-top-french-film-pick/"><u>Affectionate Aphorisms: Top French Film Pick</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/app-based-romanian-learning-by-locals/"><u>App-Based Romanian Learning by Locals</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/basic-anatomy-the-parts-of-the-body-in-french/"><u>Basic Anatomy: The Parts of the Body in French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/become-a-polyglot-for-0-thanks-to-black-friday/"><u>Become a Polyglot for $0 Thanks to Black Friday!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/becoming-a-bilingual-mastermind-mondlys-blueprint/"><u>Becoming a Bilingual Mastermind: Mondly's Blueprint</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beginners-guide-to-core-urdu-terminology/"><u>Beginner's Guide to Core Urdu Terminology</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/benefits-of-multilingualism-post-40-a-cultural-and-cognitive-boost/"><u>Benefits of Multilingualism Post-40: A Cultural & Cognitive Boost</u></a></li>
+<li><a href="https://media-tips.techidaily.com/best-top-6-software-solutions-for-converting-mp3-to-ogg-files-desktop-and-web-options/"><u>Best Top 6 Software Solutions for Converting MP3 to OGG Files: Desktop & Web Options</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breaking-barriers-strategies-to-enhance-multicultural-communication/"><u>Breaking Barriers: Strategies to Enhance Multicultural Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-language-barriers-masterful-grammar-insights-from-a-pro-esl-communicator/"><u>Bridging Language Barriers: Masterful Grammar Insights From a Pro ESL Communicator</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581815703-bridging-worlds-essential-strategies-for-effective-intercultural-communication/"><u>Bridging Worlds: Essential Strategies for Effective Intercultural Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/compassionate-columbia-fundacion-dannys-support-system/"><u>Compassionate Columbia: Fundacion Danny's Support System</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprendre-lanatomie-humaine-les-differentes-parties-en-francais/"><u>Comprendre L'Anatomie Humaine: Les Différentes Parties en Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-language-barriers-with-mondlys-advanced-usage/"><u>Conquer Language Barriers with Mondly's Advanced Usage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquering-russian-greetings-keywords-for-fluency/"><u>Conquering Russian Greetings: Keywords for Fluency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cross-border-connections-the-top-languages-to-study/"><u>Cross-Border Connections: The Top Languages to Study</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daily-dose-of-slovak-master-speech-minutes-not-hours/"><u>Daily Dose of Slovak - Master Speech, Minutes Not Hours</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daily-narratives-of-a-korean-week/"><u>Daily Narratives of a Korean Week</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciphering-japans-characters-and-script/"><u>Deciphering Japan's Characters and Script</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciphering-the-difficulty-of-german-language-studies/"><u>Deciphering the Difficulty of German Language Studies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/descobrir-expressoes-de-ameaca-em-portugues-variedades/"><u>Descobrir Expressões De Ameaça Em Português - Variedades</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-chinese-greetings-a-sociocultural-perspective/"><u>Discovering Chinese Greetings: A Sociocultural Perspective</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dubai-2020-expo-where-language-learning-soars/"><u>Dubai 2020 Expo: Where Language Learning Soars</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effortless-daily-bengali-lessons/"><u>Effortless Daily Bengali Lessons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-indonesian-culture-with-local-greetings/"><u>Embrace Indonesian Culture with Local Greetings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-the-aussie-accent-with-100plus-terms/"><u>Embrace the Aussie Accent with 100+ Terms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581051309-embrace-the-future-with-a-lifetime-subscription-to-mondly-pro-at-discounted-prices/"><u>Embrace the Future with a Lifetime Subscription to Mondly Pro at Discounted Prices</u></a></li>
+<li><a href="https://extra-information.techidaily.com/enhance-photos-on-the-go-top-10-no-cost-android-and-iphone-editors/"><u>Enhance Photos on the Go – Top 10 No-Cost Android & iPhone Editors</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/from-snapshots-to-masterpieces-best-online-photo-and-video-collage-creators-for-2024/"><u>From Snapshots to Masterpieces Best Online Photo and Video Collage Creators for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/google-play-services-wont-update-12-fixes-are-here-on-poco-x6-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Play Services Wont Update? 12 Fixes are Here on Poco X6 Pro | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/how-to-setup-and-optimize-home-chargers-for-electric-cars/"><u>How to Setup and Optimize Home Chargers for Electric Cars</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-activate-and-use-life360-ghost-mode-on-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, How To Activate and Use Life360 Ghost Mode On Realme 11 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-the-1000-club-achievement-monthly-tips-for-insta-success-and-growth/"><u>In 2024, The 1,000 Club Achievement  Monthly Tips for Insta Success and Growth</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580725310-jumpstart-your-croatian-experience-heres-the-7-reason-guide/"><u>Jumpstart Your Croatian Experience - Here's the 7-Reason Guide!</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/keep-your-computer-running-smoothly-intel-rst-driver-software-downloads-for-quick-boot-and-data-safety/"><u>Keep Your Computer Running Smoothly - Intel RST Driver Software Downloads for Quick Boot & Data Safety</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-nokia-c12-pro-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Nokia C12 Pro | Dr.fone</u></a></li>
+<li><a href="https://windows11.techidaily.com/mindfulness-meets-the-mind-cognitive-and-emotional-responses-to-meditation/"><u>Mindfulness Meets the Mind: Cognitive & Emotional Responses to Meditation</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-seamless-storytelling-3-ways-to-use-transitions-in-final-cut-pro/"><u>New Seamless Storytelling 3 Ways to Use Transitions in Final Cut Pro</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577943413-quick-lingua-norvegica-grasp-10-mins-a-day/"><u>Quick Lingua Norvegica Grasp, 10-Mins A Day</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/tailored-obs-tweaks-for-affordable-systems-for-2024/"><u>Tailored OBS Tweaks for Affordable Systems for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581018092-this-is-the-best-way-to-learn-finnish-online/"><u>This Is The Best Way To Learn Finnish Online</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-muting-zoom-a-step-by-step-guide-for-quiet-calls-on-laptops-and-phones-for-2024/"><u>Updated Muting Zoom A Step-by-Step Guide for Quiet Calls on Laptops & Phones for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/visual-storytelling-enhanced-by-these-top-7-graders-flair/"><u>Visual Storytelling Enhanced by These Top 7 Graders' Flair</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/what-does-jailbreaking-apple-iphone-11-pro-i-do-get-answers-here-by-drfone-ios/"><u>What Does Jailbreaking Apple iPhone 11 Pro i Do? Get Answers here</u></a></li>
+</ul></div>

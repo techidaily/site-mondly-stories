@@ -1,7 +1,7 @@
 ---
 title: Break Down Barriers With These Essential Greetings
-date: 2024-07-12T09:10:59.600Z
-updated: 2024-07-13T09:10:59.600Z
+date: 2024-08-15T17:37:34.321Z
+updated: 2024-08-16T17:37:34.321Z
 tags:
   - speak
   - english
@@ -49,6 +49,15 @@ thumbnail: https://thmb.techidaily.com/9e9b99a6d9a89547d11f6e0d3b7ad397a8c45980a
 
  Unlike English, which uses the same “hello” for a lot of different social contexts, the Japanese language has a dedicated “hello” for answering the phone:**moshi moshi (もしもし).** Doesn’t that sound cute?
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
+
+ It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
+
+  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
+
+  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<!-- affiliate ads end -->
 ## 2\. Good morning in Japanese and other relevant greetings
 
 **Good morning in Japanese**   **– O_hayō gozaimasu_**  (おはよう ございます) is the best choice for greeting someone in the early morning hours (before 10:00 a.m.). Unlike_Konnichiwa_ ,   **O_hayō gozaimasu_**  a little more formal, so it’s safe to use it with people you don’t know or when you are meeting people in a position of authority (such as your boss or your teacher).
@@ -64,9 +73,15 @@ This greeting is used both as a “hello” and as a “goodbye”.
 **Bonus tip:** Morning and evening are more carefully delimited in the Japanese culture than in the West. So it’s important to know your**_Konnichiwa_** and never use it instead of**_Konbanwa_** or**_Oyasuminasai._**
 
 ![hi in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-japanese-960x639.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 3")
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  “Meguro River, Matsuno, Japan” by Sora Sagano©
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<!-- affiliate ads end -->
 ## 3.“Goodbye” in Japanese
 
  Another greeting we borrowed from the Japanese and sometimes use in our day-to-day conversations in English is**_Sayōnara_** (さよなら), a greeting that carries the connotation of farewell and translates to “goodbye”.
@@ -83,6 +98,9 @@ This greeting is used both as a “hello” and as a “goodbye”.
 * See you soon! – _Mata ne!_  (またね！)
 
 ![goodbye in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/goodbye-in-japanese-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 4")
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<!-- affiliate ads end -->
 
  “See you soon, human” by Alain Pham©
 
@@ -109,6 +127,9 @@ This greeting is used both as a “hello” and as a “goodbye”.
 * _Iie_ (いいえ) – instead of_Dou itashi mashite,_ you can say_Iie,_ which means “no” as in “it was nothing”.
 
 ![arigato](https://edge.mondly.com/blog/wp-content/uploads/2019/08/arigato-1024x706.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 5")
+<!-- affiliate ads begin -->
+<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  “Kyoto, Japan” by Andre Benz©
 
@@ -148,6 +169,9 @@ This greeting is used both as a “hello” and as a “goodbye”.
 * No problem. – _Daijōbudesu._
 
 ![sayonara](https://edge.mondly.com/blog/wp-content/uploads/2019/08/sayonara-1024x680.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 6")
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->
 
  “Tenryu-ji Temple, Kyōto-shi, Japan” by Masaaki Komori©
 
@@ -184,3 +208,42 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/024-approved-navigating-the-nuances-of-mukbang-filmmaking-techniques/"><u>[New] 2024 Approved  Navigating the Nuances of Mukbang Filmmaking Techniques</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-cutting-edge-mac-cam-apps-a-look-past-bandicam-for-2024/"><u>[Updated] Cutting-Edge Mac Cam Apps  A Look Past Bandicam for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/a-complete-overview-regulating-snapchats-video-velocity-for-2024/"><u>A Complete Overview  Regulating Snapchat's Video Velocity for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/before-you-leave-what-to-evaluate-in-your-online-space/"><u>Before You Leave, What to Evaluate in Your Online Space</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grasping-keywords-in-korean-for-squid-game-enthusiasts/"><u>Grasping Keywords in Korean for Squid Game Enthusiasts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/guia-practica-para-leer-la-hora-en-espanol/"><u>Guía Práctica Para Leer La Hora en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/guide-to-overcoming-call-of-duty-wwii-error-code-4128-glitches/"><u>Guide to Overcoming Call of Duty: WWII Error Code 4128 Glitches</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hands-on-latin-adventures-for-learners/"><u>Hands-On Latin Adventures for Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/highest-priority-foreign-languages-for-us-learners/"><u>Highest Priority Foreign Languages for U.S. Learners</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-vivo-v29-pro-phone-without-pin-by-drfone-android/"><u>How to Unlock Vivo V29 Pro Phone without PIN</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-does-find-my-friends-work-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>In 2024, Does find my friends work on Realme GT Neo 5 SE | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-full-guide-on-mirroring-your-xiaomi-redmi-a2-to-your-pcmac-drfone-by-drfone-android/"><u>In 2024, Full Guide on Mirroring Your Xiaomi Redmi A2 to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-poco-m6-pro-5gwithwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Poco M6 Pro 5Gwith/without a PC</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-spotify-location-after-moving-to-another-country-on-oneplus-nord-ce-3-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Spotify Location After Moving to Another Country On OnePlus Nord CE 3 5G | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-8-with-an-apple-watch-and-what-to-do-if-it-doesnt-work-drfone-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 8 With an Apple Watch & What to Do if It Doesnt Work | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-innovative-youtube-channel-titles-the-key-to-successful-blogging-and-filmmaking-no-more-than-156-characters/"><u>In 2024, Innovative YouTube Channel Titles  The Key to Successful Blogging & Filmmaking (No More than 156 Characters)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/innovative-techniques-in-business-language-training/"><u>Innovative Techniques in Business Language Training</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/interweaving-worlds-vocabularies-today-for-teachers/"><u>Interweaving World's Vocabularies, Today for Teachers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/juvenile-jargon-expansion-kindergarten-elementary-learning-spanish/"><u>Juvenile Jargon Expansion: Kindergarten-Elementary Learning Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/kid-app-sundae-mondly-plus-back-button-magic-on-play/"><u>Kid-App Sundae - Mondly + Back Button Magic on Play</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-powerhouse-englishs-impact/"><u>Language Powerhouse: English's Impact</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/mastering-lock-screen-settings-how-to-enable-and-disable-on-zte-by-drfone-android/"><u>Mastering Lock Screen Settings How to Enable and Disable on ZTE</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-the-ultimate-companion-for-polyglots/"><u>Mondly: The Ultimate Companion for Polyglots</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/neuroplasticitys-role-in-child-language-mastery/"><u>Neuroplasticity's Role in Child Language Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/obsessed-with-squid-game-but-lost-in-translation-learn-korean/"><u>Obsessed With Squid Game, but Lost in Translation? Learn Korean</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oculus-quest-languages-unlocked-with-mondly-the-future-of-gaming/"><u>Oculus Quest Languages Unlocked with 'Mondly' - The Future of Gaming?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/proven-strategies-for-exceptional-mondly-engagement/"><u>Proven Strategies for Exceptional Mondly Engagement</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-chinese-thanks-the-essentials-of-xiexie/"><u>Understanding Chinese Thanks: The Essentials of Xièxiè</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-the-secrets-of-croatias-language-with-our-113-essential-expressions-list/"><u>Unlock the Secrets of Croatia's Language with Our 113 Essential Expressions List</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-in-2024-final-cut-pro-essentials-reversing-video-clips-in-minutes/"><u>Updated In 2024, Final Cut Pro Essentials Reversing Video Clips in Minutes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/virtual-verbal-journey-transform-flingish-to-fluent/"><u>Virtual Verbal Journey: Transform Flingish to Fluent!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/warm-salutations-in-indonesia-the-essential-guide/"><u>Warm Salutations in Indonesia: The Essential Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-learning-a-new-language-is-good-for-your-brain/"><u>Why Learning a New Language Is Good for Your Brain</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-master-a-world-language-like-english/"><u>Why Master a World Language Like English?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/symbates-eyxes-kala-morfh-gkreman/"><u>Συμβατές Ευχές Καλά Μορφή Γκρεμάν</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Cultivating a Natural French Accent with Idioms
-date: 2024-07-12T09:06:58.118Z
-updated: 2024-07-13T09:06:58.118Z
+date: 2024-08-15T17:41:33.775Z
+updated: 2024-08-16T17:41:33.775Z
 tags:
   - speak
   - english
@@ -26,6 +26,9 @@ thumbnail: https://thmb.techidaily.com/7ac27936311540a3f6119be289d1db9f62edf4aff
 
  And French, like any other language, is full of such witty insights. Let’s look at some of the most common them.
 
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### _1\. Battre le fer pendant qu’il est chaud._
 
 **Literal translation:** “Strike the iron while it is hot.”
@@ -66,6 +69,9 @@ _– Je ne sais pas si je dois accepter ou pas._ (“I don’t know if I should 
 
  –_La nuit porte conseil._ (“Sleep on it.”)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<!-- affiliate ads end -->
 ### _4\. Comme on fait son lit, on se couche._
 
 **Literal translation:** “You’ve made your bed, now lie on it.”
@@ -139,9 +145,16 @@ _– L’habit ne fait pas le moine._ (“Don’t judge a book by its cover.”)
  – _J’ai 20 minutes de retard au gymnase. Mais mieux vaut tard que jamais._  (“I’m 20 minutes late to the gym. But it’s better to be there late than never.”)
 
 ![french idioms](https://edge.mondly.com/blog/wp-content/uploads/2020/07/french-idioms-960x639.jpg "27 French Sayings And Idioms That Will Make You Sound French-Born 3")
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+</a>
+<!-- affiliate ads end -->
 
  France, Paris
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<!-- affiliate ads end -->
 ### _10\. Aux innocents les mains pleines._
 
 **Literal translation:** “Full hands for the innocents.”
@@ -154,6 +167,10 @@ _– Comment est-ce possible? Sadie a gagné encore une fois !_ (“How is this 
 
 _– Aux innocents les mains pleines._ (“Beginner’s luck”)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+</a>
+<!-- affiliate ads end -->
 ### _11\. Mieux vaut être seul que mal accompagné._
 
 **Literal translation:** “Better alone than in a bad company.”
@@ -188,6 +205,9 @@ _– Voulez-vous savoir ce que j’ai acheté pour l’anniversaire de maman?_ (
 
 _– Shhh ! Les murs ont des oreilles._ (“Shhh! The walls have ears.)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### _14\. Tout est bien qui finit bien._
 
 **Literal translation:** “All’s well that ends well.”
@@ -198,6 +218,9 @@ _– Shhh ! Les murs ont des oreilles._ (“Shhh! The walls have ears.)
 
 _–_   _Je suis tellement content que nous soyons arrivés en France en toute sécurité ! Tout est bien qui finit bien._ (“I’m so glad we got to France safely! All’s well that ends well.”)
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ## French sayings about food and wine
 
  The French are famous for their love for exquisite food and wine. French cuisine is probably one of the most notorious cuisines in the world. So it’s only natural for some of this love to find its way into everyday French sayings.
@@ -214,6 +237,9 @@ _–_   _Je suis tellement content que nous soyons arrivés en France en toute s
 
  –_L’appétit vient en mangeant._ (“Appetite comes with eating.”)
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### _2\. Mangez bien, riez souvent, aimez beaucoup._
 
 **Literal translation:** “Eat well, laugh often, love a lot.”
@@ -244,6 +270,9 @@ _–_   _Je suis tellement content que nous soyons arrivés en France en toute s
 
 _– Ça suffit! Tu racontes des salades !_ (“Enough with that. What you are saying is false!”)
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### _5\. Courir sur le haricot._
 
 **Literal translation:** “To run on the bean.”
@@ -254,6 +283,9 @@ _– Ça suffit! Tu racontes des salades !_ (“Enough with that. What you are s
 
 _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Stop annoying me! You are not winning this bet.”)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<!-- affiliate ads end -->
 ### _6\. La vie est trop courte pour boire du mauvais vin._
 
 **Literal translation:** “Life is too short to drink bad wine.”
@@ -261,6 +293,9 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
 **Actual meaning:** This saying can be used both literally and figuratively. The idea is that life’s too short to do things that you don’t like.
 
 ![funny french expressions](https://edge.mondly.com/blog/wp-content/uploads/2020/07/funny-french-expressions-960x540.jpg "27 French Sayings And Idioms That Will Make You Sound French-Born 5")
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->
 
  “Tigger looking for rats online” by Catherine Heath©
 
@@ -268,6 +303,9 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
 
  Sayings about animals are common in any language. After all, they are our co-residents on this planet and we have quite a lot to learn from them. Here are some of the most common French sayings about animals.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<!-- affiliate ads end -->
 ### _1\. À bon chat, bon rat._
 
 **Literal translation:** “To a good cat, a good rat.”
@@ -280,6 +318,9 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
 
  –_Oui, Xavier est vraiment un adversaire de taille. À bon chat, bon rat._ (“Yes, Xavier is a really good match for him. They are equally matched.”)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### _2\. Les chiens ne font pas des chats._
 
 **Literal translation:** “Dogs don’t make cats.”
@@ -292,6 +333,9 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
 
  – _Oui, les chiens ne font pas des chats. Elle a hérité du talent de sa mère._ (“Yes, dogs don’t make cats. She inherits her mother’s talent.”)
 
+<!-- affiliate ads begin -->
+<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### _3\. Il n’y a pas de quoi fouetter un chat._
 
 **Literal translation:** “There’s no reason to whip the cat.”
@@ -302,6 +346,9 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
 
  “Bonjour!” by Waranya Mooldee©
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### _4\. Poser un lapin._
 
 **Literal translation:** “To place a rabbit.”
@@ -314,6 +361,9 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
 
 **Actual meaning:** If you know someone that “has screw loose” or is a bit crazy, weird, or odd, in French, you can say_il a une araignée au plafond_ (“he is a bit crazy”).
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### _6\. Ce n’est pas la vache qui crie le plus fort qui fait le plus de lait._
 
 **Literal translation:** “It’s not the cow that moos the loudest who gives the most milk.”
@@ -367,3 +417,38 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-unlocking-visual-potential-the-power-of-lut-transformations/"><u>[New] Unlocking Visual Potential  The Power of LUT Transformations</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-master-the-art-of-live-streaming-obs-tips-for-youtube-and-twitch/"><u>[Updated] 2024 Approved  Master the Art of Live Streaming  OBS Tips for YouTube & Twitch</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-the-new-age-of-youtube-branding-ideal-channel-titles-for-video-blogging-limited-to-156-characters/"><u>[Updated] 2024 Approved  The New Age of YouTube Branding  Ideal Channel Titles for Video Blogging (Limited to 156 Characters)</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-best-cutting-edge-tools-for-intro-edits-on-devices/"><u>[Updated] Best Cutting-Edge Tools for Intro Edits on Devices</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-classic-film-aesthetics-masterclass-in-video-production-for-2024/"><u>[Updated] Classic Film Aesthetics  Masterclass in Video Production for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-unleash-your-inner-dj-mixing-tunes-into-tiktok-videos/"><u>[Updated] In 2024, Unleash Your Inner DJ  Mixing Tunes Into TikTok Videos</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-exploration-comparison-gopros-hero5-black-and-sessions/"><u>2024 Approved  Exploration Comparison  GoPro's Hero5 Black & Sessions</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-in-depth-look-at-voice-memo-features-on-your-ios-device/"><u>2024 Approved  In-Depth Look at Voice Memo Features on Your iOS Device</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-understanding-cultural-influences-on-consumer-behavior-in-global-markets/"><u>2024 Approved  Understanding Cultural Influences on Consumer Behavior in Global Markets</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/arctic-acrobatics-2022s-olympians/"><u>Arctic Acrobatics  2022'S Olympians</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-italian-expressions-a-guide-for-smooth-trips/"><u>Essential Italian Expressions: A Guide for Smooth Trips</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580797196-europes-vibrant-verbal-tapestry-celebrate-it-today/"><u>Europe's Vibrant Verbal Tapestry – Celebrate It Today!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fine-tune-your-tongue-top-100-accent-boosting-twisters/"><u>Fine-Tune Your Tongue: Top 100 Accent-Boosting Twisters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-stage-to-street-shakespeares-lasting-lexical-staples/"><u>From Stage to Street: Shakespeare’s Lasting Lexical Staples</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grasping-english-grammar-nuances-top-9-strategies-from-a-lifelong-esl-learner/"><u>Grasping English Grammar Nuances: Top 9 Strategies From a Lifelong ESL Learner</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-did-your-iphone-xs-max-passcode-change-itself-unlock-it-now-drfone-by-drfone-ios/"><u>In 2024, Did Your iPhone XS Max Passcode Change Itself? Unlock It Now | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-friendship-starters/"><u>International Friendship Starters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578838888-introducing-haste-to-learning-urdu-online/"><u>Introducing Haste to Learning Urdu Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-through-vietnam-with-key-phrases-compiled/"><u>Journey Through Vietnam with Key Phrases Compiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lundi-au-vendredi-francais/"><u>Lundi Au Vendredi Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-chat-essential-17-spontaneous-spanish-phrases/"><u>Master Chat: Essential 17 Spontaneous Spanish Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mundo-semanal-en-espanol-no-olvides-desde-martes-hasta-domingo/"><u>Mundo Semanal en Español: No Olvides Desde Martes Hasta Domingo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/no-more-walls-mondly-bridges-linguistic-gaps-in-ukraine/"><u>No More Walls: Mondly Bridges Linguistic Gaps in Ukraine</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/palabras-comunes-en-ingles-y-espanol-cognados-realizadores/"><u>Palabras Comunes en Inglés Y Español: Cognados Realizadores</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/picks-of-the-best-danish-features-for-lingo-proficiency/"><u>Picks of the Best Danish Features for Lingo Proficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revolutionize-language-skills-7-reasons-for-afrikaans-on-mondly/"><u>Revolutionize Language Skills: 7 Reasons for Afrikaans on Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saying-thanks-in-30-languages-an-intercultural-companion-154/"><u>Saying Thanks in 30 Languages: An Intercultural Companion (154)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/stille-hilfe-durch-worte-im-deutschen-kontext/"><u>Stille Hilfe Durch Worte Im Deutschen Kontext</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-brain-benefits-of-learning-a-foreign-language/"><u>The Brain Benefits Of Learning A Foreign Language</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-private-and-business-video-hosting-10-free-options-to-consider/"><u>Updated Private and Business Video Hosting 10 Free Options to Consider</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/words-without-borders-explore-cultures-in-virtual-reality/"><u>Words Without Borders: Explore Cultures in Virtual Reality</u></a></li>
+</ul></div>
