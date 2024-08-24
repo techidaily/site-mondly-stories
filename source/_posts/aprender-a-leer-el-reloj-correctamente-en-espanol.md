@@ -1,7 +1,7 @@
 ---
 title: Aprender a Leer El Reloj Correctamente en Espaňol
-date: 2024-07-12T09:00:23.762Z
-updated: 2024-07-13T09:00:23.762Z
+date: 2024-08-23T00:21:13.211Z
+updated: 2024-08-24T00:21:13.211Z
 tags:
   - speak
   - english
@@ -57,6 +57,9 @@ But first things first.
 
 _**Nota bene:**_ If you prefer to use the 24-hour clock, you should say**_son las dieciséis_** **(“it’s 16:00”)** instead of **_son las cuatro_ (“it’s 4 o’clock p.m.”).** But that will require a little more studying on your part. Don’t worry though. Spanish numbers are just as easy as learning how to tell the time. You can master them with Mondly faster than you can say Jack Robinson. You can get started [here](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5345&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5345?mother%5Flang=en%5Fus?target%5Flang=es&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5345?mother%5Flang=en%5Fus?target%5Flang=es) .
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### How do you say the time in Spanish after 30?
 
  Now, the time is not always on the hour. So how do you say “half past”, “quarter past” and “quarter to” in Spanish? There are only two new words you need to remember:_**media**_ and_**cuarto**_ .
@@ -73,6 +76,9 @@ Here are some examples:
 
 ![telling time in spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/06/telling-time-in-spanish-600x600.jpg "How To Tell Time In Spanish - A Complete Guide For Beginners 3")
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<!-- affiliate ads end -->
  Telling time in Spanish – a visual guide
 
 ### Hour + minutes in Spanish time
@@ -86,6 +92,10 @@ Here are some examples:
 * _Son las ocho y cuarto._ (“it’s a quarter past eight”)
 * _Son las ocho y quince._ (“it’s eight and fifteen minutes”)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Different ways of telling time in Spanish
 
  There are three formulas of telling time in Spanish. Here are different ways of telling it’s 3:10:
@@ -96,6 +106,9 @@ Here are some examples:
 
  Which one do you prefer? Additionally, if we also count it_cuarto_ and_media_ , there are no less than four different ways to tell the time in Spanish. And you’ve just mastered them all!
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<!-- affiliate ads end -->
 ## How to indicate the time of day in Spanish
 
  If you are using the 12-hour clock, you sometimes might want to also point out the time of day. For instance, “it’s two in the afternoon” translates to_**son las dos de la tarde**_ in Spanish. Not too complicated, is it? Here are some more times of day that might come in handy:
@@ -110,6 +123,9 @@ Here are some examples:
 
  To indicate that an event occurs at a specific time, use the formula **a +_la(s)_ \+ time** :_La clase de español empieza a las nueve_ – “The Spanish class begins at 9”.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Other useful time phrases in Spanish
 
 * _por la mañana_ – in the morning
@@ -145,6 +161,9 @@ Here are some examples:
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Speak Spanish fluently in just 10 minutes a day
 
  Do you want to [speak Spanish fluently](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) fast? Get Mondly, the award-winning language learning app that will help you speak Spanish as if you were Spanish-born.
@@ -173,3 +192,53 @@ Here are some examples:
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-lessons.techidaily.com/new-chinas-economical-virtual-reality-options/"><u>[New] China's Economical Virtual Reality Options</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-digital-distortion-made-simple-for-creative-minds/"><u>[New] In 2024, Digital Distortion Made Simple for Creative Minds</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-make-every-gaming-moment-count-top-5-ways-to-record-in-minecraft-on-a-mac/"><u>[New] Make Every Gaming Moment Count  Top 5 Ways to Record in Minecraft on a Mac</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-innovating-for-success-metaverse-sales-strategies/"><u>2024 Approved  Innovating for Success  Metaverse Sales Strategies</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-pivotal-understanding-of-internet-fables/"><u>2024 Approved  Pivotal Understanding of Internet Fables</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-ultimate-community-dos-and-donts-for-youtubers/"><u>2024 Approved  Ultimate Community Dos and Don'ts for Youtubers</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/7-ways-to-unlock-a-locked-honor-play-7t-phone-by-drfone-android/"><u>7 Ways to Unlock a Locked Honor Play 7T Phone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/effortlessly-create-a-cross-platform-conversation-space-on-skype-a-detailed-manual-for-users-of-all-os-platforms/"><u>Effortlessly Create a Cross-Platform Conversation Space on Skype  A Detailed Manual for Users of All OS Platforms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grateful-words-across-borders-say-thank-you-in-30-languages-156/"><u>Grateful Words Across Borders: Say Thank You in 30 Languages (156)</u></a></li>
+<li><a href="https://techidaily.com/how-to-hard-reset-motorola-g54-5g-without-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Hard Reset Motorola G54 5G Without Password | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/how-to-mute-people-on-google-meet-video-call-for-2024/"><u>How to Mute People on Google Meet Video Call for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-take-your-english-to-the-next-level/"><u>How to Take Your English to the Next Level</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hungarian-eloquent-gestures-for-expressing-adoration/"><u>Hungarian Eloquent Gestures for Expressing Adoration</u></a></li>
+<li><a href="https://review-topics.techidaily.com/identify-malfunctioning-your-drivers-with-windows-device-manager-on-windows-7-by-drivereasy-guide/"><u>Identify malfunctioning your drivers with Windows Device Manager on Windows 7</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/intercultural-expression-essentials/"><u>Intercultural Expression Essentials</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introduction-to-the-german-phonetic-system/"><u>Introduction to The German Phonetic System</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-charms-teaching-made-enjoyable/"><u>Latin Charms: Teaching Made Enjoyable</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-bulgarian-in-dashes-10-minute-sessions/"><u>Learn Bulgarian in Dashes - 10-Minute Sessions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-the-art-of-english-mondlys-blueprint/"><u>Master the Art of English: Mondly's Blueprint</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-latin-the-least-complicated-method-online/"><u>Mastering Latin: The Least Complicated Method Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-crowned-at-2021-witsas-ict-summit/"><u>Mondly Crowned at 2021 WITSA's ICT Summit</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-fuses-with-pearson-knowledge-collective/"><u>Mondly Fuses with Pearson Knowledge Collective</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-unveils-revolutionary-vr-language-learning-experience/"><u>Mondly Unveils: Revolutionary VR Language Learning Experience!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/no-more-excuses-learn-any-language-today/"><u>No More Excuses - Learn Any Language Today!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/partes-del-cuerpo-de-la-cabeza-a-los-pies-en-espanol/"><u>Partes Del Cuerpo: De La Cabeza A Los Pies En Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pearson-your-gateway-to-international-communication/"><u>Pearson: Your Gateway to International Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-latvian-lessons-achieve-proficiency-fast/"><u>Quick Latvian Lessons - Achieve Proficiency Fast</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revelations-in-farsi-history-benefits-abound/"><u>Revelations in Farsi History, Benefits Abound</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/say-ciao-right-top-10-italian-welcoming-phrases-unveiled/"><u>Say 'Ciao!' Right: Top 10 Italian Welcoming Phrases Unveiled</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplified-approach-to-delete-digital-dialogue-on-fb/"><u>Simplified Approach to Delete Digital Dialogue on Fb</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spaniards-tongue-versus-luso-speech-a-romance-comparison/"><u>Spaniard's Tongue Versus Luso Speech: A Romance Comparison</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-francophiles-handbook-essential-french-speak-skills/"><u>The Francophile's Handbook: Essential French Speak Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-hungarian-way-to-declare-your-heart/"><u>The Hungarian Way to Declare Your Heart</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-innate-ability-of-children-to-learn-multiple-languages/"><u>The Innate Ability of Children to Learn Multiple Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-secrets-of-speed-learn-czech-with-digital-aids/"><u>The Secrets of Speed: Learn Czech with Digital Aids</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-english-contractions/"><u>The Ultimate Guide To English Contractions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-sayings-and-phrases-guide-for-australians/"><u>The Ultimate Sayings and Phrases Guide for Australians</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-asian-linguistic-varieties-easy-reordering/"><u>Top Asian Linguistic Varieties: Easy Reordering</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transatlantic-communication-unraveling-differences/"><u>Transatlantic Communication: Unraveling Differences</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/turko-korean-discourse-dynamics/"><u>Turko-Korean Discourse Dynamics</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-samsung-galaxy-s23plus-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Samsung Galaxy S23+ IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/two-years-of-mondly-languages-we-had-a-dream-a-great-dream/"><u>Two Years Of Mondly Languages - We Had A Dream. A Great Dream.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukranian-language-skills-upgrade-in-minutes-a-day-106-chars/"><u>Ukranian Language Skills Upgrade in Minutes a Day (106 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/uniting-people-for-10-years-mondlys-story/"><u>Uniting People for 10 Years - Mondly’s Story</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-communication-potential-with-mondly-top-10-ways-for-success/"><u>Unlocking Communication Potential with Mondly - Top 10 Ways for Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/year-of-linguistics-cut-costs-by-95-today/"><u>Year of Linguistics? Cut Costs by 95%% Today!</u></a></li>
+</ul></div>

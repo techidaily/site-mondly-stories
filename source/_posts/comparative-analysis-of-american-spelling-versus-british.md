@@ -1,7 +1,7 @@
 ---
 title: Comparative Analysis of American Spelling Versus British
-date: 2024-07-12T09:01:11.909Z
-updated: 2024-07-13T09:01:11.909Z
+date: 2024-08-23T00:20:24.951Z
+updated: 2024-08-24T00:20:24.951Z
 tags:
   - speak
   - english
@@ -63,6 +63,9 @@ thumbnail: https://thmb.techidaily.com/0ca2747bace885998e167d601fb15c3166c8be683
 
  Previous  Next
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Spellings differences: is it “colour” or “color”?
 
  That’s simple! “Colour” is the British spelling and “color” is the American spelling. Always remember that, when it comes to spelling, American English uses a simplified version. The explanation goes back to 1828 when Noah Webster wrote the first American dictionary –_An American Dictionary of the English Language._ Webster said he chose alternative spellings that were already in use in the United States “on such grounds as simplicity, analogy or etymology”.
@@ -95,12 +98,18 @@ thumbnail: https://thmb.techidaily.com/0ca2747bace885998e167d601fb15c3166c8be683
 
  Although spelling, accent, and vocabulary differences are the most notorious distinctions, American English and British English are divergent in some [grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) matters as well.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Collective nouns
 
  In American English, collective nouns such as “band”, “team”, “family” or “crew” are considered plural. In contrast, British English considers collective nouns either singular or plural, but more often plural as a way to emphasize the members of the group.
 
  Thus, while**“The band is playing”** in the US, in the UK**“The band are playing”** . Likewise, if I’m in the US,**“My team is winning”** . But if I’m in the UK,**“My team are winning”** .
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ### Learned or learnt?
 
 **Learned** and**learnt** are both the correct past participle and past tense forms of the verb “to learn”. Easily overlooked in speech, but much more obvious in writing, this subtle difference addresses verbs.
@@ -115,6 +124,9 @@ thumbnail: https://thmb.techidaily.com/0ca2747bace885998e167d601fb15c3166c8be683
 
 **American English:** get – got – gotten
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Tenses
 
  While Brits tend to use the present perfect tense to describe something that has recently occurred, Americans usually go with the past simple tense.
@@ -127,6 +139,9 @@ thumbnail: https://thmb.techidaily.com/0ca2747bace885998e167d601fb15c3166c8be683
 
 ![british american english](https://edge.mondly.com/blog/wp-content/uploads/2020/06/british-american-english-600x600.jpg "British English Vs American English Differences: Spelling, Pronunciation And More 3")
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<!-- affiliate ads end -->
  British English vs American English
 
 ### Other grammar differences
@@ -141,6 +156,18 @@ thumbnail: https://thmb.techidaily.com/0ca2747bace885998e167d601fb15c3166c8be683
 
  American accent is rhotic and Americans pronounce their “R’s” loud and clear. On the other hand, the British accent is non-rhotic and Brits usually replace their “R’s” with “H’s”. Thus, words like “water” or “card” will be pronounced_wa-tuh_ or_caahd_ .
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## British vs American: which one should you learn and use?
 
  It doesn’t matter whether you learn British English or American English. There is no such thing as “the best English”. Learn whichever you feel and like. Of course, if you intend to move to the United States, it is best to study and get used to the American accent.
@@ -184,3 +211,46 @@ thumbnail: https://thmb.techidaily.com/0ca2747bace885998e167d601fb15c3166c8be683
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-a-comprehensive-guide-to-building-facebook-slideshow-mastery/"><u>[New] 2024 Approved  A Comprehensive Guide to Building Facebook Slideshow Mastery</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-sky-high-explorations-made-simple-a-compreenasive-review-of-dji-sparks-miniature-drone-design/"><u>[Updated] Sky High Explorations Made Simple  A Compreenasive Review of DJI Spark's Miniature Drone Design</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-embedding-your-pre-recorded-video-in-a-live-facebook-showcase/"><u>2024 Approved  Embedding Your Pre-Recorded Video in a Live Facebook Showcase</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-skype-the-top-10-audio-capture-tools/"><u>2024 Approved  Skype  The Top 10 Audio Capture Tools</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/activate-twitchs-double-security-layer-the-ultimate-2fa-setup-tutorial/"><u>Activate Twitch's Double Security Layer: The Ultimate 2FA Setup Tutorial</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-motorola-moto-g84-5g-device-sim-by-drfone-android/"><u>Easily Unlock Your Motorola Moto G84 5G Device SIM</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/get-fluent-in-slovak-one-ten-minute-session-at-a-time/"><u>Get Fluent in Slovak, One Ten-Minute Session at a Time</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gratitude-in-mandarin-mastering-xiexie-and-more/"><u>Gratitude in Mandarin: Mastering Xièxiè and More</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-fix-oem-unlock-missing-on-samsung-galaxy-s24plus-by-drfone-android/"><u>In 2024, How To Fix OEM Unlock Missing on Samsung Galaxy S24+?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-anything-from-tecno-camon-20-premier-5g-to-apple-tv-drfone-by-drfone-android/"><u>In 2024, How To Stream Anything From Tecno Camon 20 Premier 5G to Apple TV | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-radiant-palette-adjuster/"><u>In 2024, Radiant Palette Adjuster</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/innovation-in-learning-mondly-and-apple-collaboration/"><u>Innovation in Learning: Mondly & Apple Collaboration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-bridges-globally-with-mondlys-7-year-success-story/"><u>Language Bridges Globally with Mondly's 7-Year Success Story</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-to-speak-like-a-native-ru-letter-pronunciations/"><u>Learn to Speak Like a Native: RU Letter Pronunciations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lettura-intermedia-di-numeri-italiani-da-1-a-migliaia/"><u>Lettura Intermedia Di Numeri Italiani: Da 1 a Migliaia</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/main-tongue-in-croatia/"><u>Main Tongue in Croatia</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-workplace-communication-your-ultimate-linguistic-journey/"><u>Mastering Workplace Communication: Your Ultimate Linguistic Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-merges-with-pearson-edu-connectivity/"><u>Mondly Merges With Pearson Edu-Connectivity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-the-gateway-to-fluent-communication/"><u>Mondly: The Gateway to Fluent Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-dynamic-approach-unveils-the-best-of-afrikaans-learning-in-just-7-points/"><u>Mondly’s Dynamic Approach Unveils the Best of Afrikaans Learning in Just 7 Points</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-integration-with-pearson-for-superior-buttons/"><u>Mondly's Integration with Pearson For Superior Buttons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/norwegian-prosperity-in-quick-regular-doses/"><u>Norwegian Prosperity in Quick, Regular Doses!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pitch-perfect-proficiency-music-as-a-language-learning-aid/"><u>Pitch-Perfect Proficiency: Music as a Language Learning Aid</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/study-the-russian-alphabet-pronunciation/"><u>Study The Russian Alphabet Pronunciation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sweet-german-sentiments-romantic-talk-techniques/"><u>Sweet German Sentiments: Romantic Talk Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swift-progress-to-japanese-numerical-fluency/"><u>Swift Progress to Japanese Numerical Fluency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swift-syntax-and-vocabul-written-by-user/"><u>Swift Syntax and Vocabul Written by User</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/taste-the-world-translating-chocolate-in-30-languages/"><u>Taste the World: Translating 'Chocolate' In 30 Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-intricacies-of-grammar-in-learning-languages/"><u>The Intricacies of Grammar in Learning Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-path-to-fluency-unveil-8-superior-benefits-of-learning-hindi-online-with-mondly/"><u>The Path to Fluency: Unveil 8 Superior Benefits of Learning Hindi Online with Mondly!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-language-test-mastering-the-most-difficult-ones/"><u>The Ultimate Language Test: Mastering the Most Difficult Ones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-wisdom-of-age-and-multilingualism-four-crucial-advantages-in-your-late-forties/"><u>The Wisdom of Age and Multilingualism: Four Crucial Advantages in Your Late Forties</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-deep-emotions-in-hungarian-speech/"><u>Understanding Deep Emotions in Hungarian Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-turkish-language-learning-a-concise-alphabet-and-pronunciation-guide/"><u>Unlocking Turkish Language Learning: A Concise Alphabet & Pronunciation Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/verbal-virtuosos-pinnacle-language-programs-await/"><u>Verbal Virtuosos: Pinnacle Language Programs Await</u></a></li>
+<li><a href="https://howto.techidaily.com/want-to-uninstall-google-play-service-from-realme-11-pro-here-is-how-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Want to Uninstall Google Play Service from Realme 11 Pro? Here is How | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/which-language-is-widely-used-by-israelis/"><u>Which Language Is Widely Used by Israelis?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-learn-croatian-discover-its-advantages-and-how-to-start-now/"><u>Why Learn Croatian? Discover Its Advantages and How To Start Now</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ye-artful-jargon-unlocking-pirate-slang-and-vocabulary/"><u>Ye Artful Jargon: Unlocking Pirate Slang and Vocabulary</u></a></li>
+</ul></div>

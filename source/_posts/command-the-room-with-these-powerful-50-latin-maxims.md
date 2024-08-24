@@ -1,7 +1,7 @@
 ---
 title: Command the Room with These Powerful 50 Latin Maxims
-date: 2024-07-12T09:02:37.218Z
-updated: 2024-07-13T09:02:37.218Z
+date: 2024-08-23T00:18:56.625Z
+updated: 2024-08-24T00:18:56.625Z
 tags:
   - speak
   - english
@@ -32,6 +32,9 @@ These are nearly as famous as Julius Caesar himself.
 
  Another Latin phrase said by Julius Caesar upon crossing the Rubicon to enter Italy and begin the long civil war against Pompey and the Optimates. The meaning of this phrase refers to the point of no return.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **Carpe diem. —** _Seize the day._
 
  Probably the most popular Latin phrase of modern times. Luckily, we have an even better one:_carpe vinum_ . Literally ‘seize the wine’. The only Latin phrase you’ll ever need on a Friday night out. And speaking of night, you should also remember the_carpe noctem_ variation which literally translates to ‘seize the night’. Either way, the general meaning is to make the most of everything.
@@ -42,6 +45,9 @@ These are nearly as famous as Julius Caesar himself.
 
  What Descartes doesn’t know is that nowadays people prefer the_bibo, ergo sum_ version which literally means “I drink, therefore I am”.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<!-- affiliate ads end -->
 ### **In vino veritas. —_In wine, there is truth._**
 
  Be careful if you_carpe vinum_ on that Friday night out we talked about. This Latin saying suggests that you’ll probably spill all your secrets if you drink too much alcohol.
@@ -52,6 +58,9 @@ These are nearly as famous as Julius Caesar himself.
 
  That scene is very tragic indeed, but nowadays, the phrase can be used jokingly to condemn a friend’s change of heart.
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **Acta, non verba. —** _Deeds, not words._
 
  Similar to_res, non verba_ , the English equivalent of this phrase is “actions speak louder than words”. In other words, act upon it or always follow your declarations with actions.
@@ -64,6 +73,9 @@ These are nearly as famous as Julius Caesar himself.
 
  Using some Latin phrases here and there will automatically make you look smarter.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ## Common Latin Words & Sayings
 
 * **Ad hominem —** _To the person_
@@ -128,6 +140,9 @@ Every student’s favorite. We all know what this one means, don’t we?
 
 ![in vino veritas](https://edge.mondly.com/blog/wp-content/uploads/2021/07/in-vino-veritas-960x640.jpg "50 Popular Latin Phrases To Impress Your Friends 7")
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
  “In vino veritas” by Daniel Vogel©
 
 ## Cool Latin that are still used today
@@ -158,6 +173,9 @@ Get ready to bring your Roman alter ego to life in 3… 2… 1\. Go!
 
 ![common latin phrases](https://edge.mondly.com/blog/wp-content/uploads/2021/07/common-latin-phrases-960x720.jpg "50 Popular Latin Phrases To Impress Your Friends 8")
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
  “Laughing” by Peter Lloyd©
 
 * **Nemo saltat sobrius.** —_Nobody dances sober._
@@ -256,6 +274,9 @@ Different phrase, same story. You’re welcome.
 
 ![latin words](https://edge.mondly.com/blog/wp-content/uploads/2021/07/latin-words-960x640.jpg "50 Popular Latin Phrases To Impress Your Friends 9")
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
  “Roman statue” by engin akyurt©
 
 ## Latin Words and Phrases for Love
@@ -294,6 +315,9 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 
  Latin words are used in law because of the historical influence Roman law has on the legal system of many countries. As the lingua franca of the Roman Empire, Latin not only shaped the empire's legal constructs but also left a lasting imprint on the evolution of legal systems, especially within Europe. As Roman law became the foundation for many modern legal codes, Latin legal words were passed on throughout history until the present day. This incorporation of Latin words in law ensures a degree of precision and continuity, bridging legal concepts across different eras and jurisdictions.
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Why are Latin words powerful?
 
  Latin words are perceived as powerful most probably in relation to the Roman Empire, a civilization of immense historical influence and achievement. Additionally, Latin words may be considered powerful thanks to their ability to convey complex legal, scientific, and philosophical concepts succinctly. Their use in various specialized fields has endowed them with a sense of authority and timelessness, allowing for clear and unambiguous communication across different languages and cultures.
@@ -305,6 +329,10 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 ### Speak Latin like Julius Caesar
 
  The Latin language is no longer is secret code meant only for scholars or the Catholic Church. Starting right now, you can learn Latin with Mondly using bite-sized lessons and practical topics to help you discover how Romans conversed in their day-to-day life.
@@ -333,3 +361,65 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-step-into-professional-mac-audio-recording-a-complete-audacity-course/"><u>[New] 2024 Approved  Step Into Professional Mac Audio Recording  A Complete Audacity Course</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-heroblack-vs-yi-4k-updates-gopro-and-yi-showcase-their-best/"><u>[New] HeroBlack Vs. Yi 4K Updates - GoPro and Yi Showcase Their Best</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-transform-djis-sky-artistry-20-free-color-filters-offer/"><u>[New] Transform DJI's Sky Artistry  20 Free Color Filters Offer</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-breathtaking-lyric-videos-made-easy-by-lyric-video-maker/"><u>[Updated] 2024 Approved  Breathtaking Lyric Videos Made Easy by Lyric Video Maker</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-crafting-the-perfect-binge-worthy-mukbang-experience/"><u>[Updated] 2024 Approved  Crafting the Perfect Binge-Worthy Mukbang Experience</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-unveiling-the-most-reliable-9-mic-devices-for-recording/"><u>[Updated] 2024 Approved  Unveiling the Most Reliable 9 Mic Devices for Recording</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-affordable-path-to-4k-top-budget-cameras-(1k/"><u>[Updated] Affordable Path to 4K  Top Budget Cameras (<$1K)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-from-zero-to-hero-boosting-youtube-view-count-quickly/"><u>[Updated] From Zero to Hero  Boosting YouTube View Count Quickly</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtubes-best-practices-amplifying-video-and-audio-clarity/"><u>2024 Approved  YouTube's Best Practices  Amplifying Video and Audio Clarity</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-chrome-crashes-or-wont-open-on-poco-x6-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Chrome Crashes or Wont Open on Poco X6 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-why-tech-enthusiasts-are-raving-about-lgs-stunning-65-inch-oled-c9-smart-television/"><u>Discover Why Tech Enthusiasts Are Raving About LG's Stunning 65-Inch OLED C9 Smart Television!</u></a></li>
+<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-vivo-v29e-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your Vivo V29e Location Settings | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-your-gigabyte-nic-drivers-here-immediate-download-available/"><u>Get Your Gigabyte NIC Drivers Here - Immediate Download Available!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/groundbreaking-guide-to-arabic-rookies/"><u>Groundbreaking Guide to Arabic Rookies</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/guide-to-address-high-resource-usage-from-microsoft-telemetry-on-windows-11-devices/"><u>Guide to Address High Resource Usage From Microsoft Telemetry on Windows 11 Devices</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-asus-rog-phone-7-ultimate-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Asus ROG Phone 7 Ultimate For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-error-495-while-downloadupdating-android-apps-on-samsung-galaxy-m14-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Error 495 While Download/Updating Android Apps On Samsung Galaxy M14 4G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-learn-norwegian-bokmal-fast-in-just-10-minutes-a-day/"><u>How to Learn Norwegian (Bokmål) Fast in Just 10 Minutes a Day</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/how-to-make-a-memorable-honeymoon-video/"><u>How to Make a Memorable Honeymoon Video</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-track-imei-number-of-samsung-galaxy-a34-5g-through-google-earth-by-drfone-android/"><u>In 2024, How To Track IMEI Number Of Samsung Galaxy A34 5G Through Google Earth?</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-virtual-ventures-discovering-the-best-in-action-adventure-classics-top-10/"><u>In 2024, Virtual Ventures – Discovering the Best in Action-Adventure Classics (Top 10)</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On Poco C65? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/inside-mondlys-educational-process/"><u>Inside Mondly's Educational Process</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-cheers-to-independence-day/"><u>International Cheers to Independence Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-global-speech-functionality-in-oculus-quest-via-mondly/"><u>Introducing Global Speech Functionality in Oculus Quest via Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introduction-a-la-physiologie-parts-of-the-body-en-francais/"><u>Introduction À La Physiologie: Parts of the Body en Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jumpstart-your-croatian-experience-heres-the-7-reason-guide/"><u>Jumpstart Your Croatian Experience - Here's the 7-Reason Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-czech-fast-top-rated-online-language-apps/"><u>Learn Czech Fast: Top-Rated Online Language Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-bridge-crossing-with-top-10-easy-speak/"><u>Linguistic Bridge: Crossing with Top 10 Easy-Speak</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-leaps-and-bounds-3-neurologically-supported-activities/"><u>Linguistic Leaps and Bounds: 3 Neurologically Supported Activities</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-basic-numbers-in-spanish/"><u>Mastering Basic Numbers in Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-the-language-of-thanksgiving-key-phrases/"><u>Mastering the Language of Thanksgiving: Key Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-kids-excellence-google-plays-best-list-of-2017/"><u>Mondly Kids Excellence, Google Play’s Best List of 2017</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-launches-virtual-reality-for-learning-languages-powered-by-chatbots/"><u>Mondly Launches Virtual Reality for Learning Languages, Powered by Chatbots</u></a></li>
+<li><a href="https://win-dash.techidaily.com/pasos-faciles-para-la-instalacion-offline-de-controladores-en-sistemas-operativos-windows/"><u>Pasos Fáciles Para La Instalación Offline De Controladores en Sistemas Operativos Windows</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pearson-engage-in-languages-worldwide/"><u>Pearson Engage in Languages Worldwide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pinnacle-languages-certifications-and-effective-preparation/"><u>Pinnacle Languages Certifications & Effective Preparation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polyphonic-proficiency-tunes-to-build-bilingual-brains/"><u>Polyphonic Proficiency: Tunes to Build Bilingual Brains</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/preparing-for-your-israeli-sojourn-5-tips-and-language-basics/"><u>Preparing for Your Israeli Sojourn: 5 Tips & Language Basics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pronunciation-pathway-comparison-of-canadian-british-and-american-accents/"><u>Pronunciation Pathway: Comparison of Canadian, British & American Accents</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/quick-guide-extracting-specific-segments-from-youtube-for-2024/"><u>Quick Guide  Extracting Specific Segments From YouTube for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/romania-on-your-fingertips-language-learning-app/"><u>Romania on Your Fingertips: Language Learning App</u></a></li>
+<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/soviet-era-influences-on-uk-and-rus-speech/"><u>Soviet-Era Influences on Uk & Rus Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-a-pro-in-latvia-the-quick-learners-way/"><u>Speak Like a Pro in Latvia: The Quick Learner's Way</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-locals-learn-korean-of-squid-game/"><u>Speak Like Locals: Learn Korean of Squid Game</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-into-a-multilingual-universe-with-mondlys-cutting-edge-vr-app/"><u>Step Into a Multilingual Universe with Mondly's Cutting-Edge VR App</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/streamline-conversations-the-chatgpt-folder-methodology/"><u>Streamline Conversations: The ChatGPT Folder Methodology</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/the-dusk-drawers-of-microsoft-paint/"><u>The Dusk Drawers of Microsoft Paint</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-speaking-scale-of-asia-preeminent-trimodal/"><u>The Speaking Scale of Asia: Preeminent Trimodal</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/top-12-prominent-xiaomi-redmi-note-13-5g-fingerprint-not-working-solutions-by-drfone-android/"><u>Top 12 Prominent Xiaomi Redmi Note 13 5G Fingerprint Not Working Solutions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-25-german-idioms-to-speak-like-a-germanback-buttonfilter-button/"><u>Top 25 German Idioms To Speak Like A GermanBack ButtonFilter Button</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-speech-patterns-a-guide-to-french-idioms/"><u>Transform Speech Patterns: A Guide to French Idioms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukraine-and-russias-linguistic-similarities-unveiled/"><u>Ukraine and Russia's Linguistic Similarities Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-and-learning-basic-german-pronunciation/"><u>Understanding & Learning Basic German Pronunciation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-the-secrets-of-swashbuckling-terminology/"><u>Unlock the Secrets of Swashbuckling Terminology</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vr-enabled-language-education-takes-off-with-mondlys-new-app/"><u>VR-Enabled Language Education Takes Off with Mondly's New App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/which-are-the-most-studied-foreign-languages-in-americaback-buttonfilter-button/"><u>Which Are The Most Studied Foreign Languages In America?Back ButtonFilter Button</u></a></li>
+</ul></div>

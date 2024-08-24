@@ -1,7 +1,7 @@
 ---
 title: Cross-Border Linguistic Ties - Ukraine vs Russia
-date: 2024-07-12T09:03:36.205Z
-updated: 2024-07-13T09:03:36.205Z
+date: 2024-08-23T00:17:57.119Z
+updated: 2024-08-24T00:17:57.119Z
 tags:
   - speak
   - english
@@ -51,6 +51,9 @@ thumbnail: https://thmb.techidaily.com/8b67706e31655f0953b2b0f57cda2cba952e36287
 
  As a result of Ukraine’s centuries-long political subordination, Ukrainian had almost no literary expression until de 18th century when the modern literary Ukrainian language was born.
 
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The Russian language – a short history
 
  Russian, known as Русский язык (romanized:_Russkiy yazyk_) to Russians, is the official language of Russia, Belarus, Kazakhstan, and Kyrgyzstan and it is also used as a second language in other former Soviet countries. Additionally, Russian is one of the six official United Nations languages and the 8th most spoken language in the world with a total of 260 million speakers.
@@ -63,6 +66,9 @@ thumbnail: https://thmb.techidaily.com/8b67706e31655f0953b2b0f57cda2cba952e36287
 
  Later, the Soviet period brought Russian worldwide prestige which declined after the 1991 collapse. Despite each USSR constituent republic having its own official language, Russian had a unified role and superior status. This is why there are so many people speaking Russian outside Russia.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## How similar are Ukrainian and Russian?
 
  The misconception that Russian and Ukrainian are the same sometimes stems from the fact that Russian is widely spoken in Ukraine. The numbers can differ slightly according to various sources, but it’s generally agreed that 60% of Ukrainians consider Ukrainian their native language, while 15% consider Russian to be their native language. Moreover, 22% consider both to be their native languages.
@@ -73,18 +79,30 @@ thumbnail: https://thmb.techidaily.com/8b67706e31655f0953b2b0f57cda2cba952e36287
 
 !['Russian language' by Dimitry B©](https://edge.mondly.com/blog/wp-content/uploads/2022/03/russian-language-960x639.jpg "Ukrainian And Russian: How Similar Are These Two Languages? 5")
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Since most Ukrainian speakers also speak Russian or have extensive exposure to it, ‘asymmetric intelligibility’ is the best term to describe the relationship between the two languages. In other words, Ukrainian speakers can often understand Russian, while Russian speaker doesn’t understand Ukrainian, especially Russian speakers from outside Ukraine.
 
  However, all three languages – Ukrainian, Russian and Belarusian – are in part mutually intelligible, and already knowing one can help a lot if you want to learn one of the others.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How different are Ukrainian and Russian?
 
  Now that we’ve explained the history behind Ukrainian and Russian, it’s time to look at some more practical examples. A 62% lexical similarity may sound like a lot, but these two languages are not as similar as many might think. Here are some of the most important differences between Russian and Ukrainian.
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Alphabet
 
  Both Ukrainian and Russian use the 33-letter [Cyrillic alphabet](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , but there are four letters in Ukrainian missing from Russian (ґ, є, і, ї), and four letters in Russian missing from Ukrainian (ё, ъ, ы, э).
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Vocabulary
 
  Learning Russian thinking you will easily understand Ukrainian it’s not a great strategy. While they share a lot of words, some of them are ‘false friends’ and can mean completely different things:
@@ -169,3 +187,47 @@ thumbnail: https://thmb.techidaily.com/8b67706e31655f0953b2b0f57cda2cba952e36287
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-the-ultimate-guide-to-choosing-a-professional-video-editor-filmora-or-democracy-creator/"><u>[New] 2024 Approved  The Ultimate Guide to Choosing a Professional Video Editor (Filmora or Democracy Creator)</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-unmask-phony-followers-a-speedy-cost-free-approach-for-instagram/"><u>[New] 2024 Approved  Unmask Phony Followers  A Speedy, Cost-Free Approach for Instagram</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-guide-to-the-best-auto-tracking-cameras/"><u>[New] Guide to the Best Auto Tracking Cameras</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-navigating-ig-success-a-guide-to-best-management-tools/"><u>[New] In 2024, Navigating IG Success  A Guide to Best Management Tools</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-nikon-z6i-vs-d7500-in-depth-comparison/"><u>[New] Nikon Z6I vs D7500 In-Depth Comparison</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-imaginedge-coder/"><u>[Updated] ImaginEdge Coder</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-keeping-a-detailed-record-of-every-online-chat-on-fb/"><u>[Updated] In 2024, Keeping a Detailed Record of Every Online Chat on FB</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-top-10-best-romantic-songs-for-proposal/"><u>[Updated] Top 10 Best Romantic Songs for Proposal</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-memorable-images-top-10-best-meme-blueprints/"><u>2024 Approved  Memorable Images  TOP 10 Best Meme Blueprints</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/assessing-different-versions-available-for-windows-movie-maker-for-2024/"><u>Assessing Different Versions Available for Windows Movie Maker for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/essential-guide-the-8-most-popular-apps-to-plan-your-journey-like-a-pro/"><u>Essential Guide: The 8 Most Popular Apps to Plan Your Journey Like a Pro</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/how-to-meet-aspect-ratio-requirements-on-twitter-for-2024/"><u>How to Meet Aspect Ratio Requirements on Twitter for 2024</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/how-to-remove-audio-from-mp4/"><u>How to Remove Audio From MP4</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-from-amateur-to-professional-transform-your-minecraft-recordings-with-mac/"><u>In 2024, From Amateur to Professional  Transform Your Minecraft Recordings with Mac</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-from-vivo-y78-5g-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock from Vivo Y78 5G Devices</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-an-airtag-from-your-apple-id-account-on-apple-iphone-6s-by-drfone-ios/"><u>In 2024, How to Remove an AirTag from Your Apple ID Account On Apple iPhone 6s?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-thanksgiving-day-recognition/"><u>International Thanksgiving Day Recognition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/interstellar-idioms-understanding-the-slang-of-space-characters/"><u>Interstellar Idioms: Understanding the Slang of Space Characters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/intuitive-quick-lesson-mastering-japanese-numbers/"><u>Intuitive Quick Lesson: Mastering Japanese Numbers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mandarin-characters-and-their-usage/"><u>Mandarin Characters and Their Usage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-lithuanian-from-your-computer-screen/"><u>Master Lithuanian From Your Computer Screen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-joins-huaweis-appecosystem/"><u>Mondly Joins Huawei's AppEcosystem</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-milestone-achievement-educating-70-million-learners/"><u>Mondly's Milestone Achievement – Educating 70 Million Learners</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-fake-ids-on-social-networking-sites/"><u>Navigating Through Fake IDs on Social Networking Sites</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/novice-friendly-arabic-language-guide/"><u>Novice-Friendly Arabic Language Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polish-language-jumpstarting-guide/"><u>Polish Language Jumpstarting Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/promoting-intercultural-understanding-through-esl/"><u>Promoting Intercultural Understanding Through ESL</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revolutionize-language-skills-with-our-top-3-learning-platforms/"><u>Revolutionize Language Skills with Our Top 3 Learning Platforms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revolutionizing-buttons-mondlys-partnership-with-pearson/"><u>Revolutionizing Buttons: Mondly's Partnership With Pearson</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-like-a-sea-rogue-20-words-of-the-deep/"><u>Speaking Like a Sea Rogue: 20 Words of the Deep</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-age-defying-advantage-why-learning-languages-at-40plus-is-smart/"><u>The Age-Defying Advantage: Why Learning Languages at 40+ Is Smart</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-path-to-corporate-verbal-mastery-unveiled/"><u>The Path to Corporate Verbal Mastery Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-synaptic-advantages-of-being-bilingual/"><u>The Synaptic Advantages of Being Bilingual</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-language-challenge-mastering-hardest-global-languages/"><u>The Ultimate Language Challenge: Mastering Hardest Global Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/travellers-companion-the-ultimate-guide-of-93-indispensable-phrases/"><u>Traveller's Companion: The Ultimate Guide of 93 Indispensable Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/triple-the-talking-technique-3-mind-power-ways-to-learn-a-new-language/"><u>Triple the Talking Technique: 3 Mind Power Ways to Learn a New Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/turning-annual-objectives-into-tangible-results/"><u>Turning Annual Objectives Into Tangible Results</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-the-intricacies-of-german/"><u>Understanding the Intricacies of German</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/united-nations-of-easter-messages-in-many-tongues/"><u>United Nations of Easter Messages in Many Tongues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-ais-potential-in-education-and-linguistics/"><u>Unveiling AI's Potential in Education & Linguistics</u></a></li>
+</ul></div>

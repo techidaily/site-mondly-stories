@@ -1,7 +1,7 @@
 ---
 title: Building Blocks of Spanish Verbal Forms
-date: 2024-07-12T09:03:26.484Z
-updated: 2024-07-13T09:03:26.484Z
+date: 2024-08-23T00:18:07.098Z
+updated: 2024-08-24T00:18:07.098Z
 tags:
   - speak
   - english
@@ -107,6 +107,9 @@ And the conjugation of comer will look like this:
 
  Keep in mind the fact that the first person singular (_yo_), third person singular (_él, ella_), and second person formal singular (_usted_) forms use tildes on the final letters of the verb endings. And one little tilde can make all the difference in the world! If you don’t know yet how accents work, take a look at our article on **[Spanish accents and how to master them all](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .**
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Spanish Simple Future Tense – Regular Simple Future Verb Endings
 
  In Spanish, there are two ways to form the future tense:**the informal future tense** (the verb_ir_ \+ a + infinitive ->_voy a comer_) and**the simple future tense,** which we will illustrate in this article.
@@ -139,12 +142,22 @@ And the conjugation of comer will look like this:
 * _Vosotros / Vosotras escrib**iréis**_
 * _Ellos / Ellas / Ustedes escrib**irán**_
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ## Spanish verbs: how to master irregular Spanish verbs
 
  Remember how you managed to learn**irregular English verbs** ? Well, there are tricks that you can use, but the truth is that, in time,**irregular Spanish verbs** will just… come to you. No joke. Once you get used to the language and use it all the time, your brain will start making connections.
 
  As you already know,**irregular verbs** are “rebel” verbs that follow no regular set of rules. Statistically, in Spanish, almost all verbs ending in_\-ar_ are regular, almost all verbs ending in_\-er_ are irregular and less than half of all verbs ending in_\-ir_ are irregular. So, let’s disentangle this complicated situation of**irregular Spanish verbs** and look for some patterns to help us learn faster.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Yearly Membership</a>
+<!-- affiliate ads end -->
 ### 1\. Stem-Changing Verbs in Spanish
 
  The easiest type of**irregular verbs in Spanish** are the ones that require stem-changing but keep the regular endings. By the way, the stem of a verb is the result you get when you remove the infinitive suffix (meaning the_\-ar_ ,_\-er_ , or_\-ir_) from the infinitive form. For example, the stems of_deber_ ,_hablar_ and_vivir_ are “deb-“, “habl-” and “viv-“.
@@ -199,6 +212,9 @@ And the conjugation of comer will look like this:
 
 _Adquirir_ (to acquire) and_inquirir_ (to inquire) are just as rebellious because to the final letter “i” of their stem, we will need to add an “e”. Thus, “I acquire” will be “Yo adquiero”.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<!-- affiliate ads end -->
 ### 2\. Spanish verbs with an irregular “yo” form
 
  This category includes two types of verbs:  
@@ -223,6 +239,9 @@ _Adquirir_ (to acquire) and_inquirir_ (to inquire) are just as rebellious becaus
  –_dar_ (to give) –_Yo doy_ ,_Tú das_
  –_ver_ (to see) –_Yo veo_ ,_Tú ves_
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<!-- affiliate ads end -->
 ## Spanish verbs conjugation examples –_ser, estar, ir_
 
  Now that we managed to paint the big picture for both**regular and irregular Spanish verbs** , let’s finish this lesson with some eloquent examples of the most “rebel” verbs of the Spanish language:_ser_ (to be),_estar_ (to be, to be situated) and_ir_ (to go). Here’s the**present tense** ,**preterite tense** , and**future tense conjugation** for each and every one of them:
@@ -317,3 +336,67 @@ Well… this is it! This is our full lesson on**Spanish verbs.**
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-free-gaming-music-archives-no-restrictions/"><u>[New] Free Gaming Music Archives (No Restrictions)</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-how-to-create-insta-highlight-cover-photos-an-ultimate-guide/"><u>[New] How to Create Insta Highlight Cover Photos  An Ultimate Guide</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-windows-11-gamers-guide-to-excellent-game-capturing-for-2024/"><u>[New] Windows 11 Gamers' Guide to Excellent Game Capturing for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-are-youtube-engagement-strategies-justifiable/"><u>[Updated] 2024 Approved  Are YouTube Engagement Strategies Justifiable?</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-loop-lovers-guide-instagrams-best-for-repeat-viewers/"><u>[Updated] 2024 Approved  Loop Lovers Guide  Instagram's Best for Repeat Viewers</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-leading-the-pack-in-instagram-content-crafting-puzzle-feeds-for-2024/"><u>[Updated] Leading the Pack in Instagram Content  Crafting Puzzle Feeds for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-optimizing-game-streams-through-ai-facial-recognition/"><u>[Updated] Optimizing Game Streams Through AI Facial Recognition</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-streamlining-obs-studio-edits-top-5-proven-productivity-hacks-for-2024/"><u>[Updated] Streamlining OBS Studio Edits  Top 5 Proven Productivity Hacks for 2024</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/4-quick-ways-to-transfer-contacts-from-apple-iphone-8-plus-to-iphone-withwithout-itunes-drfone-by-drfone-transfer-from-ios/"><u>4 Quick Ways to Transfer Contacts from Apple iPhone 8 Plus to iPhone With/Without iTunes | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/free-logitech-webcam-driver-installation-guide-for-windows-pcs/"><u>Free Logitech Webcam Driver Installation Guide for Windows PCs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-weekdays-effektives-lernen/"><u>German Weekdays: Effektives Lernen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-gratitude-beyond-the-united-states/"><u>Global Gratitude: Beyond the United States</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/growth-mindset-learning-languages-beyond-fiftys-milestone/"><u>Growth Mindset: Learning Languages Beyond Fifty's Milestone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-tecno-pop-7-pro-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Tecno Pop 7 Pro to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/guide-enduring-chrome-stalls-on-windows-11-using-easy-techniques/"><u>Guide: Enduring Chrome Stalls on Windows 11 Using Easy Techniques</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-change-oneplus-nord-3-5g-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change OnePlus Nord 3 5G Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-learn-french-at-home-the-best-methods-and-resources/"><u>How To Learn French At Home: The Best Methods And Resources</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-a-xiaomi-13t-pro-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Xiaomi 13T Pro Phone That Is Locked | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-reset-gmail-password-on-vivo-y17s-devices-by-drfone-android/"><u>How to Reset Gmail Password on Vivo Y17s Devices</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-google-chrome-from-tracking-your-location-on-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>How to Stop Google Chrome from Tracking Your Location On Realme 12 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/ideal-matches-free-and-paid-ultra-hd-playback-tools-for-windows-macos-for-2024/"><u>Ideal Matches  Free & Paid Ultra HD Playback Tools for Windows, macOS for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-fix-oem-unlock-missing-on-nokia-xr21-by-drfone-android/"><u>In 2024, How To Fix OEM Unlock Missing on Nokia XR21?</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-samsung-ubd-k8500-2023-edition-analysis/"><u>In 2024, Samsung UBD-K8500  2023 Edition Analysis</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-smart-naming-solutions-leading-10-ai-name-generators/"><u>In 2024, Smart Naming Solutions  Leading 10 AI Name Generators</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/inicia-tu-viaje-con-relojes-en-espanol/"><u>Inicia Tu Viaje Con Relojes en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-starry-eyed-for-apples-app/"><u>International Starry Eyed for Apple's App</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/is-the-new-kid-on-the-block-googles-gemini-ai-better-than-chatgpt/"><u>Is the New Kid on the Block, Google's Gemini AI, Better Than ChatGPT?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/italian-etiquette-made-simple-essential-greeting-phrases/"><u>Italian Etiquette Made Simple: Essential Greeting Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/koreas-days-unpacked-a-language-explorers-guide/"><u>Korea's Days Unpacked: A Language Explorer's Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/kulturkompetenz-deutsche-grussformeln-ohne-hallo/"><u>Kulturkompetenz: Deutsche Grußformeln Ohne 'Hallo'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-advantages-deciphering-german-vs-french-usefulness/"><u>Language Advantages: Deciphering German vs French Usefulness</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-hurdles-jump-over-with-top-10-simple-tongues/"><u>Language Hurdles? Jump Over with Top 10 Simple Tongues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/le-squelette-et-le-musculosquelettique-parts-in-french/"><u>Le Squelette Et Le Musculosquelettique: Parts in French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-latvian-online-a-simple-ten-minute-routine/"><u>Learn Latvian Online: A Simple Ten-Minute Routine</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-expressions-of-affection/"><u>Linguistic Expressions of Affection</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/local-talk-made-easy-the-best-17-spoken-spanish-expressions/"><u>Local Talk Made Easy: The Best 17 Spoken Spanish Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/meet-your-ai-companion-revolutionizing-chat/"><u>Meet Your AI Companion: Revolutionizing Chat</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-unlocking-ukraines-language-potential/"><u>Mondly Unlocking Ukraine's Language Potential</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-vr-a-platform-for-practicing-spanish-and-friendship/"><u>Mondly VR: A Platform for Practicing Spanish and Friendship</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-the-googled-editors-favorite-for-language-mastery/"><u>Mondly: The Googled Editors' Favorite for Language Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-march-europes-centennial-celebration-of-tongues/"><u>Multilingual March: Europe’s Centennial Celebration of Tongues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/my-journey-to-fluency-top-10-ways-mondly-shaped-my-studies/"><u>My Journey to Fluency: Top 10 Ways Mondly Shaped My Studies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-new-reads-best-french-novels-for-beginners/"><u>Navigating New Reads: Best French Novels for Beginners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/neues-leben-in-deutschen-zahlen-eine-einfuhrung-ab-1-100/"><u>Neues Leben in Deutschen Zahlen: Eine Einführung Ab 1-100</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/paving-your-path-top-online-methods-to-acquire-new-languages/"><u>Paving Your Path: Top Online Methods to Acquire New Languages</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/pioneering-the-silent-echo-techniques-and-tools-for-gradual-audio-fading-released/"><u>Pioneering the Silent Echo Techniques and Tools for Gradual Audio Fading Released</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/powerful-phraseology-the-most-impactful-50-latin-maxims/"><u>Powerful Phraseology: The Most Impactful 50 Latin Maxims</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/primary-foreign-languages-chosen-by-americans/"><u>Primary Foreign Languages Chosen by Americans</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/simplifying-complex-grammar-rules-a-guide-to-using-english-contractions/"><u>Simplifying Complex Grammar Rules: A Guide To Using English Contractions</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-to-subscriber-success-with-strategic-tactics-for-2024/"><u>Surge to Subscriber Success with Strategic Tactics for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-power-of-learning-english-reasons-and-benefits/"><u>The Power Of Learning English: Reasons And Benefits</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/the-ultimate-camtasia-shortcut-speeding-up-and-slowing-down-videos/"><u>The Ultimate Camtasia Shortcut Speeding Up and Slowing Down Videos</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/top-rated-intelligent-eyewear-a-comprehensive-guide/"><u>Top-Rated Intelligent Eyewear : A Comprehensive Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transcending-borders-with-unitys-easter-words/"><u>Transcending Borders with Unity's Easter Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transcending-linguistic-boundaries-mondly-integration-on-oculus-quest/"><u>Transcending Linguistic Boundaries: Mondly Integration on Oculus Quest</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-tips-unsticking-a-stuck-computing-system/"><u>Troubleshooting Tips: Unsticking a Stuck Computing System</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukrainian-speak-fast-ten-minute-routine-tips-93-chars/"><u>Ukrainian Speak Fast: Ten-Minute Routine Tips (93 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-the-distribution-of-french-linguistic-communities/"><u>Understanding the Distribution of French Linguistic Communities</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/us-and-uk-grammar-variances/"><u>US and UK Grammar Variances</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/wookieese-wisdom-understanding-hutt-language-and-culture/"><u>Wookieese Wisdom: Understanding Hutt Language & Culture</u></a></li>
+</ul></div>

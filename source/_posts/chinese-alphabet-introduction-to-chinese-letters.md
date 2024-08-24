@@ -1,7 +1,7 @@
 ---
 title: "Chinese Alphabet: Introduction To Chinese Letters"
-date: 2024-07-12T09:01:55.195Z
-updated: 2024-07-13T09:01:55.195Z
+date: 2024-08-23T00:19:40.545Z
+updated: 2024-08-24T00:19:40.545Z
 tags:
   - speak
   - english
@@ -78,6 +78,9 @@ thumbnail: https://thmb.techidaily.com/acc116e7f31959c80ee46ff620abee605b240216a
 
  Do we see why it is so crucial for you to pay attention to tones and pronunciation from your very first [Chinese lesson](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ?
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ## How many Chinese Characters does the Chinese alphabet have?
 
  Many people ask this question because they want an overview of how much will they have to study or simply out of curiosity. However, since there is no Chinese alphabet, there is no definite answer. But there are some statistics that will probably give you an idea.
@@ -98,6 +101,9 @@ thumbnail: https://thmb.techidaily.com/acc116e7f31959c80ee46ff620abee605b240216a
 
  All you’ll need to do when working with Pinyin is get English out of your mind. As tempted as you’ll be to pronounce the sounds you already know in a way you are familiar with, don’t forget you are learning Chinese. And Chinese has little to nothing in common to English when it comes to pronunciation.
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How do you learn the Chinese alphabet?
 
  If you do not wish to settle to Pinyin, how do you learn the Chinese alphabet or, better said, the Chinese characters? After all, we can all agree that there is a huge amount of information you need to remember. How do people learn Chinese?
@@ -118,6 +124,9 @@ thumbnail: https://thmb.techidaily.com/acc116e7f31959c80ee46ff620abee605b240216a
 
  Now that you know what to expect if you do decide to learn Chinese, let’s move from theory to practice with a quick Chinese lesson. Here are ten of the most commonly used Chinese characters:
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 的 de – used to indicate possession
 
  这是我**的** 朋友。- _Zhè shì wǒ**de** péngyou_ – This is**my** friend.
@@ -126,32 +135,53 @@ thumbnail: https://thmb.techidaily.com/acc116e7f31959c80ee46ff620abee605b240216a
 
  再来**一** 轮酒！- _Zàilái**yī** lún jiǔ!_ –**One** more round!
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 是 shì – to be (used to link two nouns together)
 
  你**是** 一名旅行者吗？- _Nǐ**shì** yī míng lǚ xíng zhě ma?_ – Are you a tourist?
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 不 bù – not (negative prefix)
 
  今天我**不** 工作。- _Jīntiān wǒ**bù** gōngzuò._ – I am**not** working today.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ### 了 le – modal verb particle
 
  Used to indicate the completion of an activity or the change in a situation. It doesn’t really have an equivalent in English.
 
  现在太晚**了** 。- _Xiànzài tài wǎn**le** ._ – Now it’s not too late.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<!-- affiliate ads end -->
 ### 人 rén – man, person, people
 
  我们的客人是友好的**人** 。- _Wǒmen de kèrén shì yǒuhǎo de**rén** ._ – Our neighbors are nice**people** .
 
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 我 wǒ – I, myself or me
 
 **我** 准备好要点菜了。- _**Wǒ** zhǔnbèi hǎo yàodiǎn càile._ –**I** am ready to order.
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 在 zài – located (at), in
 
  你**在** 哪里生活？- _Nǐ**zài** nǎlǐ shēnghuó?_ – Where do you live?
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 有 yǒu – to have, there is, there are, to exist
 
  你**有** 一张城市地图吗？- _Nǐ**yǒu** yī zhāng chéngshì dìtú ma?_ – Do you**have** a city map?
@@ -193,3 +223,56 @@ thumbnail: https://thmb.techidaily.com/acc116e7f31959c80ee46ff620abee605b240216a
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-essential-tips-for-storing-snapchat-videos-on-devices/"><u>[New] In 2024, Essential Tips for Storing Snapchat Videos on Devices</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-guide-to-make-your-shorts-thumbnail-pop-up/"><u>[Updated] 2024 Approved  Guide to Make Your Shorts' Thumbnail Pop Up</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-28-days-to-becoming-an-instagram-reel-sensation/"><u>[Updated] 28 Days to Becoming an Instagram Reel Sensation</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-enhance-visibility-youtube-thumbnails-made-simple-for-2024/"><u>[Updated] Enhance Visibility  YouTube Thumbnails Made Simple for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-grasp-growth-with-free-fb-extractor-apps-for-2024/"><u>[Updated] Grasp Growth with Free FB Extractor Apps for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-innovative-approaches-to-modify-user-numbers-in-tiktok/"><u>[Updated] In 2024, Innovative Approaches to Modify User Numbers in TikTok</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-pinnacle-5-iphone-apps-for-auditory-escapades/"><u>[Updated] In 2024, Pinnacle 5 iPhone Apps for Auditory Escapades</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-spin-the-story-right-youtube-video-angles-demystified-guide/"><u>[Updated] In 2024, Spin the Story Right  YouTube Video Angles Demystified (Guide)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-incorporating-jump-cuts-for-smoother-edits/"><u>2024 Approved  Incorporating Jump Cuts for Smoother Edits</u></a></li>
+<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-samsung-galaxy-s23-fe-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your Samsung Galaxy S23 FE Location Settings | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-english-variants-unveiling-american-irish-and-indian-tones/"><u>Global English Variants: Unveiling American, Irish, and Indian Tones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/halloween-around-the-world-unique-traditions-and-celebrations/"><u>Halloween Around The World: Unique Traditions And Celebrations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/harnessing-mondlys-full-capabilities-for-success/"><u>Harnessing Mondly's Full Capabilities for Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-take-your-english-to-the-next-level/"><u>How to Take Your English to the Next Level</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-se-2022-to-others-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone SE (2022) to others devices? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hungarian-eloquent-gestures-for-expressing-adoration/"><u>Hungarian Eloquent Gestures for Expressing Adoration</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-best-xiaomi-redmi-note-12-4g-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>In 2024, Best Xiaomi Redmi Note 12 4G Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-innovative-visual-storytelling-applying-advanced-techniques-with-luts-in-after-effects/"><u>In 2024, Innovative Visual Storytelling  Applying Advanced Techniques with LUTs in After Effects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introduction-to-the-german-phonetic-system/"><u>Introduction to The German Phonetic System</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-bulgarian-in-dashes-10-minute-sessions/"><u>Learn Bulgarian in Dashes - 10-Minute Sessions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-the-art-of-english-mondlys-blueprint/"><u>Master the Art of English: Mondly's Blueprint</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-latin-the-least-complicated-method-online/"><u>Mastering Latin: The Least Complicated Method Online</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/maximize-your-use-of-chatgpt-with-its-inbuilt-additional-features-explained/"><u>Maximize Your Use of ChatGPT with Its Inbuilt Additional Features Explained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-brings-you-a-diverse-new-phrasebook/"><u>Mondly Brings You a Diverse New Phrasebook!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-fuses-with-pearson-knowledge-collective/"><u>Mondly Fuses with Pearson Knowledge Collective</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-unveils-revolutionary-vr-language-learning-experience/"><u>Mondly Unveils: Revolutionary VR Language Learning Experience!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/most-chosen-overseas-languages-for-education/"><u>Most Chosen Overseas Languages for Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-grammars-maze-for-learners/"><u>Navigating Grammar's Maze for Learners</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721470583289-no-audio-on-your-apple-device-heres-what-you-can-do/"><u>No Audio on Your Apple Device? Here’s What You Can Do!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/no-more-excuses-learn-any-language-today/"><u>No More Excuses - Learn Any Language Today!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/numbers-unveiled-the-russian-method/"><u>Numbers Unveiled: The Russian Method</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revelations-in-farsi-history-benefits-abound/"><u>Revelations in Farsi History, Benefits Abound</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/say-ciao-right-top-10-italian-welcoming-phrases-unveiled/"><u>Say 'Ciao!' Right: Top 10 Italian Welcoming Phrases Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spaniards-tongue-versus-luso-speech-a-romance-comparison/"><u>Spaniard's Tongue Versus Luso Speech: A Romance Comparison</u></a></li>
+<li><a href="https://howto.techidaily.com/super-easy-ways-to-deal-with-realme-narzo-60-5g-unresponsive-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Super Easy Ways To Deal with Realme Narzo 60 5G Unresponsive Screen | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tecnicas-para-articulacion-de-colores/"><u>Técnicas Para Articulación De Colores</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-francophiles-handbook-essential-french-speak-skills/"><u>The Francophile's Handbook: Essential French Speak Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-hungarian-way-to-declare-your-heart/"><u>The Hungarian Way to Declare Your Heart</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-secrets-of-speed-learn-czech-with-digital-aids/"><u>The Secrets of Speed: Learn Czech with Digital Aids</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-sayings-and-phrases-guide-for-australians/"><u>The Ultimate Sayings and Phrases Guide for Australians</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transatlantic-communication-unraveling-differences/"><u>Transatlantic Communication: Unraveling Differences</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-your-tongue-with-mondlys-techniques/"><u>Transform Your Tongue with Mondly's Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/two-years-of-mondly-languages-we-had-a-dream-a-great-dream/"><u>Two Years Of Mondly Languages - We Had A Dream. A Great Dream.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/uniting-people-for-10-years-mondlys-story/"><u>Uniting People for 10 Years - Mondly’s Story</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-communication-potential-with-mondly-top-10-ways-for-success/"><u>Unlocking Communication Potential with Mondly - Top 10 Ways for Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/us-vs-uk-a-linguistic-comparison/"><u>US vs UK: A Linguistic Comparison</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vocal-varieties-comparing-american-drawl-with-british-cockney-and-australian-swagger/"><u>Vocal Varieties: Comparing American Drawl with British Cockney & Australian Swagger</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/voice-activated-multi-language-the-new-oculus-quest-update-feature/"><u>Voice-Activated, Multi-Language: The New Oculus Quest Update Feature</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/year-of-linguistics-cut-costs-by-95-today/"><u>Year of Linguistics? Cut Costs by 95%% Today!</u></a></li>
+</ul></div>

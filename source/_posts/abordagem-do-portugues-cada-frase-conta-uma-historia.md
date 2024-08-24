@@ -1,7 +1,7 @@
 ---
 title: "Abordagem Do Português: Cada Frase Conta Uma História"
-date: 2024-07-12T08:58:47.327Z
-updated: 2024-07-13T08:58:47.327Z
+date: 2024-08-23T00:22:52.509Z
+updated: 2024-08-24T00:22:52.509Z
 tags:
   - speak
   - english
@@ -30,6 +30,10 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
  Be careful with your Portuguese pronunciation though! A lot of people accidentally mistake Portuguese for Spanish. You don’t want to do that. Just say “OH-lah” and everybody from Brazil to Mozambique will understand that you are saying “hello” in Portuguese.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ### “Hi” in Portuguese – Oi
 
  Friendly and very informal,_Oi!_ is one of the most common ways to greet your friends in Brazil (people from Portugal use it as well, but not as much as_olá)_ . This is how you could greet your mates and close colleagues, but never the people you don’t really know. Don’t stress it tough! When the time comes, you will feel and just know what’s the required Portuguese greeting for that particular situation.
@@ -38,6 +42,9 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
  “Lisbon, Portugal” by Diego García©
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### “How are you” in Portuguese – Tudo bem?
 
  Asking someone how they are doing is probably just as important as saying “hello”. Sometimes you don’t even expect an answer. This is just an even nicer way to greet someone. So let’s see the many ways Portuguese-speaking people ask someone how they are doing depending on the context.
@@ -81,8 +88,15 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ![portuguese greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/08/portuguese-greetings-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 4")
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
  “Ruínas da Fortaleza de Arrifana, Aljezur, Portugal” by Ferhat Deniz Fors©
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 ## Bonus: other basic Portuguese phrases that you should know
 
  Now that you know how to greet in Portuguese, shouldn’t you also master basic words like “yes”, “no” or “thank you” in Portuguese? Let’s kill two birds with one stone and see how a basic conversation in Portuguese should sound like:
@@ -107,6 +121,9 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ![obrigado](https://edge.mondly.com/blog/wp-content/uploads/2019/08/obrigado-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 5")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  “Gruta do Lago Azul, Brazil” by Ademir Alves©
 
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fhello-in-portuguese-basic-portuguese-greetings-you-need%2F&t=Hello+in+Portuguese+and+Other+Basic+Portuguese+Greetings+You+Need+to+Know "Share on Facebook")
@@ -114,6 +131,9 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Here’s how to speak Portuguese in 10 minutes a day
 
  Do you want to practice what you’ve learned and maybe learn some more Portuguese? **Check Mondly, the revolutionary language learning platform that makes language learning fun, fast and easy!**
@@ -148,3 +168,58 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-crafting-captivating-video-narratives-for-youtube-success-for-2024/"><u>[New] Crafting Captivating Video Narratives for YouTube Success for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-essential-tips-for-effective-hashtag-utilization-in-instagram-marketing/"><u>[New] Essential Tips for Effective Hashtag Utilization in Instagram Marketing</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-pic-tastic-top-20-ideas-to-energize-your-feed/"><u>[New] In 2024, Pic-Tastic! Top 20 Ideas to Energize Your Feed</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-rhythms-of-romance-most-beloved-ballads-for-engagement/"><u>[New] In 2024, Rhythms of Romance  Most Beloved Ballads for Engagement</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-swift-simplified-steps-mastering-iphone-screen-recordings-for-2024/"><u>[New] Swift, Simplified Steps  Mastering Iphone Screen Recordings for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-the-ultimate-guide-to-avi-to-gif-transformation-using-filmora-for-both-oses/"><u>[New] The Ultimate Guide to AVI-to-GIF Transformation Using Filmora for Both OSes</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-how-to-secure-continuous-streaming-in-obs/"><u>[Updated] 2024 Approved  How To Secure Continuous Streaming In OBS</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-mastering-social-media-key-apps-for-professional-ig-videographers/"><u>[Updated] 2024 Approved  Mastering Social Media  Key Apps for Professional IG Videographers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-quick-recap-of-chromakey-and-green-screen-processes/"><u>[Updated] Quick Recap of Chromakey and Green Screen Processes</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-illustrator-guide-to-dynamic-text-art/"><u>[Updated] The Illustrator Guide to Dynamic Text Art</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-essentials-of-crafting-impactful-spotify-ads/"><u>2024 Approved  The Essentials of Crafting Impactful Spotify Ads</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ancient-text-contemporary-speech-words-of-william/"><u>Ancient Text, Contemporary Speech: Words of William</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/assemble-creative-gifs-for-online-sharing-for-2024/"><u>Assemble Creative GIFs for Online Sharing for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprendre-lanatomie-du-systeme-nerveux-parts-in-french/"><u>Comprendre L'Anatomie Du Système Nerveux: Parts in French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/croatias-primary-language/"><u>Croatia's Primary Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daily-10-min-urdu-mastery-journey/"><u>Daily 10-Min Urdu Mastery Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/descubre-el-lenguaje-animal-en-iberoamerica/"><u>Descubre El Lenguaje Animal en Iberoamérica</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-why-learning-german-is-essential/"><u>Discover Why Learning German Is Essential</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/feliz-navidad-spanish/"><u>Feliz Navidad (Spanish)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/foreign-influences-on-the-english-language-borrowed-words/"><u>Foreign Influences On The English Language – Borrowed Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-frankish-to-frisian-the-dutch-voyage/"><u>From Frankish to Frisian: The Dutch Voyage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/harmonize-learning-languages-through-science-based-melodies/"><u>Harmonize Learning Languages Through Science-Based Melodies</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-on-honor-70-lite-5g-by-drfone-android/"><u>How to Bypass FRP on Honor 70 Lite 5G?</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/how-to-profit-on-tiktok-the-8-essential-steps-you-need-for-2024/"><u>How to Profit on TikTok  The 8 Essential Steps You Need for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-talk-like-a-pirate-20-pirate-wordsback-buttonfilter-button/"><u>How To Talk Like A Pirate: 20 Pirate WordsBack ButtonFilter Button</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-turn-off-the-screen-lock-on-my-google-by-drfone-android-unlock-android-unlock/"><u>How to turn off the screen lock on my Google</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/impress-native-italians-with-20plus-italian-expressions-and-slang-words/"><u>Impress Native Italians With 20+ Italian Expressions & Slang Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/improve-spanish-connect-socially-via-vr-platforms/"><u>Improve Spanish, Connect Socially via VR Platforms</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-elevating-your-instagram-conversations-an-in-depth-guide/"><u>In 2024, Elevating Your Instagram Conversations  An In-Depth Guide</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-fb-pages-made-simple-top-8-tools-for-free-and-online-use/"><u>In 2024, FB Pages Made Simple  Top 8 Tools for Free & Online Use</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-understanding-facebooks-chat-language-through-its-blue-signature-marker/"><u>In 2024, Understanding Facebook's Chat Language Through Its Blue Signature Marker</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/inicia-tu-voz-en-espanol-con-colores/"><u>Inicia Tu Voz en Español Con Colores</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-movies-that-teach-languages-better/"><u>International Movies That Teach Languages Better</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-leap-the-future-of-formal-education/"><u>Language Learning Leap: The Future of Formal Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-of-the-light-good-morning-phrases-in-10-languages/"><u>Language of the Light: Good Morning Phrases in 10 Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581605473-learn-bulgarian-in-dashes-10-minute-sessions/"><u>Learn Bulgarian in Dashes - 10-Minute Sessions!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/masterys-journey-celebrating-1500-free-daily-educational-stops/"><u>Mastery's Journey: Celebrating 1500 Free, Daily Educational Stops</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-invests-in-technology-for-enhanced-learning-experience/"><u>Mondly Invests in Technology for Enhanced Learning Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-joins-with-pearson-learning-networks/"><u>Mondly Joins With Pearson Learning Networks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navegar-faciles-las-hora-y-segundo-en-espanol/"><u>Navegar Fáciles Las Hora Y Segundo en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigate-the-language-of-germany-a-guide-to-25-idioms/"><u>Navigate the Language of Germany - A Guide to 25 Idioms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-brit-english-phrases-and-sayings-unpacked/"><u>Navigating Brit English: Phrases & Sayings Unpacked</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-korean-days-your-easy-guide/"><u>Navigating Korean Days: Your Easy Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quickfire-ways-to-conquer-foreign-languages/"><u>Quickfire Ways to Conquer Foreign Languages</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/ranked-the-best-7-android-adblockers-for-screen-freedom/"><u>Ranked  The Best 7 Android AdBlockers for Screen Freedom</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-journey-of-press-back-through-languages/"><u>The Journey of 'Press Back' Through Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tiempo-y-segundo-guia-para-iniciarse-en-espanol/"><u>Tiempo Y Segundo: Guía Para Iniciarse en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-techniques-and-gadgets-for-homely-french-learning/"><u>Top Techniques & Gadgets for Homely French Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/translating-lives-practical-ways-to-embrace-language/"><u>Translating Lives: Practical Ways to Embrace Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-czech-ease-through-effective-online-learning/"><u>Unlock Czech Ease Through Effective Online Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/wordsmith-wisdom-daily-language-roots-in-shakespeare/"><u>Wordsmith Wisdom: Daily Language Roots in Shakespeare</u></a></li>
+</ul></div>

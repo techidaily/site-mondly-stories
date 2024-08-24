@@ -1,7 +1,7 @@
 ---
 title: Bridging Cultures with Germany's Essential Idioms (Top 25)
-date: 2024-07-12T09:00:36.668Z
-updated: 2024-07-13T09:00:36.668Z
+date: 2024-08-23T00:20:59.944Z
+updated: 2024-08-24T00:20:59.944Z
 tags:
   - speak
   - english
@@ -34,6 +34,9 @@ thumbnail: https://thmb.techidaily.com/6a8b7b3cdb25a03e07ba1819bb3940ce3cb079bf3
 
  Germans are usually pretty straightforward, but there are times when even they happen to beat around the bush. When such a situation occurs, you can use this idiom to invite them to get straight to the point.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ### **2.** _Eine Extrawurst haben_
 
 **Literal translation:** To ask for an extra sausage.
@@ -84,6 +87,9 @@ thumbnail: https://thmb.techidaily.com/6a8b7b3cdb25a03e07ba1819bb3940ce3cb079bf3
 
  In Germany, when you are blind to what’s happening around you, people could say you have tomatoes on your eyes. Maybe you’re not up to date with the latest news, or you’re not seeing the truth staring you right in the face. Either way, tomatoes seem to affect your vision.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### **8.** _Ich verstehe nur Bahnhof_
 
 **Literal translation:** I can only understand ‘train station.’
@@ -92,6 +98,9 @@ thumbnail: https://thmb.techidaily.com/6a8b7b3cdb25a03e07ba1819bb3940ce3cb079bf3
 
  The origin of this idiom goes back to World War I when deployed German soldiers would say that the only thing they understood when given orders was ‘train station’ because they hoped to go home. Nowadays, it’s used to say you didn’t comprehend something that was explained to you.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
 ### **9.** _Man soll den Tag nicht vor dem Abend lobe_ n
 
 **Literal translation:** One shouldn’t praise the day before the evening.
@@ -108,6 +117,9 @@ thumbnail: https://thmb.techidaily.com/6a8b7b3cdb25a03e07ba1819bb3940ce3cb079bf3
 
  After all the funny idioms about food and animals, it’s time for a more grim one. If you’re absolutely certain of the information you are giving, you can assure the person you are talking to by saying_Da kannst du Gift drauf nehmen_ , which essentially means “you can bet on it.”
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ### **11.** _Du gehst mir auf den Keks_
 
 **Literal translation:** You’re walking on my cookie.
@@ -116,6 +128,10 @@ thumbnail: https://thmb.techidaily.com/6a8b7b3cdb25a03e07ba1819bb3940ce3cb079bf3
 
  Now that’s a fun way of saying someone is getting on your nerves! It’s so cute that we’re actually thinking of making a petition to adopt it in English as well. Are you in?
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
+EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<!-- affiliate ads end -->
 ### **12.** _Da steppt der Bär_
 
 **Literal translation:** The bear dances there.
@@ -134,6 +150,12 @@ thumbnail: https://thmb.techidaily.com/6a8b7b3cdb25a03e07ba1819bb3940ce3cb079bf3
 
 !['Common German idioms' by Gratisography©](https://edge.mondly.com/blog/wp-content/uploads/2022/09/common-german-idioms-960x640.jpg "Top 25 German Idioms To Speak Like A German 3")
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### **14.** _Das ist Schnee von gestern_
 
 **Literal translation:** That’s yesterday’s snow.
@@ -150,6 +172,9 @@ thumbnail: https://thmb.techidaily.com/6a8b7b3cdb25a03e07ba1819bb3940ce3cb079bf3
 
  It’s interesting how similar this idiom is to our English equivalent. It looks like feeling out of place is finally something more languages can agree on.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### **16.** _Die Daumen drücken_
 
 **Literal translation:** Press the thumbs.
@@ -166,6 +191,14 @@ thumbnail: https://thmb.techidaily.com/6a8b7b3cdb25a03e07ba1819bb3940ce3cb079bf3
 
  Germans have a unique take on this idiom. Instead of pulling one’s leg, they are taken on someone’s arm. Picture the scene and you can help but giggle! Obviously, both versions are used to express disbelief about someone’s actions or claims.
 
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **18.** _Dumm wie Bohnenstroh_
 
 **Literal translation:** Dumb as a bean straw.
@@ -192,6 +225,9 @@ thumbnail: https://thmb.techidaily.com/6a8b7b3cdb25a03e07ba1819bb3940ce3cb079bf3
 
 !['German expressions' by Picography©](https://edge.mondly.com/blog/wp-content/uploads/2022/09/german-expressions-960x640.jpg "Top 25 German Idioms To Speak Like A German 4")
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **21.** _Haare auf den Zähnen haben_
 
 **Literal translation:** To have hair on one’s teeth.
@@ -200,6 +236,9 @@ thumbnail: https://thmb.techidaily.com/6a8b7b3cdb25a03e07ba1819bb3940ce3cb079bf3
 
  That’s just weird, but okay, German. If someone’s having one of those days, it may prove helpful the lighten the mood with this funny idiom.
 
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **22.** _Einen Kater haben_
 
 **Literal translation:** To have a cat.
@@ -230,6 +269,9 @@ thumbnail: https://thmb.techidaily.com/6a8b7b3cdb25a03e07ba1819bb3940ce3cb079bf3
 
 It’s usually used as an insult, so be careful to who you are saying this.
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ### **25.** _Jemandem ein Ohr abkauen_
 
 **Literal translation:** Chew off someone’s ear.
@@ -238,6 +280,9 @@ It’s usually used as an insult, so be careful to who you are saying this.
 
  Do you have someone in your life who just won’t stop talking? If you feel like your ear will fall off, this is the perfect example of _Jemandem ein Ohr abkauen_ .
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<!-- affiliate ads end -->
 ## **Why should you learn German idioms?**
 
  No matter how funny or weird, German idioms are, first and foremost, a great way to boost your German vocabulary. However, there is more to it than that. If you want to [learn German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and speak it like a fluent speaker, idioms can help you take your conversations to the next level in more than one way.**German idioms will:**
@@ -256,6 +301,9 @@ _ [Tschüss](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=10
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Speak German like a fluent speaker fast
 
  Do you want to round up your studies and [speak German](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-7030&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-7030?mother%5Flang=en%5Fus?target%5Flang=de&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-7030?mother%5Flang=en%5Fus?target%5Flang=de) fluently fast? Try Mondly, the award-winning language app that is serious about making learning German fun.
@@ -290,3 +338,49 @@ _ [Tschüss](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=10
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-enhancing-user-engagement-how-to-use-youtube-tags-effectively/"><u>[New] 2024 Approved  Enhancing User Engagement  How to Use YouTube Tags Effectively</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ive-into-youtubes-best-practices-for-playlist-design/"><u>[New] Dive Into Youtube's Best Practices for Playlist Design</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-peer-reviewed-best-action-replay-tech-for-2024/"><u>[New] Peer-Reviewed Best Action Replay Tech for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-frame-perfect-capture-leading-slow-motion-cameras-reviewed/"><u>[Updated] Frame-Perfect Capture  Leading Slow Motion Cameras Reviewed</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-crafting-the-perfect-first-touch-redefining-unboxing/"><u>2024 Approved  Crafting the Perfect First Touch  Redefining Unboxing</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-discovering-the-past-best-history-youtubers/"><u>2024 Approved  Discovering the Past  Best History YouTubers</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-a-comprehensive-guide-to-social-account-linking-for-xbox/"><u>Crafting a Comprehensive Guide to Social Account Linking for Xbox</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/horizontal-or-vertical-crafting-the-best-fb-video-posts-for-2024/"><u>Horizontal or Vertical  Crafting the Best FB Video Posts for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-enable-usb-debugging-on-a-locked-oneplus-11-5g-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked OnePlus 11 5G Phone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-vivo-v29e-pictures-an-easy-method-explained-by-fonelab-android-recover-pictures/"><u>How to Restore Deleted Vivo V29e Pictures  An Easy Method Explained.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/interactive-spanish-learning-and-socializing-in-vr-realm/"><u>Interactive Spanish Learning & Socializing In VR Realm</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-a-language-with-music-scientifically-proven-methods-tips-and-songsback-buttonfilter-button/"><u>Learn A Language With Music: Scientifically Proven Methods, Tips & SongsBack ButtonFilter Button</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguafutura-embracing-language-learning-at-expo-dubai-2020/"><u>LinguaFutura: Embracing Language Learning at Expo Dubai 2020</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-leapfrogging-easiest-world-tongues-ranked/"><u>Linguistic Leapfrogging: Easiest World Tongues Ranked</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-english-as-a-foreign-language/"><u>Mastering English as a Foreign Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-joins-collective-with-pearson-edu-sphere/"><u>Mondly Joins Collective With Pearson Edu-Sphere</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-makes-multilingual-interaction-more-natural-on-quest/"><u>Mondly Makes Multilingual Interaction More Natural on Quest</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-teaching-techniques-unveiled/"><u>Mondly's Teaching Techniques Unveiled</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/overcoming-palworld-stability-issues-a-guide-for-pc-gamers/"><u>Overcoming PalWorld Stability Issues: A Guide for PC Gamers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pioneering-arabic-for-first-time-learners/"><u>Pioneering Arabic for First-Time Learners</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/premiere-pro-starter-pack-2023-edition-free/"><u>Premiere Pro Starter Pack - 2023 Edition (Free)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/propel-your-english-proficiency-using-mondlys-methods/"><u>Propel Your English Proficiency Using Mondly's Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pumpkin-lore-from-around-the-world/"><u>Pumpkin Lore From Around the World</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quickly-grasp-ukrainian-effective-minute-long-study-methods-95-chars/"><u>Quickly Grasp Ukrainian: Effective Minute-Long Study Methods (95 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saying-hi-the-ultimate-japenese-greeting-guide/"><u>Saying Hi: The Ultimate Japenese Greeting Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/second-language-acquisition-strategies-english-focus/"><u>Second Language Acquisition Strategies: English Focus</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-to-the-soul-africas-multilingual-identity/"><u>Speaking to the Soul: Africa’s Multilingual Identity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/streetwise-italian-key-expressions-for-the-savvy-traveler/"><u>Streetwise Italian: Key Expressions for the Savvy Traveler</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/striking-up-a-chat-in-france-your-essential-vocabulary-guide/"><u>Striking Up a Chat in France: Your Essential Vocabulary Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/surpassing-corporate-communication-barriers-with-skills/"><u>Surpassing Corporate Communication Barriers with Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ten-years-of-connectivity-and-growth-at-mondly/"><u>Ten Years of Connectivity and Growth at Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-basics-of-chinese-orthography/"><u>The Basics of Chinese Orthography</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essential-pathway-for-digital-lithuanian-study/"><u>The Essential Pathway for Digital Lithuanian Study</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-lexicon-leap-new-age-methods-for-mastering-languages/"><u>The Lexicon Leap: New Age Methods for Mastering Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-most-promising-routes-to-learn-a-language-online/"><u>The Most Promising Routes to Learn a Language Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/twin-cultures-a-linguistic-voyage/"><u>Twin Cultures: A Linguistic Voyage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/universal-vernacular-key-skills-in-global-communication/"><u>Universal Vernacular: Key Skills in Global Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-your-potential-discover-the-best-language-learning-platforms/"><u>Unlock Your Potential: Discover the Best Language Learning Platforms</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/unlocking-social-networks-the-pathway-to-a-facebook-profile/"><u>Unlocking Social Networks  The Pathway to a Facebook Profile</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vocabulary-victory-why-learning-languages-at-40plus-boosts-your-brainpower/"><u>Vocabulary Victory: Why Learning Languages at 40+ Boosts Your Brainpower</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-take-up-the-challenge-of-learning-a-new-language-at-40-and-beyond-four-compelling-points/"><u>Why Take Up the Challenge of Learning a New Language at 40 and Beyond? Four Compelling Points</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/your-francophone-reading-journey-starts-with-these-novels/"><u>Your Francophone Reading Journey Starts with These Novels</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Conversational Skills for the Modern South American Traveler
-date: 2024-07-12T09:00:48.865Z
-updated: 2024-07-13T09:00:48.865Z
+date: 2024-08-23T00:20:48.119Z
+updated: 2024-08-24T00:20:48.119Z
 tags:
   - speak
   - english
@@ -32,6 +32,9 @@ thumbnail: https://thmb.techidaily.com/3dc1e13d990f9f4ed1b30979889fa15d157b3da05
 
  Rooted in the phrase “to be healthy and well”, it’s not just a greeting, but a wish for good health.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Привет (Privyet): Hi in Russian
 
 **Привет** is the most popular informal Russian greeting. It’s what you would use with your friends – the same way we use “hi” in English. Short, sweet and easy to say!
@@ -71,6 +74,9 @@ Good job, you!
 
 ![hi in russian](https://edge.mondly.com/blog/wp-content/uploads/2018/11/hi-in-russian.jpg "Russian Greetings: Common Phrases And Basic Words 3")
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 4\. Russian farewells
 
  Goodbyes are just as important as greetings. When you’re taking your leave, you can bid adieu with**До свидания (Do svidaniya)** in Russian, which means “until we see each other again”. Some of the most common Russian farewells include:
@@ -103,6 +109,9 @@ Good job, you!
 
  Found this interesting? You might want to learn about the [Russian alphabet](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and the [Russian numbers](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) too.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cultural insights on Russian greetings
 
  It’s one thing to know how to greet someone in Russian and it’s another to greet them the Russian way. Here’s what you should keep in mind if you’re meeting with Russian-speaking friends:
@@ -116,6 +125,9 @@ Good job, you!
 
  If you feel like you need more information on Russian greetings, here are some frequently asked questions. Maybe you’ll find your answer here.
 
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### How can I learn to pronounce Russian words correctly?
 
  Use transliteration. It can be tricky to get the hang of Russian words using the Cyrillic alphabet, so resources that use transliteration will always come in handy.
@@ -124,10 +136,16 @@ Good job, you!
 
  Здравствуйте (Zdravstvuyte) is generally used for slightly formal hellos, while Привет (Privyet) is more suitable for casuals settings. The most common way to say “goodbye” in Russian is До свидания (Do svidaniya).
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ### How can I greet someone respectfully in Russian if I don’t know their name?
 
  To greet someone respectfully in Russian you can say Здравствуйте (Zdravstvuyte) or use the time specific greetings.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Are there specific greetings for different times of the day in Russian?
 
  Yes. Start your day by saying Доброе утро (Dobroye utro) meaning “good morning”, followed by Добрый день (Dobryy den) which is “good afternoon” and Добрый вечер (Dobryy vecher) for “good evening”.
@@ -165,3 +183,47 @@ Good job, you!
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/1715860409902-new-embedded-recorder-usage-in-huaweis-mate-series-and-the-p-lineup/"><u>[New] Embedded Recorder Usage in Huawei's Mate Series and the P Lineup.</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-push-past-filmora-discover-the-best-tablets-for-visual-excellence-for-2024/"><u>[New] Push Past Filmora - Discover the Best Tablets for Visual Excellence for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-elevating-your-content-game-with-these-top-20-tiktok-captions/"><u>[Updated] Elevating Your Content Game with These Top 20 TikTok Captions</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-groundbreaking-6-modern-mc-residentials/"><u>[Updated] Groundbreaking 6 Modern MC Residentials</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-broadcasting-with-a-history-live-transmission-of-pre-recorded-videos/"><u>[Updated] In 2024, Broadcasting with a History  LIVE Transmission of Pre-Recorded Videos</u></a></li>
+<li><a href="https://games-able.techidaily.com/489plus-innocn-39g1-r-top-refresh-tech/"><u>$489+ InnoCN 39G1 R: Top Refresh Tech</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-top-10-essential-gratuitous-lut-downloads-of-the-year/"><u>2024 Approved  Top 10 Essential, Gratuitous LUT Downloads of the Year</u></a></li>
+<li><a href="https://blog-min.techidaily.com/4-ways-to-transfer-music-from-motorola-edge-40-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>4 Ways to Transfer Music from Motorola Edge 40 to iPhone | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grasping-numbers-as-a-non-native-speaker/"><u>Grasping Numbers as a Non-Native Speaker</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-realme-12-pro-5g-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Realme 12 Pro 5G Quickly? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-motorola-g24-power-by-phone-number-drfone-by-drfone-virtual-android/"><u>How to Track Motorola G24 Power by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-realme-12-5g-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Realme 12 5G</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-fix-icloud-lock-from-your-iphone-14-pro-and-ipad-by-drfone-ios/"><u>In 2024, How to fix iCloud lock from your iPhone 14 Pro and iPad</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-the-premier-audio-augmented-app/"><u>Introducing the Premier Audio-Augmented App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/launching-the-next-gen-faq-platform-with-mondly/"><u>Launching the Next-Gen FAQ Platform with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-leap-learning/"><u>Linguistic Leap Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lundi-semaine-francais/"><u>Lundi Semaine Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-multiple-languages-quickly-and-quietly-with-the-best-3-platforms/"><u>Master Multiple Languages Quickly & Quietly With the Best 3 Platforms!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-keywords-the-pathway-to-understanding-russians/"><u>Mastering Keywords: The Pathway to Understanding Russians</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-seizes-spot-on-apples-top-10-ed-tech-leaders-board/"><u>Mondly Seizes Spot on Apple’s Top 10 Ed-Tech Leaders Board</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-simplifies-global-dialogue-with-new-words/"><u>Mondly Simplifies Global Dialogue with New Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navegacion-basica-del-reloj-digital-en-espanol/"><u>Navegación Básica Del Reloj Digital en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/o-olhar-lusitano-expressoes-e-saudacoes-de-qualidade/"><u>O Olhar Lusitano: Expressões E Saudações De Qualidade</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/parallel-phrase-perfection/"><u>Parallel Phrase Perfection</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/perfect-pronunciation-and-expression-essential-french-phrases-for-proficiency/"><u>Perfect Pronunciation & Expression: Essential French Phrases for Proficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rune-carved-rhetoric-the-voice-of-vikings-unveiled/"><u>Rune-Carved Rhetoric: The Voice of Vikings Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saying-hello-in-over-100-languages/"><u>Saying Hello in Over 100 Languages</u></a></li>
+<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-oppo-f23-5g-drfone-by-drfone-virtual-android/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Oppo F23 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/synchronizing-melodies-with-inshot-clips/"><u>Synchronizing Melodies with InShot Clips</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-comparative-voice-analyzing-spanish-vs-portuguese-dialects/"><u>The Comparative Voice: Analyzing Spanish Vs. Portuguese Dialects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-elder-speeches-of-humanitys-heritage/"><u>The Elder Speeches of Humanity’s Heritage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-oldest-languages-a-global-comparison/"><u>The Oldest Languages: A Global Comparison</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-sounds-of-romance-in-language/"><u>The Sounds of Romance in Language</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/top-tale-architecting-network/"><u>Top Tale Architecting Network</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/translate-intrigue-become-fluent-in-squid-games-language/"><u>Translate Intrigue: Become Fluent in Squid Game's Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/united-in-happiness-july-4th-revelries/"><u>United in Happiness: July 4Th Revelries</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-multilingual-potential-duration-matters/"><u>Unlocking Multilingual Potential: Duration Matters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-the-power-of-basic-russian-salutations/"><u>Unlocking the Power of Basic Russian Salutations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-secrets-of-russian-numbers-for-new-learners/"><u>Unveiling the Secrets of Russian Numbers for New Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/word-warriors-in-search-of-greatest-lexicon-gigantic/"><u>Word Warriors in Search of Greatest Lexicon Gigantic</u></a></li>
+</ul></div>

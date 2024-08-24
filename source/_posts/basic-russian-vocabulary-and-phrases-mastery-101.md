@@ -1,7 +1,7 @@
 ---
 title: Basic Russian Vocabulary & Phrases Mastery 101
-date: 2024-07-12T09:03:23.341Z
-updated: 2024-07-13T09:03:23.341Z
+date: 2024-08-23T00:18:10.398Z
+updated: 2024-08-24T00:18:10.398Z
 tags:
   - speak
   - english
@@ -53,12 +53,18 @@ Good job, you!
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Russian Greetings: Common Phrases And Basic Words 2")
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Learn Russian today
 
  Build practical Russian skills for real life with Mondly.
 
 [Start Now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-2406&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2406&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2406&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2406&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-2406%26mt%3D8)
 
+<!-- affiliate ads begin -->
+<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 3\. Additional Russian greetings Russians use
 
  Now onto less popular greetings. Or let’s call them “specialized”. Sounds better, right? These are the kind of “bonus” Russian greetings you use once you feel more comfortable with the language. Because – let’s be honest: not all words are equally important. You have to focus on the most frequently used ones first.
@@ -101,8 +107,14 @@ Good job, you!
 
 ![hello in russian](https://edge.mondly.com/blog/wp-content/uploads/2018/11/hello-in-russian-960x640.jpg "Russian Greetings: Common Phrases And Basic Words 4")
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
  Found this interesting? You might want to learn about the [Russian alphabet](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and the [Russian numbers](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) too.
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cultural insights on Russian greetings
 
  It’s one thing to know how to greet someone in Russian and it’s another to greet them the Russian way. Here’s what you should keep in mind if you’re meeting with Russian-speaking friends:
@@ -116,6 +128,10 @@ Good job, you!
 
  If you feel like you need more information on Russian greetings, here are some frequently asked questions. Maybe you’ll find your answer here.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
+LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ### How can I learn to pronounce Russian words correctly?
 
  Use transliteration. It can be tricky to get the hang of Russian words using the Cyrillic alphabet, so resources that use transliteration will always come in handy.
@@ -128,6 +144,9 @@ Good job, you!
 
  To greet someone respectfully in Russian you can say Здравствуйте (Zdravstvuyte) or use the time specific greetings.
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Are there specific greetings for different times of the day in Russian?
 
  Yes. Start your day by saying Доброе утро (Dobroye utro) meaning “good morning”, followed by Добрый день (Dobryy den) which is “good afternoon” and Добрый вечер (Dobryy vecher) for “good evening”.
@@ -165,3 +184,53 @@ Good job, you!
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-minimize-mbs-avoid-fb-video-ads/"><u>[New] 2024 Approved  Minimize MBs  Avoid FB Video Ads</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-weighing-your-options-choosing-between-tiktok-and-youtube-shorts/"><u>[New] 2024 Approved  Weighing Your Options  Choosing Between TikTok and YouTube Shorts</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-mastering-rapid-downloads-for-the-latest-musicals-on-tiktok-for-2024/"><u>[New] Mastering Rapid Downloads for the Latest Musicals on TikTok for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-vlc-media-recording-evaluation-for-2024/"><u>[New] VLC Media Recording Evaluation for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-facebook-cover-video-introduction-size-format-and-time/"><u>[Updated] 2024 Approved  Facebook Cover Video  Introduction, Size, Format & Time</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-laugh-loom-imgur-memomaker/"><u>[Updated] Laugh Loom  Imgur MemoMaker</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-novices-nook-the-easiest-mc-dwellings-explored-for-2024/"><u>[Updated] Novice's Nook  The Easiest MC Dwellings Explored for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-step-by-step-guide-to-crafting-impressive-instagram-loops/"><u>[Updated] Step-by-Step Guide to Crafting Impressive Instagram Loops</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-leading-ai-photographic-composer/"><u>2024 Approved  Leading AI Photographic Composer</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-strategies-for-secure-unmarked-photography-procurement/"><u>2024 Approved  Strategies for Secure, Unmarked Photography Procurement</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-unleashing-creativity-top-30-video-plans/"><u>2024 Approved  Unleashing Creativity  Top 30 Video Plans</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/full-tutorial-to-bypass-your-oppo-face-lock-by-drfone-android/"><u>Full Tutorial to Bypass Your Oppo Face Lock?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-lost-data-from-90-gt-by-fonelab-android-recover-data/"><u>How to recover lost data from 90 GT?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/huawei-appgallery-now-features-mondly-services/"><u>Huawei AppGallery Now Features Mondly Services</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-avoiding-malware-downloading-safe-and-gratis-vlc-on-apple-devices/"><u>In 2024, Avoiding Malware  Downloading Safe and Gratis VLC on Apple Devices</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-hidefake-snapchat-location-on-your-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Hide/Fake Snapchat Location on Your Apple iPhone 13 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-oppo-find-x7-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Oppo Find X7 | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-the-guide-to-instagram-video-advancement-a-planning-primer/"><u>In 2024, The Guide to Instagram Video Advancement  A Planning Primer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-love-jargon-for-a-special-day/"><u>International Love Jargon for a Special Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-bridge-salutations-across-nations/"><u>Language Bridge: Salutations Across Nations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-in-flux-popular-slang-words-and-their-meanings/"><u>Language in Flux: Popular Slang Words and Their Meanings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-portuguese-like-a-pro-in-just-six-simple-steps/"><u>Learn Portuguese Like a Pro in Just Six Simple Steps</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/lensdirect-review-protect-your-eyes-with-premium-prescription-blocking-glasses-against-digital-strain/"><u>LensDirect Review: Protect Your Eyes with Premium Prescription Blocking Glasses Against Digital Strain</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-english-pronunciation-via-intense-tongue-twisters/"><u>Mastering English Pronunciation via Intense Tongue Twisters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-language-exams-top-certifications-and-exam-preparation-guide/"><u>Mastering Language Exams: Top Certifications And Exam Preparation Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-ru-cyrillic-sounds-and-speech/"><u>Mastering RU Cyrillic Sounds and Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-the-art-of-croatian-conversation-travels-must-have-skillset/"><u>Mastering the Art of Croatian Conversation: Travel's Must-Have Skillset</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/practica-controlada-como-decir-colores/"><u>Práctica Controlada: Cómo Decir Colores</u></a></li>
+<li><a href="https://win-answers.techidaily.com/prepare-your-arsenal-upcoming-2024-enhancements-for-rainbow-six-siege/"><u>Prepare Your Arsenal: Upcoming 2024 Enhancements for Rainbow Six Siege</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rhythmic-recall-enhancing-memory-with-musical-language-lessons/"><u>Rhythmic Recall: Enhancing Memory with Musical Language Lessons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sounds-of-english-embracing-canadian-irish-and-new-zealand-vowels/"><u>Sounds of English: Embracing Canadian, Irish, and New Zealand Vowels</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/start-speaking-croatian-now-here-are-the-top-7-reasons/"><u>Start Speaking Croatian Now - Here Are The Top 7 Reasons!</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/step-by-step-instructions-permanently-disabling-windows-11-auto-updates/"><u>Step-by-Step Instructions: Permanently Disabling Windows 11 Auto-Updates</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/superior-systems-enhancing-vocab-learning/"><u>Superior Systems Enhancing Vocab Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-dance-of-dialogues-across-dialectal-divides/"><u>The Dance of Dialogues Across Dialectal Divides</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-linguists-roadmap-certification-and-study-tactics/"><u>The Ultimate Linguist’s Roadmap: Certification & Study Tactics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-3-tech-powered-linguistic-advancement-tools-announced-today/"><u>Top 3 Tech-Powered Linguistic Advancement Tools Announced Today</u></a></li>
+<li><a href="https://media-tips.techidaily.com/top-free-tools-best-replacements-for-freemakes-video-and-audio-conversion-software/"><u>Top Free Tools: Best Replacements for Freemake's Video and Audio Conversion Software</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transformative-experience-with-mondly-mastery/"><u>Transformative Experience with Mondly Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/traveling-to-israel-tips-and-phrases-for-your-trip/"><u>Traveling To Israel? Tips And Phrases For Your Trip</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-future-of-user-assistance-with-mondlys-qanda-update/"><u>Unveiling the Future of User Assistance with Mondly’s Q&A Update</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/virtual-vernacular-expand-language-horizons-effortlessly/"><u>Virtual Vernacular: Expand Language Horizons Effortlessly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/where-else-does-thanksgiving-take-place/"><u>Where Else Does Thanksgiving Take Place?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-oppo-k11x-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Oppo K11x | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/words-across-worlds-exploring-intergalactic-linguistics-in-star-wars/"><u>Words Across Worlds: Exploring Intergalactic Linguistics in Star Wars</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/world-words-whirlwind-search-for-longest-one/"><u>World Words Whirlwind Search for Longest One</u></a></li>
+</ul></div>

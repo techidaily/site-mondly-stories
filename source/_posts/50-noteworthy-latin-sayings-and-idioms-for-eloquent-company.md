@@ -1,7 +1,7 @@
 ---
 title: 50 Noteworthy Latin Sayings & Idioms for Eloquent Company
-date: 2024-07-12T08:59:02.312Z
-updated: 2024-07-13T08:59:02.312Z
+date: 2024-08-23T00:22:36.293Z
+updated: 2024-08-24T00:22:36.293Z
 tags:
   - speak
   - english
@@ -28,6 +28,9 @@ These are nearly as famous as Julius Caesar himself.
 
  Famously attributed to Julius Caesar in a message he supposedly sent to the Roman Senate to describe his swift, conclusive victory against King Pharnaces II of Pontus near Zela in 47 BC.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### **Alea iacta est. —** _The die has been cast._
 
  Another Latin phrase said by Julius Caesar upon crossing the Rubicon to enter Italy and begin the long civil war against Pompey and the Optimates. The meaning of this phrase refers to the point of no return.
@@ -36,6 +39,9 @@ These are nearly as famous as Julius Caesar himself.
 
  Probably the most popular Latin phrase of modern times. Luckily, we have an even better one:_carpe vinum_ . Literally ‘seize the wine’. The only Latin phrase you’ll ever need on a Friday night out. And speaking of night, you should also remember the_carpe noctem_ variation which literally translates to ‘seize the night’. Either way, the general meaning is to make the most of everything.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<!-- affiliate ads end -->
 ### **Cogito, ergo sum. —** _I think, therefore I am._
 
  A_dictum_ (‘a short statement that expresses a general truth’) coined by French philosopher René Descartes in Latin.
@@ -46,6 +52,9 @@ These are nearly as famous as Julius Caesar himself.
 
  Be careful if you_carpe vinum_ on that Friday night out we talked about. This Latin saying suggests that you’ll probably spill all your secrets if you drink too much alcohol.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **Et tu, Brute? —** _“And you, Brutus?”_
 
  Or “You too, Brutus?”. This Latin quote appears in William [Shakespeare](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ‘s play “Julius Caesar” at the very moment of Caesar’s assassination. Upon recognizing his friend, Marcus Junius Brutus, as one of the assassins, Julius Caesar utters these last words.
@@ -56,6 +65,9 @@ These are nearly as famous as Julius Caesar himself.
 
  Similar to_res, non verba_ , the English equivalent of this phrase is “actions speak louder than words”. In other words, act upon it or always follow your declarations with actions.
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **Carthago delenda est. —** _Carthage must be destroyed._
 
  Prior to the Third Punic War between Rome and Carthage, Cato the Censor, a Roman politician, used to conclude all his speeches to the Senate with this phrase. While he did this in an attempt to push for the war, nowadays the expression can be used figuratively as a way to express your absolute support for an idea.
@@ -64,6 +76,14 @@ These are nearly as famous as Julius Caesar himself.
 
  Using some Latin phrases here and there will automatically make you look smarter.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
+	Home Use license is dedicated for personal, non-commercial use only. 
+	If Action! is used for commercial gain or to further any commercial purpose, 
+	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
+ 
+	company, user or members of the same household. Action! - screen and game recorder</a>
+<!-- affiliate ads end -->
 ## Common Latin Words & Sayings
 
 * **Ad hominem —** _To the person_
@@ -130,6 +150,10 @@ Every student’s favorite. We all know what this one means, don’t we?
 
  “In vino veritas” by Daniel Vogel©
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ## Cool Latin that are still used today
 
  Do you know what’s the coolest thing about these following cool [Latin phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ? They’re evergreen. If time travel gets invented in a few years,[these phrases](https://en.wikipedia.org/wiki/List%5Fof%5FLatin%5Fphrases%5F%28full%29) are gonna come in handy regardless of the century you choose to travel to. Besides, this selection includes only the most relevant expressions so you don’t have to worry about redundancy.
@@ -282,6 +306,9 @@ Different phrase, same story. You’re welcome.
 
 From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Why should you learn these cool Latin phrases?
 
  In all seriousness, Latin phrases, words and sayings are a fun way to boost your vocabulary and learn more about the origin of the words we use every day. While Latin is the common ancestor of the Romance languages, it has also influenced the Germanic languages (of which English is a part). So it might prove most illuminating to take inspiration from the master orators and use Latin words and phrases in your day-to-day conversations.
@@ -290,6 +317,9 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 
  Furthermore, the Latin language is rich in life lessons, mottos and words to live by. By learning these sayings, you’ll not only improve your vocabulary but also your life experience.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Why are Latin words used in law?
 
  Latin words are used in law because of the historical influence Roman law has on the legal system of many countries. As the lingua franca of the Roman Empire, Latin not only shaped the empire's legal constructs but also left a lasting imprint on the evolution of legal systems, especially within Europe. As Roman law became the foundation for many modern legal codes, Latin legal words were passed on throughout history until the present day. This incorporation of Latin words in law ensures a degree of precision and continuity, bridging legal concepts across different eras and jurisdictions.
@@ -305,6 +335,9 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<!-- affiliate ads end -->
 ### Speak Latin like Julius Caesar
 
  The Latin language is no longer is secret code meant only for scholars or the Catholic Church. Starting right now, you can learn Latin with Mondly using bite-sized lessons and practical topics to help you discover how Romans conversed in their day-to-day life.
@@ -333,3 +366,45 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-turn-your-youtube-shorts-into-a-stream-of-income/"><u>[New] In 2024, Turn Your YouTube Shorts Into a Stream of Income</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-wit-waves-the-top-10-jokes/"><u>[New] In 2024, Wit Waves  The Top 10 Jokes</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-depth-insights-on-preserving-ps4-gaming-history-for-2024/"><u>[New] In-Depth Insights on Preserving PS4 Gaming History for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-become-a-zoom-screenshare-pro-in-minutes-for-2024/"><u>[Updated] Become a Zoom Screenshare Pro in Minutes for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-step-by-step-guide-importing-audio-for-inshot-edits/"><u>[Updated] In 2024, Step-by-Step Guide  Importing Audio for InShot Edits</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-unveiling-techniques-for-effective-display-saving-on-dell/"><u>2024 Approved  Unveiling Techniques for Effective Display Saving on Dell</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-oppo-f25-pro-5g-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Oppo F25 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/complete-guide-updating-your-acer-display-with-current-drivers/"><u>Complete Guide: Updating Your Acer Display with Current Drivers</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/here-are-different-ways-to-find-pokemon-go-trainer-codes-to-add-to-your-account-on-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>Here are Different Ways to Find Pokemon Go Trainer Codes to Add to Your Account On Apple iPhone 13 mini | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-complete-fixes-to-solve-apple-iphone-12-pro-max-randomly-asking-for-apple-id-password-drfone-by-drfone-ios/"><u>In 2024, Complete Fixes To Solve Apple iPhone 12 Pro Max Randomly Asking for Apple ID Password | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-inverted-playback-the-hidden-technique-for-a-reversed-youtube-list/"><u>In 2024, Inverted Playback  The Hidden Technique for a Reversed YouTube List</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-re-tune-your-ps5ps4-voice-settings-easily/"><u>In 2024, Re-Tune Your PS5/PS4 Voice Settings Easily</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-evaluation-of-viair-88p-handheld-compressor-immense-strength-a-few-shortcomings/"><u>In-Depth Evaluation of Viair 88P Handheld Compressor: Immense Strength, A Few Shortcomings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/launching-the-next-gen-faq-platform-with-mondly/"><u>Launching the Next-Gen FAQ Platform with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-leap-learning/"><u>Linguistic Leap Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lundi-semaine-francais/"><u>Lundi Semaine Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-a-new-language-by-jan-2024/"><u>Master a New Language by Jan 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-is-offering-free-language-courses-for-millions-of-ukrainiansback-buttonfilter-button/"><u>Mondly Is Offering Free Language Courses For Millions Of UkrainiansBack ButtonFilter Button</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-seizes-spot-on-apples-top-10-ed-tech-leaders-board/"><u>Mondly Seizes Spot on Apple’s Top 10 Ed-Tech Leaders Board</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-romance-uncover-more-love-phrases/"><u>Multilingual Romance: Uncover More Love Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/parallel-phrase-perfection/"><u>Parallel Phrase Perfection</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/perfect-pronunciation-and-expression-essential-french-phrases-for-proficiency/"><u>Perfect Pronunciation & Expression: Essential French Phrases for Proficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rune-carved-rhetoric-the-voice-of-vikings-unveiled/"><u>Rune-Carved Rhetoric: The Voice of Vikings Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/shaping-global-citizens-with-non-native-language-education/"><u>Shaping Global Citizens with Non-Native Language Education</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/soundscape-sanctuary-free-high-resolution-dj-videos-available/"><u>Soundscape Sanctuary  Free High-Resolution DJ Videos Available</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sprachprobe-deutsche-tagesstruktur-erfassen/"><u>Sprachprobe: Deutsche Tagesstruktur Erfassen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-comparative-voice-analyzing-spanish-vs-portuguese-dialects/"><u>The Comparative Voice: Analyzing Spanish Vs. Portuguese Dialects</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-creative-trail-steps-towards-thriving-as-a-designer-for-2024/"><u>The Creative Trail  Steps Towards Thriving as a Designer for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-elder-speeches-of-humanitys-heritage/"><u>The Elder Speeches of Humanity’s Heritage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-oldest-languages-a-global-comparison/"><u>The Oldest Languages: A Global Comparison</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/top-10-must-watch-global-journey-vids-on-youtube/"><u>Top 10 Must-Watch Global Journey Vids on YouTube</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-9-tips-and-tricks-that-will-help-improve-your-spoken-english/"><u>Top 9 Tips and Tricks That Will Help Improve Your Spoken English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-us-study-languages/"><u>Top U.S. Study Languages</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/top-notch-hacks-navigating-instagrams-forgotten-features/"><u>Top-Notch Hacks  Navigating Instagram's Forgotten Features</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/translate-intrigue-become-fluent-in-squid-games-language/"><u>Translate Intrigue: Become Fluent in Squid Game's Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-the-power-of-basic-russian-salutations/"><u>Unlocking the Power of Basic Russian Salutations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-secrets-of-russian-numbers-for-new-learners/"><u>Unveiling the Secrets of Russian Numbers for New Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/word-warriors-in-search-of-greatest-lexicon-gigantic/"><u>Word Warriors in Search of Greatest Lexicon Gigantic</u></a></li>
+</ul></div>

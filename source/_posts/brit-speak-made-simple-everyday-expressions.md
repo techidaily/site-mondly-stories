@@ -1,7 +1,7 @@
 ---
 title: "Brit Speak Made Simple: Everyday Expressions"
-date: 2024-07-12T09:03:34.081Z
-updated: 2024-07-13T09:03:34.081Z
+date: 2024-08-23T00:17:59.309Z
+updated: 2024-08-24T00:17:59.309Z
 tags:
   - speak
   - english
@@ -44,6 +44,9 @@ thumbnail: https://thmb.techidaily.com/25dfc703be5473423edfc66113d30469d26da4408
 
  Although it may mean “ok” in North America, it’s the equivalent of “how are you?” in British English.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<!-- affiliate ads end -->
 ### _I’m knackered_
 
 I’m tired.
@@ -52,6 +55,9 @@ I’m tired.
 
 Mischievous or playful.
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ### _Bloody_
 
 This is a very British thing to say meaning very.
@@ -60,6 +66,9 @@ This is a very British thing to say meaning very.
 
  Not meaning the regular “angry”, in British talk it actually means you’re very drunk and is used quite a lot when you are out drinking with friends.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### _Mate_
 
 A common one and quite cliché – mate means friend.
@@ -80,10 +89,16 @@ A person native to East London.
 
  Similar to_guy_ in America, it is a blanket term to describe a man in general.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<!-- affiliate ads end -->
 ### _Bollocks_
 
  One of the more well-known British terms, it actually has a multitude of meanings. It could be used to symbolize disbelief, or to talk about a man’s private parts.
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Funny British Sayings
 
 * _I was gobsmacked_ – The key here being “gobsmacked”. The entire phrase means I was shocked.
@@ -107,12 +122,18 @@ A person native to East London.
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "50+ British Phrases And Slangs To Impress Your British Mates 4")
 
+<!-- affiliate ads begin -->
+<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ##### Improve your English, mate
 
  Speak English like a true Brit with Mondly.
 
 [Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-4428&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4428&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4428&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4428&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-4428%26mt%3D8)
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Fancy British Words
 
 * _Alas_ – used to express grief, sorrow, regret or concern
@@ -158,6 +179,9 @@ A person native to East London.
 * _Innit?_ – An even more contracted form of isn’t it?
 * _Miffed_ – Annoyed
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Stereotypical British Phrases
 
 * _Keep calm and carry on_ – A famous British slogan encouraging people to remain level-headed in times of turmoil.
@@ -190,6 +214,9 @@ A person native to East London.
 
  British phrases and expressions are extraordinarily interesting to those who aren’t familiar with their terms. The common British words we see already seem so fancy and sometimes even whimsical and learning them will surely give you a leg up next time you start writing your [5 paragraph essay](https://edubirdie.com/blog/five-paragraph-essay) , or have a chinwag with your British mates!
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Differences Between American and British English
 
  As mentioned before, British terms, British phrases, British expressions as well as spelling differ by American phrases and expressions, but what else is there? When we think about [British versus American English](https://preply.com/en/blog/british-english-vs-american-english-slang-compared/) , we think about slang terms and pronunciation.
@@ -202,6 +229,9 @@ A person native to East London.
 
  Having learned some of the most common British words and phrases, let’s move on to some frequently asked questions.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Why do the British say ‘cheers’?
 
  ‘Cheers’ is an informal manner of expressing gratitude, akin to saying ‘thank you’. When combined with the word ‘mate’, it forms the phrase “Cheers, mate”, which carries the same meaning as “Thank you, my friend.”
@@ -223,6 +253,9 @@ A person native to East London.
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Speak a new language in just 10 minutes a day
 
  Want to become fluent fast? With Mondly, the award-winning language learning app, you’ll speak any language from day 1\. It’s fun, easy and efficient. Quick Daily Lessons. 10 minutes a day. It’s so entertaining, you’ll become addicted. The best part? You’ll speak like a native in no time.
@@ -231,6 +264,9 @@ A person native to East London.
 
 Get Mondly now and speak any language like you never dreamed you would ![Learn with Mondly](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-4428&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-4428%26utm%5Fsource%3Dblog-post-id-4428&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-4428%26utm%5Fsource%3Dblog-post-id-4428&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-4428%26utm%5Fsource%3Dblog-post-id-4428&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-4428%26mt%3D8 "Learn with Mondly")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
@@ -249,3 +285,55 @@ Get Mondly now and speak any language like you never dreamed you would ![Learn w
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-simplify-multitasking-with-picture-in-picture-feature-ios-for-2024/"><u>[New] Simplify Multitasking with Picture in Picture Feature (iOS) for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-boost-your-channels-subscribers-on-a-shoestring-budget/"><u>[Updated] Boost Your Channel's Subscribers on a Shoestring Budget</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-harnessing-home-content-a-commercialized-vlog-journey/"><u>[Updated] Harnessing Home Content  A Commercialized Vlog Journey</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-case-study-how-to-grow-on-youtube-to-have-millions-of-subs/"><u>[Updated] In 2024, Case Study  How to Grow on YouTube to Have Millions of Subs</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-unified-event-tracking-harmonizing-phone-and-tablet-with-pc-zoom/"><u>[Updated] In 2024, Unified Event Tracking  Harmonizing Phone & Tablet with PC Zoom</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-resolve-instagrams-video-problems-swiftly/"><u>[Updated] Resolve Instagram's Video Problems Swiftly</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-roblox-revealed-masterful-methods-for-closer-insight/"><u>[Updated] Roblox Revealed  Masterful Methods for Closer Insight</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-the-art-of-discerning-if-ones-friend-blocked-your-account-for-2024/"><u>[Updated] The Art of Discerning if One's Friend Blocked Your Account for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-top-11-techniques-for-perfecting-color-in-post-production/"><u>[Updated] Top 11 Techniques for Perfecting Color in Post-Production</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-a-step-by-step-to-achieving-realism-in-photoshop-artwork/"><u>2024 Approved  A Step-by-Step to Achieving Realism in Photoshop Artwork</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-engage-audiences-skywards-drone-filming-and-facebook-live/"><u>2024 Approved  Engage Audiences Skywards  Drone Filming and Facebook Live</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-mac-enthusiasts-take-on-screenflow-software-review/"><u>2024 Approved  Mac Enthusiast's Take on ScreenFlow Software Review</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-unlock-the-secrets-of-instagrams-latest-filters/"><u>2024 Approved  Unlock the Secrets of Instagram's Latest Filters</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/choosing-your-next-viewing-leveraging-chatgpts-suggestions/"><u>Choosing Your Next Viewing: Leveraging ChatGPT's Suggestions</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/expert-techniques-diagnosing-and-repairing-sound-issues-with-hdmi-connected-computers-and-tvs/"><u>Expert Techniques: Diagnosing & Repairing Sound Issues with HDMI Connected Computers and TVs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/get-fluent-in-slovak-one-ten-minute-session-at-a-time/"><u>Get Fluent in Slovak, One Ten-Minute Session at a Time</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gratitude-in-mandarin-mastering-xiexie-and-more/"><u>Gratitude in Mandarin: Mastering Xièxiè and More</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/how-does-enabling-overwatch-improve-live-stream-quality-by-minimizing-pauses/"><u>How Does Enabling Overwatch Improve Live Stream Quality by Minimizing Pauses?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-oppo-k11-5g-is-unlocked-by-drfone-android/"><u>How To Check if Your Oppo K11 5G Is Unlocked</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-changefake-your-apple-iphone-xs-max-location-on-viber-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Change/Fake Your Apple iPhone XS Max Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-professional-shutter-sense-the-prime-6-4k-dslr-selections/"><u>In 2024, Professional Shutter Sense  The Prime 6 4K DSLR Selections</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-to-speak-like-a-native-ru-letter-pronunciations/"><u>Learn to Speak Like a Native: RU Letter Pronunciations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lerne-die-deutschen-wochen-abschnitte-verstehen/"><u>Lerne Die Deutschen Wochen Abschnitte Verstehen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/main-tongue-in-croatia/"><u>Main Tongue in Croatia</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/milestone-1500-no-cost-daily-learning-sessions/"><u>Milestone: 1,500 No-Cost Daily Learning Sessions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-merges-with-pearson-edu-connectivity/"><u>Mondly Merges With Pearson Edu-Connectivity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-integration-with-pearson-for-superior-buttons/"><u>Mondly's Integration with Pearson For Superior Buttons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/norwegian-prosperity-in-quick-regular-doses/"><u>Norwegian Prosperity in Quick, Regular Doses!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pioneering-arabic-for-first-time-learners/"><u>Pioneering Arabic for First-Time Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seducing-with-words-unveiling-spanish-pick-up-lines/"><u>Seducing With Words: Unveiling Spanish Pick Up Lines</u></a></li>
+<li><a href="https://fox-that.techidaily.com/solutions-finding-hidden-dates-and-appointments-on-icalendar/"><u>Solutions: Finding Hidden Dates and Appointments on iCalendar</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-with-confidence-mondly-for-all-ukrainians/"><u>Speak with Confidence: Mondly for All Ukrainians</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/step-by-step-guide-activating-and-utilizing-the-rtx-ai-chatbot-via-nvidia/"><u>Step-by-Step Guide: Activating and Utilizing the RTX AI Chatbot via NVIDIA</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/study-the-russian-alphabet-pronunciation/"><u>Study The Russian Alphabet Pronunciation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sweet-german-sentiments-romantic-talk-techniques/"><u>Sweet German Sentiments: Romantic Talk Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swift-progress-to-japanese-numerical-fluency/"><u>Swift Progress to Japanese Numerical Fluency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swift-syntax-and-vocabul-written-by-user/"><u>Swift Syntax and Vocabul Written by User</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/taste-the-world-translating-chocolate-in-30-languages/"><u>Taste the World: Translating 'Chocolate' In 30 Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-accurate-speech-overcoming-linguistic-barriers/"><u>The Art of Accurate Speech: Overcoming Linguistic Barriers</u></a></li>
+<li><a href="https://techidaily.com/the-easiest-methods-to-hard-reset-infinix-smart-8-hd-drfone-by-drfone-reset-android-reset-android/"><u>The Easiest Methods to Hard Reset Infinix Smart 8 HD | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-essential-guide-to-video-hue-correction-11-steps/"><u>The Essential Guide to Video Hue Correction (11 Steps)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-path-to-fluency-unveil-8-superior-benefits-of-learning-hindi-online-with-mondly/"><u>The Path to Fluency: Unveil 8 Superior Benefits of Learning Hindi Online with Mondly!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-wisdom-of-age-and-multilingualism-four-crucial-advantages-in-your-late-forties/"><u>The Wisdom of Age and Multilingualism: Four Crucial Advantages in Your Late Forties</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tourists-handbook-essential-italian-language-tools/"><u>Tourist's Handbook: Essential Italian Language Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-deep-emotions-in-hungarian-speech/"><u>Understanding Deep Emotions in Hungarian Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-turkish-language-learning-a-concise-alphabet-and-pronunciation-guide/"><u>Unlocking Turkish Language Learning: A Concise Alphabet & Pronunciation Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unraveling-your-israeli-expedition-key-expressions-and-guidance/"><u>Unraveling Your Israeli Expedition: Key Expressions & Guidance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ye-artful-jargon-unlocking-pirate-slang-and-vocabulary/"><u>Ye Artful Jargon: Unlocking Pirate Slang and Vocabulary</u></a></li>
+</ul></div>

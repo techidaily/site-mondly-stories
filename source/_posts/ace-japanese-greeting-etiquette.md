@@ -1,7 +1,7 @@
 ---
 title: Ace Japanese Greeting Etiquette
-date: 2024-07-12T08:59:00.134Z
-updated: 2024-07-13T08:59:00.134Z
+date: 2024-08-23T00:22:38.438Z
+updated: 2024-08-24T00:22:38.438Z
 tags:
   - speak
   - english
@@ -49,6 +49,9 @@ thumbnail: https://thmb.techidaily.com/07aa9db678660a97880964bc167fdc56576717cff
 
  Unlike English, which uses the same “hello” for a lot of different social contexts, the Japanese language has a dedicated “hello” for answering the phone:**moshi moshi (もしもし).** Doesn’t that sound cute?
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## 2\. Good morning in Japanese and other relevant greetings
 
 **Good morning in Japanese**   **– O_hayō gozaimasu_**  (おはよう ございます) is the best choice for greeting someone in the early morning hours (before 10:00 a.m.). Unlike_Konnichiwa_ ,   **O_hayō gozaimasu_**  a little more formal, so it’s safe to use it with people you don’t know or when you are meeting people in a position of authority (such as your boss or your teacher).
@@ -84,8 +87,23 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![goodbye in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/goodbye-in-japanese-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 4")
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  “See you soon, human” by Alain Pham©
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 4\. “Thank you” in Japanese and other polite phrases that you should know
 
  We already settled that the Japanese culture is a culture of respect and politeness. Thus, learning to say**“thank you” in Japanese** is probably one of your most important tasks to complete before visiting Japan. Lucky for you, there’s nothing difficult about that.
@@ -110,8 +128,15 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![arigato](https://edge.mondly.com/blog/wp-content/uploads/2019/08/arigato-1024x706.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 5")
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
  “Kyoto, Japan” by Andre Benz©
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ## Don’t forget about the Japanese bow
 
  Every**“hello” in Japanese** is usually accompanied by a bow, the Western world equivalent of a handshake. Our advice would be to not skip the bow if you really want to feel like you belong.
@@ -149,6 +174,9 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![sayonara](https://edge.mondly.com/blog/wp-content/uploads/2019/08/sayonara-1024x680.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 6")
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  “Tenryu-ji Temple, Kyōto-shi, Japan” by Masaaki Komori©
 
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fhello-in-japanese-japanese-greetings-you-need%2F&t=Hello+in+Japanese+%E2%80%93+All+the+Japanese+Greetings+You+Need+to+Know "Share on Facebook")
@@ -184,3 +212,46 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://mondly-stories.techidaily.com/mondly-and-oculus-quest-bridging-cultural-communication-in-vr/"><u>'Mondly' & Oculus Quest: Bridging Cultural Communication in VR</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-boosting-visuals-with-photoshops-motion-blur-effect-tutorial/"><u>[New] 2024 Approved  Boosting Visuals with Photoshop's Motion Blur Effect Tutorial</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-fps-dilemma-picking-between-30-and-60-hertz-in-video-recording/"><u>[New] FPS Dilemma  Picking Between 30 and 60 Hertz in Video Recording</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-tailoring-your-youtube-videography-with-powerful-wm-maker-skills/"><u>[Updated] 2024 Approved  Tailoring Your YouTube Videography with Powerful WM Maker Skills</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-parrot-playfulness-explored-in-bebop-2/"><u>[Updated] In 2024, Parrot Playfulness Explored in Bebop 2</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-no-limit-video-recorders-the-best-12-picks-for-2024/"><u>[Updated] No Limit Video Recorders - The Best 12 Picks for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/get-fluent-in-swedish-script-and-sounds-speedily/"><u>Get Fluent in Swedish Script & Sounds Speedily</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-gratitude-beyond-the-united-states/"><u>Global Gratitude: Beyond the United States</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-oppo-f23-5g-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix Oppo F23 5G Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-learn-french-at-home-the-best-methods-and-resources/"><u>How To Learn French At Home: The Best Methods And Resources</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-motorola-moto-g-stylus-2023-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Motorola Moto G Stylus (2023) Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-4-feasible-ways-to-fake-location-on-facebook-for-your-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>In 2024, 4 Feasible Ways to Fake Location on Facebook For your Apple iPhone 11 | Dr.fone</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/in-2024-design-cartoon-images-with-the-best-tools/"><u>In 2024, Design Cartoon Images With the Best Tools</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-tutorial-to-change-realme-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>In 2024, Tutorial to Change Realme IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-vimeoifytweets-audiovideo-tweet-tool/"><u>In 2024, VimeoifyTweets  Audio/Video Tweet Tool</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-zero-cost-strategies-for-engaging-youtube-intros/"><u>In 2024, Zero-Cost Strategies for Engaging YouTube Intros</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/inicia-tu-viaje-con-relojes-en-espanol/"><u>Inicia Tu Viaje Con Relojes en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/initiating-dialogue-the-key-to-fluent-chatting-mandarin/"><u>Initiating Dialogue: The Key to Fluent Chatting Mandarin</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-to-fluency-no-cost-resources-in-online-japanese-studies/"><u>Journey to Fluency: No Cost Resources in Online Japanese Studies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/koreas-days-unpacked-a-language-explorers-guide/"><u>Korea's Days Unpacked: A Language Explorer's Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-hurdles-jump-over-with-top-10-simple-tongues/"><u>Language Hurdles? Jump Over with Top 10 Simple Tongues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-latvian-online-a-simple-ten-minute-routine/"><u>Learn Latvian Online: A Simple Ten-Minute Routine</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-expressions-of-affection/"><u>Linguistic Expressions of Affection</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-unlocking-ukraines-language-potential/"><u>Mondly Unlocking Ukraine's Language Potential</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-vr-a-platform-for-practicing-spanish-and-friendship/"><u>Mondly VR: A Platform for Practicing Spanish and Friendship</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/my-journey-to-fluency-top-10-ways-mondly-shaped-my-studies/"><u>My Journey to Fluency: Top 10 Ways Mondly Shaped My Studies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-new-reads-best-french-novels-for-beginners/"><u>Navigating New Reads: Best French Novels for Beginners</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-s-most-popular-video-animation-apps-for-android-iphone-and-ipad/"><u>New S Most Popular Video Animation Apps for Android, iPhone, and iPad</u></a></li>
+<li><a href="https://apple-account.techidaily.com/persistent-issues-heres-why-and-how-you-can-fix-mw3-pc-game-crashes/"><u>Persistent Issues? Here's Why and How You Can Fix MW3 PC Game Crashes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/primary-foreign-languages-chosen-by-americans/"><u>Primary Foreign Languages Chosen by Americans</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/revolutionize-your-wireless-experience-with-the-clearstream-eclipse-antenna-powerful-yet-easy-to-use/"><u>Revolutionize Your Wireless Experience with the ClearStream Eclipse Antenna – Powerful Yet Easy to Use</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/start-chatting-across-cultures-at-just-475-percent-more/"><u>Start Chatting Across Cultures at Just 4.75 Percent More!</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-ultimate-fix-for-d3dx924dll-missing-or-corruption-problems/"><u>The Ultimate Fix for 'd3dx9_24.dll' Missing or Corruption Problems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-union-of-mondly-and-pearson-in-filtering-technology/"><u>The Union of Mondly and Pearson in Filtering Technology</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/trio-of-excellent-online-centers-for-quick-language-acquisition/"><u>Trio of Excellent Online Centers for Quick Language Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukrainian-speak-fast-ten-minute-routine-tips-93-chars/"><u>Ukrainian Speak Fast: Ten-Minute Routine Tips (93 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/us-and-uk-grammar-variances/"><u>US and UK Grammar Variances</u></a></li>
+<li><a href="https://howto.techidaily.com/why-your-honor-x8b-screen-might-be-unresponsive-and-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Your Honor X8b Screen Might be Unresponsive and How to Fix It | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/wookieese-wisdom-understanding-hutt-language-and-culture/"><u>Wookieese Wisdom: Understanding Hutt Language & Culture</u></a></li>
+</ul></div>

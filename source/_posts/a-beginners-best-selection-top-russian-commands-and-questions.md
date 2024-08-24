@@ -1,7 +1,7 @@
 ---
 title: "A Beginner's Best Selection: Top Russian Commands & Questions"
-date: 2024-07-12T08:58:09.506Z
-updated: 2024-07-13T08:58:09.506Z
+date: 2024-08-23T00:23:31.032Z
+updated: 2024-08-24T00:23:31.032Z
 tags:
   - speak
   - english
@@ -107,6 +107,9 @@ thumbnail: https://thmb.techidaily.com/91e1e91200cd3de99122d544eeafac52343ef1e6b
 
 ![learn russian](https://edge.mondly.com/blog/wp-content/uploads/2018/07/learn-russian-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 5")
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Photo by A.L.
 
 * Where can I buy tickets? –_Где здесь можно купить билеты? – Gde zdes mozhno kupit bilety?_
@@ -134,6 +137,9 @@ thumbnail: https://thmb.techidaily.com/91e1e91200cd3de99122d544eeafac52343ef1e6b
 * Very pleasant, thank you. –_Всё было замечательно, спасибо. – Vsyo bylo zamechatelno, spasibo._
 * Here is your bill, please look it over. – _Вот ваш счёт, проверьте пожалуйста. – Vot vash schot, proverte pozhaluysta._
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 5\. Learn Russian to experience the local cuisine
 
  Local cuisine is one of the best parts of a vacation. The experience is not whole if you don’t try at least one traditional meal. Something sweet or something salty? What is it going to be? No worries. Russian cuisine is diverse. You’ll have a great variety of dishes to choose from.
@@ -163,6 +169,9 @@ thumbnail: https://thmb.techidaily.com/91e1e91200cd3de99122d544eeafac52343ef1e6b
 
 ![useful-russian-words](https://edge.mondly.com/blog/wp-content/uploads/2018/07/useful-russian-words-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 7")
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<!-- affiliate ads end -->
  Photo by Henrique Félix
 
 * I would like a dessert. –_Я хотел бы десерт. Ya hotel by desert._
@@ -195,6 +204,9 @@ Just joking. Still is an amazing drink, though!
 * Let’s have some fun. –_Повеселимся! – Poveselimsya!_
 * Are there seats available? –_Ещё остались свободные места? – Yeshcho ostalis svobodnyye mesta?_
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 7\. Basic Russian phrases for shopping sprees
 
  This is the cruelest drudgery our loved ones from home put us through while on holiday. _Should I buy a matryoshka doll? Or some vodka? Maybe a refrigerator magnet? But when? What if I don’t buy anything? Will they hate me for life?_ Funny or not, these are all questions that haunt us while on holiday. The best solution? Schedule two hours tops and just get it over with. The same way you would do with a bandage.
@@ -204,6 +216,9 @@ Just joking. Still is an amazing drink, though!
 
 ![basic-russian](https://edge.mondly.com/blog/wp-content/uploads/2018/07/bassic-russian-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 9")
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<!-- affiliate ads end -->
  Photo by Alina Grubnyak
 
 * How much are they? –_Сколько они стоят? – Skolko oni stoyat?_
@@ -226,6 +241,9 @@ Just joking. Still is an amazing drink, though!
 
 ![common-russian-phrases](https://edge.mondly.com/blog/wp-content/uploads/2018/07/common-russian-phrases-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 10")
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<!-- affiliate ads end -->
  Photo by Greg Rakozy
 
 * May I hold your hand? –_Можно взять тебя за руку? – Mozhno vzyat tebya za ruku?_
@@ -237,6 +255,9 @@ Just joking. Still is an amazing drink, though!
 * Would you like to have dinner with me? –_Поужинаем вместе? – Pouzhynayem vmeste?_
 * I love you. – Я люблю тебя. –_Ya lyublyu tebya._
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Bonus: Basic Russian phrases for football lovers
 
 ![russian-phrases-world-cup](https://edge.mondly.com/blog/wp-content/uploads/2018/07/russian-phrases-world-cup-1024x576.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 11")
@@ -282,3 +303,38 @@ Just joking. Still is an amazing drink, though!
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-crafting-unique-cellphone-alerts-from-popular-tiktok-music/"><u>[New] In 2024, Crafting Unique Cellphone Alerts From Popular TikTok Music</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-master-the-making-of-spectacular-slideshows-for-your-social-circle/"><u>[Updated] 2024 Approved  Master the Making of Spectacular Slideshows for Your Social Circle</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-direct-transfer-path-youtube-content-to-dailymotion-hub/"><u>[Updated] Direct Transfer Path  YouTube Content to Dailymotion Hub</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/9-essential-strategies-for-fluent-english-discussion/"><u>9 Essential Strategies for Fluent English Discussion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/acoustic-language-mastery-proven-methods-melodies-and-resources/"><u>Acoustic Language Mastery: Proven Methods, Melodies & Resources</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/adopt-simplest-path-for-learning-latin-digitally/"><u>Adopt Simplest Path for Learning Latin Digitally</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/boost-language-ability-with-10-min-urdu-sessions/"><u>Boost Language Ability with 10-Min Urdu Sessions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/celebrating-10-years-of-mondlybuttonfilters/"><u>Celebrating 10 Years of MondlyButtonFilters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effortless-online-path-to-czech-fluency/"><u>Effortless Online Path to Czech Fluency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/film-and-television-as-educational-resources/"><u>Film and Television as Educational Resources</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/guide-to-the-top-120-vietnamese-expressions/"><u>Guide to the Top 120 Vietnamese Expressions</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-change-vivo-x100-lock-screen-password-by-drfone-android/"><u>How To Change Vivo X100 Lock Screen Password?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-motorola-edge-40-is-unlocked-by-drfone-android/"><u>How To Check if Your Motorola Edge 40 Is Unlocked</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-academic-anchors-identifying-top-10-lecture-preservation-tools/"><u>In 2024, Academic Anchors  Identifying Top 10 Lecture Preservation Tools</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-xiaomi-redmi-12-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Xiaomi Redmi 12 to Samsung Phone | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Honor X50 GT? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/joyeux-noel-french/"><u>Joyeux Noël (French)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-to-connect-japanese-greetings-for-beginners/"><u>Learning to Connect: Japanese Greetings for Beginners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-growth-at-50plus-five-key-advantages-unveiled/"><u>Linguistic Growth at 50+: Five Key Advantages Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-trends-everyday-jargon-and-what-they-mean/"><u>Linguistic Trends: Everyday Jargon and What They Mean</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-variability-insights-into-common-slang-usage/"><u>Linguistic Variability: Insights Into Common Slang Usage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-privacy-policy-unveiled-now/"><u>New Privacy Policy Unveiled Now</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-year-diverse-linguistic-dreams/"><u>New Year, Diverse Linguistic Dreams</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-french-vocab-coloring-lessons/"><u>Quick French Vocab Coloring Lessons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rapid-ukrainian-comprehension-in-minutes-a-day-95-chars/"><u>Rapid Ukrainian Comprehension in Minutes a Day (95 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-up-age-defying-linguistic-benefits/"><u>Speak Up: Age-Defying Linguistic Benefits</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/by-step-guide-for-earning-from-every-youtube-short-for-2024/"><u>Step-by-Step Guide for Earning From Every YouTube Short for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/top-clicker-article-titles-maker-for-2024/"><u>Top Clicker Article Titles Maker for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-gps-running-watches/"><u>Top Rated GPS Running Watches</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transnational-tongues-turkish-korean-twine/"><u>Transnational Tongues: Turkish-Korean Twine</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-get-started-with-mp4-video-editing-a-friendly-tutorial-for-mac-and-windows-beginners/"><u>Updated Get Started with MP4 Video Editing A Friendly Tutorial for Mac and Windows Beginners</u></a></li>
+</ul></div>

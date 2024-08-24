@@ -1,7 +1,7 @@
 ---
 title: "Corinthian Chronicles: The Linguistic Odyssey Continues"
-date: 2024-07-12T09:02:31.873Z
-updated: 2024-07-13T09:02:31.873Z
+date: 2024-08-23T00:19:02.177Z
+updated: 2024-08-24T00:19:02.177Z
 tags:
   - speak
   - english
@@ -49,6 +49,10 @@ thumbnail: https://thmb.techidaily.com/c381619f8aafcfb0f80b6508563d2271437d8649f
 
  Ancient Greek writing during this archaic period featured the “Boustrophedon” style (literally “ox-turning”, after the manner of an ox plowing a field), where alternate lines of text were reversed, a technique observed in earlier civilizations. Nevertheless, around the 8th century BC, the Greek alphabet was standardized.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
+The ultimate burning program for all your needs!</a>
+<!-- affiliate ads end -->
 ### Dialects of Ancient Greece
 
  **Before the conquest by the Macedonians in the late 4th century BCE, there was no unified Greek language;** rather, various competing dialects existed. Each city or region had its standard for inscriptions, and though these dialects were diverse, the Greeks had a concept of a shared linguistic identity and could understand other dialects.
@@ -74,6 +78,12 @@ Other literary works of art representative of this period include:
 
 ![ancient greece language](https://edge.mondly.com/blog/wp-content/uploads/2023/10/ancient-greece-language.jpg "Ancient Greek Language Influence On Modern Languages 6")
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Ancient Greek Writing System and Alphabet
 
  Did you know the word **‘alphabet’ originates from the initial two letters of the Greek alphabet,_‘alpha’_ and_‘beta’_ ?** While this may seem like a fun piece of unimportant trivia, you’ll soon discover that the influence of the ancient Greek language on modern languages is far greater than we think.
@@ -118,6 +128,9 @@ Other literary works of art representative of this period include:
 
  Just as significant for the modern world are the ancient Greek art and architecture. The principles of symmetry, harmony, and proportionality influenced Western architectural designs, including the construction of monuments and public buildings. The Greek column, for example, is a beloved element we’ve seen even in fashion!
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Ancient Greek influence on science and mathematics
 
  If we ask scientists, they’ll say that ancient Greeks made their most significant contributions to mathematics, astronomy, and medicine. For example, **the principles and theorems formulated by Pythagoras are integral to the scientific heritage that has shaped Western civilization.** Nowadays, children as young as 12 or 13 learn Pythagoras’ theorems in geometry – which, by the way, is another word of Greek origin.
@@ -134,6 +147,9 @@ Other literary works of art representative of this period include:
 
  Whenever you say a word like ‘psychology’, ‘theater’, or ‘chronology’, you pay tribute to the ancient Greek language. Still, the linguistic legacy is not limited to vocabulary but extends to idiomatic expressions, grammatical structures, and even rhetorical styles. Keep in mind the fact that this influence happened despite the geographical distance between ancient Greece and the English-speaking world.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### Enriching the modern lexicon
 
  So, how does the ancient Greek language live on through the modern languages? Well, as we already settled, one of the most striking manifestations of its influence is on the vocabulary. The terms beginning with ‘ph-’ are probably the most obvious examples. **Words like ‘philosophy’, ‘physical’, ‘photograph’, ‘phrase’, and ‘philanthropy’ all have roots in ancient Greek.**
@@ -188,6 +204,9 @@ _Describes a weakness in spite of overall great strength or resilience._
 
  The myth of Pandora’s box originates from the story where Prometheus steals fire from the gods to give to mankind. As a punishment for humanity, the gods create Pandora, the first woman, and give her a box with strict instructions not to open it. Overcome by curiosity, Pandora opens the box, releasing all the world’s troubles. Only Hope remains trapped inside.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. Herculean task
 
 **Refers to a task that requires extremely great strength or effort.**
@@ -202,6 +221,9 @@ _Refers to a person who has good fortune._
 
  The phrase originates from the Greek myth of King Midas of Phrygia, who was granted a wish by the god Dionysus. Midas wished that everything he touched would turn to gold. Unfortunately, this blessing became a curse as his food, water, wine, and even his beloved daughter Zoe turned to gold upon his touch, illustrating the unintended consequences of his ill-considered desire for wealth.
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 5\. The Apple of Discord
 
  _Refers to an object or issue that causes strife, contention, or rivalry among those who encounter or possess it._
@@ -212,6 +234,12 @@ _Refers to a person who has good fortune._
 
 ![what is greece's language](https://edge.mondly.com/blog/wp-content/uploads/2023/10/what-is-greeces-language.jpg "Ancient Greek Language Influence On Modern Languages 9")
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Differences Between Ancient Greek and Modern Greek
 
  Centuries of political, social, and cultural transformations, coupled with the dispersion of Greek populations and industrial changes, have profoundly influenced the evolution and richness of the Greek language. Thus, the transition from the ancient Greek language to the modern Greek language was all about adaptation and evolution. The language spoken in Plato’s Greece is indeed very different from the language spoken today in Greece. However, it is said that **a person proficient in Modern Greek can generally understand about 50% of ancient Greek texts** due to similar root words.
@@ -226,10 +254,16 @@ _Refers to a person who has good fortune._
 
  To summarize everything we learned about the ancient Greek language, let’s look at some frequently asked questions.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ### Is ancient Greek still spoken today?
 
  Just like Latin, the ancient Greek language is still used in scholarly circles and ecclesiastical domains, preserved in texts and liturgies. However, nobody speaks ancient Greek natively anymore.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### What are the main influences of ancient Greek on the English language?
 
  A lot of English words, concepts, and idiomatic expressions are of Greek origin. For example, the words that begin with the letter ‘ph’ are particularly easy to trace back to Greek.
@@ -238,6 +272,9 @@ _Refers to a person who has good fortune._
 
  The earliest attested writing system used by ancient Greeks is a clay tablet written in the Linear B script. It is hypothesized to be descended from the older Linear A script which is undeciphered. However, around the 8th century BCE, Greeks adopted the Greek alphabet used today.
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### How can I learn to speak ancient Greek?
 
  Learning to speak ancient Greek may prove difficult because we still don’t know how the ancient Greek language sounded. For this reason, you can never be sure whether your pronunciation is correct or not. However, learning the language is not impossible. Our advice is to learn modern Greek first and then move to its predecessor with the help of classic texts and scholarly resources.
@@ -275,3 +312,59 @@ _Refers to a person who has good fortune._
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-the-nexus-of-playfulness-for-young-gamers/"><u>[New] 2024 Approved  The Nexus of Playfulness for Young Gamers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-utilizing-youtubes-annotation-feature/"><u>[New] 2024 Approved  Utilizing YouTube's Annotation Feature</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-how-to-convert-youtube-and-vimeo-videos-into-mp3-files/"><u>[New] In 2024, How to Convert YouTube and Vimeo Videos Into MP3 Files</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-multiplying-joy-sharing-a-pile-of-photos-and-videos-with-instagram/"><u>[New] Multiplying Joy  Sharing a Pile of Photos & Videos with Instagram</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-picture-capture-unpacker-for-2024/"><u>[New] Picture Capture Unpacker for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-step-by-step-guide-to-add-fun-filters-and-graphics-to-your-snapchat-story/"><u>[Updated] 2024 Approved  Step-by-Step Guide to Add Fun Filters and Graphics to Your Snapchat Story</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-do-reviewers-receive-payments-online-for-2024/"><u>[Updated] Do Reviewers Receive Payments Online for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-high-quality-capture-on-mac-a-review-of-top-10-software/"><u>[Updated] High-Quality Capture on Mac  A Review of Top 10 Software</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-10-smart-strategies-for-novice-photo-editors-in-ps/"><u>2024 Approved  10 Smart Strategies for Novice Photo Editors in PS</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-unlock-the-power-of-product-placements-a-comprehensive-guide-for-youtubers/"><u>2024 Approved  Unlock the Power of Product Placements  A Comprehensive Guide for YouTubers</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/effective-ways-to-fix-checkra1n-error-31-on-iphone-13-by-drfone-ios/"><u>Effective Ways To Fix Checkra1n Error 31 On iPhone 13</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grammars-role-in-mastering-new-tongues/"><u>Grammar's Role in Mastering New Tongues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grasping-the-basics-of-spanish-verb-conjugation/"><u>Grasping the Basics of Spanish Verb Conjugation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gratitude-for-endless-educational-offerings/"><u>Gratitude for Endless Educational Offerings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/happy-birthdays-a-global-linguistic-journey/"><u>Happy Birthdays: A Global Linguistic Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-pronounce-spanish-accents-and-type-accent-letters/"><u>How To Pronounce Spanish Accents And Type Accent Letters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/impress-locals-the-best-17-spanish-sayings/"><u>Impress Locals: The Best 17 Spanish Sayings</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-a-perfect-guide-to-remove-or-disable-google-smart-lock-on-nokia-c210-by-drfone-android/"><u>In 2024, A Perfect Guide To Remove or Disable Google Smart Lock On Nokia C210</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-movavi-pro-video-review-the-new-standard/"><u>In 2024, Movavi Pro Video Review – The New Standard</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-top-10-password-cracking-tools-for-nokia-c12-pro-by-drfone-android/"><u>In 2024, Top 10 Password Cracking Tools For Nokia C12 Pro</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/italys-essential-hand-signals-a-cultural-guide/"><u>Italy's Essential Hand Signals - A Cultural Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/korean-days-explained-a-user-friendly-handbook/"><u>Korean Days Explained: A User-Friendly Handbook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-phrases-the-50-most-cool-and-classy-expressions/"><u>Latin Phrases: The 50 Most Cool and Classy Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-portuguese-like-a-pro-in-just-six-simple-steps/"><u>Learn Portuguese Like a Pro in Just Six Simple Steps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-unites-mondly-at-seven-milestones/"><u>Learning Unites: Mondly at Seven Milestones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-basic-spanish-salutations-top-10-phrases-to-know/"><u>Mastering Basic Spanish Salutations: Top 10 Phrases To Know</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/meet-your-upcoming-artificial-intelligence-confidant/"><u>Meet Your Upcoming Artificial Intelligence Confidant</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-launches-the-first-vr-language-app-mondlyar/"><u>Mondly Launches The First VR Language App - MondlyAR</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-horizons-through-senior-linguistics/"><u>New Horizons Through Senior Linguistics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-years-objectives-turn-promises-into-reality/"><u>New Year's Objectives: Turn Promises Into Reality</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polite-pleasers-how-to-show-thankfulness-in-30-different-tongues-157-trimmed-to-fit/"><u>Polite Pleasers: How to Show Thankfulness in 30 Different Tongues (157) [Trimmed to Fit]</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/premier-5-language-pedagogy-applications/"><u>Premier 5 Language Pedagogy Applications</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-learning-the-art-of-french-chromatic-expression/"><u>Quick Learning: The Art of French Chromatic Expression</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saying-i-love-you-in-over-50-countries-today/"><u>Saying 'I Love You' In Over 50 Countries Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sounds-of-english-embracing-canadian-irish-and-new-zealand-vowels/"><u>Sounds of English: Embracing Canadian, Irish, and New Zealand Vowels</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-slovak-flawlessly-in-10-min-doses-online/"><u>Speak Slovak Flawlessly in 10-Min Doses Online!</u></a></li>
+<li><a href="https://driver-download.techidaily.com/step-by-step-tutorial-obtaining-the-latest-linksys-ae2500-drivers-for-optimal-performance/"><u>Step-by-Step Tutorial: Obtaining the Latest Linksys AE2500 Drivers for Optimal Performance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/talk-like-an-aussie-the-language-of-the-landscape/"><u>Talk Like an Aussie: The Language of the Landscape</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-allurement-effective-phrases-to-spark-interest/"><u>The Art of Allurement: Effective Phrases to Spark Interest</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-british-american-linguistic-divide/"><u>The British-American Linguistic Divide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-complete-guide-to-expressing-hello-in-spanish-top-10-ways/"><u>The Complete Guide to Expressing 'Hello' In Spanish - Top 10 Ways</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-polyglot-panorama-africas-linguistic-spectrum/"><u>The Polyglot Panorama: Africa’s Linguistic Spectrum</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transformative-communication-the-power-of-multilingualism/"><u>Transformative Communication: The Power of Multilingualism</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/triple-threat-training-3-brain-drills-for-language-gurus/"><u>Triple Threat Training: 3 Brain Drills for Language Gurus</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tv-shows-and-films-a-gateway-to-fluency/"><u>TV Shows & Films: A Gateway to Fluency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-the-role-of-artificial-intelligence-in-education-and-language-learning/"><u>Understanding the Role of Artificial Intelligence in Education & Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/universal-spooktacular-traditions-unveiled/"><u>Universal Spooktacular Traditions Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-new-linguistic-worlds-through-research-based-melodies/"><u>Unlocking New Linguistic Worlds Through Research-Based Melodies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-new-resolutions-potential/"><u>Unlocking New Resolutions' Potential</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/where-else-does-thanksgiving-take-place/"><u>Where Else Does Thanksgiving Take Place?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-pick-up-another-tongue-post-forty-four-fascinating-factors/"><u>Why Pick Up Another Tongue Post-Forty: Four Fascinating Factors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/words-across-worlds-exploring-intergalactic-linguistics-in-star-wars/"><u>Words Across Worlds: Exploring Intergalactic Linguistics in Star Wars</u></a></li>
+</ul></div>

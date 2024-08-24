@@ -1,7 +1,7 @@
 ---
 title: "Aprendizaje De Tiempo en Español: Fundamentos"
-date: 2024-07-12T08:59:15.561Z
-updated: 2024-07-13T08:59:15.561Z
+date: 2024-08-23T00:22:22.930Z
+updated: 2024-08-24T00:22:22.930Z
 tags:
   - speak
   - english
@@ -57,6 +57,9 @@ But first things first.
 
 _**Nota bene:**_ If you prefer to use the 24-hour clock, you should say**_son las dieciséis_** **(“it’s 16:00”)** instead of **_son las cuatro_ (“it’s 4 o’clock p.m.”).** But that will require a little more studying on your part. Don’t worry though. Spanish numbers are just as easy as learning how to tell the time. You can master them with Mondly faster than you can say Jack Robinson. You can get started [here](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5345&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5345?mother%5Flang=en%5Fus?target%5Flang=es&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5345?mother%5Flang=en%5Fus?target%5Flang=es) .
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<!-- affiliate ads end -->
 ### How do you say the time in Spanish after 30?
 
  Now, the time is not always on the hour. So how do you say “half past”, “quarter past” and “quarter to” in Spanish? There are only two new words you need to remember:_**media**_ and_**cuarto**_ .
@@ -73,8 +76,15 @@ Here are some examples:
 
 ![telling time in spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/06/telling-time-in-spanish-600x600.jpg "How To Tell Time In Spanish - A Complete Guide For Beginners 3")
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+</a>
+<!-- affiliate ads end -->
  Telling time in Spanish – a visual guide
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<!-- affiliate ads end -->
 ### Hour + minutes in Spanish time
 
  Wanna be a little more specific? Here’s how Spanish time works when you need to indicate the exact number of minutes that have past from the hour.
@@ -86,6 +96,9 @@ Here are some examples:
 * _Son las ocho y cuarto._ (“it’s a quarter past eight”)
 * _Son las ocho y quince._ (“it’s eight and fifteen minutes”)
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Different ways of telling time in Spanish
 
  There are three formulas of telling time in Spanish. Here are different ways of telling it’s 3:10:
@@ -96,6 +109,10 @@ Here are some examples:
 
  Which one do you prefer? Additionally, if we also count it_cuarto_ and_media_ , there are no less than four different ways to tell the time in Spanish. And you’ve just mastered them all!
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ## How to indicate the time of day in Spanish
 
  If you are using the 12-hour clock, you sometimes might want to also point out the time of day. For instance, “it’s two in the afternoon” translates to_**son las dos de la tarde**_ in Spanish. Not too complicated, is it? Here are some more times of day that might come in handy:
@@ -110,6 +127,9 @@ Here are some examples:
 
  To indicate that an event occurs at a specific time, use the formula **a +_la(s)_ \+ time** :_La clase de español empieza a las nueve_ – “The Spanish class begins at 9”.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<!-- affiliate ads end -->
 ### Other useful time phrases in Spanish
 
 * _por la mañana_ – in the morning
@@ -173,3 +193,53 @@ Here are some examples:
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-iphone-night-pics-101-enhancing-dark-images/"><u>[New] 2024 Approved  IPhone Night Pics 101  Enhancing Dark Images</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-laughter-lab-virtually/"><u>[New] Laughter Lab Virtually</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-price-tag-on-popularity-pewdiepies-annual-earnings/"><u>[New] The Price Tag on Popularity – PewDiePie's Annual Earnings</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-animators-artistry-archives/"><u>[Updated] Animator's Artistry Archives</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-discover-the-top-7-free-youtube-tag-extractor-vendors/"><u>2024 Approved  Discover the Top 7 Free YouTube Tag Extractor Vendors</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/driving-impact-with-data-informed-spotify-ads/"><u>Driving Impact with Data-Informed Spotify Ads</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gran-guia-del-cuerpo-humano-la-historia-desde-el-cabello-a-los-pies/"><u>Gran Guía Del Cuerpo Humano: La Historia Desde El Cabello A Los Pies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/honteruss-quest-for-excellence-and-inspiration/"><u>Honterus's Quest for Excellence & Inspiration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-long-does-it-take-in-hours-to-learn-a-language/"><u>How Long Does It Take in Hours to Learn a Language?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-honor-x50-gt-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Honor X50 GT to iPhone (13/14/15) | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-music-from-infinix-note-30i-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Music from Infinix Note 30i to iPod | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-innovation-on-oculus-quest-with-mondlys-integration/"><u>Language Innovation on Oculus Quest with Mondly's Integration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/loves-universal-language-beyond-verbal-expressions/"><u>Love's Universal Language: Beyond Verbal Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-multiple-tongues-with-black-fridays-ultimate-sale/"><u>Master Multiple Tongues with Black Friday's Ultimate Sale</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-dominates-2022-premier-language-learning-app/"><u>Mondly Dominates 2022: Premier Language Learning App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-mosaic-honoring-european-linguistic-heritage/"><u>Multilingual Mosaic: Honoring European Linguistic Heritage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/nations-with-hispanic-voices-collected/"><u>Nations with Hispanic Voices Collected</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pc-gaming-fixes-solving-continuous-crashes-in-assassins-creed-valhalla/"><u>PC Gaming Fixes: Solving Continuous Crashes in Assassin's Creed Valhalla</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pc-gaming-troubles-why-is-my-rec-room-mic-not-working-fixes-and-tips-latest-guide/"><u>PC Gaming Troubles: Why Is My Rec Room Mic Not Working? Fixes & Tips (Latest Guide)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-introduction-to-hangul-an-asian-script-essentials-guide/"><u>Quick Introduction to Hangul: An Asian Script Essentials Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quickly-conquer-bulgarian-with-10-min-daily/"><u>Quickly Conquer Bulgarian with 10 Min Daily</u></a></li>
+<li><a href="https://howto.techidaily.com/reasons-for-vivo-y55s-5g-2023-stuck-on-startup-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Vivo Y55s 5G (2023) Stuck on Startup Screen and Ways To Fix Them | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/say-gday-like-a-true-blue-aussie/"><u>Say 'G'day!' Like a True Blue Aussie</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/simplifying-your-approach-to-spanish-verbal-usage/"><u>Simplifying Your Approach to Spanish Verbal Usage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spoken-confidence-with-these-17-instantaneous-expressions/"><u>Spoken Confidence with These 17 Instantaneous Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/starting-language-skills-kindergarten-elementary-spanish/"><u>Starting Language Skills: Kindergarten-Elementary Spanish</u></a></li>
+<li><a href="https://howto.techidaily.com/super-easy-ways-to-deal-with-xiaomi-redmi-a2-unresponsive-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Super Easy Ways To Deal with Xiaomi Redmi A2 Unresponsive Screen | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sweet-sentences-expressing-chocolate-in-30plus-languages/"><u>Sweet Sentences: Expressing 'Chocolate' In 30+ Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tales-of-arise-resolved-issues-and-bug-fixes/"><u>Tales of Arise: Resolved Issues and Bug Fixes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essentials-of-korean-days-an-introductory-guide/"><u>The Essentials of Korean Days: An Introductory Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-evolution-of-my-language-mastery-with-mondly-the-10-key-factors/"><u>The Evolution of My Language Mastery with Mondly - The 10 Key Factors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-10-films-for-aspiring-polyglots/"><u>Top 10 Films for Aspiring Polyglots</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-tech-enhanced-language-learning-for-corporates/"><u>Top Tech-Enhanced Language Learning for Corporates</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-rated-online-strategies-to-learn-and-excel-in-new-languages/"><u>Top-Rated Online Strategies to Learn and Excel in New Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-your-talking-ability-now-at-half-the-usual-rate/"><u>Transform Your Talking Ability - Now at Half the Usual Rate</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/troubleshooting-guide-getting-your-origin-game-up-and-running-again/"><u>Troubleshooting Guide: Getting Your Origin Game Up and Running Again</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unleash-your-potential-through-international-linguistics/"><u>Unleash Your Potential Through International Linguistics</u></a></li>
+<li><a href="https://techtrends.techidaily.com/unlock-full-potential-step-by-step-guide-to-enhancing-apple-tv-functionality/"><u>Unlock Full Potential: Step-by-Step Guide to Enhancing Apple TV Functionality</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-japans-language-of-respect-and-friendship/"><u>Unlocking Japan's Language of Respect & Friendship</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/virtual-classroom-language-proficiency-made-easy/"><u>Virtual Classroom: Language Proficiency Made Easy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/voice-colors-brightly-in-french-fast/"><u>Voice Colors Brightly in French Fast</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/voicemirror-vr-speaking-the-worlds-languages/"><u>VoiceMirror VR: Speaking the World's Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vr-babel-fish-transform-flingish-to-fluency/"><u>VR Babel Fish: Transform Flingish to Fluency!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/what-are-the-leading-foreign-languages-studied-by-americans/"><u>What Are The Leading Foreign Languages Studied by Americans?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/world-accents-from-canadian-rs-to-cockney-rhyming-slang/"><u>World Accents: From Canadian R's to Cockney Rhyming Slang</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/zestfully-mastering-latin-through-games/"><u>Zestfully Mastering Latin Through Games</u></a></li>
+</ul></div>

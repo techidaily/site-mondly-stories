@@ -1,7 +1,7 @@
 ---
 title: 聖誕快樂 (Cantonese)
-date: 2024-07-12T09:03:03.467Z
-updated: 2024-07-13T09:03:03.467Z
+date: 2024-08-23T00:18:30.944Z
+updated: 2024-08-24T00:18:30.944Z
 tags:
   - speak
   - english
@@ -58,10 +58,16 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
 
  “Santa and a fan” by Mike Arney©
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## French –_Joyeux Noël!_
 
  Do you want to see what Christmas magic and miracles really mean? Then add the movie with the same name –_Joyeux Noël_ – on your Christmas movies list and thank me later. I promise it won’t be cheesy. On the contrary!
 
+<!-- affiliate ads begin -->
+<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## German –_Frohe Weihnachten!_
 
  Nothing compares to the warmth and magic of a German Christmas market. If you have never been to one, you should try going this year._Weihnachten_ (Christmas) is incredibly tasty in Germany!
@@ -70,6 +76,9 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
 
  Famous for its_bellezza_ and absolutely splendid seashores, Italy is also the home of highly religious Christmas traditions. One of the most important Italian Christmas celebrations is having_presepi_ (nativity scenes) everywhere.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Portuguese –_Feliz Natal!_
 
  While in Portugal [Santa Claus](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) is known as_Pai Natal_ (“Father Christmas”), in Brazil people call him_Papai Noel_ or_Bom Velhinho_ (“Good Old Man”). Unlike many countries in Europe where Santa leaves presents under the Christmas tree, in Brazil kids leave a sock near a window hoping that Papai Noel will find it and exchange it for a present.
@@ -78,24 +87,40 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
 
  “The Christmas present we all need” by Jakob Owens©
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<!-- affiliate ads end -->
 ## Romanian –_Crăciun Fericit!_
 
  Did you know that one of the most beautiful Christmas markets in Europe takes place in Sibiu? It’s almost like Santa had scattered magic dust all over the place. It’s breathtakingly beautiful!
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Russian –_Счастливого Рождества! (Schastlivogo Rozhdestva!)_
 
  While most countries celebrate Christmas on the 25th of December, Russia celebrates it on the 7th of January because the Russian Orthodox church uses “The old calendar” or the Julian calendar. And the 25th of December on the Julian calendar corresponds to the 7th of January in the Gregorian calendar.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+</a>
+<!-- affiliate ads end -->
 ## Swedish – _God Jul!_
 
  Nothing says**Swedish fika** like brunch with a friend on Christmas Day. Or at least that’s how we, as nonlocals, imagine it. In reality, on Christmas Eve, Swedish people have an entire feast called_julbord_ with many different kinds of cold fish,_julskinka_ (a type of Christmas ham), salads, cheeses, meatballs,_prinskorv_ (Swedish sausages), jellied pigs’ feet,_revbenspjäll_ (oven-roasted pork ribs) and many others. Mmm… Sounds delicious!
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
 ## Norwegian –_God Jul!_
 
  Christmas wasn’t celebrated in Norway until the XI century when Christianity first came to the area. But today, children in Norway patiently wait for_Julenissen_ (Santa Claus) every year in December.
 
  But the most beautiful Norwegian Christmas tradition remains that of the Christmas Tree that Norway gives to the UK every year as a “thank you” for the help that British have to Norwegians during World War II.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Danish –_Glædelig Jul!_
 
  In Denmark, it is said that the_Julemanden_ (“Christmas Man” or “Yule Man”) brings presents to children that were good during the year. Julemanden is very similar to Santa Claus, lives in Greenland, also travels in a sleigh pulled by reindeers and likes rice pudding.
@@ -110,6 +135,9 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
 
  “Christmas home” by Євгенія Височина©
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Icelandic –_Gleðileg Jól!_
 
  Jól (“Yule” or “Christmas”) in Iceland also includes the [New Year](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) celebrations.
@@ -138,18 +166,27 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
 
  But Dutch Christmas celebrations are separate from the visit of Sinterklaas. On Christmas Eve,_Kerstman_ (“Christmas Man”) comes from Lapland to bring even more presents (Dutch kids are the luckiest!). Then, on Christmas Day, the celebration continues with a Church Service and family meal.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Croatian –_Sretan Božić!_
 
  In Khaleesi’s kingdom, people celebrate Christmas by fasting beforehand (the same as in the other largely Catholic countries) going to a Midnight Mass service and eating lots of tasty foods during Christmas Day. So no sign of dragons!
 
 ![merry christmas in italian](https://edge.mondly.com/blog/wp-content/uploads/2019/12/merry-christmas-in-italian-1024x684.jpg "How To Say Merry Christmas In 21 Different Languages 6")
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  “Christmas lights” by T. Rampersad©
 
 ## Czech –_Veselé Vánoce!_
 
  Czech tradition says that Ježíšek or “Little Jesus” (the Czech_Christkind_) brings presents while children enjoy the Christmas Eve dinner and leaves them under the Christmas Tree.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Japanese –_メリークリスマス！(Merīkurisumasu!)_
 
  In Japan, which is primarily Buddhist and Shinto, Christmas isn’t a traditional holiday. However, like other Western holidays and traditions, it has become increasingly popular in Japan since World War II. The only difference is that Christmas is seen as a romantic occasion for couples here. They also celebrate [Thanksgiving](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Suitably enough, the most famous Japanese Christmas song is “Christmas Eve” by Tatsuro Yamashita, which is about lovers unable to meet on Christmas Eve.
@@ -326,3 +363,44 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-lessons.techidaily.com/new-best-ios-slideshow-software-from-x-to-ios13/"><u>[New] Best iOS Slideshow Software From X to IOS13</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-record-screen-on-xiaomi-11t-mi-11mi-11-lite/"><u>[New] In 2024, Record Screen on Xiaomi 11T/ Mi 11/Mi 11 Lite</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/outube-studios-comprehensive-guide-to-video-post-production-for-2024/"><u>[New] YouTube Studio's Comprehensive Guide to Video Post Production for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-essential-forgotten-tips-for-instagram-proficiency-for-2024/"><u>[Updated] Essential, Forgotten Tips for Instagram Proficiency for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-from-live-logging-to-global-broadcasting-mastery-through-mindfulness-for-2024/"><u>[Updated] From Live Logging to Global Broadcasting  Mastery Through Mindfulness for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-decoding-youtube-income-how-much-does-each-1000-viewer-earn/"><u>[Updated] In 2024, Decoding YouTube Income  How Much Does Each 1,000 Viewer Earn?</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-the-ultimate-list-of-top-5-pc-screen-grabbers-ranked-1-5/"><u>2024 Approved  The Ultimate List of Top 5 PC Screen Grabbers Ranked #1-#5</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-samsung-galaxy-xcover-7-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Samsung Galaxy XCover 7 | Dr.fone</u></a></li>
+<li><a href="https://windows11.techidaily.com/a-guide-to-direct-access-for-the-curious-explorer-in-windows-11/"><u>A Guide to Direct Access for the Curious Explorer in Windows 11</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/best-video-editor-for-vimeo/"><u>Best Video Editor for Vimeo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grateful-words-across-borders-say-thank-you-in-30-languages-156/"><u>Grateful Words Across Borders: Say Thank You in 30 Languages (156)</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-samsung-galaxy-s24plus-drfone-by-drfone-virtual-android/"><u>How to Change Netflix Location to Get More Country Version On Samsung Galaxy S24+ | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-repair-unresponsive-fn-keys-a-guide-for-asus-notebook-users/"><u>How to Repair Unresponsive Fn Keys: A Guide for ASUS Notebook Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hungarian-eloquent-gestures-for-expressing-adoration/"><u>Hungarian Eloquent Gestures for Expressing Adoration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/intercultural-expression-essentials/"><u>Intercultural Expression Essentials</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-charms-teaching-made-enjoyable/"><u>Latin Charms: Teaching Made Enjoyable</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-english-a-collection-of-9-key-grammar-techniques/"><u>Mastering English: A Collection of 9 Key Grammar Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-crowned-at-2021-witsas-ict-summit/"><u>Mondly Crowned at 2021 WITSA's ICT Summit</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-recognized-as-2021-excellence-champion/"><u>Mondly Recognized as 2021 Excellence Champion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-german-colloquialisms-with-confidence-top-25/"><u>Navigating German Colloquialisms with Confidence (Top 25)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/partes-del-cuerpo-de-la-cabeza-a-los-pies-en-espanol/"><u>Partes Del Cuerpo: De La Cabeza A Los Pies En Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pearson-your-gateway-to-international-communication/"><u>Pearson: Your Gateway to International Communication</u></a></li>
+<li><a href="https://extra-support.techidaily.com/pro-3-camera-insight-mastering-video-on-the-go-with-ion-for-2024/"><u>Pro 3 Camera Insight  Mastering Video on the Go with ION for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-latvian-lessons-achieve-proficiency-fast/"><u>Quick Latvian Lessons - Achieve Proficiency Fast</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spaniards-tongue-versus-luso-speech-a-romance-comparison/"><u>Spaniard's Tongue Versus Luso Speech: A Romance Comparison</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/starting-from-zero-pronunciation-and-the-german-alphabet-demystified/"><u>Starting From Zero: Pronunciation & The German Alphabet Demystified</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-innate-ability-of-children-to-learn-multiple-languages/"><u>The Innate Ability of Children to Learn Multiple Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-english-contractions/"><u>The Ultimate Guide To English Contractions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-review-for-apple-enthusiasts-apple-watch-series-9-breakdown/"><u>The Ultimate Review for Apple Enthusiasts: Apple Watch Series 9 Breakdown</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-sayings-and-phrases-guide-for-australians/"><u>The Ultimate Sayings and Phrases Guide for Australians</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/the-ultimate-technique-for-uniform-audio-amplitude-in-vlc-a-detailed-walkthrough-for-2024/"><u>The Ultimate Technique for Uniform Audio Amplitude in VLC A Detailed Walkthrough for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-asian-linguistic-varieties-easy-reordering/"><u>Top Asian Linguistic Varieties: Easy Reordering</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/turko-korean-discourse-dynamics/"><u>Turko-Korean Discourse Dynamics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukranian-language-skills-upgrade-in-minutes-a-day-106-chars/"><u>Ukranian Language Skills Upgrade in Minutes a Day (106 Chars)</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/ultimate-guide-the-finest-gratis-audio-editor-software-on-windowsmac-for-2024/"><u>Ultimate Guide The Finest Gratis Audio Editor Software on Windows/Mac for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/ultimate-sound-bank-vintage-voice-choices-for-2024/"><u>Ultimate Sound Bank  Vintage Voice Choices for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-vk-key-facts-on-russias-virtual-network/"><u>Unveiling VK: Key Facts on Russia's Virtual Network</u></a></li>
+</ul></div>

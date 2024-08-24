@@ -1,7 +1,7 @@
 ---
 title: Conocer La Pantalla Del Reloj - Pasos Para Comenzar
-date: 2024-07-12T09:03:04.529Z
-updated: 2024-07-13T09:03:04.529Z
+date: 2024-08-23T00:18:29.716Z
+updated: 2024-08-24T00:18:29.716Z
 tags:
   - speak
   - english
@@ -57,6 +57,10 @@ But first things first.
 
 _**Nota bene:**_ If you prefer to use the 24-hour clock, you should say**_son las dieciséis_** **(“it’s 16:00”)** instead of **_son las cuatro_ (“it’s 4 o’clock p.m.”).** But that will require a little more studying on your part. Don’t worry though. Spanish numbers are just as easy as learning how to tell the time. You can master them with Mondly faster than you can say Jack Robinson. You can get started [here](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5345&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5345?mother%5Flang=en%5Fus?target%5Flang=es&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5345?mother%5Flang=en%5Fus?target%5Flang=es) .
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
+The ultimate burning program for all your needs!</a>
+<!-- affiliate ads end -->
 ### How do you say the time in Spanish after 30?
 
  Now, the time is not always on the hour. So how do you say “half past”, “quarter past” and “quarter to” in Spanish? There are only two new words you need to remember:_**media**_ and_**cuarto**_ .
@@ -73,6 +77,9 @@ Here are some examples:
 
 ![telling time in spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/06/telling-time-in-spanish-600x600.jpg "How To Tell Time In Spanish - A Complete Guide For Beginners 3")
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Telling time in Spanish – a visual guide
 
 ### Hour + minutes in Spanish time
@@ -86,6 +93,9 @@ Here are some examples:
 * _Son las ocho y cuarto._ (“it’s a quarter past eight”)
 * _Son las ocho y quince._ (“it’s eight and fifteen minutes”)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Different ways of telling time in Spanish
 
  There are three formulas of telling time in Spanish. Here are different ways of telling it’s 3:10:
@@ -96,6 +106,9 @@ Here are some examples:
 
  Which one do you prefer? Additionally, if we also count it_cuarto_ and_media_ , there are no less than four different ways to tell the time in Spanish. And you’ve just mastered them all!
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to indicate the time of day in Spanish
 
  If you are using the 12-hour clock, you sometimes might want to also point out the time of day. For instance, “it’s two in the afternoon” translates to_**son las dos de la tarde**_ in Spanish. Not too complicated, is it? Here are some more times of day that might come in handy:
@@ -110,6 +123,10 @@ Here are some examples:
 
  To indicate that an event occurs at a specific time, use the formula **a +_la(s)_ \+ time** :_La clase de español empieza a las nueve_ – “The Spanish class begins at 9”.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
+<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<!-- affiliate ads end -->
 ### Other useful time phrases in Spanish
 
 * _por la mañana_ – in the morning
@@ -145,6 +162,9 @@ Here are some examples:
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Speak Spanish fluently in just 10 minutes a day
 
  Do you want to [speak Spanish fluently](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) fast? Get Mondly, the award-winning language learning app that will help you speak Spanish as if you were Spanish-born.
@@ -173,3 +193,52 @@ Here are some examples:
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-simplifying-your-tiktok-journey-on-macs-and-windows/"><u>[New] 2024 Approved  Simplifying Your TikTok Journey on Macs and Windows</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-the-digital-archivists-playbook-preserving-real-time-videos/"><u>[Updated] 2024 Approved  The Digital Archivist's Playbook  Preserving Real-Time Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-accelerating-or-slowing-down-youtube-videos-playback/"><u>[Updated] In 2024, Accelerating or Slowing Down YouTube Videos Playback</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-quick-and-easy-conducting-instagram-stories-polls-today/"><u>2024 Approved  Quick & Easy  Conducting Instagram Stories Polls Today</u></a></li>
+<li><a href="https://win-answers.techidaily.com/conquering-cod-warzone-error-code-6328-expert-fixes-and-game-boosting-advice/"><u>Conquering Cod Warzone Error Code 6328 : Expert Fixes and Game-Boosting Advice</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-the-error-of-unfortunately-the-processcomandroidphone-has-stopped-on-poco-c65-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix the Error of Unfortunately the Process.com.android.phone Has Stopped on Poco C65 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-english-variants-unveiling-american-irish-and-indian-tones/"><u>Global English Variants: Unveiling American, Irish, and Indian Tones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/guida-speciale-al-contare-in-italiano-1-1000/"><u>Guida Speciale Al Contare in Italiano (1-1000)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/halloween-around-the-world-unique-traditions-and-celebrations/"><u>Halloween Around The World: Unique Traditions And Celebrations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/harnessing-mondlys-full-capabilities-for-success/"><u>Harnessing Mondly's Full Capabilities for Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-take-your-english-to-the-next-level/"><u>How to Take Your English to the Next Level</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-show-wi-fi-password-on-xiaomi-13-ultra-by-drfone-android/"><u>In 2024, How to Show Wi-Fi Password on Xiaomi 13 Ultra</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-the-ultimate-guide-to-youtube-caption-insertion/"><u>In 2024, The Ultimate Guide to YouTube Caption Insertion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/instrucciones-para-entender-la-hora-en-espanol/"><u>Instrucciones Para Entender La Hora en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introduction-to-the-german-phonetic-system/"><u>Introduction to The German Phonetic System</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-bulgarian-in-dashes-10-minute-sessions/"><u>Learn Bulgarian in Dashes - 10-Minute Sessions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-the-art-of-english-mondlys-blueprint/"><u>Master the Art of English: Mondly's Blueprint</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-latin-the-least-complicated-method-online/"><u>Mastering Latin: The Least Complicated Method Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-brings-you-a-diverse-new-phrasebook/"><u>Mondly Brings You a Diverse New Phrasebook!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-fuses-with-pearson-knowledge-collective/"><u>Mondly Fuses with Pearson Knowledge Collective</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-unveils-revolutionary-vr-language-learning-experience/"><u>Mondly Unveils: Revolutionary VR Language Learning Experience!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/most-chosen-overseas-languages-for-education/"><u>Most Chosen Overseas Languages for Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-grammars-maze-for-learners/"><u>Navigating Grammar's Maze for Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/no-more-excuses-learn-any-language-today/"><u>No More Excuses - Learn Any Language Today!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/numbers-unveiled-the-russian-method/"><u>Numbers Unveiled: The Russian Method</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/prime-foreign-tongues-pursued-by-americans/"><u>Prime Foreign Tongues Pursued by Americans</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revelations-in-farsi-history-benefits-abound/"><u>Revelations in Farsi History, Benefits Abound</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/say-ciao-right-top-10-italian-welcoming-phrases-unveiled/"><u>Say 'Ciao!' Right: Top 10 Italian Welcoming Phrases Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tecnicas-para-articulacion-de-colores/"><u>Técnicas Para Articulación De Colores</u></a></li>
+<li><a href="https://android-frp.techidaily.com/the-complete-guide-to-huawei-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>The Complete Guide to Huawei FRP Bypass Everything You Need to Know</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/the-complete-vivacut-overview-editors-deep-dive-for-2024/"><u>The Complete VivaCut Overview  Editor's Deep Dive for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-francophiles-handbook-essential-french-speak-skills/"><u>The Francophile's Handbook: Essential French Speak Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-hungarian-way-to-declare-your-heart/"><u>The Hungarian Way to Declare Your Heart</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-secrets-of-speed-learn-czech-with-digital-aids/"><u>The Secrets of Speed: Learn Czech with Digital Aids</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transatlantic-communication-unraveling-differences/"><u>Transatlantic Communication: Unraveling Differences</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-your-tongue-with-mondlys-techniques/"><u>Transform Your Tongue with Mondly's Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/two-years-of-mondly-languages-we-had-a-dream-a-great-dream/"><u>Two Years Of Mondly Languages - We Had A Dream. A Great Dream.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/uk-dialect-decoded-fluent-in-locals-tongue/"><u>UK Dialect Decoded: Fluent in Locals Tongue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/uniting-people-for-10-years-mondlys-story/"><u>Uniting People for 10 Years - Mondly’s Story</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-communication-potential-with-mondly-top-10-ways-for-success/"><u>Unlocking Communication Potential with Mondly - Top 10 Ways for Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-smooth-conversation-top-9-verbal-mastery-hints/"><u>Unlocking Smooth Conversation: Top 9 Verbal Mastery Hints</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/us-vs-uk-a-linguistic-comparison/"><u>US vs UK: A Linguistic Comparison</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vocal-varieties-comparing-american-drawl-with-british-cockney-and-australian-swagger/"><u>Vocal Varieties: Comparing American Drawl with British Cockney & Australian Swagger</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/voice-activated-multi-language-the-new-oculus-quest-update-feature/"><u>Voice-Activated, Multi-Language: The New Oculus Quest Update Feature</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/year-of-linguistics-cut-costs-by-95-today/"><u>Year of Linguistics? Cut Costs by 95%% Today!</u></a></li>
+</ul></div>

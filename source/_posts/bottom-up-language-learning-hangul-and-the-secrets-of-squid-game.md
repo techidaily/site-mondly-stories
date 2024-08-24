@@ -1,7 +1,7 @@
 ---
 title: "Bottom-Up Language Learning: Hangul & the Secrets of Squid Game"
-date: 2024-07-12T09:01:35.433Z
-updated: 2024-07-13T09:01:35.433Z
+date: 2024-08-23T00:20:00.114Z
+updated: 2024-08-24T00:20:00.114Z
 tags:
   - speak
   - english
@@ -64,12 +64,19 @@ So there’s only one conclusion we can draw from this…
 
 **Like Thanos, getting lost in translation is inevitable.**
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+</a>
+<!-- affiliate ads end -->
 ## Learn Korean and overcome the one-inch-tall barrier of subtitles
 
  It’s amazing how people learn languages for love. There’s no greater drive than love. And I’m not talking just about romantic love. The fact that so many people are learning Korean after they watched Squid Game, it’s an act of love. All these people learn Korean out of love for this show. Others have been learning the language out of love for BTS. You could even go so far as to say that love makes us smarter. Or better.
 
 ![squid game love](https://media.giphy.com/media/USVF7ZnGqVuoABCBUr/giphy.gif "Obsessed With Squid Game, But Lost In Translation? Learn Korean 7")
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<!-- affiliate ads end -->
  **Would you [learn Korean](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6194&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko) out of love for hallyu?** In 2020, in his Oscar acceptance speech, ‘Parasite’ director Bong Joon Ho said something the world will never forget:
 
  Once you overcome the 1-inch-tall barrier of subtitles, you will be introduced to so many more amazing films.
@@ -78,6 +85,9 @@ So there’s only one conclusion we can draw from this…
 
  And you know what’s the second-best thing about this? You’ll be in great company. Since the launch of Squid Game, Mondly has seen a massive increase in people starting to learn Korean. You can join them all **[here](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6194&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko)**  .
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Even the English language wants to learn Korean
 
  Do you need an extra reason to start learning? Here’s a good one: even the English language started to learn Korean.
@@ -89,6 +99,9 @@ So there’s only one conclusion we can draw from this…
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ## From 0 to conversational in Korean
 
  Here’s the best way to up your Korean game fast. Get Mondly, the award-winning language learning app, put your enthusiasm to work and speak Korean like a pro in no time. It can be really tricky to master the Korean pronunciation if you don’t actively live in South Korea. But with Mondly, you’ll have access to a fast and highly efficient learning method that allows you to learn Korean naturally with:
@@ -120,3 +133,53 @@ So there’s only one conclusion we can draw from this…
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-maximize-your-youtube-yields-small-channel-sponsorship-strategies/"><u>[New] 2024 Approved  Maximize Your YouTube Yields  Small Channel Sponsorship Strategies</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-reinforcing-silence-in-obs-recordings/"><u>[New] Reinforcing Silence in OBS Recordings</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-majestic-celestial-images-at-your-command/"><u>[Updated] Majestic Celestial Images at Your Command</u></a></li>
+<li><a href="https://data-recovery.techidaily.com/1720600614247-windowsstellar-data-recovery/"><u>「Windowsシステムから失われたデータを復元するStellar Data Recoveryフリーソフト」</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-green-thumbs-united-top-10-agrigames-for-friends-and-family/"><u>2024 Approved  Green Thumbs United  Top 10 AgriGames for Friends and Family</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-optimizing-video-content-with-perfect-youtube-titles/"><u>2024 Approved  Optimizing Video Content with Perfect YouTube Titles</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-streammastery-101-the-beginners-path-to-livestrancing-podcasts/"><u>2024 Approved  StreamMastery 101  The Beginner's Path to Livestrancing Podcasts</u></a></li>
+<li><a href="https://howto.techidaily.com/9-solutions-to-fix-process-system-isnt-responding-error-on-tecno-pova-5-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Process System Isnt Responding Error on Tecno Pova 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/authentication-error-occurred-on-realme-note-50-here-are-10-proven-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Authentication Error Occurred on Realme Note 50? Here Are 10 Proven Fixes | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/breaking-the-barrier-uploading-and-live-broadcasting-vids-to-fb/"><u>Breaking the Barrier  Uploading and Live Broadcasting Vids to FB</u></a></li>
+<li><a href="https://games-able.techidaily.com/elevating-your-gaming-experience-with-counter-strike-2-on-a-mac/"><u>Elevating Your Gaming Experience with Counter-Strike 2 on a Mac</u></a></li>
+<li><a href="https://win-answers.techidaily.com/expert-tips-to-resolve-winning-partys-battlenet-launcher-malfunction-on-windows/"><u>Expert Tips to Resolve Winning Party's Battle.net Launcher Malfunction on Windows</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/freeze-frame-like-a-pro-easy-steps-to-amazing-slow-mo-videos-on-android/"><u>Freeze Frame Like a Pro  Easy Steps to Amazing Slow Mo Videos on Android</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-huawei-p60-without-the-home-button-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Huawei P60 Without the Home Button | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-best-3-oppo-f25-pro-5g-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>In 2024, Best 3 Oppo F25 Pro 5G Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/key-world-languages-ranked-1-15/"><u>Key World Languages Ranked 1-15</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-evolution-cutting-edge-techniques-for-contemporary-learners/"><u>Language Evolution: Cutting-Edge Techniques for Contemporary Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-bridge-between-nations/"><u>Linguistic Bridge Between Nations</u></a></li>
+<li><a href="https://games-able.techidaily.com/making-the-most-of-steams-offline-illusion/"><u>Making the Most of Steam's Offline Illusion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-english-a-collection-of-9-key-grammar-techniques/"><u>Mastering English: A Collection of 9 Key Grammar Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-the-art-of-saying-hello-in-spanish-dive-into-these-top-10-phrases/"><u>Mastering the Art of Saying 'Hello' In Spanish - Dive Into These Top 10 Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-and-apple-lead-charge-in-education-tech-with-10-ranking/"><u>Mondly and Apple Lead Charge in Education Tech with #10 Ranking</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-hits-stride-with-apple-ranks-as-10th-global-ed-app/"><u>Mondly Hits Stride With Apple, Ranks as 10Th Global Ed-App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-leads-with-excellence-at-2021-gala/"><u>Mondly Leads with Excellence at 2021 Gala</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-recognized-as-2021-excellence-champion/"><u>Mondly Recognized as 2021 Excellence Champion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/most-prevalent-overseas-dialects-studied-in-the-states/"><u>Most Prevalent Overseas Dialects Studied in the States</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-milestones-from-linguistic-patchwork-to-unity/"><u>Multilingual Milestones: From Linguistic Patchwork to Unity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-german-colloquialisms-with-confidence-top-25/"><u>Navigating German Colloquialisms with Confidence (Top 25)</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-converting-regular-videos-with-best-vr-video-converters/"><u>New In 2024, Converting Regular Videos with Best VR Video Converters</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/obtain-nvidias-most-recent-quadro-rtx-8000-driver-version-for-win-1187-pcs/"><u>Obtain NVIDIA's Most Recent Quadro RTX 8000 Driver Version for Win 11/8/7 PCs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oracles-output-ancient-greek-influence-and-modern-context/"><u>Oracle’s Output: Ancient Greek Influence & Modern Context</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/preeminent-5-apps-aiding-language-teachers/"><u>Preeminent 5 Apps Aiding Language Teachers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pushing-english-perfection-through-mondly-training/"><u>Pushing English Perfection Through Mondly Training</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/starting-from-zero-pronunciation-and-the-german-alphabet-demystified/"><u>Starting From Zero: Pronunciation & The German Alphabet Demystified</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukranian-proficiency-in-piecemeal-daily-doses-105-chars/"><u>Ukranian Proficiency in Piecemeal Daily Doses (105 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-mondlys-instruction-model/"><u>Understanding Mondly's Instruction Model</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/unleash-creative-potential-top-10-sticker-enhancing-mobile-apps/"><u>Unleash Creative Potential  Top 10 Sticker-Enhancing Mobile Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-spanish-verbs-conjugation-essentials/"><u>Unlocking Spanish Verbs: Conjugation Essentials</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unmasking-the-mysteries-of-squid-game-with-korean-lessons/"><u>Unmasking The Mysteries of Squid Game with Korean Lessons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-santas-secretive-sapien-symphony/"><u>Unveiling Santa's Secretive Sapien Symphony</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/venetian-vignettes-poetic-italian-flirting/"><u>Venetian Vignettes: Poetic Italian Flirting</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/ways-to-find-unlocking-codes-for-itel-a60s-phones-by-drfone-android/"><u>Ways To Find Unlocking Codes For Itel A60s Phones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/what-countries-are-emphasized-in-us-education/"><u>What Countries Are Emphasized in U.S. Education?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/world-english-voices-analyzing-cockney-yankese-and-aussie-rhythms/"><u>World English Voices: Analyzing Cockney, Yankese, and Aussie Rhythms</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/your-ultimate-playbook-for-standout-reddit-submissions/"><u>Your Ultimate Playbook for Standout Reddit Submissions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/syggnwmh-ths-gkreman-neoy/"><u>Συγγνώμη Της Γκρεμάν Νέου</u></a></li>
+</ul></div>

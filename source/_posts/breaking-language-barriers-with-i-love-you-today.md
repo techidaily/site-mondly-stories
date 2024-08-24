@@ -1,7 +1,7 @@
 ---
 title: Breaking Language Barriers with 'I Love You' Today
-date: 2024-07-12T09:03:08.907Z
-updated: 2024-07-13T09:03:08.907Z
+date: 2024-08-23T00:18:24.737Z
+updated: 2024-08-24T00:18:24.737Z
 tags:
   - speak
   - english
@@ -113,14 +113,23 @@ Here are some more ways to say “I love you” in other languages:
 
 ![I love you in sign language](https://edge.mondly.com/blog/wp-content/uploads/2018/10/i-love-you-sign-language.jpg "Say It Like You Mean It: How To Say “I Love You” In 32 Different Languages 4")
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The perfect Valentine’s Day gift: 365 gifts for 365 days
 
  Now that you know how to say “I love you” in so many languages, here’s a sweet present idea you could use for your next anniversary or Valentine’s Day. All you need to buy is a big jar – big enough for all your love. The rest of it comes from the bottom of your heart. The first step is to prepare 365 pieces of paper of different colors and sizes and write “I love you” in different languages on the first 32 of them. Go wildly romantic with the rest of them: you could write love quotes for him or love quotes for her, poems or songs that you both like. Next step? Decorate the jar with tiny lights, pieces of lace or stickers.
 
 ![i love you in spanish by Diego PH©](https://edge.mondly.com/blog/wp-content/uploads/2018/10/i-love-you-in-spanish-scaled-480x600.jpg "Say It Like You Mean It: How To Say “I Love You” In 32 Different Languages 5")
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  When it’s ready, tell your lover to read one piece of paper every day. Even when you are not around. That’s how they’ll smile and know that your heart always belongs to them.
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ### A love poem for your loved one
 
  Look no further if you need a love poem or a love song for your jar. It doesn’t necessarily need to be original. It just has to come from the heart. Here’s**a love song for your love jar:**
@@ -173,6 +182,9 @@ _With you, my heart will forever blend._
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### From “I love you” to conversational fast
 
  Do you want to go the extra mile and learn a new language for someone you love? Try Mondly, the award-winning language app that can help you master languages in record time.
@@ -207,3 +219,70 @@ _With you, my heart will forever blend._
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://mondly-stories.techidaily.com/mondly-and-oculus-quest-bridging-cultural-communication-in-vr/"><u>'Mondly' & Oculus Quest: Bridging Cultural Communication in VR</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-tweetvid-puller-iphone-app-for-easy-video-extraction/"><u>[New] 2024 Approved  TweetVid Puller  IPhone App for Easy Video Extraction</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-crafting-cinematic-magic-making-your-instagram-videos-shine-for-2024/"><u>[New] Crafting Cinematic Magic  Making Your Instagram Videos Shine for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-your-easy-route-to-tiktok-bliss-on-a-macbook-for-2024/"><u>[New] Your Easy Route to TikTok Bliss on a MacBook for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-7-tips-to-make-your-tasty-cooking-videos-for-2024/"><u>[Updated] 7 Tips to Make Your Tasty Cooking Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-reviving-rural-vistas-sustainable-transition-for-cities/"><u>[Updated] Reviving Rural Vistas  Sustainable Transition for Cities</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-tips-to-restore-functionality-in-frozen-obs-screen/"><u>[Updated] Tips to Restore Functionality in Frozen OBS Screen</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-smart-techniques-to-capture-gotomeet-participants/"><u>2024 Approved  Smart Techniques to Capture GoToMeet Participants</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-unveiling-the-practicality-of-smoothing-in-camera-jitters/"><u>2024 Approved  Unveiling the Practicality of Smoothing In-Camera Jitters</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/az-video-logger-full-application-breakdown-for-2024/"><u>AZ Video Logger  Full Application Breakdown for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/boosting-engagement-learning-to-modify-account-numbers-for-2024/"><u>Boosting Engagement  Learning to Modify Account Numbers for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/cutting-edge-srt-modifications-for-modern-computers/"><u>Cutting-Edge SRT Modifications for Modern Computers</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-canon-scanning-software-for-windows-computers-no-cost/"><u>Download Canon Scanning Software for Windows Computers - No Cost</u></a></li>
+<li><a href="https://win-dash.techidaily.com/easy-guide-to-downloading-and-installing-samsung-printer-drivers-for-pcs-with-windows/"><u>Easy Guide to Downloading and Installing Samsung Printer Drivers for PCs with Windows</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fix-d3dcompiler47dll-file-not-found-error-step-by-step-guide/"><u>Fix D3DCOMPILER_47.dll File Not Found Error: Step-by-Step Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/get-fluent-in-swedish-script-and-sounds-speedily/"><u>Get Fluent in Swedish Script & Sounds Speedily</u></a></li>
+<li><a href="https://program-issues.techidaily.com/1722992944932-ghost-recon-breakpoint-stability-swift-solutions-to-avoid-game-disruptions/"><u>Ghost Recon Breakpoint Stability: Swift Solutions to Avoid Game Disruptions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-gratitude-beyond-the-united-states/"><u>Global Gratitude: Beyond the United States</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/growth-mindset-learning-languages-beyond-fiftys-milestone/"><u>Growth Mindset: Learning Languages Beyond Fifty's Milestone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>How Can I Catch the Regional Pokémon without Traveling On Apple iPhone SE (2022) | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-oppo-reno-10-proplus-5g-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Oppo Reno 10 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-poco-x6-pro-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change Poco X6 Pro Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-flash-dead-itel-a60s-safely-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Flash Dead Itel A60s Safely | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-learn-french-at-home-the-best-methods-and-resources/"><u>How To Learn French At Home: The Best Methods And Resources</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-turn-off-google-location-to-stop-tracking-you-on-poco-c65-drfone-by-drfone-virtual-android/"><u>How to Turn Off Google Location to Stop Tracking You on Poco C65 | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-vivo-s18e-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Vivo S18e? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-nokia-c300-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your Nokia C300 Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-transforming-videos-with-ease-10-steps-from-youtube-to-mpeg/"><u>In 2024, Transforming Videos with Ease  10 Steps From YouTube to MPEG</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-ultimate-guide-for-du-recorder-features-and-review/"><u>In 2024, Ultimate Guide for Du Recorder  Features and Review</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/inicia-tu-viaje-con-relojes-en-espanol/"><u>Inicia Tu Viaje Con Relojes en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/initiating-dialogue-the-key-to-fluent-chatting-mandarin/"><u>Initiating Dialogue: The Key to Fluent Chatting Mandarin</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-to-fluency-no-cost-resources-in-online-japanese-studies/"><u>Journey to Fluency: No Cost Resources in Online Japanese Studies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/koreas-days-unpacked-a-language-explorers-guide/"><u>Korea's Days Unpacked: A Language Explorer's Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-hurdles-jump-over-with-top-10-simple-tongues/"><u>Language Hurdles? Jump Over with Top 10 Simple Tongues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-in-dialect-the-detailed-dissection-of-spanish-and-portuguese/"><u>Language in Dialect: The Detailed Dissection of Spanish & Portuguese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/le-squelette-et-le-musculosquelettique-parts-in-french/"><u>Le Squelette Et Le Musculosquelettique: Parts in French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-latvian-online-a-simple-ten-minute-routine/"><u>Learn Latvian Online: A Simple Ten-Minute Routine</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-expressions-of-affection/"><u>Linguistic Expressions of Affection</u></a></li>
+<li><a href="https://win-able.techidaily.com/1722985612162-logitech-game-software-problems-heres-how-to-get-them-working-again/"><u>Logitech Game Software Problems? Here's How to Get Them Working Again</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-unlocking-ukraines-language-potential/"><u>Mondly Unlocking Ukraine's Language Potential</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-vr-a-platform-for-practicing-spanish-and-friendship/"><u>Mondly VR: A Platform for Practicing Spanish and Friendship</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-the-googled-editors-favorite-for-language-mastery/"><u>Mondly: The Googled Editors' Favorite for Language Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/my-journey-to-fluency-top-10-ways-mondly-shaped-my-studies/"><u>My Journey to Fluency: Top 10 Ways Mondly Shaped My Studies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-new-reads-best-french-novels-for-beginners/"><u>Navigating New Reads: Best French Novels for Beginners</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-unleash-your-creativity-3-simple-ways-to-record-video-games/"><u>New Unleash Your Creativity 3 Simple Ways to Record Video Games</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/paving-your-path-top-online-methods-to-acquire-new-languages/"><u>Paving Your Path: Top Online Methods to Acquire New Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/powerful-phraseology-the-most-impactful-50-latin-maxims/"><u>Powerful Phraseology: The Most Impactful 50 Latin Maxims</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/primary-foreign-languages-chosen-by-americans/"><u>Primary Foreign Languages Chosen by Americans</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/simplified-steps-to-reach-windows-10s-advanced-boot-options-easily/"><u>Simplified Steps to Reach Windows 10'S Advanced Boot Options Easily</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/start-chatting-across-cultures-at-just-475-percent-more/"><u>Start Chatting Across Cultures at Just 4.75 Percent More!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-power-of-learning-english-reasons-and-benefits/"><u>The Power Of Learning English: Reasons And Benefits</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-union-of-mondly-and-pearson-in-filtering-technology/"><u>The Union of Mondly and Pearson in Filtering Technology</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transcending-linguistic-boundaries-mondly-integration-on-oculus-quest/"><u>Transcending Linguistic Boundaries: Mondly Integration on Oculus Quest</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transforming-online-language-lessons-into-a-real-world-experience-mondly-vr-app/"><u>Transforming Online Language Lessons Into a Real-World Experience - Mondly VR App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/trio-of-excellent-online-centers-for-quick-language-acquisition/"><u>Trio of Excellent Online Centers for Quick Language Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukrainian-speak-fast-ten-minute-routine-tips-93-chars/"><u>Ukrainian Speak Fast: Ten-Minute Routine Tips (93 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-the-distribution-of-french-linguistic-communities/"><u>Understanding the Distribution of French Linguistic Communities</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/us-and-uk-grammar-variances/"><u>US and UK Grammar Variances</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/voyage-through-vietnam-a-language-primer/"><u>Voyage Through Vietnam: A Language Primer</u></a></li>
+<li><a href="https://fox-info.techidaily.com/winning-hearts-gaining-more-likes-on-tiktok-unboxes-for-2024/"><u>Winning Hearts  Gaining More Likes on TikTok Unboxes for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/wookieese-wisdom-understanding-hutt-language-and-culture/"><u>Wookieese Wisdom: Understanding Hutt Language & Culture</u></a></li>
+<li><a href="https://techtrends.techidaily.com/yahoo-messenger-explained-its-history-and-reason-behind-the-closure/"><u>Yahoo! Messenger Explained: Its History and Reason Behind the Closure</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/your-guide-to-croatian-proficiency-understand-these-7-advantages/"><u>Your Guide to Croatian Proficiency: Understand These 7 Advantages!</u></a></li>
+</ul></div>

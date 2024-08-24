@@ -1,7 +1,7 @@
 ---
 title: 17 Spanish Sayings That Will Make You Sound Like a Native
-date: 2024-07-12T08:57:55.263Z
-updated: 2024-07-13T08:57:55.263Z
+date: 2024-08-23T00:23:45.192Z
+updated: 2024-08-24T00:23:45.192Z
 tags:
   - speak
   - english
@@ -72,6 +72,9 @@ thumbnail: https://thmb.techidaily.com/ff0b09f3183fa2e89aded08559455baa4fb6090d8
 
 Who wouldn’t prefer cakes over bread though?
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 7\. El hábito no hace al monje
 
 **Literal translation:** The habit doesn’t make the monk.
@@ -80,6 +83,9 @@ Who wouldn’t prefer cakes over bread though?
 
  Don’t ever judge a person solely by appearances because this is not a reliable indication of the true character of that person. No matter if it’s a positive or a negative bias. You might be surprised.
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 8\. Mucho ruido y pocas nueces
 
 **Literal translation:** Lots of noise and few nuts.
@@ -90,6 +96,9 @@ Who wouldn’t prefer cakes over bread though?
 
  But it’s not entirely absurd though. Think about the moment you break in a nutshell. If it’s empty, it made a loud noise for literally nothing.
 
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 9\. El que no arriesga, no gana
 
 **Literal translation:** The person who does not risk cannot win.
@@ -100,6 +109,9 @@ Who wouldn’t prefer cakes over bread though?
 
 ![spanish saying](https://edge.mondly.com/blog/wp-content/uploads/2021/05/spanish-saying-960x640.jpg "17 Spanish Sayings That Will Make You Sound Like A Native 3")
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<!-- affiliate ads end -->
  “Barcelona, Spain” by Toa Heftiba©
 
 ### 10\. En casa del herrero, cuchillo de palo
@@ -110,12 +122,18 @@ Who wouldn’t prefer cakes over bread though?
 
  This saying illustrates the ironic absence of an object or virtue in a place where it should not be lacking.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ## General Spanish sayings with no direct English equivalent
 
  Now, let’s move on to a more tricky business: Spanish sayings with no direct English equivalents. To help you fully understand these, we’ll give you some examples.
 
  Oh, and don’t tell anyone you know it from us, but learning sayings to sound like a native it’s kind of a gimmick. Or a shortcut – to put it more elegantly. Lucky for you,[Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5924&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5924?mother%5Flang=en%5Fus?target%5Flang=es&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5924?mother%5Flang=en%5Fus?target%5Flang=es) is all about language learning gimmicks, so don’t hesitate to check out [the app](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5924&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5924?mother%5Flang=en%5Fus?target%5Flang=es&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5924?mother%5Flang=en%5Fus?target%5Flang=es) and speak Spanish with ease in just 10 minutes a day.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<!-- affiliate ads end -->
 ### 1\. Al mal tiempo, buena cara
 
 **Literal translation:** To bad weather, good face.
@@ -128,6 +146,18 @@ _–_   _Estoy pasando por una mala racha. Tengo que terminar un informe para el
 
 _–_ _Oye, no te desesperes. Al mal tiempo, buena cara._ (“Hey, don’t despair. It’s important to remain positive even in difficult situations.”)
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. El que tiene boca se equivoca
 
 **Literal translation:** Whoever has a mouth makes mistakes.
@@ -144,6 +174,9 @@ _–_   _Me preocupa no haberlo hecho bien en el examen de ayer. Estaba realment
 
  “Torrevieja, Spain” by Ralph (Ravi) Kayden©
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<!-- affiliate ads end -->
 ### 3\. A quien madruga, Dios le ayuda
 
 **Literal translation:** God helps those who get up early.
@@ -158,6 +191,10 @@ _–_   _Me preocupa no haberlo hecho bien en el examen de ayer. Estaba realment
 
 _– ¡Buena suerte! No olvides que a quien madruga, Dios le ayuda._ (“Good luck! Don’t forget that God helps those who are determined to get the work done.”)
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+</a>
+<!-- affiliate ads end -->
 ### 4\. Como Pedro por su casa
 
 **Literal translation:** Like Pedro in his house.
@@ -198,6 +235,9 @@ _– Si, como Pedro por su casa._ (“Yes, like Peter in his house.”)
 
 In other words, don’t risk losing everything by seeking to get more.
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 3\. En boca cerrada no entran moscas
 
 **Literal translation:** Flies do not enter the closed mouth.
@@ -215,6 +255,9 @@ _– No es asunto tuyo. En boca cerrada no entran moscas._ (“It’s none of yo
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Speak Spanish fluently in just 10 minutes a day
 
  Do you want to see the Spanish sayings in action in real conversations? Get Mondly, the award-winning language learning app that will help you [speak Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) as if you were born in Madrid.
@@ -243,3 +286,50 @@ _– No es asunto tuyo. En boca cerrada no entran moscas._ (“It’s none of yo
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-engage-more-with-facebook-sharing-panoramic-photos-via-iosandroid-apps/"><u>[New] Engage More with Facebook  Sharing Panoramic Photos via iOS/Android Apps</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-insider-guide-recording-full-desktop-scenes-in-w8/"><u>[New] In 2024, Insider Guide  Recording Full Desktop Scenes in W8</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-social-simulacrum-sculpting-constructing-playful-profiles-for-2024/"><u>[New] Social Simulacrum Sculpting  Constructing Playful Profiles for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-swift-access-to-youtube-srt-files-three-key-points-for-2024/"><u>[New] Swift Access to YouTube SRT Files  Three Key Points for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-ultimate-guide-5-advanced-webcams-for-video-calls/"><u>[Updated] 2024 Approved  Ultimate Guide  5 Advanced Webcams for Video Calls</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-free-mobile-image-editing-tools-top-10-overlay-app-list/"><u>[Updated] Free Mobile Image Editing Tools - Top 10 Overlay App List</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580814216-100plus-basic-russian-phrases-every-traveler-needs-to-know/"><u>100+ Basic Russian Phrases Every Traveler Needs to Know</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-mastering-picart-a-guide-to-clear-backgrounds/"><u>2024 Approved  Mastering PicArt  A Guide to Clear Backgrounds</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/4-egayements-francais-lart-de-dire-merci/"><u>4 Égayements Français: L'Art De Dire 'Merci'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/8-essential-esl-grammar-hints-for-fluent-comprehension/"><u>8 Essential ESL Grammar Hints for Fluent Comprehension</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/be-a-winner-save-up-to-96-on-mondly-pro-lifetime/"><u>Be a Winner : Save Up To 96%% on Mondly Pro Lifetime</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breaking-down-the-jargon-top-10-slang-words-explained/"><u>Breaking Down the Jargon: Top 10 Slang Words Explained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/business-advantage-prime-language-apps-selection-guide/"><u>Business Advantage: Prime Language Apps Selection Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/echoes-from-ages-past-understanding-viking-vernacular/"><u>Echoes From Ages Past: Understanding Viking Vernacular</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/el-ingenioso-mundo-muscular-en-espanol-descubrimiento-desde-el-hombro-a-las-unas/"><u>El Ingenioso Mundo Muscular en Español: Descubrimiento Desde El Hombro A Las Uñas</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/empower-your-professional-dialogue-with-ease/"><u>Empower Your Professional Dialogue with Ease</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fast-track-fluency-in-foreign-dialects/"><u>Fast-Track Fluency in Foreign Dialects</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/gaining-more-likes-and-followers-on-instagram-easily/"><u>Gaining More Likes and Followers on Instagram Easily</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-say-thank-you-in-30-different-languages/"><u>How to Say Thank You in 30 Different Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-tell-time-in-spanish-a-complete-guide-for-beginners/"><u>How to Tell Time in Spanish – A Complete Guide for Beginners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/intellectual-stimulation-through-foreign-words/"><u>Intellectual Stimulation Through Foreign Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learners-unite-with-googled-editors-recommended-mondly/"><u>Language Learners Unite with Googled Editors' Recommended Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-anywhere-speak-everywhere-enjoy-a-major-discount-on-language-lessons/"><u>Learn Anywhere, Speak Everywhere – Enjoy a Major Discount on Language Lessons!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-punctuation-part-2-a-guide-to-understanding-and-using-english-contractions/"><u>Mastering Punctuation, Part 2: A Guide to Understanding and Using English Contractions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-celebrates-its-7th-anniversary-with-75-million-learners-worldwide/"><u>Mondly Celebrates Its 7Th Anniversary With 75 Million Learners Worldwide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-delivers-the-ultimate-modernized-language-resource/"><u>Mondly Delivers: The Ultimate Modernized Language Resource</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-kids-the-smart-choice-for-childrens-snacks-a-top-2017-google-app/"><u>Mondly Kids: The Smart Choice for Children's Snacks, A Top 2017 Google App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-mastery-your-complete-user-manual/"><u>Mondly Mastery: Your Complete User Manual</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-unlock-free-sound-effects-for-your-fcp-projects-top-resources-and-tutorials/"><u>New In 2024, Unlock Free Sound Effects for Your FCP Projects Top Resources & Tutorials</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pearsons-enhanced-gsl-precision-with-mondly-collaboration/"><u>Pearson's Enhanced GSL Precision with Mondly Collaboration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/profound-team-development-through-top-linguistic-apps-selection/"><u>Profound Team Development Through Top Linguistic Apps Selection</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/read-in-french-20plus-best-french-novels-for-beginners/"><u>Read In French: 20+ Best French Novels For Beginners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rhythms-for-roots-musical-language-mastery-techniques/"><u>Rhythms for Roots: Musical Language Mastery Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-fluent-korean-unveiling-the-top-6-digital-tools/"><u>Speak Fluent Korean: Unveiling the Top 6 Digital Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speedy-fluency-in-secondary-communication/"><u>Speedy Fluency in Secondary Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-future-is-arabic-exciting-reasons-to-master-through-mondly-online/"><u>The Future Is Arabic: Exciting Reasons to Master Through Mondly Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-spelling-pitfall-index-englands-top-100-errors/"><u>The Spelling Pitfall Index: England's Top 100 Errors</u></a></li>
+<li><a href="https://win-dash.techidaily.com/troubleshooting-and-solving-lg-monitor-driver-problems-on-various-windows-versions/"><u>Troubleshooting and Solving LG Monitor Driver Problems on Various Windows Versions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-macaus-language-mosaic/"><u>Unveiling Macau’s Language Mosaic</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/what-is-the-lingua-franca-for-israeli-society/"><u>What Is the Lingua Franca for Israeli Society?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/which-languages-sing-in-belgiums-streets/"><u>Which Languages Sing in Belgium’s Streets?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/world-of-education-at-mansion-house-bett/"><u>World of Education at Mansion House BETT</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-spanish-speaking-states-index/"><u>Worldwide Spanish-Speaking States Index</u></a></li>
+</ul></div>

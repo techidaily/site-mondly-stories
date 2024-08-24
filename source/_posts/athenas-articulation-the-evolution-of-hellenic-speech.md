@@ -1,7 +1,7 @@
 ---
 title: "Athena’s Articulation: The Evolution of Hellenic Speech"
-date: 2024-07-12T08:59:27.241Z
-updated: 2024-07-13T08:59:27.241Z
+date: 2024-08-23T00:22:10.809Z
+updated: 2024-08-24T00:22:10.809Z
 tags:
   - speak
   - english
@@ -74,6 +74,9 @@ Other literary works of art representative of this period include:
 
 ![ancient greece language](https://edge.mondly.com/blog/wp-content/uploads/2023/10/ancient-greece-language.jpg "Ancient Greek Language Influence On Modern Languages 6")
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Ancient Greek Writing System and Alphabet
 
  Did you know the word **‘alphabet’ originates from the initial two letters of the Greek alphabet,_‘alpha’_ and_‘beta’_ ?** While this may seem like a fun piece of unimportant trivia, you’ll soon discover that the influence of the ancient Greek language on modern languages is far greater than we think.
@@ -118,6 +121,10 @@ Other literary works of art representative of this period include:
 
  Just as significant for the modern world are the ancient Greek art and architecture. The principles of symmetry, harmony, and proportionality influenced Western architectural designs, including the construction of monuments and public buildings. The Greek column, for example, is a beloved element we’ve seen even in fashion!
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 ### Ancient Greek influence on science and mathematics
 
  If we ask scientists, they’ll say that ancient Greeks made their most significant contributions to mathematics, astronomy, and medicine. For example, **the principles and theorems formulated by Pythagoras are integral to the scientific heritage that has shaped Western civilization.** Nowadays, children as young as 12 or 13 learn Pythagoras’ theorems in geometry – which, by the way, is another word of Greek origin.
@@ -128,6 +135,9 @@ Other literary works of art representative of this period include:
 
 ![ancient Greek vs modern Greek](https://edge.mondly.com/blog/wp-content/uploads/2023/10/ancient-greek-vs-modern-greek.jpg "Ancient Greek Language Influence On Modern Languages 8")
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<!-- affiliate ads end -->
 ## Ancient Greek Language Influence on Modern Languages
 
  Now that you have an overview of the intellectual and artistic heritage we received from ancient Greece, it’s time to take an even closer look at languages. Because yes, the Ancient Greek language has carved its imprints not just in the annals of history but in the very syntax and semantics of modern languages. **English, Spanish, and French are probably the most important bearers of Greek influences.**
@@ -170,6 +180,9 @@ Other literary works of art representative of this period include:
 | cardiology       | from ‘kardiā’ (heart) + ‘logia’ (study)                                                                   |
 | technology       | from ‘tekhnē’ (art, craft) + ‘logia’ (study)                                                              |
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<!-- affiliate ads end -->
 ## Expressions that originated from Greek
 
  Apart from [Latin phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , the only thing that can make you sound like a true erudite without much work are the expressions that originated from Greek.
@@ -182,12 +195,18 @@ _Describes a weakness in spite of overall great strength or resilience._
 
  According to the legend, Achilles’ mother, Thetis, dipped him into the River Styx to prevent his foretold death. However, she held him by the heel, making it his vulnerability later in life. Achilles was ultimately killed during the Trojan War from wounds to his heel, ankle, and torso.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 2\. Pandora’s box
 
  _Refers to something that creates a lot of new problems that you did not expect._
 
  The myth of Pandora’s box originates from the story where Prometheus steals fire from the gods to give to mankind. As a punishment for humanity, the gods create Pandora, the first woman, and give her a box with strict instructions not to open it. Overcome by curiosity, Pandora opens the box, releasing all the world’s troubles. Only Hope remains trapped inside.
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. Herculean task
 
 **Refers to a task that requires extremely great strength or effort.**
@@ -196,12 +215,18 @@ _Describes a weakness in spite of overall great strength or resilience._
 
  Thus, he was tasked with completing twelve extremely challenging “labors”. These labors included daunting tasks such as retrieving the guardian dog from the underworld and defeating the multi-headed Hydra. Hence, the term ‘Herculean’ describes any job or task that is incredibly difficult and requires enormous strength.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 4\. The Midas Touch
 
 _Refers to a person who has good fortune._
 
  The phrase originates from the Greek myth of King Midas of Phrygia, who was granted a wish by the god Dionysus. Midas wished that everything he touched would turn to gold. Unfortunately, this blessing became a curse as his food, water, wine, and even his beloved daughter Zoe turned to gold upon his touch, illustrating the unintended consequences of his ill-considered desire for wealth.
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 5\. The Apple of Discord
 
  _Refers to an object or issue that causes strife, contention, or rivalry among those who encounter or possess it._
@@ -212,6 +237,9 @@ _Refers to a person who has good fortune._
 
 ![what is greece's language](https://edge.mondly.com/blog/wp-content/uploads/2023/10/what-is-greeces-language.jpg "Ancient Greek Language Influence On Modern Languages 9")
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Differences Between Ancient Greek and Modern Greek
 
  Centuries of political, social, and cultural transformations, coupled with the dispersion of Greek populations and industrial changes, have profoundly influenced the evolution and richness of the Greek language. Thus, the transition from the ancient Greek language to the modern Greek language was all about adaptation and evolution. The language spoken in Plato’s Greece is indeed very different from the language spoken today in Greece. However, it is said that **a person proficient in Modern Greek can generally understand about 50% of ancient Greek texts** due to similar root words.
@@ -226,10 +254,16 @@ _Refers to a person who has good fortune._
 
  To summarize everything we learned about the ancient Greek language, let’s look at some frequently asked questions.
 
+<!-- affiliate ads begin -->
+<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Is ancient Greek still spoken today?
 
  Just like Latin, the ancient Greek language is still used in scholarly circles and ecclesiastical domains, preserved in texts and liturgies. However, nobody speaks ancient Greek natively anymore.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ### What are the main influences of ancient Greek on the English language?
 
  A lot of English words, concepts, and idiomatic expressions are of Greek origin. For example, the words that begin with the letter ‘ph’ are particularly easy to trace back to Greek.
@@ -247,6 +281,9 @@ _Refers to a person who has good fortune._
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ### Speak Greek like a true philosopher
 
  The Modern Greek language may not be the exact same ancient lingo Platon spoke. But it is just as cool or even cooler!
@@ -275,3 +312,55 @@ _Refers to a person who has good fortune._
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-examining-youtubes-mobile-app-for-iosandroid-devices/"><u>[New] 2024 Approved  Examining YouTube's Mobile App for iOS/Android Devices</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-instagram-live-from-obs-capture/"><u>[New] 2024 Approved  Instagram Live From OBS Capture</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-becoming-a-youtube-guru-essential-production-know-how-for-2024/"><u>[New] Becoming a YouTube Guru  Essential Production Know-How for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-effective-strategies-for-real-time-video-sharing-on-facebook/"><u>[New] In 2024, Effective Strategies for Real-Time Video Sharing on Facebook</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-top-5-emulation-suites-to-experience-sonys-ps1-library/"><u>[New] In 2024, Top 5 Emulation Suites to Experience Sony's PS1 Library</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-edit-like-a-pro-10-must-know-tips-for-newbies/"><u>[Updated] 2024 Approved  Edit Like a Pro  10 Must-Know Tips for Newbies</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-elite-10-hash-trackers-for-major-social-networks-fb-twt-and-ig/"><u>[Updated] 2024 Approved  Elite 10 Hash Trackers for Major Social Networks  FB, Twt & IG</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-no-more-snaps-from-them-potential-block-on-snapchat/"><u>[Updated] 2024 Approved  No More Snaps From Them? Potential Block on Snapchat</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-how-to-be-a-beauty-guru-on-youtube-beauty-vlogger-set-up/"><u>[Updated] How To Be A Beauty Guru on YouTube  Beauty Vlogger Set Up</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-elevate-your-social-media-presence-top-25-hashtags-for-instagram-mastery/"><u>[Updated] In 2024, Elevate Your Social Media Presence  Top 25 Hashtags for Instagram Mastery</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-visual-virtuosos-top-free-afx-samples-collection/"><u>[Updated] In 2024, Visual Virtuosos  Top Free AFX Samples Collection</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-anointing-editors-without-spending-a-dime/"><u>2024 Approved  Anointing Editors Without Spending a Dime</u></a></li>
+<li><a href="https://change-location.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-samsung-galaxy-s24plus-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Samsung Galaxy S24+ | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/decode-and-repair-netflix-glitch-code-nw-30-19-for-hassle-free-watching/"><u>Decode and Repair Netflix Glitch Code NW-30-19 for Hassle-Free Watching</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gold-star-for-educators-mondly-kids-in-google-plays-top-2017-apps/"><u>Gold Star for Educators - Mondly Kids in Google Play's Top 2017 Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/helping-hands-in-colombia-danny-from-colombias-mission/"><u>Helping Hands in Colombia: Danny From Colombia’s Mission</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-vivo-s18e-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Vivo S18e? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/immersive-german-learning-experience-via-dark-show/"><u>Immersive German Learning Experience via Dark Show</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-vivo-y27-4g-frp-in-3-different-ways-by-drfone-android/"><u>In 2024, How To Bypass Vivo Y27 4G FRP In 3 Different Ways</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-vivo-x100-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>In 2024, How to Unlock Vivo X100 Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-is-av1-really-outdo-cooking-vp9/"><u>In 2024, Is AV1 Really Outdo Cooking VP9?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-improved-support-mondlys-updated-faq-resources/"><u>Introducing Improved Support: Mondly's Updated FAQ Resources</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/le-ciel-et-terre-les-mots-du-week-end/"><u>Le Ciel Et Terre: Les Mots Du Week-End</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-catalan-quickly-just-minutes-a-day/"><u>Learn Catalan Quickly, Just Minutes a Day!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-key-french-welcomes-perfect-salut-and-more/"><u>Learn Key French Welcomes: Perfect 'Salut' And More</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-the-ropes-of-japenese-social-dialogue/"><u>Learn the Ropes of Japenese Social Dialogue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leverage-multilingualism-why-mondly-is-ideal-for-afrikaans-learners/"><u>Leverage Multilingualism: Why Mondly Is Ideal for Afrikaans Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/luscious-language-lessons-via-movies/"><u>Luscious Language Lessons via Movies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/make-2023-your-best-save-96-on-mondly-premium/"><u>Make 2023 Your Best: Save $96 on Mondly Premium!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-english-language-skills-with-mondly/"><u>Mastering English Language Skills with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-triumphs-in-tech-excellence-2021-gala/"><u>Mondly Triumphs in Tech Excellence 2021 Gala</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-unveils-top-8-motivational-factors-to-learn-hindi-online/"><u>Mondly Unveils: Top 8 Motivational Factors to Learn Hindi Online!</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/netflix-memories-capturing-every-view-with-mac-for-2024/"><u>Netflix Memories  Capturing Every View with Mac for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polite-practices-in-france-learning-proper-au-revoir-and-more/"><u>Polite Practices in France: Learning Proper 'Au Revoir' & More</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-and-learn-fast-the-top-10-simple-languages-guide/"><u>Speak and Learn Fast: The Top 10 Simple Languages Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-fluent-latvian-in-under-an-hours-practice/"><u>Speak Fluent Latvian in Under an Hour's Practice</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-a-local-best-25-german-phrases/"><u>Speak Like a Local: Best 25 German Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spooky-festivities-a-cultural-insight/"><u>Spooky Festivities: A Cultural Insight</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-into-the-future-prime-online-techniques-for-efficient-learning/"><u>Step Into the Future: Prime Online Techniques for Efficient Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tackling-the-complexity-of-german-grammar/"><u>Tackling the Complexity of German Grammar</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-slang-survival-guide-common-english-expressions/"><u>The Slang Survival Guide: Common English Expressions</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-15-apps-to-hack-wifi-password-on-vivo-x-fold-2-by-drfone-android/"><u>Top 15 Apps To Hack WiFi Password On Vivo X Fold 2</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-25-german-idioms-to-speak-like-a-german/"><u>Top 25 German Idioms To Speak Like A German</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-talk-tracks-enhance-enterprise-eloquence-strategies/"><u>Transform Talk Tracks: Enhance Enterprise Eloquence Strategies</u></a></li>
+<li><a href="https://some-skills.techidaily.com/transforming-augmented-reality-with-downloaded-free-luts-for-development-for-2024/"><u>Transforming Augmented Reality with Downloaded, Free LUTs for Development for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/troubleshooting-solutions-to-reactivate-grayed-out-icloud-options-on-ios-devices/"><u>Troubleshooting: Solutions to Reactivate Grayed-Out iCloud Options on iOS Devices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-your-english-potential-with-oxford-3000-and-mondly/"><u>Unlock Your English Potential with Oxford 3000 and Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/which-language-dominates-israeli-conversations/"><u>Which Language Dominates Israeli Conversations?</u></a></li>
+</ul></div>

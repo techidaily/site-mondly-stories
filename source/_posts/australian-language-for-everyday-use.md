@@ -1,7 +1,7 @@
 ---
 title: Australian Language for Everyday Use
-date: 2024-07-12T08:58:21.375Z
-updated: 2024-07-13T08:58:21.375Z
+date: 2024-08-23T00:23:18.271Z
+updated: 2024-08-24T00:23:18.271Z
 tags:
   - speak
   - english
@@ -42,14 +42,24 @@ thumbnail: https://thmb.techidaily.com/e35b3a5c1a462189bf0e7eb85d4007a41df15f6c2
 
 _“So… what did you have for brekkie today?”_
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ### 3._Barbie_ – Barbecue
 
 Well, I don’t mind if you call me a “barbie girl” now.
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ### 4._Crikey!_ – An Exclamation of Surprise
 
  Famously used by Steve Irwin. It’s similar to the [British English slang](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) “blimey!”.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<!-- affiliate ads end -->
 ### 5._Cake Hole_ – Mouth
 
  There’s no better replacement for the word “mouth”. Why isn’t everybody using this?
@@ -66,22 +76,43 @@ It can also refer to a small, aggressive dog like a chihuahua.
 
  You heard “telly” before, but “bush telly”? That’s a new one. Basically, when you are camping, you can’t watch traditional television, so you watch the “bush telly”: the campfire, the stars or just… the bush.
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 9._Bikkie_ – Biscuit
 
 You’ll ask for a “bikkie” just to hear yourself say it.
 
  There’s also the very cute expression “to cost big bikkies”, meaning that something is very expensive.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 10._Mate_ – Friend
 
 _Oi, mate!_ This one’s a classic. You ought to use it. Additionally, you can also say “cobber”.
 
 ![aussie slang](https://edge.mondly.com/blog/wp-content/uploads/2020/05/aussie-slang-600x600.jpg "100+ Australian Slang Words To Help You Speak Like A True Aussie 6")
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<!-- affiliate ads end -->
  Australian slang
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "100+ Australian Slang Words To Help You Speak Like A True Aussie 7")
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ##### Improve your English, mate
 
  Oi, this language learnin’ app is fair dinkum! Give it a try.
@@ -185,6 +216,9 @@ _Oi, mate!_ This one’s a classic. You ought to use it. Additionally, you can a
 
 ![australian slang terms](https://edge.mondly.com/blog/wp-content/uploads/2020/05/australian-slang-terms-600x600.jpg "100+ Australian Slang Words To Help You Speak Like A True Aussie 8")
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<!-- affiliate ads end -->
  Aussie slang
 
 ## Funny Australian Slang Phrases
@@ -209,12 +243,18 @@ _Oi, mate!_ This one’s a classic. You ought to use it. Additionally, you can a
 
  Popular Australian exclamation often used to emphasize or seek confirmation (if used with the proper intonation) of the genuineness or truth of something._“This pork barbie is fair dinkum!”_
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 4\. Wrap your laughing gear ‘round that
 
 **Eat that.**
 
  What’s your laughing gear? Your mouth, of course. So, when you wrap your laughing gear ‘round something, you… eat it. It can be used in either a friendly or threatening way.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 5\. Carrying on like a pork chop
 
 **To behave foolishly.**
@@ -243,6 +283,9 @@ It seems that this phrase has had a lot of variations:
 
 Some say he “did the bolt” from his responsibilities as a prime minister.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 8\. No worries, mate, she’ll be apples
 
 **Everything will be fine.**
@@ -278,6 +321,11 @@ Coming Soon
 
 Before you go, let’s answer some frequently asked questions.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->
 ### What does ‘Aussie’ mean?
 
  Aussie means Australian, also known as a person from Australia. Remember that “Aussie” is an informal word and you should use it accordingly.
@@ -299,6 +347,15 @@ Before you go, let’s answer some frequently asked questions.
 
 Get Mondly now and speak any language like you never dreamed you would ![Give it a try](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-4765&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-4765%26utm%5Fsource%3Dblog-post-id-4765&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-4765%26utm%5Fsource%3Dblog-post-id-4765&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-4765%26utm%5Fsource%3Dblog-post-id-4765&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-4765%26mt%3D8 "Give it a try")
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
+
+ It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
+
+  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
+
+  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<!-- affiliate ads end -->
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
@@ -317,3 +374,53 @@ Get Mondly now and speak any language like you never dreamed you would ![Give it
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-deep-dive-into-freeweb-recorder-v2-interface/"><u>[New] 2024 Approved  Deep Dive Into FreeWeb Recorder V2 Interface</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-easy-extraction-of-social-media-videos-with-chrome-plugs/"><u>[New] 2024 Approved  Easy Extraction of Social Media Videos with Chrome Plugs</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-youtube-video-organization-the-art-of-chapter-addition/"><u>[New] 2024 Approved  YouTube Video Organization  The Art of Chapter Addition</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-top-10-female-gamers-on-youtube-2024-updated/"><u>[New] Top 10 Female Gamers on YouTube | 2024 Updated</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-video-mastery-on-instagram-tips-and-tricks-for-2024/"><u>[New] Video Mastery on Instagram  Tips and Tricks for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-essential-guide-for-capturing-console-playbacks/"><u>[Updated] 2024 Approved  Essential Guide for Capturing Console Playbacks</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-five-easy-steps-to-enhance-photo-hues/"><u>[Updated] Five Easy Steps to Enhance Photo Hues</u></a></li>
+<li><a href="https://location-fake.techidaily.com/11-best-location-changers-for-oppo-reno-8t-drfone-by-drfone-virtual-android/"><u>11 Best Location Changers for Oppo Reno 8T | Dr.fone</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-audio-mastery-in-visual-storytelling-vimeo-edition/"><u>2024 Approved  Audio Mastery in Visual Storytelling  Vimeo Edition</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-masterclass-from-yis-4k-to-thrilling-cinematography/"><u>2024 Approved  Masterclass  From Yi's 4K to Thrilling Cinematography</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-closer-look-at-five-false-beliefs-in-language-education/"><u>A Closer Look at Five False Beliefs in Language Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ancient-greek-language-history-influence-and-modern-significance/"><u>Ancient Greek Language: History, Influence, And Modern Significance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/break-the-ice-with-indonesian-social-phrases/"><u>Break the Ice with Indonesian Social Phrases</u></a></li>
+<li><a href="https://ai-video.techidaily.com/chrome-video-translators-top-5-video-translation-chrome-extensions/"><u>Chrome Video Translators Top 5 Video Translation Chrome Extensions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comenzar-a-conocer-el-tiempo-en-espanol/"><u>Comenzar a Conocer El Tiempo en Español</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-a-unique-visual-identity-fb-cover-pics-guide/"><u>Crafting a Unique Visual Identity: FB Cover Pics Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciphering-chinese-script-basics/"><u>Deciphering Chinese Script Basics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-indonesian-chit-chat-starts-here/"><u>Discovering Indonesian Chit-Chat Starts Here</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enthrall-emilia-romagna-dive-into-italian-colloquialisms/"><u>Enthrall Emilia Romagna: Dive Into Italian Colloquialisms</u></a></li>
+<li><a href="https://extra-information.techidaily.com/file-logistics-unlocked-five-streamlined-techniques-for-computer-upload/"><u>File Logistics Unlocked  Five Streamlined Techniques for Computer Upload</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/first-steps-in-spanish-kids-from-preschoolers-to-fifth-graders/"><u>First Steps in Spanish: Kids From Preschoolers to Fifth Graders</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/getting-acquainted-with-zhuyin/"><u>Getting Acquainted with Zhuyin</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-xiaomi-redmi-k70-pro-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Xiaomi Redmi K70 Pro? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-do-i-sim-unlock-my-apple-iphone-13-pro-by-drfone-ios/"><u>How Do I SIM Unlock My Apple iPhone 13 Pro?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/how-to-convert-youtube-tracks-to-mp3-safely-the-3-best-ways/"><u>How To Convert YouTube Tracks to MP3 Safely - The 3 Best Ways</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-se-2022-to-other-iphone-15-pro-max-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone SE (2022) To Other iPhone 15 Pro Max devices? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/knowledge-for-all-honoring-the-1500th-of-costless-daily-lessons/"><u>Knowledge for All: Honoring the 1500Th of Costless Daily Lessons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-mastery-at-your-fingertips-pearson/"><u>Language Mastery at Your Fingertips: Pearson</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-the-tongue-proven-strategies-for-eloquence/"><u>Master the Tongue: Proven Strategies for Eloquence</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/mastering-the-stealthy-sidebar-tips-for-enabling-and-using-hidden-path-finder-tools/"><u>Mastering the Stealthy Sidebar: Tips for Enabling and Using Hidden Path Finder Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-family-edition-google-plays-best-kids-app-of-the-year/"><u>Mondly Family Edition: Google Play's Best Kids App of the Year</u></a></li>
+<li><a href="https://games-able.techidaily.com/navigating-through-error-403-on-roblox-tips-and-tricks-for-windows/"><u>Navigating Through Error 403 on Roblox: Tips and Tricks for Windows</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/prodigy-pathways-to-succeeding-in-international-language-assessments/"><u>Prodigy Pathways to Succeeding in International Language Assessments</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/second-language-skills-as-a-vital-fifties-endeavor/"><u>Second Language Skills as a Vital Fifties Endeavor</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/smooth-language-journey-top-10-simple-to-learn-tongues/"><u>Smooth Language Journey: Top 10 Simple to Learn Tongues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sprachstarter-zahlen-bis-100-in-deutscher-sprache/"><u>Sprachstarter: Zählen Bis 100 in Deutscher Sprache</u></a></li>
+<li><a href="https://windows11.techidaily.com/steps-to-effortlessly-switch-between-windows-terminal-focus-and-normal-states/"><u>Steps to Effortlessly Switch Between Windows Terminal Focus and Normal States</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-swift-polsk-learners-handbook/"><u>The Swift Polsk Learner's Handbook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-top-10-italian-greetings-how-to-say-hello-in-italian/"><u>The Top 10 Italian Greetings: How To Say Hello In Italian</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tiny-tongues-grand-languages-kinder-to-fifth-grade-spanish/"><u>Tiny Tongues, Grand Languages: Kinder to Fifth Grade Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukrainian-and-russian-how-similar-are-these-two-languages/"><u>Ukrainian and Russian: How Similar Are These Two Languages?</u></a></li>
+<li><a href="https://common-error.techidaily.com/ultimate-troubleshooting-tips-for-fixing-windows-11-update-error-0xc1900208/"><u>Ultimate Troubleshooting Tips for Fixing Windows 11 Update Error 0Xc1900208</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-korean-mastery-the-top-6-online-linguistic-hubs/"><u>Unlocking Korean Mastery: The Top 6 Online Linguistic Hubs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-team-efficiency-the-best-language-learning-apps/"><u>Unlocking Team Efficiency: The Best Language Learning Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-basics-of-chinese-social-interactions/"><u>Unveiling the Basics of Chinese Social Interactions</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-one-look-one-feel-the-ultimate-guide-to-color-matching-in-final-cut-pro/"><u>Updated One Look, One Feel The Ultimate Guide to Color Matching in Final Cut Pro</u></a></li>
+</ul></div>

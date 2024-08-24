@@ -1,7 +1,7 @@
 ---
 title: "Contrasting Vernaculars: Ukraine Vs Russian"
-date: 2024-07-12T09:02:28.661Z
-updated: 2024-07-13T09:02:28.661Z
+date: 2024-08-23T00:19:06.094Z
+updated: 2024-08-24T00:19:06.094Z
 tags:
   - speak
   - english
@@ -51,6 +51,9 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
 
  As a result of Ukraine’s centuries-long political subordination, Ukrainian had almost no literary expression until de 18th century when the modern literary Ukrainian language was born.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ## The Russian language – a short history
 
  Russian, known as Русский язык (romanized:_Russkiy yazyk_) to Russians, is the official language of Russia, Belarus, Kazakhstan, and Kyrgyzstan and it is also used as a second language in other former Soviet countries. Additionally, Russian is one of the six official United Nations languages and the 8th most spoken language in the world with a total of 260 million speakers.
@@ -63,6 +66,9 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
 
  Later, the Soviet period brought Russian worldwide prestige which declined after the 1991 collapse. Despite each USSR constituent republic having its own official language, Russian had a unified role and superior status. This is why there are so many people speaking Russian outside Russia.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<!-- affiliate ads end -->
 ## How similar are Ukrainian and Russian?
 
  The misconception that Russian and Ukrainian are the same sometimes stems from the fact that Russian is widely spoken in Ukraine. The numbers can differ slightly according to various sources, but it’s generally agreed that 60% of Ukrainians consider Ukrainian their native language, while 15% consider Russian to be their native language. Moreover, 22% consider both to be their native languages.
@@ -73,10 +79,30 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
 
 !['Russian language' by Dimitry B©](https://edge.mondly.com/blog/wp-content/uploads/2022/03/russian-language-960x639.jpg "Ukrainian And Russian: How Similar Are These Two Languages? 5")
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
  Since most Ukrainian speakers also speak Russian or have extensive exposure to it, ‘asymmetric intelligibility’ is the best term to describe the relationship between the two languages. In other words, Ukrainian speakers can often understand Russian, while Russian speaker doesn’t understand Ukrainian, especially Russian speakers from outside Ukraine.
 
  However, all three languages – Ukrainian, Russian and Belarusian – are in part mutually intelligible, and already knowing one can help a lot if you want to learn one of the others.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
+VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
+
+Key features:
+
+•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
+•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
+•	Visual effects, advanced color correction and trendy Instagram-like filters   
+•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
+•	Non-linear editing: edit several files with simultaneously 
+•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
+•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
+•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
+•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
+</a>
+<!-- affiliate ads end -->
 ## How different are Ukrainian and Russian?
 
  Now that we’ve explained the history behind Ukrainian and Russian, it’s time to look at some more practical examples. A 62% lexical similarity may sound like a lot, but these two languages are not as similar as many might think. Here are some of the most important differences between Russian and Ukrainian.
@@ -105,6 +131,9 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
 
  Showing 1 to 6 of 6 entries
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ### Sounds and pronunciation
 
  While to a non-trained ear Russian and Ukrainian might sound the same, they actually have several differences when it comes to pronunciation. For example, Ukrainian has a specific sound for “Г г” (similar to \[h\] in ‘aha!’) which Russian doesn’t have. For this letter, Russian uses the \[g\] sound which is similar to the ‘g’ in ‘go’ or ‘guard’. As a consequence, it’s very easy to differentiate a Ukrainian speaker from a Russian speaker as Ukrainians sometimes overlook the usage of \[g\] instead of \[h\].
@@ -137,6 +166,9 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Learn Ukrainian, Russian and more in just 10 minutes a day
 
  Do you want to learn languages fast? Get Mondly, the award-winning language app that will help you speak Ukrainian, Russian and more from day 1.
@@ -169,3 +201,55 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-elevate-your-meetings-best-tools-to-record-zoom-for-2024/"><u>[New] Elevate Your Meetings  Best Tools to Record Zoom for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-crafting-your-perfect-minecraft-shelter/"><u>[New] In 2024, Crafting Your Perfect Minecraft Shelter</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-metaverse-meets-the-multiverse-a-detailed-comparison/"><u>[New] Metaverse Meets the Multiverse  A Detailed Comparison</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/nseen-sides-novel-strategies-for-inverting-your-youtube-views/"><u>[New] Unseen Sides  Novel Strategies for Inverting Your YouTube Views</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-latest-insights-on-facebook-whats-new-in-2024/"><u>[Updated] Latest Insights on Facebook - What's New, In 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-no-8-visual-artists-choice-for-photo-assembly/"><u>[Updated] No. 8 Visual Artist's Choice for Photo Assembly</u></a></li>
+<li><a href="https://win11.techidaily.com/achieve-seamless-icon-alignment-on-pcs/"><u>Achieve Seamless Icon Alignment on PCs</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/apple-iphone-6-plus-mirror-to-pc-top-apps-you-must-know-drfone-by-drfone-ios/"><u>Apple iPhone 6 Plus Mirror to PC? Top Apps You Must Know | Dr.fone</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-the-newest-rtx-2070-super-drivers-installation-guide-for-windows-10-and-11-users/"><u>Get the Newest RTX 2070 Super Drivers: Installation Guide for Windows 10 and 11 Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grateful-words-across-borders-say-thank-you-in-30-languages-156/"><u>Grateful Words Across Borders: Say Thank You in 30 Languages (156)</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-the-soft-bricked-motorola-moto-g84-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix the Soft Bricked Motorola Moto G84 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-itel-s23-by-phone-number-drfone-by-drfone-virtual-android/"><u>How to Track Itel S23 by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-4-quick-ways-to-transfer-contacts-from-apple-iphone-7-plus-to-iphone-withwithout-itunes-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 4 Quick Ways to Transfer Contacts from Apple iPhone 7 Plus to iPhone With/Without iTunes | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-easy-steps-on-how-to-create-a-new-apple-id-account-on-apple-iphone-13-by-drfone-ios/"><u>In 2024, Easy Steps on How To Create a New Apple ID Account On Apple iPhone 13</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-a-lost-realme-gt-3-for-free-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track a Lost Realme GT 3 for Free? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/intercultural-expression-essentials/"><u>Intercultural Expression Essentials</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-evolution-cutting-edge-techniques-for-contemporary-learners/"><u>Language Evolution: Cutting-Edge Techniques for Contemporary Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-charms-teaching-made-enjoyable/"><u>Latin Charms: Teaching Made Enjoyable</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-bridge-between-nations/"><u>Linguistic Bridge Between Nations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-english-a-collection-of-9-key-grammar-techniques/"><u>Mastering English: A Collection of 9 Key Grammar Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-the-art-of-saying-hello-in-spanish-dive-into-these-top-10-phrases/"><u>Mastering the Art of Saying 'Hello' In Spanish - Dive Into These Top 10 Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-and-apple-lead-charge-in-education-tech-with-10-ranking/"><u>Mondly and Apple Lead Charge in Education Tech with #10 Ranking</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-crowned-at-2021-witsas-ict-summit/"><u>Mondly Crowned at 2021 WITSA's ICT Summit</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-hits-stride-with-apple-ranks-as-10th-global-ed-app/"><u>Mondly Hits Stride With Apple, Ranks as 10Th Global Ed-App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-leads-with-excellence-at-2021-gala/"><u>Mondly Leads with Excellence at 2021 Gala</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-recognized-as-2021-excellence-champion/"><u>Mondly Recognized as 2021 Excellence Champion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-german-colloquialisms-with-confidence-top-25/"><u>Navigating German Colloquialisms with Confidence (Top 25)</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/numbers-in-focus-yearly-yt-trends-and-trivia-2017-for-2024/"><u>Numbers in Focus! Yearly YT Trends & Trivia (2017) for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oracles-output-ancient-greek-influence-and-modern-context/"><u>Oracle’s Output: Ancient Greek Influence & Modern Context</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/partes-del-cuerpo-de-la-cabeza-a-los-pies-en-espanol/"><u>Partes Del Cuerpo: De La Cabeza A Los Pies En Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pearson-your-gateway-to-international-communication/"><u>Pearson: Your Gateway to International Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/preeminent-5-apps-aiding-language-teachers/"><u>Preeminent 5 Apps Aiding Language Teachers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pushing-english-perfection-through-mondly-training/"><u>Pushing English Perfection Through Mondly Training</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-latvian-lessons-achieve-proficiency-fast/"><u>Quick Latvian Lessons - Achieve Proficiency Fast</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spaniards-tongue-versus-luso-speech-a-romance-comparison/"><u>Spaniard's Tongue Versus Luso Speech: A Romance Comparison</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/starting-from-zero-pronunciation-and-the-german-alphabet-demystified/"><u>Starting From Zero: Pronunciation & The German Alphabet Demystified</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-innate-ability-of-children-to-learn-multiple-languages/"><u>The Innate Ability of Children to Learn Multiple Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-english-contractions/"><u>The Ultimate Guide To English Contractions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-sayings-and-phrases-guide-for-australians/"><u>The Ultimate Sayings and Phrases Guide for Australians</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/top-4-enhancements-needed-in-chatgpts-plugin-marketplace/"><u>Top 4 Enhancements Needed in ChatGPT's Plugin Marketplace</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-asian-linguistic-varieties-easy-reordering/"><u>Top Asian Linguistic Varieties: Easy Reordering</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/turko-korean-discourse-dynamics/"><u>Turko-Korean Discourse Dynamics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukranian-language-skills-upgrade-in-minutes-a-day-106-chars/"><u>Ukranian Language Skills Upgrade in Minutes a Day (106 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukranian-proficiency-in-piecemeal-daily-doses-105-chars/"><u>Ukranian Proficiency in Piecemeal Daily Doses (105 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unmasking-the-mysteries-of-squid-game-with-korean-lessons/"><u>Unmasking The Mysteries of Squid Game with Korean Lessons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-santas-secretive-sapien-symphony/"><u>Unveiling Santa's Secretive Sapien Symphony</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/what-countries-are-emphasized-in-us-education/"><u>What Countries Are Emphasized in U.S. Education?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/syggnwmh-ths-gkreman-neoy/"><u>Συγγνώμη Της Γκρεμάν Νέου</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "Affectionate Innuendos: The Florentine Way"
-date: 2024-07-12T09:00:24.860Z
-updated: 2024-07-13T09:00:24.860Z
+date: 2024-08-23T00:21:12.112Z
+updated: 2024-08-24T00:21:12.112Z
 tags:
   - speak
   - english
@@ -50,6 +50,9 @@ thumbnail: https://thmb.techidaily.com/4cc1197e18d9544b2124a65bfec1efb521b06ec23
 * _Hai una mappa? Continuo a perdermi nei tuoi occhi._ (“Do you have a map? I keep getting lost in your eyes.”)
 * _Ti darò un bacio. Se non ti piace, puoi restituirlo._ (“I’ll give you a kiss. If you don’t like it, you can return it.”)
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Italian Smooth Pick Up Lines
 
 * _Ti va di prendere un caffè insieme? Sul serio, non ho secondi fini. Voglio solo stare seduto al tavolo finché non ci innamoriamo._ (“Would you like to have a coffee with me? I swear there are no ulterior motives. I just wanna sit at the table with you until we both fall in love.”)
@@ -65,12 +68,18 @@ thumbnail: https://thmb.techidaily.com/4cc1197e18d9544b2124a65bfec1efb521b06ec23
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Captivating Hearts In Italian: The Art Of Poetic Pick Up Lines 3")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Learn Italian fast
 
  Does your crush speak Italian? Mondly has your back with practical Italian skills for real life.
 
 [Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-9730&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9730&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9730&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9730&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-9730%26mt%3D8)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<!-- affiliate ads end -->
 ## Pick Up Lines to Use on Guys in Italy
 
 * _Ciao, bello!_ (“Hello, handsome!”)
@@ -84,6 +93,9 @@ thumbnail: https://thmb.techidaily.com/4cc1197e18d9544b2124a65bfec1efb521b06ec23
 * _Sei il tipo di ragazzo che mi farebbe guardare il calcio tutto il giorno._ (“You’re the kind of guy who would make me watch soccer all day.”)
 * _Sei più affascinante di una serata a Venezia._ (“You’re more charming than an evening in Venice.”)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Best Pick Up Lines for Girls in Italy
 
 * _Sei come la pizza Napoletana: perfetta in ogni modo. (“Y_ ou’re like Neapolitan pizza: perfect in every way.”)
@@ -106,6 +118,9 @@ thumbnail: https://thmb.techidaily.com/4cc1197e18d9544b2124a65bfec1efb521b06ec23
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Learn Italian for the one you love
 
  Did you use one of these pick up lines in Italian and successfully broke the ice? Nice job. Or maybe you just want to learn more? **Get Mondly now and enrich your Italian flirting vocabulary with a dedicated category on “Romance”.**
@@ -136,3 +151,49 @@ thumbnail: https://thmb.techidaily.com/4cc1197e18d9544b2124a65bfec1efb521b06ec23
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-the-complete-guide-to-hulu-recording-across-all-platforms/"><u>[New] 2024 Approved  The Complete Guide to Hulu Recording Across All Platforms</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-decoding-the-future-pivotal-changes-to-fb-advertising-post-2023-for-2024/"><u>[Updated] Decoding the Future  Pivotal Changes to FB Advertising Post-2023 for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-achieve-seamless-retrieval-of-twitters-humor-gifs-on-your-system/"><u>[Updated] In 2024, Achieve Seamless Retrieval of Twitter's Humor (GIFs) on Your System</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-smooth-loop-setup-tailoring-youtube-content-for-television/"><u>[Updated] Smooth Loop Setup  Tailoring YouTube Content for Television</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/enhancing-the-performance-of-discord-searches-on-windows/"><u>Enhancing the Performance of Discord Searches on Windows</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/exploring-the-authenticity-of-truthgpt-cryptocurrency/"><u>Exploring the Authenticity of TruthGPT Cryptocurrency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-english-variants-unveiling-american-irish-and-indian-tones/"><u>Global English Variants: Unveiling American, Irish, and Indian Tones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/guida-speciale-al-contare-in-italiano-1-1000/"><u>Guida Speciale Al Contare in Italiano (1-1000)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/halloween-around-the-world-unique-traditions-and-celebrations/"><u>Halloween Around The World: Unique Traditions And Celebrations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/harnessing-mondlys-full-capabilities-for-success/"><u>Harnessing Mondly's Full Capabilities for Success</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/how-to-ensure-no-loss-of-frames-during-recording/"><u>How To Ensure No Loss of Frames During Recording</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/instrucciones-para-entender-la-hora-en-espanol/"><u>Instrucciones Para Entender La Hora en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-love-jargon-for-a-special-day/"><u>International Love Jargon for a Special Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-bridge-salutations-across-nations/"><u>Language Bridge: Salutations Across Nations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-in-flux-popular-slang-words-and-their-meanings/"><u>Language in Flux: Popular Slang Words and Their Meanings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-playfully-unlocked-through-education/"><u>Latin Playfully Unlocked Through Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-english-pronunciation-via-intense-tongue-twisters/"><u>Mastering English Pronunciation via Intense Tongue Twisters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-language-exams-top-certifications-and-exam-preparation-guide/"><u>Mastering Language Exams: Top Certifications And Exam Preparation Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-the-art-of-croatian-conversation-travels-must-have-skillset/"><u>Mastering the Art of Croatian Conversation: Travel's Must-Have Skillset</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-brings-you-a-diverse-new-phrasebook/"><u>Mondly Brings You a Diverse New Phrasebook!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/most-chosen-overseas-languages-for-education/"><u>Most Chosen Overseas Languages for Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-grammars-maze-for-learners/"><u>Navigating Grammar's Maze for Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/numbers-unveiled-the-russian-method/"><u>Numbers Unveiled: The Russian Method</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/practica-controlada-como-decir-colores/"><u>Práctica Controlada: Cómo Decir Colores</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/prime-foreign-tongues-pursued-by-americans/"><u>Prime Foreign Tongues Pursued by Americans</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/reloj-digital-conocimiento-esencial-en-espanol/"><u>Reloj Digital: Conocimiento Esencial en Español</u></a></li>
+<li><a href="https://win-able.techidaily.com/resolved-overcoming-issues-with-dota-2-freezing-at-start-up/"><u>Resolved: Overcoming Issues with Dota 2 Freezing at Start-Up</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rhythmic-recall-enhancing-memory-with-musical-language-lessons/"><u>Rhythmic Recall: Enhancing Memory with Musical Language Lessons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/secrets-for-successful-linguistic-assessments/"><u>Secrets for Successful Linguistic Assessments</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tecnicas-para-articulacion-de-colores/"><u>Técnicas Para Articulación De Colores</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-dance-of-dialogues-across-dialectal-divides/"><u>The Dance of Dialogues Across Dialectal Divides</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722607680810-the-premier-list-of-cable-modems-find-the-perfect-match/"><u>The Premier List of Cable Modems - Find the Perfect Match!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-your-tongue-with-mondlys-techniques/"><u>Transform Your Tongue with Mondly's Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transformative-experience-with-mondly-mastery/"><u>Transformative Experience with Mondly Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/traveling-to-israel-tips-and-phrases-for-your-trip/"><u>Traveling To Israel? Tips And Phrases For Your Trip</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/two-ways-to-track-my-boyfriends-oneplus-12r-without-him-knowing-drfone-by-drfone-virtual-android/"><u>Two Ways to Track My Boyfriends OnePlus 12R without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/uk-dialect-decoded-fluent-in-locals-tongue/"><u>UK Dialect Decoded: Fluent in Locals Tongue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-smooth-conversation-top-9-verbal-mastery-hints/"><u>Unlocking Smooth Conversation: Top 9 Verbal Mastery Hints</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-future-of-user-assistance-with-mondlys-qanda-update/"><u>Unveiling the Future of User Assistance with Mondly’s Q&A Update</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/us-vs-uk-a-linguistic-comparison/"><u>US vs UK: A Linguistic Comparison</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vocal-varieties-comparing-american-drawl-with-british-cockney-and-australian-swagger/"><u>Vocal Varieties: Comparing American Drawl with British Cockney & Australian Swagger</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/voice-activated-multi-language-the-new-oculus-quest-update-feature/"><u>Voice-Activated, Multi-Language: The New Oculus Quest Update Feature</u></a></li>
+</ul></div>

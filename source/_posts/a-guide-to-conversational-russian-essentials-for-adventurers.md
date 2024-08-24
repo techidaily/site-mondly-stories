@@ -1,7 +1,7 @@
 ---
 title: A Guide to Conversational Russian Essentials for Adventurers
-date: 2024-07-12T08:59:50.278Z
-updated: 2024-07-13T08:59:50.278Z
+date: 2024-08-23T00:21:48.001Z
+updated: 2024-08-24T00:21:48.001Z
 tags:
   - speak
   - english
@@ -120,6 +120,9 @@ thumbnail: https://thmb.techidaily.com/ea90287aad1128dcf73001caefa47ec3f1c16bb10
 * I’ll be back immediately. –_Я скоро вернусь. – Ya skoro vernus._
 * Drive me to this address. –_Отвезите меня по этому адресу. – Otvezite menya po etomu adresu_ .
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 4\. Advanced Russian phrases for different hotel situations
 
  Staying at a hotel/hostel requires interaction with the staff – most of the time. If you don’t want to waste your time searching English to Russian translations on Google, make sure to learn some basic Russian that will help you to better express your needs.
@@ -148,6 +151,9 @@ thumbnail: https://thmb.techidaily.com/ea90287aad1128dcf73001caefa47ec3f1c16bb10
 
 ![russian-words](https://edge.mondly.com/blog/wp-content/uploads/2018/07/russian-words-1024x684.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 6")
 
+<!-- affiliate ads begin -->
+<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<!-- affiliate ads end -->
  Photo by Max Delsid
 
 * My wife would like a bowl of soup. –_Моей жене – суп. – Moyey zhene – sup._
@@ -163,6 +169,9 @@ thumbnail: https://thmb.techidaily.com/ea90287aad1128dcf73001caefa47ec3f1c16bb10
 
 ![useful-russian-words](https://edge.mondly.com/blog/wp-content/uploads/2018/07/useful-russian-words-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 7")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Photo by Henrique Félix
 
 * I would like a dessert. –_Я хотел бы десерт. Ya hotel by desert._
@@ -184,6 +193,9 @@ Just joking. Still is an amazing drink, though!
 
 ![russian-travel-guide](https://edge.mondly.com/blog/wp-content/uploads/2018/07/russian-travel-guide-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 8")
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Photo by Edwin Andrade
 
 * Are tickets for the cinema still available? –_Билеты в кино ещё есть? – Bilety v kino yeshcho yest?_
@@ -195,6 +207,9 @@ Just joking. Still is an amazing drink, though!
 * Let’s have some fun. –_Повеселимся! – Poveselimsya!_
 * Are there seats available? –_Ещё остались свободные места? – Yeshcho ostalis svobodnyye mesta?_
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 7\. Basic Russian phrases for shopping sprees
 
  This is the cruelest drudgery our loved ones from home put us through while on holiday. _Should I buy a matryoshka doll? Or some vodka? Maybe a refrigerator magnet? But when? What if I don’t buy anything? Will they hate me for life?_ Funny or not, these are all questions that haunt us while on holiday. The best solution? Schedule two hours tops and just get it over with. The same way you would do with a bandage.
@@ -204,6 +219,9 @@ Just joking. Still is an amazing drink, though!
 
 ![basic-russian](https://edge.mondly.com/blog/wp-content/uploads/2018/07/bassic-russian-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 9")
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<!-- affiliate ads end -->
  Photo by Alina Grubnyak
 
 * How much are they? –_Сколько они стоят? – Skolko oni stoyat?_
@@ -241,6 +259,9 @@ Just joking. Still is an amazing drink, though!
 
 ![russian-phrases-world-cup](https://edge.mondly.com/blog/wp-content/uploads/2018/07/russian-phrases-world-cup-1024x576.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 11")
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
  Photo by Fauzan Saari
 
 * Do you watch football? –_Ты смотришь футбол? – Ty smotrish futbol?_
@@ -282,3 +303,42 @@ Just joking. Still is an amazing drink, though!
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-how-to-amplify-your-online-presence-with-google-meets-aesthetic-tools/"><u>[New] 2024 Approved  How to Amplify Your Online Presence with Google Meet's Aesthetic Tools</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-experience-professional-facebook-profile-picture-design-with-these-tools/"><u>[New] Experience Professional Facebook Profile Picture Design with These Tools</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-video-formats-that-thrive-on-instagram-whats-best/"><u>[New] Video Formats That Thrive on Instagram - What's Best?</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-create-captivate-independent-animation-innovations/"><u>[Updated] In 2024, Create, Captivate  Independent Animation Innovations</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-melody-remixes-the-years-unforgettable-tik-tok-beats-and-rhythms-for-2024/"><u>[Updated] Melody Remixes  The Year's Unforgettable Tik Tok Beats and Rhythms for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-tailored-techniques-for-logging-high-quality-roblox-sessions-on-a-mac-for-2024/"><u>[Updated] Tailored Techniques for Logging High-Quality Roblox Sessions on a Mac for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-who-leads-the-streaming-race-twitch-vs-youtube-showdown-for-2024/"><u>[Updated] Who Leads the Streaming Race? Twitch vs YouTube Showdown for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-elevate-your-obs-experience-the-role-of-custom-luts/"><u>2024 Approved  Elevate Your OBS Experience  The Role of Custom LUTs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aid-to-the-poorest-foundation-danny-colombia-way/"><u>Aid to the Poorest: Foundation Danny Colombia Way</u></a></li>
+<li><a href="https://games-able.techidaily.com/break-controller-conundrum-quick-cure-for-ps4-gamepad-glitches/"><u>Break Controller Conundrum: Quick Cure for PS4 Gamepad Glitches</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultivating-language-proficiency-with-dark-on-netflix/"><u>Cultivating Language Proficiency with 'Dark' On Netflix</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/engaging-spanish-learning-for-kids-games-songs-and-activities/"><u>Engaging Spanish Learning for Kids: Games, Songs, and Activities</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhancing-functionality-mondly-and-pearson-buttonlinkage/"><u>Enhancing Functionality: Mondly & Pearson ButtonLinkage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-language-arsenal-top-93-spanish-phrases-for-travelling/"><u>Essential Language Arsenal: Top 93 Spanish Phrases for Travelling</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-russian-expressions-for-international-wanderers/"><u>Essential Russian Expressions for International Wanderers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-spanish-verb-learning-for-efficiency/"><u>Essential Spanish Verb Learning for Efficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-and-engage-with-fun-latin-lessons/"><u>Explore & Engage with Fun Latin Lessons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-with-ease-google-play-best-app-mondly-kids-experience/"><u>Explore with Ease! Google Play Best App: Mondly Kids Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-macaus-multilingual-tapestry/"><u>Exploring Macau's Multilingual Tapestry</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressive-shades-in-french-quickly-learned/"><u>Expressive Shades in French Quickly Learned</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/film-based-learning-strategies-for-eloquent-communication/"><u>Film-Based Learning: Strategies for Eloquent Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/foreign-influences-on-the-english-language-borrowed-wordsback-buttonfilter-button/"><u>Foreign Influences On The English Language – Borrowed WordsBack ButtonFilter Button</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/freedom-to-learn-honoring-1500-fee-free-lessons-daily/"><u>Freedom to Learn: Honoring 1500 Fee-Free Lessons Daily</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/friendly-farewells-and-welcomes-in-indonesia/"><u>Friendly Farewells & Welcomes in Indonesia</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-confusion-to-clarity-understanding-english-contraction-rules/"><u>From Confusion to Clarity: Understanding English Contraction Rules</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/frying-fundamentals-for-the-ultimate-fried-egg-experience-87-characters/"><u>Frying Fundamentals for the Ultimate Fried Egg Experience (87 Characters)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/future-lexicons-shaping-tomorrows-language-landscapes/"><u>Future Lexicons: Shaping Tomorrow's Language Landscapes</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-does-find-my-friends-work-on-oppo-a18-drfone-by-drfone-virtual-android/"><u>In 2024, Does find my friends work on Oppo A18 | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-revolutionizing-gaming-analyzing-kinemasters-android-version/"><u>In 2024, Revolutionizing Gaming  Analyzing KineMaster's Android Version</u></a></li>
+<li><a href="https://fox-http.techidaily.com/install-windows-movie-lab-for-creative-windows-11-users-for-2024/"><u>Install Windows Movie Lab for Creative Windows 11 Users for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578492484-master-uk-idioms-and-expressions-become-a-true-brit/"><u>Master UK Idioms & Expressions: Become a True Brit</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/mastering-the-underestimated-aspects-of-instagram-for-2024/"><u>Mastering the Underestimated Aspects of Instagram for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/revamped-tweeting-learn-how-to-set-a-strong-new-passcode-for-your-x-profile/"><u>Revamped Tweeting? Learn How to Set a Strong, New Passcode for Your X Profile</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/stream-like-a-pro-on-youtube-best-webcams-reviewed-for-2024/"><u>Stream Like a Pro on YouTube  Best Webcams Reviewed for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/streamline-live-4-proven-recording-techniques-for-fb/"><u>Streamline Live  4 Proven Recording Techniques for FB</u></a></li>
+</ul></div>

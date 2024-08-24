@@ -1,7 +1,7 @@
 ---
 title: Rapidly Acquire Japanese Numbers Today!
-date: 2024-07-12T08:59:45.934Z
-updated: 2024-07-13T08:59:45.934Z
+date: 2024-08-23T00:21:52.433Z
+updated: 2024-08-24T00:21:52.433Z
 tags:
   - speak
   - english
@@ -98,6 +98,9 @@ thumbnail: https://thmb.techidaily.com/de1ed084e4e7384a82650c7f3de48e6d0c70a32a5
 
 [Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-3643&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-3643&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-3643&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-3643&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-3643%26mt%3D8)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Count to 10,000 and beyond in Japanese
 
 | Number     | Kanji | Hiragana      | Romaji           |
@@ -144,6 +147,12 @@ thumbnail: https://thmb.techidaily.com/de1ed084e4e7384a82650c7f3de48e6d0c70a32a5
 
 ![numbers in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/11/numbers-in-japanese-960x647.jpeg "Counting In Japanese From 1 To 10000 9")
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Japanese Lucky Numbers
 
  The two main**Japanese lucky numbers are seven (なな, Nana) and eight (はち, Hachi).** Given this, do you think the names of two of the most popular Japanese animal characters in the world were merely coincidental? We’re talking, of course, about the cat Nana from_The Travelling Cat Chronicles_ by Hiro Arikawa and Hachi from_Hachiko: The True Story of a Loyal Dog_ by Pamela S. Turner.
@@ -152,8 +161,14 @@ thumbnail: https://thmb.techidaily.com/de1ed084e4e7384a82650c7f3de48e6d0c70a32a5
 
 ![hatchi](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExdDQ0cHlhYjkxb2QwaTd1MWh1aDYyc3U3am05dnAzcnAxaGxkZWJsaiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/bzoD9WOiU1wAg/giphy.gif "Counting In Japanese From 1 To 10000 10")
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  On the other hand, you probably noticed that 4, 7, and 9 have two different readings each. As we, in the Western world, consider the number 13 to bring bad luck, the Japanese people consider the numbers 4 and 9 to be unlucky because し (_shi_ – 4_)_ ) and く (_ku_ – 9) sound the same as the words for “death” (死, shi) and “suffering, agony or torture” (苦, ku). Thus, Japanese people avoid using these unlucky numbers as much as possible. If you ever travel to Japan, pay close attention to the prices. Chances are you won’t see prices like 9.99 or 4.99 anywhere.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
 ## Japanese Counters List
 
 **Japanese counters** are specific words that you must add after a number when counting particular objects. If we were to adapt the concept of Japanese counters to English, we might say “two pieces of pie” instead of “two pies”. In this situation, the word “pieces” acts as the counter. Thus, depending on the objects you are counting, you need to choose the appropriate counter word.
@@ -170,12 +185,19 @@ thumbnail: https://thmb.techidaily.com/de1ed084e4e7384a82650c7f3de48e6d0c70a32a5
 
  To count people in Japanese, use the counter ひとり_(hitori)_ for one person, ふたり_(futari)_ for two people, and \~人_(nin)_ for three or more people.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Japanese objects counters
 
  Long and thin objects, such as pencils, bottles, chopsticks, umbrellas, rivers, train tracks, or roads, have their own Japanese counter: \~本_(hon)_ . When counting these objects, all numbers end in_\-hon_ , except for 3, which ends in –_bon_ , and the numbers 1, 6, 8, and 10, which end in_\-pon_ . Although this might seem overwhelming initially, practice will help you master these exceptions more quickly.
 
  To count small and round objects like apples or tennis balls, you must use the \~個_(ko)_ counter. Conversely, to count thin and flat objects (such as sheets of paper, plates, or articles of clothing), you should use the まい_(mai)_ counter.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+</a>
+<!-- affiliate ads end -->
 ### Japanese counters for animals
 
  For small animals like insects, fish, dogs or cats, you need to use the counter \~匹_(_ _hiki_ _)._ For larger animals, such as elephants, the appropriate counter \~頭_(tou)_ .
@@ -186,6 +208,9 @@ thumbnail: https://thmb.techidaily.com/de1ed084e4e7384a82650c7f3de48e6d0c70a32a5
 
 ![Japanese numbers kanji](https://edge.mondly.com/blog/wp-content/uploads/2019/11/japanese-numbers-kanji-960x640.jpeg "Counting In Japanese From 1 To 10000 11")
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<!-- affiliate ads end -->
 ### Japanese counters for cars or bicycles
 
  If you’re not overwhelmed yet, for cars, machines, and all types of household appliances, the counter \~台_(dai)_ is necessary.
@@ -249,3 +274,43 @@ Before you go, make sure you check out these FAQs.
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-quick-steps-for-saving-your-macs-desktop/"><u>[New] 2024 Approved  Quick Steps for Saving Your Mac's Desktop</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-the-art-of-gamers-screen-recording-on-win10/"><u>[New] 2024 Approved  The Art of Gamers' Screen Recording on Win10</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-beginner-friendly-steps-to-record-your-mac-display/"><u>[New] In 2024, Beginner-Friendly Steps to Record Your Mac Display</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-confirmation-techniques-for-youtube-accounts/"><u>[Updated] 2024 Approved  Confirmation Techniques for Youtube Accounts</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-behind-the-scenes-the-magic-of-quantum-hdr/"><u>[Updated] Behind the Scenes  The Magic of Quantum HDR</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-stabilizing-shots-best-4k-gimbals-reviewed-for-2024/"><u>[Updated] Stabilizing Shots  Best 4K Gimbals Reviewed for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-quick-creative-and-captivating-titles-ready/"><u>2024 Approved  Quick, Creative, and Captivating Titles Ready</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/bypassing-google-account-with-vnrom-bypass-for-vivo-y100-5g-by-drfone-android/"><u>Bypassing Google Account With vnROM Bypass For Vivo Y100 5G</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/english-contractions-explained-simply-and-concisely/"><u>English Contractions Explained Simply & Concisely</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhance-communication-with-global-knowledge/"><u>Enhance Communication with Global Knowledge</u></a></li>
+<li><a href="https://driver-install.techidaily.com/enhanced-software-update-hp-officejet-4630-edition/"><u>Enhanced Software Update: HP Officejet 4630 Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhancing-pronunciation-and-expression-in-english-talk/"><u>Enhancing Pronunciation & Expression in English Talk</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enrich-your-manners-germanys-most-appreciated-sayings/"><u>Enrich Your Manners: Germany's Most Appreciated Sayings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enter-the-world-of-ks-deciphe-netflixs-popular-phenomenon/"><u>Enter the World of KS: Deciphe Netflix's Popular Phenomenon</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-words-mastery-with-oxfords-innovative-approach/"><u>Essential Words Mastery with Oxford's Innovative Approach</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/evaluating-usefulness-of-german-vs-french-languages/"><u>Evaluating Usefulness of German vs French Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/experience-the-peak-of-ease-and-effectiveness-with-mondly/"><u>Experience the Peak of Ease and Effectiveness with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-asia-mastering-vietnamese-language-skills/"><u>Exploring Asia: Mastering Vietnamese Language Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-vietnam-a-language-led-adventure/"><u>Exploring Vietnam: A Language-Led Adventure</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/finding-common-ground-beyond-words-in-couples/"><u>Finding Common Ground Beyond Words in Couples</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/flash-bangla-10-minute-a-day-language-routine/"><u>Flash Bangla: 10-Minute a Day Language Routine</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/flourish-in-multilingualisms-landscape/"><u>Flourish in Multilingualism's Landscape</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/free-lessons-at-your-fingertips-mondly-and-ukrainian-linguists-unite/"><u>Free Lessons at Your Fingertips: Mondly & Ukrainian Linguists Unite</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-shades-quickly-say-them-right/"><u>French Shades: Quickly Say Them Right!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-fandom-to-proficiency-korean-lessons-on-squid-game/"><u>From Fandom to Proficiency: Korean Lessons on Squid Game</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-expert-learn-hangul-with-precision-and-ease/"><u>From Novice to Expert: Learn Hangul with Precision & Ease</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gaining-wisdom-in-world-languages/"><u>Gaining Wisdom in World Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-for-novices-mastering-sounds-and-symbols/"><u>German for Novices: Mastering Sounds & Symbols</u></a></li>
+<li><a href="https://change-location.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-vivo-y78t-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Vivo Y78t | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-elevate-your-video-game-top-10-keyword-strategy-resources/"><u>In 2024, Elevate Your Video Game  Top 10 Keyword Strategy Resources</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-nokia-g42-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Nokia G42 5G? | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-the-path-to-flawless-film-recording-device-agnostic-guide/"><u>In 2024, The Path to Flawless Film Recording  Device Agnostic Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/is-chromecast-with-google-tv-up-for-par-with-firetv-a-comprehensive-guide/"><u>Is Chromecast with Google TV Up for Par with FireTV? A Comprehensive Guide</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/restore-missing-app-icon-on-realme-narzo-60x-5g-step-by-step-solutions-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Restore Missing App Icon on Realme Narzo 60x 5G Step-by-Step Solutions | Dr.fone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/tips-and-tricks-to-stop-stardee-from-freezing-a-players-handbook-for-stable-gameplay/"><u>Tips & Tricks to Stop Stardee From Freezing: A Player's Handbook for Stable Gameplay</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-2024-approved-mask-tracking-with-adobe-premiere-pro-a-detailed-guide/"><u>Updated 2024 Approved Mask Tracking with Adobe Premiere Pro A Detailed Guide</u></a></li>
+</ul></div>
