@@ -1,7 +1,7 @@
 ---
 title: A Deep Dive Into Farsi's Origin & Learning Gains
-date: 2024-07-12T08:52:01.751Z
-updated: 2024-07-13T08:52:01.751Z
+date: 2024-08-27T22:49:30.786Z
+updated: 2024-08-28T22:49:30.786Z
 tags:
   - speak
   - english
@@ -36,6 +36,9 @@ thumbnail: https://thmb.techidaily.com/1c29d979a20696d19bd8c5c3e9d947157133fd882
 
  Old Persian then developed into**Middle Persian,** which existed from around 300 BCE until 800 CE. Evidence of Middle Persian exists mainly in the religious texts of the Zoroastrian religion. However, **Middle Persian entered a new stage when the Islamic conquest in 651 AD happened.** The following 200 years are referred to as “the two centuries of silence” because there is very little to almost no literature available from this time period.
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
+<!-- affiliate ads end -->
 ### The Arab rule
 
  It seems that during the Muslim conquest of Persia, the Persian language was in danger of being lost and replaced by Arabic. Luckily, Persia was one of the few places where the Arabic language did not replace the local language. However, Arabic was used by the elite and it definitely had a big impact on the vocabulary of the**Modern Persian** that was emerging.
@@ -44,16 +47,25 @@ thumbnail: https://thmb.techidaily.com/1c29d979a20696d19bd8c5c3e9d947157133fd882
 
 !["Ferdowsi Shahnameh" by McGill Library©](https://edge.mondly.com/blog/wp-content/uploads/2022/09/mcgill-library-AH42Li7NKUc-unsplash-960x629.jpg "Persian Language: History &Amp; Benefits Of Learning Farsi/Persian 2")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Persian Literary History: Ferdowsi’s ‘Shahnameh’ — Siyavush in Sudaba’s private quarters.
 
  Today, there still are a significant number of [Arabic words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) in Persian, but not as many as there could have been.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Persian influence on other languages
 
  During this Persian cultural resurgence, the Persian language and culture impacted a wide geographic area. For this reason, Persian has left its influence on many different languages, including a heavy influence on the [vocabulary of Urdu](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and Turkish. To this day, words of Persian origin can be found as far as Malaysia.
 
  As a matter of fact, there are even some English words of Persian origin. Some of them came directly into English from Persian, but most of them came indirectly into English via a different language. Some examples include bronze, jackal, lemon, mogul, mummy, scarlet, serendipity, shawl, tulip, turban, typhoon, khaki, caravan, and paradise. Probably the most interesting borrowing is the word “checkmate,” which comes from the Persian_Shah Mat_ , meaning “the king is dead”.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Persian vs Farsi: Is Farsi the same as Persian?
 
  The short answer is yes, Farsi and Persian are the same language. The confusion comes from the fact that ‘Persian’ is the term used by English speakers and ‘Farsi’ is the term used by Iranian speakers to refer to Persian, the official language of Iran.
@@ -64,6 +76,9 @@ thumbnail: https://thmb.techidaily.com/1c29d979a20696d19bd8c5c3e9d947157133fd882
 
  According to the [Academy of Persian Language and Literature](https://iranicaonline.org/articles/farhangestan) , the endonym ‘Farsi’ should be avoided in foreign languages. Instead, ‘Persian’ should be the appropriate designation in English, as it has the longest tradition in western languages and is better suited to convey the language’s role as a national and cultural continuity symbol.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<!-- affiliate ads end -->
 ## Persian vs Arabic: Is Persian similar to Arabic?
 
  Considering their shared history presented above, Persian and Arabic developed to become somehow similar, but not as similar as many think.
@@ -76,6 +91,9 @@ thumbnail: https://thmb.techidaily.com/1c29d979a20696d19bd8c5c3e9d947157133fd882
 
  All in all, Persian and Arabic can’t be considered mutually intelligible. A speaker of either Persian or Arabic with no knowledge of the other could recognize some basic words in writing, but conversations are a whole other story.
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## The benefits of learning Farsi/Persian
 
  If you’re a language learner at heart, you already know that learning any language will broaden your horizons. There’s no such thing as a ‘waste of time’ when you [learn a new language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Be it Persian, Arabic, Urdu or a more popular language such as Spanish or German – all languages are equally important.
@@ -130,3 +148,48 @@ Other benefits of learning Persian include:
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-seamless-editing-experience-built-for-vimeo-videos/"><u>[New] 2024 Approved  Seamless Editing Experience Built for Vimeo Videos</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-first-steps-on-social-landscape-creating-a-facebook-account-for-2024/"><u>[New] First Steps on Social Landscape  Creating a Facebook Account for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-optimize-workflow-effective-methods-of-capturing-macs-screen-via-shortcut-keys/"><u>[Updated] In 2024, Optimize Workflow  Effective Methods of Capturing Mac’s Screen via Shortcut Keys</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-strategies-for-lengthening-gopros-electric-life/"><u>[Updated] Strategies for Lengthening GoPro's Electric Life</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-transform-your-video-footage-with-advanced-screen-recording-tech/"><u>[Updated] Transform Your Video Footage with Advanced Screen Recording Tech</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-calculated-viewing-time-for-a-standard-20mb-film/"><u>2024 Approved  Calculated Viewing Time for a Standard 20Mb Film</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-and-update-essential-software-for-corsair-h80i-series-liquid-coolers/"><u>Download & Update: Essential Software for Corsair H80i Series Liquid Coolers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grasping-the-basics-from-german-sounds-to-spelling/"><u>Grasping the Basics: From German Sounds to Spelling</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gsl-innovation-unveiled-the-pearson-and-mondly-duo/"><u>GSL Innovation Unveiled - The Pearson & Mondly Duo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gsl-revolutionized-by-pearson-and-mondly-together/"><u>GSL Revolutionized by Pearson and Mondly Together</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-apologize-and-say-sorry-in-german/"><u>How To Apologize And Say Sorry In German</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-say-happy-4th-of-july-in-different-languages/"><u>How to Say ‘Happy 4Th of July’ in Different Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/iniciando-o-dialogo-pela-frase-lusitana-mais-usada/"><u>Iniciando O Diálogo Pela Frase Lusitana Mais Usada</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-participation-in-thanksgiving-celebrations/"><u>International Participation in Thanksgiving Celebrations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-as-an-lifelong-adventure-top-reasons-why-at-age-40plus-is-the-best-time-to-start/"><u>Language Learning as an Lifelong Adventure: Top Reasons Why at Age 40+ Is the Best Time to Start</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/languageluminaries-unveiling-at-dubai-expo-2020/"><u>LanguageLuminaries: Unveiling at Dubai Expo 2020</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leading-5-digital-resources-in-language-education/"><u>Leading 5 Digital Resources in Language Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-swedish-letters-and-pronunciation-fast/"><u>Learn Swedish Letters and Pronunciation Fast</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-constraints-the-grammar-factor/"><u>Learning Constraints: The Grammar Factor?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/modern-talk-decoded-english-slang-and-their-uses/"><u>Modern Talk Decoded: English Slang and Their Uses</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-milestone-moments-across-the-world/"><u>Mondly Milestone Moments Across the World</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-leading-the-charge-in-language-apps/"><u>Mondly: Leading the Charge in Language Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigate-new-cultures-with-mondlys-top-language-app/"><u>Navigate New Cultures with Mondly's Top Language App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-belgiums-multicultural-linguistic-terrain/"><u>Navigating Belgium’s Multicultural Linguistic Terrain</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-new-languages-easier-with-mondly-the-top-app-of-2022/"><u>Navigating New Languages Easier with Mondly, the Top App of 2022</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/nexus-of-cultures-strategies-for-connecting-worlds/"><u>Nexus of Cultures: Strategies for Connecting Worlds</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/online-upgrade-fb-story-repository-for-2024/"><u>Online Upgrade  Fb Story Repository for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/pc-videography-leveraging-windows-hdr-for-2024/"><u>PC Videography  Leveraging Windows HDR for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/persian-past-unveiled-the-power-of-knowing-it/"><u>Persian Past Unveiled: The Power of Knowing It</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/persuasive-prose-excellent-english-training-options/"><u>Persuasive Prose: Excellent English Training Options</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polish-study-made-fast-and-easy/"><u>Polish Study Made Fast and Easy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-learning-path-to-fluent-urdu-speaker/"><u>Quick Learning Path to Fluent Urdu Speaker</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-start-bengali-lessons/"><u>Quick-Start Bengali Lessons</u></a></li>
+<li><a href="https://fox-that.techidaily.com/solving-your-iphones-display-dilemmas-top-7-problems-and-fixes/"><u>Solving Your iPhone's Display Dilemmas: Top 7 Problems and Fixes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sultry-sentiments-spoken-in-french/"><u>Sultry Sentiments Spoken in French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-confectionery-codex-decoding-chocolate-across-cultures/"><u>The Confectionery Codex: Decoding Chocolate Across Cultures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transcending-borders-linguistic-exchange-and-english/"><u>Transcending Borders: Linguistic Exchange and English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tune-your-brain-scientifically-approved-language-songs-and-strategies/"><u>Tune Your Brain: Scientifically Approved Language Songs & Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/upgraded-legal-notice-on-our-platform/"><u>Upgraded Legal Notice on Our Platform</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vocal-verve-top-100-twister-path-to-perfection/"><u>Vocal Verve: Top 100 Twister Path to Perfection</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/voice-dominance-in-asia-trimodal-popularity-spotlight/"><u>Voice Dominance in Asia: Trimodal Popularity Spotlight</u></a></li>
+</ul></div>

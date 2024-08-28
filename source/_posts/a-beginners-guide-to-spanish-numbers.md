@@ -1,7 +1,7 @@
 ---
 title: A Beginner's Guide To Spanish Numbers
-date: 2024-07-12T08:54:16.992Z
-updated: 2024-07-13T08:54:16.992Z
+date: 2024-08-27T22:47:04.974Z
+updated: 2024-08-28T22:47:04.974Z
 tags:
   - speak
   - english
@@ -70,6 +70,9 @@ thumbnail: https://thmb.techidaily.com/c2951ebe31144829205fb98a431e80a75ca2ddbe5
 
  As you can see, up to 30 (“thirty”), the numbers are bound together, but from there on they part ways to make counting in Spanish even easier for you. Basically, you won’t say “thirty-one”, but “thirty**and** one”:_treinta y uno_ .
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Count to 100 in Spanish
 
  As we already settled, counting in Spanish is all about mastering the basics. Now that you know how to count to 40, counting to 100 in Spanish is a piece of cake. Just learn the tens and you are ready to go.
@@ -99,6 +102,9 @@ thumbnail: https://thmb.techidaily.com/c2951ebe31144829205fb98a431e80a75ca2ddbe5
 * 84 –_ochenta y cuatro_
 * 98 –_noventa y ocho_
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Spanish numbers to 1000 and beyond
 
  Hundreds shouldn’t scare you either. They are just as simple. Once you know how the hundreds are, you’ll also know the numbers in between.
@@ -136,6 +142,9 @@ Here are some more examples:
 
 ![count in Spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/07/count-in-spanish-960x663.jpg "Spanish Numbers: How To Count Numbers In Spanish 4")
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Barcelona, Spain
 
  If you want to go even further, thousands and millions work exactly like in English: number +_mil_ (“thousand”) or_millón_ (“million”). Here are some examples:
@@ -188,3 +197,50 @@ Here are some more examples:
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-top-10-action-cam-audio-upgrades/"><u>[New] 2024 Approved  Top 10 Action Cam Audio Upgrades</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-inquiry-youtubes-payment-scheme-for-creators/"><u>[New] Inquiry  YouTube's Payment Scheme for Creators</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-superior-speedy-windows-image-browser/"><u>[Updated] Superior Speedy Windows Image Browser</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-instant-accessibility-the-simplest-way-to-ifunny-memes/"><u>2024 Approved  Instant Accessibility  The Simplest Way to iFunny Memes</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-slowing-down-action-iphone-filmmaking-tricks/"><u>2024 Approved  Slowing Down Action  IPhone Filmmaking Tricks</u></a></li>
+<li><a href="https://program-issues.techidaily.com/2024-call-of-duty-modern-warfare-3-lag-issues-understanding-the-causes-and-fixes/"><u>2024 Call of Duty: Modern Warfare 3 Lag Issues: Understanding the Causes and Fixes</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/cheap-yet-superior-gaming-keyboard-guide-under-100/"><u>Cheap, Yet Superior Gaming Keyboard Guide Under $100</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-fueled-automated-marketing-solutions/"><u>Cookiebot-Fueled Automated Marketing Solutions</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/discover-cutting-edge-performance-with-toms-hardware-reviews/"><u>Discover Cutting-Edge Performance with Tom's Hardware Reviews</u></a></li>
+<li><a href="https://fox-http.techidaily.com/elevate-your-videos-mastering-the-art-of-srt-in-mp4-for-2024/"><u>Elevate Your Videos  Mastering the Art of SRT in MP4 for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/golden-age-gains-through-new-languages/"><u>Golden Age Gains Through New Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/harmonizing-education-through-multilingual-praise/"><u>Harmonizing Education Through Multilingual Praise</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-to-install-the-latest-nvidia-quadro-graphics-drivers-on-your-window-10-pc/"><u>How to Install the Latest NVIDIA Quadro Graphics Drivers on Your Window 10 PC</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-oppo-f25-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Oppo F25 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-7-drfone-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 7? | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-the-updated-method-to-bypass-realme-11x-5g-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass Realme 11X 5G FRP</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-ultimate-guide-on-poco-c51-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide on Poco C51 FRP Bypass</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introductory-spanish-numerical-conjugation/"><u>Introductory Spanish Numerical Conjugation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-urdu-swiftly-with-daily-10-minute-intervals/"><u>Learn Urdu Swiftly with Daily 10-Minute Intervals</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-hindi-effortlessly-mondlys-top-8-learning-incentives/"><u>Master Hindi Effortlessly: Mondly's Top 8 Learning Incentives</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-the-art-of-spanish-verb-usage/"><u>Mastering the Art of Spanish Verb Usage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-kids-win-with-back-and-filter-buttons-feature/"><u>Mondly Kids Win with Back and Filter Buttons Feature</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-in-2024-how-to-add-photos-to-audio/"><u>New In 2024, How to Add Photos to Audio</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/nombre-y-significado-de-cada-dia-en-espanol-desde-el-domingo-a-martes/"><u>Nombre Y Significado De Cada Día en Español: Desde El Domingo a Martes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/open-doors-new-perspectives-the-value-of-multilingualism/"><u>Open Doors, New Perspectives: The Value of Multilingualism</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/planetary-language-prestige-top-fifteen-countdown/"><u>Planetary Language Prestige – Top Fifteen Countdown</u></a></li>
+<li><a href="https://driver-error.techidaily.com/resolved-how-to-install-missing-drivers-on-windows-10-8-and-7/"><u>Resolved: How to Install Missing Drivers on Windows 10, 8 & 7</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sailing-through-seafarers-expressions/"><u>Sailing Through Seafarers' Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saying-happy-day-in-every-dialect/"><u>Saying Happy Day in Every Dialect</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/selecting-the-new-language-that-speaks-to-me/"><u>Selecting The New Language That Speaks To Me</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-days-of-the-week-in-french/"><u>The Days of the Week in French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-richness-of-language-in-macau/"><u>The Richness of Language in Macau</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-reference-for-mastering-english-grammar-conjunctions-and-contractions/"><u>The Ultimate Reference for Mastering English Grammar Conjunctions & Contractions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-unspoken-vocabulary-of-italian-hands/"><u>The Unspoken Vocabulary of Italian Hands</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ultimate-guide-to-language-tests-and-high-honors/"><u>Ultimate Guide to Language Tests & High Honors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unleashing-linguistic-potential-mondlys-success-story-2022/"><u>Unleashing Linguistic Potential: Mondly's Success Story, 2022</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-lithuanian-language-ideal-online-resources/"><u>Unlock Lithuanian Language: Ideal Online Resources</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/updated-top-4-eminem-voice-generator-apps-for-pc-mac-mobile-and-online-for-2024/"><u>Updated Top 4 Eminem Voice Generator Apps for PC, Mac, Mobile, and Online for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/virtual-classroom-a-global-edunet-meeting/"><u>Virtual Classroom: A Global Edunet Meeting</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/watching-dark-get-smart-about-german-instead/"><u>Watching Dark? Get Smart About German Instead</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721476912000-why-doesnt-my-iphone-alarm-go-off-a-step-by-step-guide-to-fix-it/"><u>Why Doesn't My iPhone Alarm Go Off? A Step-by-Step Guide to Fix It</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-assembly-of-spains-offspring/"><u>Worldwide Assembly of Spain's Offspring</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/your-next-best-friend-in-conversation-is-ai/"><u>Your Next Best Friend in Conversation Is AI</u></a></li>
+</ul></div>

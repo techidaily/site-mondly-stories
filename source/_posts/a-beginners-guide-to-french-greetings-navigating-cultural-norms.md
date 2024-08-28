@@ -1,7 +1,7 @@
 ---
 title: "A Beginner's Guide to French Greetings: Navigating Cultural Norms"
-date: 2024-07-12T08:50:08.982Z
-updated: 2024-07-13T08:50:08.982Z
+date: 2024-08-27T22:51:31.283Z
+updated: 2024-08-28T22:51:31.283Z
 tags:
   - speak
   - english
@@ -32,6 +32,9 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  Meaning “hi”, “hello” or sometimes even “bye”,_Salut_ is the informal French greeting you can use with family and friends but not with your boss or teacher.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ## 2\. “Good morning” in French –_Bon matin!_
 
  European French doesn’t have an equivalent for “good morning”. So it’s good to know that while in France you shouldn’t use Bon matin. But if you happen to spend a charming morning in Paris, you can safely use – you guessed it –_Bonjour!_
@@ -48,14 +51,23 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  The same as the_clasique Bonjour_ ,_Bonsoir_ is a universal greeting suitable for most social contexts. The only restriction is the moment of the day. So once the twilight settles in, it is safe to switch from_Bonjour_ to_Bonsoir_ !
 
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 5\. “Good night” in French –_Bonne nuit!_
 
  Literally meaning “good night”,_Bonne nuit_ is used more as a “goodbye” than as a “hello”. So if you are spending time with your French friends,_Bonne nuit_ is a great way to let them them know you are retiring.
 
 ![french greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/11/french-greetings-scaled-722x960.jpg "How To Say Hello In French: 12 Useful French Greetings 2")
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<!-- affiliate ads end -->
  “French fashion” by Charles 🇵🇭©
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 6\. Hello? –_Allô?_
 
  Although it is not specific to face to face interactions,_Allô_ is still considered a greeting.
@@ -80,6 +92,9 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  The only slight difference is the level for formality associated of each phrase:_Ça va?_ is obviously more suitable for informal interactions with friends and family.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## 10\. What’s up? –_Quoi de neuf?_
 
  Want to spice up and diversify your “ça-va”s? Go with the informal_Quoi de neuf_ that translates to “what’s up?” or “what’s new?”.
@@ -94,6 +109,9 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
 
  “Coucou! Is me! The Frenchie!” by Graham Holtshausen©
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 12\. How’s it going? –_Ça roule?_
 
  A last native touch to our list of ways to say “hello” in French is_Ça roule_ . Literally meaning “that rolls”,_Ça roule_ is yet another way of asking someone “how’s it going?” or “how are things?”.
@@ -103,6 +121,9 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<!-- affiliate ads end -->
 ### Here’s how to learn French in just 10 minutes a day
 
  **Do you want to see Bonjour in action and maybe even learn conversational French?**
@@ -135,3 +156,44 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-breakdown-the-broadcasting-barrier-easy-windows-pc-guide-to-live-tv-recording/"><u>[New] In 2024, Breakdown the Broadcasting Barrier  Easy Windows PC Guide to Live TV Recording</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-leading-vr-creators-industrys-pioneers/"><u>[New] Leading VR Creators  Industry's Pioneers</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-mastering-visuals-and-audio-top-5-video-creators-guide/"><u>[New] Mastering Visuals and Audio  Top 5 Video Creators' Guide</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-enjoy-a-stream-of-nine-complete-christmas-capsules-on-youtube/"><u>[Updated] 2024 Approved  Enjoy a Stream of Nine Complete Christmas Capsules on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-elevate-your-earning-game-with-youtubes-member-status-for-2024/"><u>[Updated] Elevate Your Earning Game with YouTube's Member Status for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/100plus-french-travel-phrases-youll-need-to-fall-in-love-with-paris/"><u>100+ French Travel Phrases You’ll Need to Fall in Love with Paris</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-integrate-efficiently-macos-sierra-for-desktop-enhancement/"><u>2024 Approved  Integrate Efficiently  MacOS Sierra for Desktop Enhancement</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/3-most-popular-asian-dialects-archive-for-fast-recall/"><u>3 Most Popular Asian Dialects: Archive for Fast Recall</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/6-proven-ways-to-unlock-vivo-t2-pro-5g-phone-when-you-forget-the-password-by-drfone-android/"><u>6 Proven Ways to Unlock Vivo T2 Pro 5G Phone When You Forget the Password</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/ai-transparency-vs-privacy-comprehending-the-perils-of-excessive-chatbot-disclosure-through-mia/"><u>AI Transparency Vs. Privacy: Comprehending the Perils of Excessive Chatbot Disclosure Through MIA</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/asias-largest-language-contenders-highlight-and-retain/"><u>Asia's Largest Language Contenders: Highlight & Retain</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/blueprint-for-achieving-new-year-goals/"><u>Blueprint For Achieving New Year Goals</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/break-language-barriers-with-mondlys-freshest-phrasebook/"><u>Break Language Barriers with Mondly's Freshest Phrasebook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/chinese-writing-fundamentals/"><u>Chinese Writing Fundamentals</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dawn-dictionaries-10-languages-one-sunrise-salutation/"><u>Dawn Dictionaries: 10 Languages, One Sunrise Salutation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/descobrindo-o-portugues-saudacoes-para-todos-os-tempos/"><u>Descobrindo O Português: Saudações Para Todos Os Tempos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/engage-anytime-anywhere-mondly-and-huawei/"><u>Engage Anytime, Anywhere - Mondly and Huawei</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/failed-to-play-hevc-files-on-samsung-galaxy-s23-fe-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Failed to play HEVC files on Samsung Galaxy S23 FE</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/find-your-voice-flawlessly-choose-mondly/"><u>Find Your Voice Flawlessly – Choose Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-linguistics-for-enhanced-intelligence/"><u>Global Linguistics for Enhanced Intelligence</u></a></li>
+<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-poco-c51-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Poco C51 Phones with/without a PC</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/heres-how-you-can-learn-japanese-on-your-own-online-and-for-free/"><u>Here’s How You Can Learn Japanese on Your Own, Online & for Free</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/hitching-a-ride-in-high-flying-tiktok-live-shows-for-2024/"><u>Hitching a Ride in High-Flying TikTok Live Shows for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-say-hello-in-chinese-a-quick-guide-to-chinese-greetings/"><u>How to Say Hello in Chinese: A Quick Guide to Chinese Greetings</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-beyond-views-and-likes-pursuing-profits-on-youtube/"><u>In 2024, Beyond Views and Likes  Pursuing Profits on YouTube</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-infinix-hot-40-pro-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock Infinix Hot 40 Pro Phone without Google Account?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-lifelines-top-ten-ways-for-a-better-future/"><u>Language Learning Lifelines: Top Ten Ways for a Better Future</u></a></li>
+<li><a href="https://extra-information.techidaily.com/leading-slow-motions-camera-edition/"><u>Leading Slow-Motions  Camera Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-afrikaans-the-smart-way-mondlys-top-7-advantages-for-you/"><u>Learn Afrikaans the Smart Way: Mondly’s Top 7 Advantages for You</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/milestones-in-a-decade-mondlybacks-button-innovations/"><u>Milestones in a Decade: MondlyBack’s Button Innovations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-and-apples-the-future-of-educational-excellence/"><u>Mondly and Apples: The Future of Educational Excellence</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/pixelperfect-editor/"><u>PixelPerfect Editor</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rapid-mastery-of-latvian-language-10-minute-sessions/"><u>Rapid Mastery of Latvian Language, 10-Minute Sessions!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-body-parts-in-spanish-from-head-to-toe/"><u>The Body Parts in Spanish – From Head to Toe</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-motivational-force-behind-honterus/"><u>The Motivational Force Behind Honterus</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-your-potential-in-fifties-through-foreign-language-study/"><u>Unlocking Your Potential in Fifties Through Foreign Language Study</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/virtual-voyage-speak-a-foreign-language-effortlessly/"><u>Virtual Voyage: Speak a Foreign Language Effortlessly</u></a></li>
+</ul></div>

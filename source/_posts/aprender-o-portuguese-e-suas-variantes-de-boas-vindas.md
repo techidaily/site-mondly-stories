@@ -1,7 +1,7 @@
 ---
 title: Aprender O Portuguese E Suas Variantes De Boas-Vindas
-date: 2024-07-12T08:54:20.792Z
-updated: 2024-07-13T08:54:20.792Z
+date: 2024-08-27T22:47:00.882Z
+updated: 2024-08-28T22:47:00.882Z
 tags:
   - speak
   - english
@@ -30,6 +30,9 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
  Be careful with your Portuguese pronunciation though! A lot of people accidentally mistake Portuguese for Spanish. You don’t want to do that. Just say “OH-lah” and everybody from Brazil to Mozambique will understand that you are saying “hello” in Portuguese.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### “Hi” in Portuguese – Oi
 
  Friendly and very informal,_Oi!_ is one of the most common ways to greet your friends in Brazil (people from Portugal use it as well, but not as much as_olá)_ . This is how you could greet your mates and close colleagues, but never the people you don’t really know. Don’t stress it tough! When the time comes, you will feel and just know what’s the required Portuguese greeting for that particular situation.
@@ -38,6 +41,9 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
  “Lisbon, Portugal” by Diego García©
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### “How are you” in Portuguese – Tudo bem?
 
  Asking someone how they are doing is probably just as important as saying “hello”. Sometimes you don’t even expect an answer. This is just an even nicer way to greet someone. So let’s see the many ways Portuguese-speaking people ask someone how they are doing depending on the context.
@@ -57,6 +63,9 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ![good morning in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/good-morning-in-portuguese-1024x642.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 3")
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
  “Rio de Janeiro, Brazil” by Raphael Nogueira©
 
  **Good morning in Portuguese –_Bom dia!_**  – literally meaning “good day”, this greeting is widely used between approximately 5:30 am and 12:00 – 1:00 pm. If you are in Brazil, you should say “bom GEE-a” and if you are in Portugal, you should sound like this: “bom DEE-a”.
@@ -81,8 +90,14 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ![portuguese greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/08/portuguese-greetings-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 4")
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  “Ruínas da Fortaleza de Arrifana, Aljezur, Portugal” by Ferhat Deniz Fors©
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Bonus: other basic Portuguese phrases that you should know
 
  Now that you know how to greet in Portuguese, shouldn’t you also master basic words like “yes”, “no” or “thank you” in Portuguese? Let’s kill two birds with one stone and see how a basic conversation in Portuguese should sound like:
@@ -107,6 +122,9 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ![obrigado](https://edge.mondly.com/blog/wp-content/uploads/2019/08/obrigado-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 5")
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<!-- affiliate ads end -->
  “Gruta do Lago Azul, Brazil” by Ademir Alves©
 
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fhello-in-portuguese-basic-portuguese-greetings-you-need%2F&t=Hello+in+Portuguese+and+Other+Basic+Portuguese+Greetings+You+Need+to+Know "Share on Facebook")
@@ -148,3 +166,42 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-fbx-guide-to-flawless-gameplay-archives-for-2024/"><u>[New] FBX Guide to Flawless Gameplay Archives for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-top-5-multimedia-sensation-apps-iphoneandroid-showdown/"><u>[Updated] In 2024, Top 5 Multimedia Sensation Apps  IPhone/Android Showdown</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-zenith-pinnacle-design-review-for-2024/"><u>[Updated] Zenith Pinnacle Design Review for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-pros-of-selecting-best-vtuber-sound-alteration-apps/"><u>2024 Approved  Pros of Selecting Best Vtuber Sound Alteration Apps</u></a></li>
+<li><a href="https://howto.techidaily.com/gmail-not-working-on-oppo-reno-8t-5g-7-common-problems-and-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Gmail Not Working on Oppo Reno 8T 5G 7 Common Problems & Fixes | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/grand-city-adventures-without-a-gta-tie/"><u>Grand City Adventures Without a GTA Tie</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grasping-squid-game-themes-in-k-language/"><u>Grasping Squid Game Themes in K-Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-apologize-and-say-sorry-in-german/"><u>How To Apologize And Say Sorry In German</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-hoist-your-words-like-a-flag/"><u>How to Hoist Your Words Like a Flag</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/i-mille-numero-italiani-conoscenze-per-la-superiorita/"><u>I Mille Numero Italiani: Conoscenze per La Superiorità</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-best-3-software-to-transfer-files-tofrom-your-infinix-hot-40i-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Best 3 Software to Transfer Files to/from Your Infinix Hot 40i via a USB Cable | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-vlog-editing-essentials-utilizing-jump-cuts-rightly/"><u>In 2024, Vlog Editing Essentials  Utilizing Jump Cuts Rightly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/iniciando-o-dialogo-pela-frase-lusitana-mais-usada/"><u>Iniciando O Diálogo Pela Frase Lusitana Mais Usada</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/korean-language-journey-top-6-online-tools-for-success/"><u>Korean Language Journey: Top 6 Online Tools for Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-exams-and-certifications-your-path-to-proficiency/"><u>Language Exams and Certifications: Your Path to Proficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leading-5-digital-resources-in-language-education/"><u>Leading 5 Digital Resources in Language Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/make-learning-a-new-language-your-easiest-resolution-of-2020-with-95-off/"><u>Make Learning a New Language Your Easiest Resolution of 2020 with 95%% Off</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/passfab-apple-iphone-15-pro-backup-unlocker-top-4-alternatives-by-drfone-ios/"><u>PassFab Apple iPhone 15 Pro Backup Unlocker Top 4 Alternatives</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/passionate-phrases-top-french-film-selections/"><u>Passionate Phrases: Top French Film Selections</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/persian-past-unveiled-the-power-of-knowing-it/"><u>Persian Past Unveiled: The Power of Knowing It</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polish-study-made-fast-and-easy/"><u>Polish Study Made Fast and Easy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-start-bengali-lessons/"><u>Quick-Start Bengali Lessons</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/speedy-setup-with-samsung-download-your-nvme-storage-drive-drivers-today/"><u>Speedy Setup with Samsung - Download Your NVMe Storage Drive Drivers Today</u></a></li>
+<li><a href="https://win11.techidaily.com/step-by-step-guide-append-folders-to-windows-11-menu/"><u>Step-by-Step Guide: Append Folders to Windows 11 Menu</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-bard-redux-everyday-language-roots-unearthed/"><u>The Bard Redux: Everyday Language Roots Unearthed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-best-three-in-learning-conquer-new-tongues-quickly-and-quietly/"><u>The Best Three in Learning: Conquer New Tongues Quickly & Quietly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-confectionery-codex-decoding-chocolate-across-cultures/"><u>The Confectionery Codex: Decoding Chocolate Across Cultures</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-end-of-facebook-heres-the-reality-check/"><u>The End of Facebook? Here’s the Reality Check</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-language-of-gratitude-basic-xiexie-and-more/"><u>The Language of Gratitude: Basic Xièxiè and More</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-new-augmented-reality-app-from-mondly-is-the-future-of-language-learning/"><u>The New Augmented Reality App From Mondly Is the Future of Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-value-of-english-mastery-insights/"><u>The Value of English Mastery: Insights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-100-frequently-miswritten-english-vocabulary-words/"><u>Top 100 Frequently Miswritten English Vocabulary Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tune-your-brain-scientifically-approved-language-songs-and-strategies/"><u>Tune Your Brain: Scientifically Approved Language Songs & Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ultimate-software-selection-for-effective-study-habits/"><u>Ultimate Software Selection for Effective Study Habits</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-and-implementing-spanish-letter-accents/"><u>Understanding and Implementing Spanish Letter Accents</u></a></li>
+</ul></div>

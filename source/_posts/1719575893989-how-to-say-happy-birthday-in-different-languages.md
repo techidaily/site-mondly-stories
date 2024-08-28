@@ -1,7 +1,7 @@
 ---
 title: How To Say Happy Birthday In Different Languages
-date: 2024-07-12T08:53:56.630Z
-updated: 2024-07-13T08:53:56.630Z
+date: 2024-08-27T22:47:27.487Z
+updated: 2024-08-28T22:47:27.487Z
 tags:
   - speak
   - english
@@ -34,24 +34,39 @@ Image source: <http://www.manutention-dauphine.fr>
 
 Joyeux Anniversaire or Bon Anniversaire are the standard ways to wish someone a happy birthday in French. But if you are speaking Canadian French or Quebec, you should say Bonne fête, meaning “Good party/Birthday”. French and English birthdays are often alike. Celebrations include party time, cake, gifts and songs like ‘Joyeux Anniversaire’. Most birthday parties are thrown on Wednesdays as French have their Wednesdays off.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<!-- affiliate ads end -->
 ## **Happy Birthday in Chinese:** **生日快** **乐** **(Shēngrì Kuàilè)**
 
 Chinese culture has an interesting concept of birthday celebrations. Depending on a person’s gender, certain birthdays pass without acknowledgment or require special handling. Women, for example, do not celebrate turning 30, 33 or 66\. Another interesting custom are the longevity noodles that are considered a sign of good fortune and long life. So these noodles are a must eat without breaking (it’s a sign of good luck).
 
 If you’ll check the literal meaning of Shēngrì Kuàilè, you’ll see that it translates to “Birthday is Happy.”
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## **Happy Birthday in Russian: С днем рождения (S Dnem Rozhdeniya)**
 
 ![happy birthday in russian](https://edge.mondly.com/blog/wp-content/uploads/2018/12/happy-birthday-in-russian.jpg "How To Say &Quot;Happy Birthday&Quot; In Different Languages 3")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Image source: <https://tops.ua>
 
 If you want to say “happy birthday” in Russian, you say “S Dnem Rozhdeniya”. And if you feel like memorizing a longer phrase, add “pozdravlyayu” in the start and it will transform to “I congratulate you on your birthday”. Russians have a funny tradition of celebrating. The guests pull the celebrated’s ears for a number of times equal to his or her age. The phrase “Grow up – don’t be noodles,” is considered as a sign of good omen for the growth of children. It means the child will grow up strong and healthy. Birthday songs are not common am0ng them, but if the person has survived after a severe accident, that day is celebrated as another birthday.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Happy Birthday in Dutch: Gefeliciteerd Met Je Verjaardag**
 
 “Gefeliciteerd Met Je Verjaardag” means “Congratulations on your birthday!” in the Netherlands. An interesting custom here is that they mark their calendars for everyone’s birthday and keep that calendar by their toilet. It acts as a reminder for birthdays since forgetting one’s birthday is a major offense to your loved ones. The 50th birthday is celebrated with full bliss and cheer because it is thought that at the age of 50, men see Abraham and women see Sarah – the biblical couple who gave birth to a child at a very old age.
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<!-- affiliate ads end -->
 ## **Happy Birthday in Swedish: Grattis På Födelsedagen**
 
 ![happy birthday in swedish](https://edge.mondly.com/blog/wp-content/uploads/2018/12/happy-birthday-in-swedish.jpg "How To Say &Quot;Happy Birthday&Quot; In Different Languages 4")
@@ -60,6 +75,9 @@ Image source: <https://trivselkort.com>
 
 “Grattis På Födelsedagen” is translated to “Birthday congratulations!” in Swedish. The Swedish culture has a lot of love for celebrating birthdays. They often surprise the celebrated with birthday gifts and breakfast in bed while singing “Ja, ma du leva” meaning “Yes, may you live”. Their traditional party has a cake coated in green marzipan with gifts wrapped in blue and gold sheets – the colors of the Swedish flag.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Happy Birthday in Hindi: जन्मदिन की शुभकामनाएं (Janmadin Kee Shubhakaamanaen)
 
 Birthday wishes in Hindi are translated as “Good wishes for your birthday.” Indian culture has a part of western celebrations too. In Hindu practice, birthday starts with a sanction at a temple, a lot of prayers, and a blessed paste of rice and turmeric on the forehead of the one that celebrates his or her birthday. The rest of the day is comprised of western traditions like songs and cake cutting.
@@ -104,3 +122,42 @@ Start using Mondly for free on your computer or tablet or, better yet, download 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-audio-aficionados-curated-selection-of-free-lut-links/"><u>[New] 2024 Approved  Audio Aficionados' Curated Selection of Free LUT Links</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-live-video-logging-on-mac-free-for-2024/"><u>[New] Live Video Logging on Mac, Free for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-seamless-content-consumption-configuring-pip-for-youtube-on-iphone/"><u>[New] Seamless Content Consumption  Configuring PIP for YouTube on iPhone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-complete-unpacking-of-ricohs-theta-vr-solution/"><u>[Updated] Complete Unpacking of Ricoh's Theta VR Solution</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-step-by-step-to-maximizing-adobe-storages-and-exploring-more/"><u>2024 Approved  Step-by-Step to Maximizing Adobe Storages and Exploring More</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/audio-amplification-for-online-photo-archiving-for-2024/"><u>Audio Amplification for Online Photo Archiving for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/germanys-language-milestone-with-mondly-as-the-leader/"><u>Germany's Language Milestone with Mondly as the Leader</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/greeting-basics-from-ni-hao-to-friendly-small-talk/"><u>Greeting Basics: From 'Ni Hao' To Friendly Small Talk</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-after-format-on-vivo-y100-5g-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos from Android Gallery after format on Vivo Y100 5G</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-say-hello-in-spanish-10-different-spanish-greetings/"><u>How To Say Hello In Spanish: 10 Different Spanish Greetings</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-capture-your-browser-journeenas-digital-diary-entries/"><u>In 2024, Capture Your Browser Journeenas Digital Diary Entries</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-finding-the-perfect-countdown-timer-for-your-wedding-ceremony/"><u>In 2024, Finding the Perfect Countdown Timer for Your Wedding Ceremony</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fixing-foneazy-mockgo-not-working-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Fixing Foneazy MockGo Not Working On Honor 100 Pro | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-realme-c55-phone-by-drfone-android/"><u>In 2024, How to Use Google Assistant on Your Lock Screen Of Realme C55 Phone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-leading-tools-for-customizable-screenshot-capabilities/"><u>In 2024, Leading Tools for Customizable Screenshot Capabilities</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-tracking-apps-to-track-samsung-galaxy-s24-ultra-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Tracking Apps to Track Samsung Galaxy S24 Ultra without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/innovative-teaching-strategies-for-spanish-learning/"><u>Innovative Teaching Strategies for Spanish Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/israel-exploration-hacks-essential-insights-and-expressions/"><u>Israel Exploration Hacks: Essential Insights & Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/kickstart-your-korean-journey-with-these-exceptional-resources/"><u>Kickstart Your Korean Journey with These Exceptional Resources</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/korean-language-journey-top-6-online-tools-for-success/"><u>Korean Language Journey: Top 6 Online Tools for Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-words-and-grammar-mondly-reigns/"><u>Mastering Words and Grammar: Mondly Reigns</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-revolutionizes-languages-with-augmented-reality/"><u>Mondly Revolutionizes Languages with Augmented Reality</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-vr-networking-expand-your-spanish-proficiency/"><u>Mondly VR Networking: Expand Your Spanish Proficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-enhancing-learning-with-apples-technological-edge/"><u>Mondly, Enhancing Learning with Apple's Technological Edge</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sentence-structures-showdown-south-american-vs-continental/"><u>Sentence Structures Showdown: South American Vs. Continental</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-understand-thrive-6-paths-to-fluent-mastery/"><u>Speak, Understand, Thrive: 6 Paths to Fluent Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-new-augmented-reality-app-from-mondly-is-the-future-of-language-learning/"><u>The New Augmented Reality App From Mondly Is the Future of Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-quest-continues-2-years-at-mondlylanguages-dreamscape/"><u>The Quest Continues: 2 Years at MondlyLanguages Dreamscape</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-grammar-compendium-for-non-natives-top-9-techniques/"><u>The Ultimate Grammar Compendium for Non-Natives: Top 9 Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-100-frequently-miswritten-english-vocabulary-words/"><u>Top 100 Frequently Miswritten English Vocabulary Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-professional-eloquence-complete-business-language-mastery/"><u>Unlock Professional Eloquence: Complete Business Language Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-the-mystique-of-turk-korean-languages/"><u>Unlocking the Mystique of Turk-Korean Languages</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/unpacking-sharex-evaluation-and-replacements-for-2024/"><u>Unpacking ShareX  Evaluation & Replacements for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/user-agreement-revised-privacy-updates/"><u>User Agreement Revised - Privacy Updates</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/visual-media-for-mastering-multilingualism/"><u>Visual Media for Mastering Multilingualism</u></a></li>
+</ul></div>

@@ -1,0 +1,481 @@
+---
+title: "Language Evolution in Action: Popular Slang and Meanings"
+date: 2024-08-27T22:57:35.658Z
+updated: 2024-08-28T22:57:35.658Z
+tags:
+  - speak
+  - english
+  - learning
+categories:
+  - languages
+description: "This Article Describes Language Evolution in Action: Popular Slang and Meanings"
+excerpt: "This Article Describes Language Evolution in Action: Popular Slang and Meanings"
+keywords: Slang Development,Popular Jargon Trends,Linguistic Changes Over Time,Meaning Shifts in Language,Contemporary Slang Examples,Language Variation & Evolution,Sociolinguistics
+thumbnail: https://thmb.techidaily.com/80d3fa767f44fdaa6b3c03730260a31e590107858e011b7c1ceac58f39d7b6f4.jpg
+---
+
+## Language Evolution in Action: Popular Slang and Meanings
+
+``
+
+``
+
+` __ Listen `
+
+``
+
+**Slang words can help us seem cooler.** No, seriously! As technology advances and we get closer to the possibility of a_Black Mirror-esque_ scenario becoming real, the world enters a new chapter dominated by the**internet culture.** Most of our social interactions are now influenced by memes, social media platforms and our desire to be unique, heard and belong to a certain group. This is why enhancing our vocab with**popular English slang words** can be one of the easiest ways to connect with others and form a sense of community.
+
+![slang words](https://media.giphy.com/media/nFFguNjdeotwc/giphy.gif "Popular English Slang Words And Phrases – How To Talk Like Gen Z 2")
+
+1. [What are slang words?](#slang)
+2. [Why learn English slang words?](#englishslang)
+3. [History of slang words](#history)
+4. [Popular English Slang Words and Phrases](#slangwords)
+5. [Regional variations in English slang](#regionalslang)
+6. [How to use slang words in conversation](#useslang)
+7. [How to learn English slang words](#learnslang)
+
+## **What are English slang words?**
+
+ According to Oxford,**“slang”** is **“a type of language consisting of words and phrases that are regarded as very informal, are more common in speech than writing, and are typically restricted to a particular context or group of people”.** For example, the slang words and phrases we are going to talk about today are defining for two generations known as “millennials” and “gen z” – but mostly “gen z” because – let’s face it – today’s teenagers have come up with tons of new slang terms that even I, as a millennial, have trouble understanding. Praised be the mighty internet for slang dictionaries!
+
+## Why is it important to learn English slang words?
+
+ It may be indecent, colorful, or obscene, but slang is a crucial part of any language. Just think about how criminals started using slang so police or other people who are not in their crime circle would not understand what they are saying. Isn’t that great evidence of how creative people can be? Regardless of their social status or intentions.
+
+ But besides being understood only within a particular group, slang can also be general. For instance, almost every native English speaker knows that to be “filthy rich” doesn’t mean to be dirty, but to have a lot of money. In this situation, as [Eric Partridge observes](https://archive.org/details/in.ernet.dli.2015.58766/page/n8) , slang changes its objective of being limited to a certain group to easing social intercourse and to reducing the solemnity, pomposity, and excessive seriousness of a conversation.
+
+ **Thus, it’s important to know English slang words because they bring us closer and while also enriching the language.**
+
+## **History of English slang words**
+
+ Whether you millennial desperately trying to stay cool – like me –, a Gen X-er striving to understand the new generations, or a baby boomer who wants to be the_GOAT_ (Greatest Of All Time) grandpa or grandma, you’ve come to the right place. Why? ‘Cause we’re about to absolutely_slay_ this list of popular slang words! But first, let’s talk briefly about the history behind English slang terms. This will help you figure out their importance and why all new generations have them.
+
+### **How has slang evolved over time?**
+
+ The use of slang has transformed significantly throughout history. Its origins can be traced back to the early 16th century, when it was used as a specialized vocabulary employed by various groups, including criminals, sailors, and beggars.
+
+ Then, slang gradually expanded its reach and became more widespread across different social classes and demographics. For example, in the 19th century, the working class embraced slang as a way to differentiate themselves from the upper class.
+
+ In the 20th century, slang went mainstream through media and pop culture. Social media and the internet have further amplified its influence, resulting in a rapid evolution that incorporates words and phrases from various languages and cultures.
+
+ Currently, slang remains an integral part of our daily language, used to express humor, irony, and social identity. Although some slang words become obsolete quickly, others become part of the lexicon and can stay_lit_ for generations.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<!-- affiliate ads end -->
+### **Examples of historical slang words and their meanings**
+
+1. **Bee’s knees** – the height of excellence or perfection;
+2. **Cat’s meow** – something or someone highly admirable or excellent;
+3. **Flapper** – a young woman who was fashionable in the 1920s, known for wearing short skirts, bobbed hair and dancing the Charleston;
+4. **G-man** – a federal government agent, particularly an agent of the Federal Bureau of Investigation (FBI) during the 1930s and 1940s;
+5. **Hooch** – slang for alcohol, particularly illicitly produced alcohol during Prohibition in the United States;
+6. **Jazzed** – excited, enthusiastic, or energized;
+7. **Jive** – a type of jazz music and dance style or slang for dishonest or misleading talk;
+8. **Ragtime** – a style of music characterized by syncopated rhythms and upbeat tempos that became popular in the late 19th and early 20th centuries;
+9. **Speakeasy** – an illegal establishment that served alcohol during Prohibition;
+10. **Sockdollager** – a decisive blow or action, often used in reference to a fight or argument.
+
+![slang terms](https://media.giphy.com/media/1Qdp4trljSkY8/giphy.gif "Popular English Slang Words And Phrases – How To Talk Like Gen Z 3")
+
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
+ But enough history. Let’s travel to the present. Does Gen Z slang sometimes look like some secret unbreakable code to you? Well, you are not alone. But TBH (To Be Honest), once you get the hang of it and realize how relatable and fun it is, it becomes quite addictive to use in daily conversations.
+
+ So get ready to hear new meanings for words you thought you knew and prepare for heavy eye-rolling every time you’ll use your newly acquired lingo around teens. **Here are some of the most common slang words used in the English language today:**
+
+## Lit
+
+ When something is very good, enjoyable, or exciting, you can say it’s “lit”.
+
+_Dude, the party last night was lit! Where were you?_
+
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<!-- affiliate ads end -->
+## Extra
+
+ When someone is “extra”, it means they are unnecessarily dramatic, excessive, over the top or a “drama queen”.
+
+_She invited the entire school to her birthday. She’s so extra!_
+
+## Salty
+
+ You can say someone is salty when they get upset or angry over something minor.
+
+_Nick is so salty since his parents took away his car!_
+
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<!-- affiliate ads end -->
+## To ghost someone
+
+ When you cut off communication with someone you’re no longer interested in.
+
+_OMG! Did you hear Cristina ghosted Matt?_
+
+## To flex
+
+Another way of saying someone is showing off.
+
+ Nowadays, teens have started using the slang phrase**“weird flex but OK”** as a snarky and mocking response to someone bragging about something considered questionable, bizarre or unusual.
+
+_– Andrew’s trying to flex with that new no-name smartphone of his._
+
+_– Yeah. Like weird flex but OK._
+
+![flex](https://media.giphy.com/media/mEDj3oXP1t55pE0fCh/giphy-downsized-large.gif "Popular English Slang Words And Phrases – How To Talk Like Gen Z 4")
+
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<!-- affiliate ads end -->
+## Lowkey & highkey
+
+ Lowkey is the opposite of highkey and it can be used as a way of saying that you liked or done something secretly, modestly or quietly.
+
+_I lowkey rooted for Daenerys to remain on the iron throne._
+
+_Paul is highkey trying to learn Spanish for Elena._
+
+## Shook
+
+When someone is shook it means they are shocked or incredibly surprised.
+
+_– Did you see?‌ The new season of Lucifer just landed on Netflix!_
+
+_– OMG‌ I’m shook! I need to watch it ASAP!_
+
+## Tea
+
+When someone is “spilling the tea”, it means they are gossiping.
+
+_What happened at Jessica’s birthday party? Come on, spill the tea!_
+
+![english slang](https://edge.mondly.com/blog/wp-content/uploads/2019/11/english-slang-1024x810.jpg "Popular English Slang Words And Phrases – How To Talk Like Gen Z 5")
+
+ “Teenagers” by Jed Villejo©
+
+## To clap back
+
+To respond to another person’s criticism.
+
+ _Maria is quick to quick to clap back at everyone who says she doesn’t have a nice British accent._
+
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<!-- affiliate ads end -->
+## Bye, Felicia
+
+A cold way of dismissing someone.
+
+_– You were rude. I’m gonna leave now._
+
+_– Bye, Felicia!_
+
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Mood
+
+Used to express something that is relatable.
+
+_– Ugh! I wish I was in Bora Bora right now._
+
+_– Mood!_
+
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<!-- affiliate ads end -->
+## Hangry
+
+ When you are so hungry that you are angry! (probably the most relatable slang word Gen Z taught us).
+
+_I’m so hangry right now I could eat five burgers in one sitting!_
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
+## NGL
+
+Not Gonna Lie. Another way of saying “to tell you the truth”.
+
+_NGL, I’m not in the mood to go out tonight._
+
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Slay
+
+ To do something very well. To impress someone very much or to be very good or impressive.
+
+_Pedro Pascal’s performance in The Last of Us slayed._
+
+![pedro pascal](https://media.giphy.com/media/xa5PxUklxPjMqK81jc/giphy.gif "Popular English Slang Words And Phrases – How To Talk Like Gen Z 6")
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->
+## Receipts
+
+Proof or evidence of something that happened.
+
+_– How do you know Jamie is cheating on Sylvie?_
+
+_– Honey, I got all the receipts._
+
+## Sus
+
+Something that is questionable, dishonest or suspicious.
+
+_Ok, now you’re just sus. I don’t believe you!_
+
+## OK Boomer
+
+ The catchphrase and internet meme commonly used by Millennials and Gen Z aims to reject or ridicule attitudes typically associated with baby boomers – individuals born in the two decades after World War II.
+
+ _– Boomer: Kids nowadays never go out. Back in my day we played outside the entire day._
+_– Non-boomer: OK boomer._
+
+## Woke
+
+ It refers to someone who is aware of and actively attentive to important societal facts and issues (especially issues of racial and social justice).
+
+_Bro, we have a moral obligation to stay woke. Inform yourself!_
+
+## Savage
+
+This is used when someone is bold and doesn’t care about consequences.
+
+_– Gaby is gonna report the teacher to the principal._
+_– OMG, savage!_
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
+## Stan
+
+ An extremely or excessively enthusiastic and devoted fan. As a verb, it means “to exhibit fandom to an extreme excessive degree.”
+
+ _– I love Kit Harington so much. I would track his every move if I could._
+_– Whoa, don’t be such a stan._
+
+![jon](https://media.giphy.com/media/3o7qE2fiT5seO2lIre/giphy.gif "Popular English Slang Words And Phrases – How To Talk Like Gen Z 7")
+
+ **Other_lit_ mentions:** _gucci_ (good, doing well, feeling fine),_TFW_ (that feeling when),_squad_ (a group of friends),_JOMO_ (Joy Of Missing Out),_fam_ (a group of friends that feels like family),_dank_ (really cool),_basic_ (interested in mainstream or very popular things),_woke_ (being aware of current events).
+
+## **Regional variations in English slang**
+
+ English slang, like languages in general, can’t be entirely homogenous. With native speakers dispersed across the globe, slang evolves differently depending on factors such as culture, dialect, and more. That’s why [Aussie slang](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) is so different from [British slang](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and British slang is so different than American slang. Different cultures make different slang, just like different countries make different languages.
+
+### **Differences in words and phrases across English-speaking countries**
+
+ I read this joke online a while ago: “I can speak five languages: American English, British English, Canadian English, Australian English and New Zealand English”. Every time I remember it, I can’t help but giggle. Stretching over such long distances, the English spoken in these countries can truly be very different. Here’s how:
+
+* **Vocabulary:** These countries often use different words to describe the same thing. For example, in the UK, people call “chips” what Americans call “fries” and “crisps” what Americans call “chips”. It’s overwhelming!
+* **Spelling:** Spelling can also differ between countries. For instance, Americans spell “color” without a ‘u’, while in the UK, they use the spelling “colour”.
+* **Pronunciation:** Don’t get me started. The differences between [British English and American English](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) are plentiful in this sector.
+* **Culture:** For example, Australian slang is heavily influenced by surfing and beach culture, while American slang has been influenced by hip-hop and African American Vernacular English.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
+### **Examples of popular slang words in different regions**
+
+ Here are some popular English slang words and phrases from different English-speaking countries.
+
+1. **United States:**
+
+* _buck_ – dollar
+* _whip_ – car
+* _salty_ – jealous
+* _nuts_ – crazy
+* _flaky_ – unrealiable
+* _chill_ – relax
+
+1. **United Kingdom:**
+
+* _nosh_ – food
+* _lad_ – young man
+* _quid_ – pound
+* _cuppa_ – cup of tea
+* _chuffed_ – delighted, happy
+* _(to) kip_ – (to) sleep
+
+1. **Australia:**
+
+* _arvo_ – afternoon
+* _sickie_ – a day off work due to illness
+* _Macca’s_ – McDonald’s
+* _lollies_ – sweets
+* _barbie_ – barbecue
+* _thongs_ – flip-flops
+
+1. **Canada:**
+
+* _eh_ – used at the end of a sentence to express agreement or to seek confirmation
+* _toque_ – a winter hat
+* _hoser_ – a clumsy or foolish person
+* _poutine_ – a dish of French fries topped with cheese curds and gravy
+* _loonie_ – the Canadian one-dollar coin
+* _double-double_ – a coffee with two creams and two sugars
+
+1. **New Zealand:**
+
+* _chur_ – thank you or cool
+* _jandals_ – flip-flops or sandals
+* _sweet as_ – all good or very good
+* _stubbie_ – bottle of bear
+* _bach_ – holiday house, usually small and close to the beach
+* _kiwis_ – New Zealanders
+
+ These are just a few examples. Countless slang words and phrases are used worldwide in different regions and countries to mean specific things.
+
+!['English slang words' by RODNAE Productions©](https://edge.mondly.com/blog/wp-content/uploads/2023/03/english-slang-words-960x640.jpg "Popular English Slang Words And Phrases – How To Talk Like Gen Z 8")
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<!-- affiliate ads end -->
+## **How to use slang words in conversation**
+
+ Using slang words in conversation can add flavor and personality to your language. However, it’s crucial to consider the context and audience before incorporating slang into your language. Here are some tips for using slang terms effectively in conversation:
+
+1. **Know your audience:** Make sure your slang words are appropriate for the person or people you’re talking to. Avoid using offensive or inappropriate slang words, especially around people you don’t know well or in formal settings.
+2. **Use context clues:** Do the slang words you’re using fit well in the context? If you’re uncertain about the appropriateness of a slang term, it’s best to use a more neutral term instead of taking the risk.
+3. **Don’t_flex_ too much:** Using too much slang can make you sound unprofessional or immature. Use slang words sparingly, and ensure they add to the conversation rather than distract.
+4. **Practice makes perfect:** Slang terms are_dope_ , but incorporating them into your vocabulary can take some practice. Start using slang words with people you feel comfortable around, and only then gradually include them in conversations with new people.
+5. **Be yourself:** If using slang terms doesn’t feel natural, maybe they are not for you. Everyone loves a cool mom or dad, but overdoing it can be_cringe_ . Or at least that’s what teenagers believe.
+
+ Remember, slang words are meant to be fun and expressive, but using them appropriately and in the right context is very important.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Yearly Membership</a>
+<!-- affiliate ads end -->
+## **Learning English slang words**
+
+ Learning slang words can be a fun way to improve your communication skills and broaden your understanding of the colloquial English language. Especially if you speak English as a second language. Here’s how you can learn slang terms fast:
+
+* **Don’t take yourself too seriously:** Learning slang terms is supposed to be fun. If you really want to do this, don’t make it a drudgery. Just be chill and go with the flow. Remember you’re doing this to improve your understanding of the colloquial language.
+* **Have fun with memes:** Memes are probably the richest source of slang words. Make the most of them!
+* **Use social media:** Whenever it comes to learning, scrolling on social media may seem counterintuitive. But not this time! If you want to learn Gen Z slang, social media is the best place to be!
+* **Revisit this list:** Whenever you feel like your slang knowledge has_ghosted_ you, revisit this list. Or, if you feel like you’re ready for a lot more, the Urban Dictionary will always have your back.
+
+ Just remember: slang words can vary based on region, social group, and generation, so it’s essential to consider the context when using them.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
+## Are you ready to_slay?_
+
+Okay, so what did we learn so far? Let’s recap:
+
+* The world is increasingly dominated by internet culture, which influences our social interactions and desire to be unique and heard;
+* Slang words are a way to show belonging and coolness and are defined as an informal language common in speech and restricted to certain groups or contexts;
+* This article focuses on popular slang words used by millennials and gen Z, including _lit, extra, salty, to ghost someone, to flex, lowkey/highkey, shook, tea,_ and more;
+* Learning foreign slang words can be important for communication and understanding, as slang is a creative and crucial part of any language;
+* Slang can be general or limited to certain groups, and its use can change depending on context and intention.
+
+* [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fpopular-english-slang-words%2F&t=Popular+English+Slang+Words+and+Phrases+%E2%80%93+How+to+Talk+like+Gen+Z "Share on Facebook")
+* [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
+
+---
+
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
+### This language learning app is lit
+
+ Do you want to put some_dank_ context around those foreign slang words and_shook_ your_squad_ from abroad? Well, this is your lucky day! Because with Mondly, the fastest way to speak new languages, you’ll speak any language from day 1\. It’s fun, easy and effective!
+
+ Want more? With Mondly, you’ll get more every day! Quick Daily Lessons. 5 minutes a day. It’s so fun, you’ll become addicted. The best part? You’ll speak like your fluent_fam_ in no time!_Yaas!_
+
+ Start using Mondly for free on your computer or tablet or, better yet, download the Mondly app on your [iOS](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4422&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4422&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4422) or [Android](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4422&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4422&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4422) device and learn Spanish, French, German and 30 other languages fast anytime, anywhere.
+
+ **Do you want to [learn a new language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) with Mondly in just 5 minutes a day?**
+
+[Yo! Learn a new lingo](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-4422&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-4422%26utm%5Fsource%3Dblog-post-id-4422&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-4422%26utm%5Fsource%3Dblog-post-id-4422&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-4422%26utm%5Fsource%3Dblog-post-id-4422&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-4422%26mt%3D8 "Yo! Learn a new lingo")
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-approaches.techidaily.com/new-insider-tips-the-best-5-cameras-for-extended-zoom/"><u>[New] Insider Tips  The Best 5 Cameras for Extended Zoom</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-melody-filled-visuals-the-fusion-project-for-2024/"><u>[New] Melody-Filled Visuals  The Fusion Project for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-elevate-design-complimentary-cutting-edge-psd-texts/"><u>[Updated] 2024 Approved  Elevate Design  Complimentary, Cutting-Edge PSD Texts</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-expert-advice-on-archiving-sports-from-live-feeds-for-2024/"><u>[Updated] Expert Advice on Archiving Sports From Live Feeds for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-navigating-the-best-ways-to-record-screens-on-hp-systems-for-2024/"><u>[Updated] Navigating the Best Ways to Record Screens on HP Systems for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-years-forward-with-mondlys-direction/"><u>10 Years Forward with Mondly’s Direction</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-a-close-look-at-dji-phantom-3s-high-end-capabilities/"><u>2024 Approved  A Close Look at DJI Phantom 3'S High-End Capabilities</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-optimized-protocols-snapshots-of-gotomeetings-made-simple/"><u>2024 Approved  Optimized Protocols  Snapshots of GoToMeetings Made Simple</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-screen-capture-tips-for-ios-devices-2023-update/"><u>2024 Approved  Screen Capture Tips for iOS Devices - 2023 Update</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-childs-first-step-into-spanish-culture/"><u>A Child's First Step Into Spanish Culture</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-decade-of-innovation-mondlybacks-filter-prowess/"><u>A Decade of Innovation: MondlyBack’s Filter Prowess</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/americas-leading-foreign-language-curriculum-choices/"><u>Americas Leading Foreign Language Curriculum Choices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apple-and-mondly-a-dynamic-duo-on-worlds-educational-pedestal/"><u>Apple & Mondly: A Dynamic Duo on World’s Educational Pedestal</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apples-spotlight-shines-on-mondly-as-10-in-education-tech/"><u>Apple's Spotlight Shines on Mondly as #10 in Education Tech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprende-la-hora-en-aplicaciones-con-botones/"><u>Aprende La Hora en Aplicaciones Con Botones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/asian-talking-points-ranks-and-last-access-feature/"><u>Asian Talking Points: Ranks & Last Access Feature</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/audiovisual-german-lessons-through-dark-the-show/"><u>Audiovisual German Lessons Through Dark, The Show</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aufgehende-abschiedsprafixe-deutsches-verabschiedungsworterbuch/"><u>Aufgehende Abschiedspräfixe: Deutsches Verabschiedungswörterbuch</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/basics-of-chinese-characters/"><u>Basics of Chinese Characters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beat-based-bilingualism-musics-role-in-language-development/"><u>Beat-Based Bilingualism: Music's Role in Language Development</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beginners-bridge-into-the-arab-world/"><u>Beginner's Bridge Into the Arab World</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bengali-begins-here-daily-tiny-sessions/"><u>Bengali Begins Here: Daily Tiny Sessions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brain-gym-for-the-golden-years-top-4-reasons-to-master-languages-at-40plus/"><u>Brain Gym for the Golden Years: Top 4 Reasons to Master Languages at 40+</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/break-the-ice-with-top-10-easy-italian-salutations/"><u>Break the Ice with Top 10 Easy Italian Salutations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breakdown-most-efficient-online-methods-to-learn-languages/"><u>Breakdown: Most Efficient Online Methods to Learn Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breaking-language-barriers-mastering-the-hardest-languages/"><u>Breaking Language Barriers: Mastering the Hardest Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/british-vernacular-essentials-speak-with-local-flair/"><u>British Vernacular Essentials: Speak with Local Flair</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/captains-cantations-understanding-piratical-speech-patterns/"><u>Captain’s Cantations: Understanding Piratical Speech Patterns</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/celebrating-the-last-10-years-of-mondlybutton/"><u>Celebrating the Last 10 Years of MondlyButton</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-a-new-tongue-in-minutes-start-with-slovak-today/"><u>Conquer a New Tongue in Minutes - Start with Slovak Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/converse-confidently-in-german-with-these-25-must-know-phrases/"><u>Converse Confidently in German with These 25 Must-Know Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cosmic-communication-chronicles-an-odyssey-through-star-wars-dialogues/"><u>Cosmic Communication Chronicles: An Odyssey Through Star Wars' Dialogues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cross-atlantic-language-contrasts/"><u>Cross-Atlantic Language Contrasts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-connection-started-with-these-italian-greets/"><u>Cultural Connection Started with These Italian Greets</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciphering-japan-the-alphabet-unveiled/"><u>Deciphering Japan: The Alphabet Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/digital-pathways-to-master-a-foreign-language-today/"><u>Digital Pathways to Master a Foreign Language Today</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-why-zmi-powerpack-20000-is-hailed-as-the-ultimate-go-anywhere-power-unit/"><u>Discover Why ZMI PowerPack 20000 Is Hailed as the Ultimate Go-Anywhere Power Unit</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/diy-language-teaching-learn-french-independently/"><u>DIY Language Teaching: Learn French Independently</u></a></li>
+<li><a href="https://fake-location.techidaily.com/dose-life360-notify-me-when-someone-checks-my-location-on-oneplus-ace-2v-drfone-by-drfone-virtual-android/"><u>Dose Life360 Notify Me When Someone Checks My Location On OnePlus Ace 2V? | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-htc-u23-pro-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your HTC U23 Pro Location Settings | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/efficient-ukrainian-learning-the-ten-minute-strategy-87-chars/"><u>Efficient Ukrainian Learning: The Ten-Minute Strategy (87 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/efficiently-mastering-latvian-one-day-at-a-time/"><u>Efficiently Mastering Latvian, One Day at a Time</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevate-your-pronunciation-with-dynamic-tongue-twisters/"><u>Elevate Your Pronunciation with Dynamic Tongue Twisters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embark-on-language-journey-with-googles-top-picks-mondly/"><u>Embark on Language Journey with Google's Top Picks - Mondly</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/ensuring-confidentiality-in-printed-materials-protecting-pdf-file-security-during-printing-processes/"><u>Ensuring Confidentiality in Printed Materials: Protecting PDF File Security During Printing Processes</u></a></li>
+<li><a href="https://win-blog.techidaily.com/expert-fixes-implemented-dealing-with-valorants-initialization-of-vanguard-challenge/"><u>Expert Fixes Implemented: Dealing with Valorant's 'Initialization of Vanguard' Challenge</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578963934-explore-the-world-of-hindi-mondlys-top-8-secrets/"><u>Explore the World of Hindi - Mondly's Top 8 Secrets</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/fixing-the-intel-dynamic-platform-and-thermal-frameworks-driver-setup-woes-a-complete-guide/"><u>Fixing the Intel Dynamic Platform & Thermal Framework's Driver Setup Woes: A Complete Guide</u></a></li>
+<li><a href="https://driver-download.techidaily.com/free-lenovo-y900-driver-downloads-latest-version-and-compatibility-with-windows-10/"><u>Free Lenovo Y900 Driver Downloads: Latest Version and Compatibility with Windows 10</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-nubia-red-magic-9-proplus-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Nubia Red Magic 9 Pro+ to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-beyond-borders-blurring-techniques-for-global-audienes/"><u>In 2024, Beyond Borders  Blurring Techniques for Global Audienes</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-realme-narzo-60-5g-fixed-drfone-by-drfone-virtual-android/"><u>iSpoofer is not working On Realme Narzo 60 5G? Fixed | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581195389-the-colors-in-french-quick-pronunciation-guide/"><u>The Colors in French – Quick Pronunciation Guide</u></a></li>
+<li><a href="https://common-error.techidaily.com/unlocking-wireless-features-how-to-enable-and-use-bluetooth-with-windows-111/"><u>Unlocking Wireless Features: How to Enable and Use Bluetooth with Windows 11/1지</u></a></li>
+<li><a href="https://change-location.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-samsung-galaxy-a54-5g-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Samsung Galaxy A54 5G | Dr.fone</u></a></li>
+</ul></div>

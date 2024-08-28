@@ -1,7 +1,7 @@
 ---
 title: Aprendendo O Português Com Expressões De Casualidade
-date: 2024-07-12T08:51:42.359Z
-updated: 2024-07-13T08:51:42.359Z
+date: 2024-08-27T22:49:51.737Z
+updated: 2024-08-28T22:49:51.737Z
 tags:
   - speak
   - english
@@ -30,12 +30,18 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
  Be careful with your Portuguese pronunciation though! A lot of people accidentally mistake Portuguese for Spanish. You don’t want to do that. Just say “OH-lah” and everybody from Brazil to Mozambique will understand that you are saying “hello” in Portuguese.
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
+<!-- affiliate ads end -->
 ### “Hi” in Portuguese – Oi
 
  Friendly and very informal,_Oi!_ is one of the most common ways to greet your friends in Brazil (people from Portugal use it as well, but not as much as_olá)_ . This is how you could greet your mates and close colleagues, but never the people you don’t really know. Don’t stress it tough! When the time comes, you will feel and just know what’s the required Portuguese greeting for that particular situation.
 
 ![hi in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-portuguese-1024x658.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 2")
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
  “Lisbon, Portugal” by Diego García©
 
 ### “How are you” in Portuguese – Tudo bem?
@@ -53,6 +59,9 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 * **_Quanto tempo!_ – Long time no see!** – Used the same as in English.
 * **_Como foi o seu dia?_ – How’s your day?** – Used the same as in English.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ## 2\. “Bom dia!” and other Portuguese greetings for certain moments of the day
 
 ![good morning in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/good-morning-in-portuguese-1024x642.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 3")
@@ -67,6 +76,9 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
  All three of these are safe to use in any kind of interaction (formal or informal).
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<!-- affiliate ads end -->
 ## 3.“Goodbye” in Portuguese – Adeus
 
  The most common way to say “Goodbye” in Portuguese is_Adeus_ , but you can also use_Tchau_ which simply translates to “bye”.
@@ -107,6 +119,9 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ![obrigado](https://edge.mondly.com/blog/wp-content/uploads/2019/08/obrigado-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 5")
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
  “Gruta do Lago Azul, Brazil” by Ademir Alves©
 
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fhello-in-portuguese-basic-portuguese-greetings-you-need%2F&t=Hello+in+Portuguese+and+Other+Basic+Portuguese+Greetings+You+Need+to+Know "Share on Facebook")
@@ -114,6 +129,9 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
 ### Here’s how to speak Portuguese in 10 minutes a day
 
  Do you want to practice what you’ve learned and maybe learn some more Portuguese? **Check Mondly, the revolutionary language learning platform that makes language learning fun, fast and easy!**
@@ -148,3 +166,42 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-depth-look-at-screenrec-your-laptops-best-friend/"><u>[New] In-Depth Look at ScreenRec  Your Laptop's Best Friend</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-craft-your-channel-studio-or-beta-innovation-comparison/"><u>[Updated] Craft Your Channel  Studio or Beta Innovation Comparison</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-natural-and-artificial-blending-lights-in-iphone-photos/"><u>[Updated] Natural & Artificial  Blending Lights in iPhone Photos</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-beginners-blueprint-setting-up-a-live-video-feed/"><u>2024 Approved  Beginner's Blueprint  Setting Up a Live Video Feed</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/all-about-factory-reset-what-is-it-and-what-it-does-to-your-poco-m6-pro-4g-drfone-by-drfone-reset-android-reset-android/"><u>All About Factory Reset, What Is It and What It Does to Your Poco M6 Pro 4G? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discovering-the-best-of-both-worlds-lenovo-tab-m10-2020-beautiful-display-meets-affordability/"><u>Discovering the Best of Both Worlds: Lenovo Tab M10 (2020) – Beautiful Display Meets Affordability</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/easy-update-guide-obtaining-and-installing-the-newest-windows-drivers-for-your-epson-wf-3520-printer/"><u>Easy Update Guide - Obtaining & Installing the Newest Windows Drivers for Your Epson WF 3520 Printer</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/find-and-download-asus-trackpad-drivers-specifically-designed-for-windows-operating-systems/"><u>Find and Download ASUS Trackpad Drivers Specifically Designed for Windows Operating Systems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-chatter-mastery-top-simplest-languages-guidebook/"><u>Global Chatter Mastery: Top Simplest Languages Guidebook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/horas-y-dias-ensenanza-diaria-en-espanol/"><u>Horas Y Días: Enseñanza Diaria en Español</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-free-location-spoofers-to-fake-gps-location-on-your-honor-magic-5-lite-drfone-by-drfone-virtual/"><u>In 2024, 10 Free Location Spoofers to Fake GPS Location on your Honor Magic 5 Lite | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-youtube-live-excellence-a-comprehensive-tutorial/"><u>In 2024, YouTube Live Excellence  A Comprehensive Tutorial</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jours-francais-sans-dimanche/"><u>Jours Français Sans Dimanche</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-leap-fast-track-bulgarian-learning/"><u>Language Leap: Fast-Track Bulgarian Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-dualitys-impact-prime-benefits/"><u>Linguistic Duality's Impact: Prime Benefits</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-ecosystem-foreign-words-thriving-in-eng/"><u>Linguistic Ecosystem: Foreign Words Thriving in ENG</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/making-sense-of-english-language-contractions-strategies-and-tips/"><u>Making Sense of English Language Contractions: Strategies and Tips</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-farsi-ancient-insights-future-opportunities/"><u>Mastering Farsi: Ancient Insights, Future Opportunities</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-hopes-for-the-resurrection-festival/"><u>Multilingual Hopes for the Resurrection Festival</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-threads-weaving-into-english-vocabulary/"><u>Multilingual Threads Weaving Into English Vocabulary</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oui-bienvenue-en-france-une-douceur-exprimee/"><u>Oui, Bienvenue! En France: Une Douceur Exprimée</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/overcoming-linguistic-misunderstandings-for-better-fluency/"><u>Overcoming Linguistic Misunderstandings for Better Fluency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/refine-fluency-in-english-discourse-9-key-tactics/"><u>Refine Fluency in English Discourse – 9 Key Tactics</u></a></li>
+<li><a href="https://location-social.techidaily.com/set-your-preferred-job-location-on-linkedin-app-of-your-oppo-reno-10-5g-drfone-by-drfone-virtual-android/"><u>Set Your Preferred Job Location on LinkedIn App of your Oppo Reno 10 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-with-confidence-learn-tagalog-each-day/"><u>Speak with Confidence: Learn Tagalog Each Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speed-up-your-ukrainian-skills-with-short-regular-sessions-106-chars/"><u>Speed Up Your Ukrainian Skills with Short, Regular Sessions (106 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/streamlined-privacy-policy-now-available/"><u>Streamlined Privacy Policy Now Available</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/structured-eating-schemes-inspired-by-gpt/"><u>Structured Eating Schemes Inspired by GPT</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-modern-vocabulary-guide-to-street-talk/"><u>The Modern Vocabulary Guide to Street Talk</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-italys-silent-communication-codes/"><u>Understanding Italy's Silent Communication Codes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-communication-the-worlds-hardest-languages-decoded/"><u>Unlocking Communication: The World’s Hardest Languages Decoded</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-frances-language-travelers-must-learn-phrases/"><u>Unlocking France's Language: Travelers' Must-Learn Phrases</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/unraveling-the-mystery-of-how-t-mobile-handles-domestic-roaming/"><u>Unraveling the Mystery of How T-Mobile Handles Domestic Roaming</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-2024-approved-essential-websites-for-accessing-lofi-artwork-and-soundtracks/"><u>Updated 2024 Approved Essential Websites for Accessing Lofi Artwork and Soundtracks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-accolades-for-vocational-wordsmiths/"><u>Worldwide Accolades for Vocational Wordsmiths</u></a></li>
+</ul></div>

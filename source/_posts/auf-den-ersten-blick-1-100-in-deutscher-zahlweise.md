@@ -1,7 +1,7 @@
 ---
 title: "Auf Den Ersten Blick: 1-100 in Deutscher Zählweise"
-date: 2024-07-12T08:56:57.729Z
-updated: 2024-07-13T08:56:57.729Z
+date: 2024-08-27T22:44:04.135Z
+updated: 2024-08-28T22:44:04.135Z
 tags:
   - speak
   - english
@@ -57,6 +57,14 @@ thumbnail: https://thmb.techidaily.com/1ccd49c85e9212303a8d46ffca4e2f894288070bb
 * **nineteen —_neunzehn_**
 * **twenty —_zwanzig_**
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
+
+ Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
+
+ DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
+ PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ## German multiples of 10
 
  The next step in learning how to count in German is mastering the tens or the multiples of 10\. Once you know these, you be able to apply the pattern and easily count to 100 on your own. It’s as easy as_eins, zwei, drei!_
@@ -78,6 +86,18 @@ Here are the multiples of 10 in German:
 
 ![count in german](https://edge.mondly.com/blog/wp-content/uploads/2022/08/count-in-german.png "German Numbers: Learn How To Count From 1 To 100 In German 2")
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
+
+ It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
+
+  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
+
+  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## How to count from 1 to 100 in German
 
  Now that you have all the data (the numbers from 1 to 20 and multiples of 10), it’s time to explain how all the other numbers are formed. If you already know how to count in other languages, German numbers will be a piece of cake for you!
@@ -106,6 +126,9 @@ Now let’s look at some examples to make sure you got it:
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### From 0 to 100 and beyond in German
 
  Do you want to go beyond numbers and [speak German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) fluently? Try Mondly, the award-winning language app that is serious about making learning German fun.
@@ -140,3 +163,44 @@ Now let’s look at some examples to make sure you got it:
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-10-key-strategies-to-enhance-insta-highlights-for-2024/"><u>[New] 10 Key Strategies to Enhance Insta Highlights for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-top-video-platforms-safe-and-streamlined-sme-solutions/"><u>[New] 2024 Approved  Top Video Platforms  Safe & Streamlined SME Solutions</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-cutting-edge-6-urban-designs-in-mc/"><u>[New] In 2024, Cutting-Edge 6 Urban Designs in MC</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-a-closer-look-at-immersive-virtual-reality-tech/"><u>2024 Approved  A Closer Look at Immersive Virtual Reality Tech</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/2024-approved-leading-cost-free-online-audio-editing-software/"><u>2024 Approved Leading Cost-Free Online Audio Editing Software</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/fossil-sport-gear-reviewed-premium-performance-meets-wallet-friendly-prices/"><u>Fossil Sport Gear Reviewed: Premium Performance Meets Wallet-Friendly Prices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/germanys-language-milestone-with-mondly-as-the-leader/"><u>Germany's Language Milestone with Mondly as the Leader</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/greeting-basics-from-ni-hao-to-friendly-small-talk/"><u>Greeting Basics: From 'Ni Hao' To Friendly Small Talk</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-lock-apps-on-motorola-moto-g84-5g-to-protect-your-individual-information-by-drfone-android/"><u>How to Lock Apps on Motorola Moto G84 5G to Protect Your Individual Information</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-say-hello-in-spanish-10-different-spanish-greetings/"><u>How To Say Hello In Spanish: 10 Different Spanish Greetings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/impress-with-these-top-50-classics-in-latin-language/"><u>Impress with These Top 50 Classics in Latin Language</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-journey-around-the-world-on-youtube-including-you/"><u>In 2024, Journey Around the World on YouTube, Including You</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-honor-magic-5-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Honor Magic 5 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/innovative-teaching-strategies-for-spanish-learning/"><u>Innovative Teaching Strategies for Spanish Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-unlocked-romanian-made-simple/"><u>Language Unlocked: Romanian Made Simple</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-ukrainian-efficiently-with-10-minute-a-day-commitment-106-chars/"><u>Learn Ukrainian Efficiently with 10-Minute a Day Commitment (106 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/masterys-journey-honoring-the-1500th-free-daily-lesson-anniversary/"><u>Mastery's Journey: Honoring the 1500Th Free Daily Lesson Anniversary</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-revolutionizes-languages-with-augmented-reality/"><u>Mondly Revolutionizes Languages with Augmented Reality</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-vr-networking-expand-your-spanish-proficiency/"><u>Mondly VR Networking: Expand Your Spanish Proficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-the-nuances-of-japanese-characters/"><u>Navigating the Nuances of Japanese Characters</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/new-in-2024-unleash-your-creative-potential-with-these-5-leading-audio-distortion-programs/"><u>New In 2024, Unleash Your Creative Potential with These 5 Leading Audio Distortion Programs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rapid-norwegian-understanding-10-daily-moments/"><u>Rapid Norwegian Understanding, 10 Daily Moments</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-fluently-top-6-e-learning-platforms-for-korean-study/"><u>Speak Fluently: Top 6 E-Learning Platforms for Korean Study</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-a-pro-a-beginners-french-accent-guide/"><u>Speak Like a Pro: A Beginner's French Accent Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-understand-thrive-6-paths-to-fluent-mastery/"><u>Speak, Understand, Thrive: 6 Paths to Fluent Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speedy-strategies-for-mastering-new-languages/"><u>Speedy Strategies for Mastering New Languages</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/strategic-broadcast-planning-youtube-and-the-top-30-networks-for-2024/"><u>Strategic Broadcast Planning  YouTube & The Top 30 Networks for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/survival-russian-the-must-know-phrases-for-visitors/"><u>Survival Russian: The Must-Know Phrases for Visitors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-grammar-compendium-for-non-natives-top-9-techniques/"><u>The Ultimate Grammar Compendium for Non-Natives: Top 9 Techniques</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-5-tracking-apps-to-track-vivo-s18-pro-without-them-knowing-drfone-by-drfone-virtual-android/"><u>Top 5 Tracking Apps to Track Vivo S18 Pro without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-your-future-by-embracing-english-language/"><u>Transform Your Future by Embracing English Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukranian-mastery-rapid-acquisition-via-daily-microlearning-98-chars/"><u>Ukranian Mastery: Rapid Acquisition via Daily Microlearning (98 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unleash-the-power-of-love-in-different-languages-discover-more-ways-to-say-i-love-you-this-valentines-day/"><u>Unleash The Power Of Love In Different Languages! Discover More Ways To Say I Love You This Valentine's Day</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/update-your-hp-officejet-pro-8610-printer-drivers-supported-by-windows-10-8-7-xp-and-vista-systems/"><u>Update Your HP Officejet Pro 8610 Printer Drivers: Supported by Windows 10, 8, 7, XP and Vista Systems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/visual-media-for-mastering-multilingualism/"><u>Visual Media for Mastering Multilingualism</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-it-matters-distinguishing-por-que-from-por-que/"><u>Why It Matters: Distinguishing Por Que From Por Qué</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/molofia-eygnwmwn-glwttoprwteyoyntes/"><u>Μολόφια Ευγνώμων Γλωττοπρωτεύουντες</u></a></li>
+</ul></div>

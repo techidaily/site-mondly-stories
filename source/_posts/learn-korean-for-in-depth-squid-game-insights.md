@@ -1,0 +1,178 @@
+---
+title: Learn Korean for In-Depth Squid Game Insights
+date: 2024-08-27T22:54:23.850Z
+updated: 2024-08-28T22:54:23.850Z
+tags:
+  - speak
+  - english
+  - learning
+categories:
+  - languages
+description: This Article Describes Learn Korean for In-Depth Squid Game Insights
+excerpt: This Article Describes Learn Korean for In-Depth Squid Game Insights
+keywords: Korean Language Learning,Squid Game Trivia,In-Depth Analysis Squid Game,Korean Culture Through Squid Game,Korean Language and TV Series,Cultural Studies in Korean Drama,Korean Language Through TV Series
+thumbnail: https://thmb.techidaily.com/177db7c45381f8f94f304fef5764a3ae21d49762f0d50b119bc79b8987d4ee6b.jpg
+---
+
+## Learn Korean for In-Depth Squid Game Insights
+
+ Obsessed with Squid Game? Let’s be serious. ‘Obsessed’ is a light word. If BTS made me think about learning Korean, Squid Game outright bought my subscription to [learn Korean](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6194&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko) .
+
+ It’s Netflix’s biggest ever series launch and it’s bloody… splendid. The world loves it. In fact, people love it so much that more and more of them want to learn Korean. It’s not just me or just you. It’s the whole world. Squid Game literally took the world by storm.
+
+
+
+ The only problem is that the meaning of some scenes in Squid Game seems to have been changed by subtitles. Ever since the show’s official release in September, Korean-speaking fans have been sharing Squid Game mistranslations all over Twitter and TikTok.
+
+So what’s there to be done?
+
+ Easy. What everybody else has been doing:**learn Korean and never get lost in translation ever again.**
+
+## There’s an entire ‘Korean wave’ behind Squid Game, Parasite and BTS
+
+ This is not the first time Korean culture blew our minds. If you haven’t lived under a rock, you already know that there’s so much more to it. Just two years ago, we marveled at the brilliance of Parasite, the Korean masterpiece that won four Oscars.
+
+ Then there’s also BTS, the South Korean boy band also known as the Bangtan Boys. When I wrote about the [Korean alphabet](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , many people commented on how much they loved their music. Dubbed ‘Princes of Pop’, the BTS members are the youngest ever to receive the Order of Cultural Merit from the South Korean President due to their contributions in spreading the Korean language and culture.
+
+ The list could go on and on with the **fascinating craze around Korean skincare products, the K-dramas, the K-pop songs and the Korean comics also known as manhwa.**
+
+![squid game korean netflix](https://edge.mondly.com/blog/wp-content/uploads/2021/10/squid-game-korean-960x539.jpg "Obsessed With Squid Game, But Lost In Translation? Learn Korean 5")
+
+ ‘Squid Game on Netflix’ by Jonas Augustin©
+
+ So with Squid Game, all that the Korean culture did was to prove once again its hypnotic power over us. If you think about it, this is a whole new world beyond our own. Beyond the pop culture we already know. A whole new world we’re all eager to explore. For me, it’s all about the movies. My passion for cinema has never been the same again after watching the Korean film Oldboy. And this is just an example. Korean cinema is more than rich in masterpieces.
+
+ Now, this global phenomenon even has its own name. **The cultural boom coming from South Korea since the 1990s is known today as the Korean wave or [hallyu](https://en.wikipedia.org/wiki/Korean%5Fwave) .** Basically, everything we love about Korean pop culture is embedded in hallyu.
+
+## Why Squid Game got lost in translation
+
+ Not everyone will get this, but can you imagine how sad it is to be lost in translation without Scarlett Johansson and Bill Murray?
+
+ Jokes aside, we all know translation has its risks. If you’re not in the know with the [news](https://www.bbc.com/news/world-asia-58787264) , Korean-speaking fans of Squid Game claim that the closed-caption subtitles in English are ‘so bad’ that the original meaning is often lost.
+
+ So something amazing happened. The English subtitles were mistranslated here and there, but the world still loves Squid Game. Now imagine how even more awesome the hit show could have been with the right subtitles. Or if people knew Korean themselves and didn’t need subtitles at all. Fascinating thought.
+
+ The question remains: if not even Netflix, the billion-dollar streaming service, could offer viewers a top-notch translation from Korean, then who can?
+
+![korean culture](https://edge.mondly.com/blog/wp-content/uploads/2021/10/learn-korean-960x640.jpg "Obsessed With Squid Game, But Lost In Translation? Learn Korean 6")
+
+ ‘Korean women’ by zero take©
+
+ To be completely honest, some things are culturally difficult to explain and understand when it comes to translation. The Squid Game situation became notorious due to the show’s popularity, but this is not an isolated case. You may not be aware, but many other foreign-language movies and series are facing the same problem. Because of length and cultural particularities, subtitles can never be 100% accurate.
+
+So there’s only one conclusion we can draw from this…
+
+**Like Thanos, getting lost in translation is inevitable.**
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
+## Learn Korean and overcome the one-inch-tall barrier of subtitles
+
+ It’s amazing how people learn languages for love. There’s no greater drive than love. And I’m not talking just about romantic love. The fact that so many people are learning Korean after they watched Squid Game, it’s an act of love. All these people learn Korean out of love for this show. Others have been learning the language out of love for BTS. You could even go so far as to say that love makes us smarter. Or better.
+
+![squid game love](https://media.giphy.com/media/USVF7ZnGqVuoABCBUr/giphy.gif "Obsessed With Squid Game, But Lost In Translation? Learn Korean 7")
+
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+ **Would you [learn Korean](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6194&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko) out of love for hallyu?** In 2020, in his Oscar acceptance speech, ‘Parasite’ director Bong Joon Ho said something the world will never forget:
+
+ Once you overcome the 1-inch-tall barrier of subtitles, you will be introduced to so many more amazing films.
+
+ And he’s right. Learning Korean is all worth it. **If you want to enter the colorful world of Korean pop culture without getting lost in mistranslations, you should learn Korean.**
+
+ And you know what’s the second-best thing about this? You’ll be in great company. Since the launch of Squid Game, Mondly has seen a massive increase in people starting to learn Korean. You can join them all **[here](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6194&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko)**  .
+
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Even the English language wants to learn Korean
+
+ Do you need an extra reason to start learning? Here’s a good one: even the English language started to learn Korean.
+
+ It’s true. Just this month, our friends at [Oxford English Dictionary](https://public.oed.com/blog/daebak-a-k-update/) (OED) announced that 26 words of Korean origin have been added to the latest edition of their dictionary. The_K-update_ includes popular words like Hallyu, mukbang, K-pop and K-drama. What’s more, Korean food features prominently in this update with no less than seven new additions. Yummy!
+
+* [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fsquid-game-learn-korean%2F&t=Obsessed+With+Squid+Game%2C+but+Lost+in+Translation%3F+Learn+Korean "Share on Facebook")
+* [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
+
+---
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## From 0 to conversational in Korean
+
+ Here’s the best way to up your Korean game fast. Get Mondly, the award-winning language learning app, put your enthusiasm to work and speak Korean like a pro in no time. It can be really tricky to master the Korean pronunciation if you don’t actively live in South Korea. But with Mondly, you’ll have access to a fast and highly efficient learning method that allows you to learn Korean naturally with:
+
+* practical topics,
+* bite-sized lessons,
+* real-life conversations,
+* … and so much more.
+
+ **Start using Mondly for free on your computer or download the app and learn Korean anytime, anywhere.**
+
+[Learn Korean now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-6194&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-6194%26utm%5Fsource%3Dblog-post-id-6194&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-6194%26utm%5Fsource%3Dblog-post-id-6194&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-6194%26utm%5Fsource%3Dblog-post-id-6194&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-6194%26mt%3D8 "Learn Korean now")
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-crucial-top-5-compact-action-recorder-recommendations/"><u>[New] Crucial Top 5 Compact Action Recorder Recommendations</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-ultimate-guide-to-the-best-high-res-capture-software/"><u>[New] In 2024, Ultimate Guide to the Best High-Res Capture Software</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-enhance-your-yt-summary-top-notch-template-guides/"><u>[Updated] In 2024, Enhance Your YT Summary  Top-Notch Template Guides</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-essential-steps-for-podcast-rss-feed-creation/"><u>2024 Approved  Essential Steps for Podcast RSS Feed Creation</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-webcam-visuals-uncluttered-remove-obscurants/"><u>2024 Approved  Webcam Visuals Uncluttered  Remove Obscurants</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/expert-edits-for-an-uncluttered-tiktok-archive-for-2024/"><u>Expert Edits for an Uncluttered TikTok Archive for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/harmonizing-education-through-multilingual-praise/"><u>Harmonizing Education Through Multilingual Praise</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-samsung-galaxy-a05-drfone-by-drfone-virtual-android/"><u>How to Change Netflix Location to Get More Country Version On Samsung Galaxy A05 | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-fix-apex-legends-cheating-detected-mistake-with-simple-steps/"><u>How to Fix Apex Legends Cheating Detected Mistake with Simple Steps</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-tecno-phantom-v-fold-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Tecno Phantom V Fold to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-exploring-sierra-icloud-drives-a-complete-overview/"><u>In 2024, Exploring Sierra iCloud Drives – A Complete Overview</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-inside-out-how-to-react-on-twitter-vids/"><u>In 2024, Inside Out  How to React on Twitter Vids</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-vlc-versus-mpc-top-free-video-players-showdown/"><u>In 2024, VLC versus MPC  Top Free Video Players Showdown</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introductory-spanish-numerical-conjugation/"><u>Introductory Spanish Numerical Conjugation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/japanese-formal-to-informal-salutations-guide/"><u>Japanese: Formal to Informal Salutations Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lingua-franca-of-the-holy-land/"><u>Lingua Franca of the Holy Land?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-hindi-effortlessly-mondlys-top-8-learning-incentives/"><u>Master Hindi Effortlessly: Mondly's Top 8 Learning Incentives</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-the-art-of-spanish-verb-usage/"><u>Mastering the Art of Spanish Verb Usage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-brings-world-languages-to-oculus-quest-experience/"><u>Mondly Brings World Languages to Oculus Quest Experience</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-adding-titles-in-fcpx-a-beginners-guide-to-professional-results/"><u>New Adding Titles in FCPX A Beginners Guide to Professional Results</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/nombre-y-significado-de-cada-dia-en-espanol-desde-el-domingo-a-martes/"><u>Nombre Y Significado De Cada Día en Español: Desde El Domingo a Martes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/primary-vernacular-inhabiting-israeli-terrain/"><u>Primary Vernacular Inhabiting Israeli Terrain?</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/revamp-your-instagram-showcase-with-top-10-insights-for-2024/"><u>Revamp Your Instagram Showcase with Top 10 Insights for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sailing-through-seafarers-expressions/"><u>Sailing Through Seafarers' Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/start-your-french-reading-journey-with-these-top-20-novels/"><u>Start Your French Reading Journey with These Top 20 Novels</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-days-of-the-week-in-french/"><u>The Days of the Week in French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-italian-explorers-dictionary-key-travel-terms/"><u>The Italian Explorer’s Dictionary: Key Travel Terms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-multilingual-advantage-10-key-reasons-to-learn-a-new-language/"><u>The Multilingual Advantage: 10 Key Reasons to Learn a New Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-richness-of-language-in-macau/"><u>The Richness of Language in Macau</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-reference-for-mastering-english-grammar-conjunctions-and-contractions/"><u>The Ultimate Reference for Mastering English Grammar Conjunctions & Contractions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-unspoken-vocabulary-of-italian-hands/"><u>The Unspoken Vocabulary of Italian Hands</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unleashing-linguistic-potential-mondlys-success-story-2022/"><u>Unleashing Linguistic Potential: Mondly's Success Story, 2022</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-lithuanian-language-ideal-online-resources/"><u>Unlock Lithuanian Language: Ideal Online Resources</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-advanced-english-skills-with-mondly/"><u>Unlocking Advanced English Skills with Mondly</u></a></li>
+<li><a href="https://win-answers.techidaily.com/1723006923829-warzone-game-crash-with-error-0-1766-on-xboxpc-heres-the-fix/"><u>Warzone Game Crash with Error 0-1766 on Xbox/PC? Here's the Fix</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/watching-dark-get-smart-about-german-instead/"><u>Watching Dark? Get Smart About German Instead</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/words-without-origin-the-global-influence-on-english/"><u>Words Without Origin: The Global Influence on English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-assembly-of-spains-offspring/"><u>Worldwide Assembly of Spain's Offspring</u></a></li>
+</ul></div>

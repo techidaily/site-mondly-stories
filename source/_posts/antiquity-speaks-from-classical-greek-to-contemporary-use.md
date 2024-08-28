@@ -1,7 +1,7 @@
 ---
 title: "Antiquity Speaks: From Classical Greek to Contemporary Use"
-date: 2024-07-12T08:57:06.789Z
-updated: 2024-07-13T08:57:06.789Z
+date: 2024-08-27T22:43:55.584Z
+updated: 2024-08-28T22:43:55.584Z
 tags:
   - speak
   - english
@@ -49,6 +49,9 @@ thumbnail: https://thmb.techidaily.com/9e9b99a6d9a89547d11f6e0d3b7ad397a8c45980a
 
  Ancient Greek writing during this archaic period featured the “Boustrophedon” style (literally “ox-turning”, after the manner of an ox plowing a field), where alternate lines of text were reversed, a technique observed in earlier civilizations. Nevertheless, around the 8th century BC, the Greek alphabet was standardized.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### Dialects of Ancient Greece
 
  **Before the conquest by the Macedonians in the late 4th century BCE, there was no unified Greek language;** rather, various competing dialects existed. Each city or region had its standard for inscriptions, and though these dialects were diverse, the Greeks had a concept of a shared linguistic identity and could understand other dialects.
@@ -74,6 +77,9 @@ Other literary works of art representative of this period include:
 
 ![ancient greece language](https://edge.mondly.com/blog/wp-content/uploads/2023/10/ancient-greece-language.jpg "Ancient Greek Language Influence On Modern Languages 6")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Ancient Greek Writing System and Alphabet
 
  Did you know the word **‘alphabet’ originates from the initial two letters of the Greek alphabet,_‘alpha’_ and_‘beta’_ ?** While this may seem like a fun piece of unimportant trivia, you’ll soon discover that the influence of the ancient Greek language on modern languages is far greater than we think.
@@ -110,6 +116,9 @@ Other literary works of art representative of this period include:
 
 [Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-9012&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9012&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9012&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9012&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-9012%26mt%3D8)
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Ancient Greek influence on art, architecture, and literature
 
  Beyond politics and philosophy, Greek mythology is probably the one that influenced Western culture the most. The epic tales of gods, goddesses, demigods, and heroes have inspired numerous artists, writers, and thinkers to create their next big work of art. If you look into it, you’ll see that the influence of Greek myths can still be found everywhere, from literature and sculpture to popular culture and advertising.
@@ -148,6 +157,9 @@ Other literary works of art representative of this period include:
 
  This is just one example among countless others where a modern English word owes its existence to Ancient Greek ancestry. As a matter of fact, it’s estimated that **more than 150,000 English words can be traced back to their Greek origins.**
 
+<!-- affiliate ads begin -->
+<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## English words of Greek origin
 
 | **English word** | **Greek origin**                                                                                          |
@@ -182,12 +194,18 @@ _Describes a weakness in spite of overall great strength or resilience._
 
  According to the legend, Achilles’ mother, Thetis, dipped him into the River Styx to prevent his foretold death. However, she held him by the heel, making it his vulnerability later in life. Achilles was ultimately killed during the Trojan War from wounds to his heel, ankle, and torso.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. Pandora’s box
 
  _Refers to something that creates a lot of new problems that you did not expect._
 
  The myth of Pandora’s box originates from the story where Prometheus steals fire from the gods to give to mankind. As a punishment for humanity, the gods create Pandora, the first woman, and give her a box with strict instructions not to open it. Overcome by curiosity, Pandora opens the box, releasing all the world’s troubles. Only Hope remains trapped inside.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<!-- affiliate ads end -->
 ### 3\. Herculean task
 
 **Refers to a task that requires extremely great strength or effort.**
@@ -196,12 +214,18 @@ _Describes a weakness in spite of overall great strength or resilience._
 
  Thus, he was tasked with completing twelve extremely challenging “labors”. These labors included daunting tasks such as retrieving the guardian dog from the underworld and defeating the multi-headed Hydra. Hence, the term ‘Herculean’ describes any job or task that is incredibly difficult and requires enormous strength.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 4\. The Midas Touch
 
 _Refers to a person who has good fortune._
 
  The phrase originates from the Greek myth of King Midas of Phrygia, who was granted a wish by the god Dionysus. Midas wished that everything he touched would turn to gold. Unfortunately, this blessing became a curse as his food, water, wine, and even his beloved daughter Zoe turned to gold upon his touch, illustrating the unintended consequences of his ill-considered desire for wealth.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<!-- affiliate ads end -->
 ### 5\. The Apple of Discord
 
  _Refers to an object or issue that causes strife, contention, or rivalry among those who encounter or possess it._
@@ -212,6 +236,9 @@ _Refers to a person who has good fortune._
 
 ![what is greece's language](https://edge.mondly.com/blog/wp-content/uploads/2023/10/what-is-greeces-language.jpg "Ancient Greek Language Influence On Modern Languages 9")
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<!-- affiliate ads end -->
 ## Differences Between Ancient Greek and Modern Greek
 
  Centuries of political, social, and cultural transformations, coupled with the dispersion of Greek populations and industrial changes, have profoundly influenced the evolution and richness of the Greek language. Thus, the transition from the ancient Greek language to the modern Greek language was all about adaptation and evolution. The language spoken in Plato’s Greece is indeed very different from the language spoken today in Greece. However, it is said that **a person proficient in Modern Greek can generally understand about 50% of ancient Greek texts** due to similar root words.
@@ -230,14 +257,25 @@ _Refers to a person who has good fortune._
 
  Just like Latin, the ancient Greek language is still used in scholarly circles and ecclesiastical domains, preserved in texts and liturgies. However, nobody speaks ancient Greek natively anymore.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### What are the main influences of ancient Greek on the English language?
 
  A lot of English words, concepts, and idiomatic expressions are of Greek origin. For example, the words that begin with the letter ‘ph’ are particularly easy to trace back to Greek.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->
 ### What writing system did ancient Greeks use?
 
  The earliest attested writing system used by ancient Greeks is a clay tablet written in the Linear B script. It is hypothesized to be descended from the older Linear A script which is undeciphered. However, around the 8th century BCE, Greeks adopted the Greek alphabet used today.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### How can I learn to speak ancient Greek?
 
  Learning to speak ancient Greek may prove difficult because we still don’t know how the ancient Greek language sounded. For this reason, you can never be sure whether your pronunciation is correct or not. However, learning the language is not impossible. Our advice is to learn modern Greek first and then move to its predecessor with the help of classic texts and scholarly resources.
@@ -275,3 +313,45 @@ _Refers to a person who has good fortune._
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-craft-your-best-youtubing-exit-tips-from-industry-leaders/"><u>[New] In 2024, Craft Your Best YouTubing Exit - Tips From Industry Leaders</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-streaming-wars-understanding-vimeo-and-youtubes-distinctions/"><u>[New] In 2024, Streaming Wars  Understanding Vimeo and YouTube's Distinctions</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-instagrams-hottest-25-minds-in-the-digital-age/"><u>[New] Instagram's Hottest 25 Minds in the Digital Age</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-web-wonders-weekly-review/"><u>[New] Web Wonders Weekly Review</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-easy-paths-to-profitable-youtube-business-channels-top-10-list/"><u>2024 Approved  Easy Paths to Profitable YouTube Business Channels, Top 10 List!</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-level-up-your-instagram-posts-with-expert-edits/"><u>2024 Approved  Level Up Your Instagram Posts with Expert Edits</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-messages-from-civi-3-disney-100th-anniversary-edition-by-fonelab-android-recover-messages/"><u>Best Android Data Recovery - Undelete Lost Messages from Civi 3 Disney 100th Anniversary Edition</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/comprehensive-guide-vyncs-link-tracking-features-and-perplexing-subscription-options/"><u>Comprehensive Guide: Vyncs Link Tracking Features and Perplexing Subscription Options</u></a></li>
+<li><a href="https://driver-download.techidaily.com/easy-and-quick-guide-obtain-your-intel-nvme-drivers-without-hassle/"><u>Easy and Quick Guide: Obtain Your Intel NVMe Drivers Without Hassle</u></a></li>
+<li><a href="https://win11.techidaily.com/enriching-windows-11-with-dolby-atmos-experience/"><u>Enriching Windows 11 with Dolby Atmos Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/get-up-and-learn-urdu-10-minute-rule/"><u>Get Up & Learn Urdu – 10-Minute Rule</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-fix-the-this-file-cannot-be-previewed-error-in-outlook-for-windows/"><u>How to Fix the This File Cannot Be Previewed Error in Outlook for Windows</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-unlock-locked-iphone-xs-max-by-restoring-by-drfone-ios-unlock-ios-unlock/"><u>How to Unlock locked iPhone XS Max by restoring</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-a-step-by-step-journey-clearing-images-with-picsart/"><u>In 2024, A Step-By-Step Journey  Clearing Images with Picsart</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-into-croatias-culture-start-learning-its-language-today/"><u>Journey Into Croatia's Culture - Start Learning Its Language Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-leap-forward-mondlys-free-course-initiative-transforms-ukraine/"><u>Language Leap Forward – Mondly's Free Course Initiative Transforms Ukraine</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-brings-forth-a-new-era-of-interactive-qanda/"><u>Mondly Brings Forth a New Era of Interactive Q&A</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-milestone-worldwide-education-network-expands-to-70-million/"><u>Mondly Milestone: Worldwide Education Network Expands to 70 Million</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-revamped-help-center-a-step-into-modernity/"><u>Mondly's Revamped Help Center: A Step Into Modernity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/native-tongue-learn-romanian-app-style/"><u>Native Tongue: Learn Romanian App Style</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/neues-leben-in-der-zahlsprache-von-eins-bis-hundert/"><u>Neues Leben in Der Zahlsprache: Von Eins Bis Hundert</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/newborn-neurons-fueling-language-learning-in-kids/"><u>Newborn Neurons: Fueling Language Learning in Kids</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/preparation-for-an-israeli-adventure-must-know-phrases-and-insights/"><u>Preparation for an Israeli Adventure: Must-Know Phrases and Insights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/regional-contrasts-in-portuguese-keyboard-usage-europe-and-south-america/"><u>Regional Contrasts in Portuguese Keyboard Usage, Europe & South America</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/say-cheerio-to-a-happy-birthday-italian/"><u>Say Cheerio to a Happy Birthday (Italian)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/say-hello-in-mandarin-a-practical-guide/"><u>Say Hello in Mandarin: A Practical Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/svensk-geni-ditt-avstand-till-sverige/"><u>Svensk Geni: Ditt Avstånd Till Sverige</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/the-art-and-technique-of-professional-android-time-lapses/"><u>The Art and Technique of Professional Android Time-Lapses</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-jolly-rogers-verbal-arsenal/"><u>The Jolly Roger's Verbal Arsenal</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/triple-action-cognitive-routines-to-enhance-language-acquisition/"><u>Triple-Action Cognitive Routines to Enhance Language Acquisition</u></a></li>
+<li><a href="https://program-issues.techidaily.com/ultimate-troubleshooting-fixing-discord-lags/"><u>Ultimate Troubleshooting: Fixing Discord Lags</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/universal-accessibility-in-learning-mondly-for-ukraine/"><u>Universal Accessibility in Learning - Mondly for Ukraine</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-cut-and-edit-3gp-files-with-ease-updated-2023/"><u>Updated 2024 Approved Cut and Edit 3GP Files with Ease Updated 2023</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vocal-victory-mastering-languages-with-ease/"><u>Vocal Victory: Mastering Languages with Ease</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-speak-croatian-discover-7-compelling-reasons-now/"><u>Why Speak Croatian? Discover 7 Compelling Reasons Now!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-young-minds-learn-second-languages-swiftly/"><u>Why Young Minds Learn Second Languages Swiftly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/wochenstruktur-deutsche-sprache-erforschen/"><u>Wochenstruktur: Deutsche Sprache Erforschen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gkreman-koinwnia-eygnwmwn-glwssa/"><u>Γκρεμάν Κοινωνία Ευγνώμων Γλώσσα</u></a></li>
+</ul></div>

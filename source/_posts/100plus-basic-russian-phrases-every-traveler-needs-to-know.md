@@ -1,7 +1,7 @@
 ---
 title: 100+ Basic Russian Phrases Every Traveler Needs To Know
-date: 2024-07-12T08:52:35.659Z
-updated: 2024-07-13T08:52:35.659Z
+date: 2024-08-27T22:48:54.963Z
+updated: 2024-08-28T22:48:54.963Z
 tags:
   - speak
   - english
@@ -89,6 +89,9 @@ thumbnail: https://thmb.techidaily.com/14ac9c60c0a7c6de320a160e01c4efc88f6a5375e
 * Is this seat taken? –_Это место свободно? – Eto mesto svobodno?_
 * I would like to change my seat. –_Я хотел бы пересесть. – Ya hotel by peresest._
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<!-- affiliate ads end -->
 ## 3\. Common Russian phrases for travelers who need help
 
  How do you say_where is The Red Square_ in Russian? How do you say_can you help me_ in Russian? How do you say_where is a pharmacy_ in Russian? – these are all valid questions that pop up in the traveler’s mind and by the time the plane lands, you should know the correct answer to them.  
@@ -107,6 +110,9 @@ thumbnail: https://thmb.techidaily.com/14ac9c60c0a7c6de320a160e01c4efc88f6a5375e
 
 ![learn russian](https://edge.mondly.com/blog/wp-content/uploads/2018/07/learn-russian-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 5")
 
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Photo by A.L.
 
 * Where can I buy tickets? –_Где здесь можно купить билеты? – Gde zdes mozhno kupit bilety?_
@@ -148,6 +154,9 @@ thumbnail: https://thmb.techidaily.com/14ac9c60c0a7c6de320a160e01c4efc88f6a5375e
 
 ![russian-words](https://edge.mondly.com/blog/wp-content/uploads/2018/07/russian-words-1024x684.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 6")
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<!-- affiliate ads end -->
  Photo by Max Delsid
 
 * My wife would like a bowl of soup. –_Моей жене – суп. – Moyey zhene – sup._
@@ -163,6 +172,9 @@ thumbnail: https://thmb.techidaily.com/14ac9c60c0a7c6de320a160e01c4efc88f6a5375e
 
 ![useful-russian-words](https://edge.mondly.com/blog/wp-content/uploads/2018/07/useful-russian-words-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 7")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Photo by Henrique Félix
 
 * I would like a dessert. –_Я хотел бы десерт. Ya hotel by desert._
@@ -171,6 +183,9 @@ thumbnail: https://thmb.techidaily.com/14ac9c60c0a7c6de320a160e01c4efc88f6a5375e
 * We would like to have dinner. –_Мы хотели бы поужинать. – My hoteli by pouzhynat._
 * What would you like for breakfast? –_Что бы вы хотели на завтрак? – Chto by vy hoteli na zavtrak?_
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 6\. Russian for travelers who want to have fun
 
  Probably the most important phrases – for some of us – are those related to fun. What’s the point in going to Russia if you don’t go out and try the famous vodka with the locals? The legend says the vodka is so good that your brain will start translating English to Russian without even learning Russian in advance.
@@ -195,6 +210,14 @@ Just joking. Still is an amazing drink, though!
 * Let’s have some fun. –_Повеселимся! – Poveselimsya!_
 * Are there seats available? –_Ещё остались свободные места? – Yeshcho ostalis svobodnyye mesta?_
 
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 7\. Basic Russian phrases for shopping sprees
 
  This is the cruelest drudgery our loved ones from home put us through while on holiday. _Should I buy a matryoshka doll? Or some vodka? Maybe a refrigerator magnet? But when? What if I don’t buy anything? Will they hate me for life?_ Funny or not, these are all questions that haunt us while on holiday. The best solution? Schedule two hours tops and just get it over with. The same way you would do with a bandage.
@@ -237,6 +260,9 @@ Just joking. Still is an amazing drink, though!
 * Would you like to have dinner with me? –_Поужинаем вместе? – Pouzhynayem vmeste?_
 * I love you. – Я люблю тебя. –_Ya lyublyu tebya._
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Bonus: Basic Russian phrases for football lovers
 
 ![russian-phrases-world-cup](https://edge.mondly.com/blog/wp-content/uploads/2018/07/russian-phrases-world-cup-1024x576.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 11")
@@ -282,3 +308,40 @@ Just joking. Still is an amazing drink, though!
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-information.techidaily.com/new-chic-and-stylish-beauty-videos/"><u>[New] Chic and Stylish Beauty Videos</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-discovering-yis-high-res-filming-experience/"><u>[New] In 2024, Discovering Yi's High-Res Filming Experience</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-enhancing-facebook-viewership-with-obs-broadcasts/"><u>[New] In 2024, Enhancing Facebook Viewership with OBS Broadcasts</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-visualcapturew11-windows-11-simple-recording-app/"><u>[New] VisualCaptureW11  Windows 11 Simple Recording App</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-decoding-the-earnings-algorithm-of-tseries-online-channel-for-2024/"><u>[Updated] Decoding the Earnings Algorithm of TSeries Online Channel for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-from-flat-to-fascinating-crafting-depth-in-text-art/"><u>[Updated] From Flat to Fascinating  Crafting Depth in Text Art</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/discovering-the-immersive-world-of-lg-27ud68-for-2024/"><u>Discovering the Immersive World of LG 27UD68 for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/explore-top-rated-sandbox-game-compilations/"><u>Explore  Top-Rated Sandbox Game Compilations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-chatter-cheat-sheet-easy-languages-compendium/"><u>Global Chatter Cheat Sheet: Easy Languages Compendium</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Poco C65? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-realme-c33-2023-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Realme C33 2023 to Any iOS Devices | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/interactive-latino-education-enthralling-youths/"><u>Interactive Latino Education: Enthralling Youths</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introduction-to-basic-mathematical-terms-in-russian/"><u>Introduction to Basic Mathematical Terms in Russian</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/kickoff-2023-on-a-high-note-enjoy-free-mondly-pro-for-life/"><u>Kickoff 2023 on a High Note, Enjoy Free Mondly Pro for Life</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-the-romantic-lexicon-of-hungarian/"><u>Learning the Romantic Lexicon of Hungarian</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-multiple-languages-with-help-from-googled-editors-mondly/"><u>Mastering Multiple Languages with Help From Googled Editors - Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-the-lifelong-education-platform-now-with-70-million-members/"><u>Mondly: The Lifelong Education Platform Now With 70 Million Members</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-editor-choice-for-enhanced-language-acquisition/"><u>Mondly's Editor Choice for Enhanced Language Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-lifespan-in-learning-7-triumphant-years/"><u>Mondly's Lifespan in Learning: 7 Triumphant Years</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/peak-performance-in-global-languages-examinations/"><u>Peak Performance in Global Languages Examinations</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/perfecting-designs-a-guide-to-cutting-out-background-in-figma-for-2024/"><u>Perfecting Designs  A Guide to Cutting Out Background in Figma for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/privacy-policy-enhancement-revealed/"><u>Privacy Policy Enhancement Revealed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-latvian-lessons-for-efficient-learning/"><u>Quick Latvian Lessons for Efficient Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/reflecting-on-10-years-mondlybacks-filters-evolution/"><u>Reflecting on 10 Years: MondlyBack's Filters Evolution</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/simple-steps-to-chatting-with-a-chinese-friend/"><u>Simple Steps to Chatting with a Chinese Friend</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speech-clarity-100-eng-exerited-tongue-challenges/"><u>Speech Clarity: 100 Eng Exerited Tongue Challenges</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tagalog-unlocked-quick-lessons-for-busy-lives/"><u>Tagalog Unlocked - Quick Lessons for Busy Lives</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-british-lingo-book-saying-it-right/"><u>The British Lingo Book: Saying It Right</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essential-journey-to-fluent-japanese-greetings/"><u>The Essential Journey to Fluent Japanese Greetings</u></a></li>
+<li><a href="https://win-answers.techidaily.com/twitch-streaming-sound-troubles-heres-why-it-works-perfectly-now/"><u>Twitch Streaming Sound Troubles? Here's Why It Works Perfectly Now</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vocabulinas-the-top-ten-arguments-for-language-learning/"><u>Vocabulinas: The Top Ten Arguments for Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/wow-italians-discover-20plus-native-slang/"><u>Wow Italians! Discover 20+ Native Slang</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/your-step-by-step-plan-to-start-a-food-critique-blog-or-channel/"><u>Your Step-by-Step Plan to Start a Food Critique Blog or Channel</u></a></li>
+</ul></div>

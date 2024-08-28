@@ -1,7 +1,7 @@
 ---
 title: "4 Manières Françaises: Oui, Bienvenue"
-date: 2024-07-12T08:53:02.852Z
-updated: 2024-07-13T08:53:02.852Z
+date: 2024-08-27T22:48:24.330Z
+updated: 2024-08-28T22:48:24.330Z
 tags:
   - speak
   - english
@@ -48,12 +48,28 @@ thumbnail: https://thmb.techidaily.com/abb037fb1e94f759471049583ead053b2f01326e3
 
  “Strasbourg, France” by Patrick Robert Doyle©
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 2\. The informal “you’re welcome”:_je t’en prie_
 
  Like_‘de rien’_ , which is certainly the most casual way to say you’re welcome in French, ‘_je t’en prie’_ is another informal way to respond to someone who expressed their gratitude towards you.
 
  It is most common amongst very close friends and family members. This particular form is most appropriate when you want to express a higher level of gratitude than_‘de rien’_ , but with somebody close to you, with whom your relationship is casual.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ### The literal translation of_‘je t’en prie’_
 
  Essentially, the literal translation of ‘je t’en prie’ is ‘I pray you it’. Don’t look too far into this – it certainly doesn’t translate as such to French speakers!
@@ -64,6 +80,9 @@ thumbnail: https://thmb.techidaily.com/abb037fb1e94f759471049583ead053b2f01326e3
 
  B:_Je t’en prie !_ (“You’re welcome!”)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 3\. The formal “you’re welcome”:_je vous en prie_
 
  You’ll notice that this particular way to say ‘you’re welcome’ in French is very similar to the previous example. In fact, the phrase is almost identical. The only thing that’s changed is the personal pronoun. Instead of using the informal you –_‘tu’_ – we use the formal counterpart –_‘vous’_ .
@@ -88,6 +107,9 @@ thumbnail: https://thmb.techidaily.com/abb037fb1e94f759471049583ead053b2f01326e3
 
  “Southern France, Toulouse” by DAT VO©
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 4\. The easiest to remember:_pas de problème_
 
  When you’re in the early stages of [learning French](https://travel-lingual.com/how-long-take-to-learn-french/) , sometimes the most sensible thing to do is use what you can remember. The word_‘problème’_ in this particular French expression resembles the English word ‘problem’ and should not be too difficult for you to learn. Be cautious of the [French grave accent](https://travel-lingual.com/french-accent-marks/) on the_‘e’_ as this alters the pronunciation of the word.
@@ -112,6 +134,9 @@ Example:
 
  Furthermore,_‘avec plaisir’_ is what you should use if you travel to southern France and want to sound like a local. It literally translates to “with pleasure”, but it is the French correspondent of “my pleasure”.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Which version of you’re welcome in French should you use and when?
 
  As with any language, it’s important to understand which form of an expression to use in the right context in order to avoid embarrassment in certain situations.
@@ -135,6 +160,10 @@ _Th_ _is post is delivered to you by James A. Smith._
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ### Speak French fluently in just 10 minutes a day
 
  **Do you want to [speak French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) like a fluent speaker?** Get Mondly, the award-winning language learning app that will help you speak French as if you were Paris-born.
@@ -163,3 +192,49 @@ _Th_ _is post is delivered to you by James A. Smith._
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/rofessionally-impressive-quick-made-valorant-game-thumbnails-for-2024/"><u>[New] Professionally Impressive, Quick-Made Valorant Game Thumbnails for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-from-fast-pace-to-deliberate-motion-making-slow-movies-on-insta/"><u>[Updated] From Fast Pace to Deliberate Motion  Making Slow Movies on Insta</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-optimizing-your-fb-video-ads-20-best-tips-for-success-for-2024/"><u>[Updated] Optimizing Your FB Video Ads  20 Best Tips for Success for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/circulation-crafting-kit/"><u>Circulation Crafting Kit</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/elevate-your-sound-10-best-professional-audio-editing-programs/"><u>Elevate Your Sound 10 Best Professional Audio Editing Programs</u></a></li>
+<li><a href="https://fox-that.techidaily.com/expert-guide-for-reactivating-message-sound-alarms-on-your-ios-device/"><u>Expert Guide for Reactivating Message Sound Alarms on Your iOS Device</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/exploring-youtubes-strategy-for-video-short-promotion-for-2024/"><u>Exploring YouTube's Strategy for Video Short Promotion for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/google-play-recognizes-mondly-a-top-choice-for-families-in-2017/"><u>Google Play Recognizes: Mondly - A Top Choice for Families in 2017</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grusse-mit-zahlen-deutsch-von-1-100-fur-anfanger-erklaren/"><u>Grüße Mit Zahlen: Deutsch Von 1-100 Für Anfänger Erklären</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-google-frp-lock-on-infinix-smart-8-pro-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock on Infinix Smart 8 Pro Devices</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-educational-videography-key-editing-strategies/"><u>In 2024, Educational Videography  Key Editing Strategies</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-expert-tips-for-3d-text-designing-in-ai/"><u>In 2024, Expert Tips for 3D Text Designing in AI</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-highest-quality-screen-time-movie-hits-list/"><u>In 2024, Highest-Quality Screen Time  Movie Hits List</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-recording-your-world-how-camstudio-redefined/"><u>In 2024, Recording Your World - How CamStudio Redefined</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-oppo-a59-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Oppo A59 5G? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-your-gateway-to-successful-careers/"><u>Language Learning: Your Gateway to Successful Careers</u></a></li>
+<li><a href="https://video-capture.techidaily.com/mastering-video-file-management-movs-on-windows-10-for-2024/"><u>Mastering Video File Management  MOVs on Windows 10 for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mirthful-mastery-of-latin-language/"><u>Mirthful Mastery of Latin Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-kids-edition-smart-filter-feature-2017/"><u>Mondly Kid's Edition: Smart Filter Feature, 2017</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-social-dynamics-the-role-of-greetings/"><u>Navigating Social Dynamics: The Role of Greetings</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-best-4k-video-editors-ranked-and-reviewed-for-2024/"><u>New Best 4K Video Editors Ranked and Reviewed for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/overview-of-americas-favored-non-native-languages/"><u>Overview of America's Favored Non-Native Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-catalan-corner-learn-every-day/"><u>Quick Catalan Corner – Learn Every Day</u></a></li>
+<li><a href="https://techtrends.techidaily.com/resolving-your-websites-security-alert-a-step-by-step-guide/"><u>Resolving Your Website's Security Alert: A Step-by-Step Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-clearly-spanish-accentuation-techniques/"><u>Speaking Clearly: Spanish Accentuation Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swift-expressive-colors-in-french/"><u>Swift, Expressive Colors in French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tandcs-whats-new-and-how-it-affects-you/"><u>T&Cs: What's New and How It Affects You</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essentials-of-socializing-with-russian-expressions/"><u>The Essentials of Socializing with Russian Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essentials-learning-numerical-expressions-in-russian/"><u>The Essentials: Learning Numerical Expressions in Russian</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-pirates-dictionary-swashbuckling-words/"><u>The Pirate's Dictionary: Swashbuckling Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-simplest-approach-to-learning-spanish-counts/"><u>The Simplest Approach to Learning Spanish Counts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-german-gratitude-phrases/"><u>The Ultimate Guide to German Gratitude Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-overseas-tongues-studied-in-the-states/"><u>Top Overseas Tongues Studied In the States</u></a></li>
+<li><a href="https://techtrends.techidaily.com/top-rated-visual-voice-message-software/"><u>Top-Rated Visual Voice Message Software</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/translate-tension-and-thrills-learning-korean-for-squid-game-enthusiasts/"><u>Translate Tension and Thrills: Learning Korean for Squid Game Enthusiasts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ultimate-guide-to-mastering-lithuanian-from-your-laptop/"><u>Ultimate Guide to Mastering Lithuanian From Your Laptop</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/ultimate-vr-selection-top-8-must-have-titles-for-2024/"><u>Ultimate VR Selection  Top 8 Must-Have Titles for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-new-horizons-6-reasons-to-learn-arabic-via-mondly-online-platform/"><u>Unlock New Horizons: 6 Reasons to Learn Arabic via Mondly Online Platform</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unraveling-romance-rivalry-spains-spanish-versus-portugals-portuguese/"><u>Unraveling Romance Rivalry: Spain's Spanish Versus Portugal's Portuguese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-israels-mainstream-tongue/"><u>Unveiling Israel’s Mainstream Tongue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/urdu-essentials-for-new-learners-a-starting-packet/"><u>Urdu Essentials for New Learners: A Starting Packet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vivacious-verbal-touches-italian-preening-art/"><u>Vivacious Verbal Touches: Italian Preening Art</u></a></li>
+</ul></div>

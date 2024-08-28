@@ -1,7 +1,7 @@
 ---
 title: "Ancient Hellenic Tongue: Origins & Ongoing Impact"
-date: 2024-07-12T08:57:02.533Z
-updated: 2024-07-13T08:57:02.533Z
+date: 2024-08-27T22:43:59.847Z
+updated: 2024-08-28T22:43:59.847Z
 tags:
   - speak
   - english
@@ -74,6 +74,9 @@ Other literary works of art representative of this period include:
 
 ![ancient greece language](https://edge.mondly.com/blog/wp-content/uploads/2023/10/ancient-greece-language.jpg "Ancient Greek Language Influence On Modern Languages 6")
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Ancient Greek Writing System and Alphabet
 
  Did you know the word **‘alphabet’ originates from the initial two letters of the Greek alphabet,_‘alpha’_ and_‘beta’_ ?** While this may seem like a fun piece of unimportant trivia, you’ll soon discover that the influence of the ancient Greek language on modern languages is far greater than we think.
@@ -82,6 +85,9 @@ Other literary works of art representative of this period include:
 
  However, the earliest attested form of the Greek language is a clay tablet written in the Linear B script. Historians claim that it dates to between 1450 and 1350 BC. Unrelated to the Greek alphabet, which emerged around the 8th century BC, Linear B last appeared in the 13th century BC. The centuries between the two writing scripts, where no Greek writings have been found, is referred to as the Greek Dark Ages.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cultural Influences of Ancient Greek on the Western Civilization
 
  Ancient Greece’s influence on Western civilization is undeniable, and you’ll soon see why. For example, where do you think the Olympic Games came from? Or where did democracy originate? They’re both products of Ancient Greece, of course!
@@ -118,6 +124,9 @@ Other literary works of art representative of this period include:
 
  Just as significant for the modern world are the ancient Greek art and architecture. The principles of symmetry, harmony, and proportionality influenced Western architectural designs, including the construction of monuments and public buildings. The Greek column, for example, is a beloved element we’ve seen even in fashion!
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<!-- affiliate ads end -->
 ### Ancient Greek influence on science and mathematics
 
  If we ask scientists, they’ll say that ancient Greeks made their most significant contributions to mathematics, astronomy, and medicine. For example, **the principles and theorems formulated by Pythagoras are integral to the scientific heritage that has shaped Western civilization.** Nowadays, children as young as 12 or 13 learn Pythagoras’ theorems in geometry – which, by the way, is another word of Greek origin.
@@ -134,6 +143,9 @@ Other literary works of art representative of this period include:
 
  Whenever you say a word like ‘psychology’, ‘theater’, or ‘chronology’, you pay tribute to the ancient Greek language. Still, the linguistic legacy is not limited to vocabulary but extends to idiomatic expressions, grammatical structures, and even rhetorical styles. Keep in mind the fact that this influence happened despite the geographical distance between ancient Greece and the English-speaking world.
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Enriching the modern lexicon
 
  So, how does the ancient Greek language live on through the modern languages? Well, as we already settled, one of the most striking manifestations of its influence is on the vocabulary. The terms beginning with ‘ph-’ are probably the most obvious examples. **Words like ‘philosophy’, ‘physical’, ‘photograph’, ‘phrase’, and ‘philanthropy’ all have roots in ancient Greek.**
@@ -148,6 +160,9 @@ Other literary works of art representative of this period include:
 
  This is just one example among countless others where a modern English word owes its existence to Ancient Greek ancestry. As a matter of fact, it’s estimated that **more than 150,000 English words can be traced back to their Greek origins.**
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## English words of Greek origin
 
 | **English word** | **Greek origin**                                                                                          |
@@ -170,12 +185,18 @@ Other literary works of art representative of this period include:
 | cardiology       | from ‘kardiā’ (heart) + ‘logia’ (study)                                                                   |
 | technology       | from ‘tekhnē’ (art, craft) + ‘logia’ (study)                                                              |
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Expressions that originated from Greek
 
  Apart from [Latin phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , the only thing that can make you sound like a true erudite without much work are the expressions that originated from Greek.
 
  As we already discussed, ancient Greece and its fascinating mythology have been very influential in Western culture. And if you need more proof to be sure of it, stick around, and let’s look at some**iconic expressions that originated from Greek myths.**
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### 1\. Achilles’ heel
 
 _Describes a weakness in spite of overall great strength or resilience._
@@ -196,12 +217,18 @@ _Describes a weakness in spite of overall great strength or resilience._
 
  Thus, he was tasked with completing twelve extremely challenging “labors”. These labors included daunting tasks such as retrieving the guardian dog from the underworld and defeating the multi-headed Hydra. Hence, the term ‘Herculean’ describes any job or task that is incredibly difficult and requires enormous strength.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 4\. The Midas Touch
 
 _Refers to a person who has good fortune._
 
  The phrase originates from the Greek myth of King Midas of Phrygia, who was granted a wish by the god Dionysus. Midas wished that everything he touched would turn to gold. Unfortunately, this blessing became a curse as his food, water, wine, and even his beloved daughter Zoe turned to gold upon his touch, illustrating the unintended consequences of his ill-considered desire for wealth.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 5\. The Apple of Discord
 
  _Refers to an object or issue that causes strife, contention, or rivalry among those who encounter or possess it._
@@ -226,10 +253,17 @@ _Refers to a person who has good fortune._
 
  To summarize everything we learned about the ancient Greek language, let’s look at some frequently asked questions.
 
+<!-- affiliate ads begin -->
+<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Is ancient Greek still spoken today?
 
  Just like Latin, the ancient Greek language is still used in scholarly circles and ecclesiastical domains, preserved in texts and liturgies. However, nobody speaks ancient Greek natively anymore.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
+The ultimate burning program for all your needs!</a>
+<!-- affiliate ads end -->
 ### What are the main influences of ancient Greek on the English language?
 
  A lot of English words, concepts, and idiomatic expressions are of Greek origin. For example, the words that begin with the letter ‘ph’ are particularly easy to trace back to Greek.
@@ -238,6 +272,9 @@ _Refers to a person who has good fortune._
 
  The earliest attested writing system used by ancient Greeks is a clay tablet written in the Linear B script. It is hypothesized to be descended from the older Linear A script which is undeciphered. However, around the 8th century BCE, Greeks adopted the Greek alphabet used today.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
 ### How can I learn to speak ancient Greek?
 
  Learning to speak ancient Greek may prove difficult because we still don’t know how the ancient Greek language sounded. For this reason, you can never be sure whether your pronunciation is correct or not. However, learning the language is not impossible. Our advice is to learn modern Greek first and then move to its predecessor with the help of classic texts and scholarly resources.
@@ -275,3 +312,63 @@ _Refers to a person who has good fortune._
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-videos.techidaily.com/new-bring-your-clips-to-life-a-compreenased-way-to-post-on-youtube/"><u>[New] Bring Your Clips to Life  A Compreenased Way to Post on YouTube</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-navigating-asmrs-influence-on-your-life-for-2024/"><u>[New] Navigating ASMR’s Influence on Your Life for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-effortless-single-frame-analysis-in-youtube-videos-5-ways/"><u>[Updated] In 2024, Effortless Single-Frame Analysis in YouTube Videos [5 Ways]</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-cutting-through-the-facade-real-vs-pretend-facebook-followers/"><u>2024 Approved  Cutting Through the Facade  Real vs Pretend Facebook Followers</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-professional-techniques-for-home-based-podcast-capture/"><u>2024 Approved  Professional Techniques for Home-Based Podcast Capture</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-vivo-y56-5g-drfone-by-drfone-virtual-android/"><u>5 Easy Ways to Change Location on YouTube TV On Vivo Y56 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/helping-those-who-need-it-most-fundacion-danny-from-colombia/"><u>Helping Those Who Need It Most: Fundación Danny From Colombia</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-activate-and-use-life360-ghost-mode-on-itel-p55-5g-drfone-by-drfone-virtual-android/"><u>How To Activate and Use Life360 Ghost Mode On Itel P55 5G | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-google-pixel-8-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Google Pixel 8 Without PUK Codes</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-classic-1980s-visual-elements-in-editing-workflow/"><u>In 2024, Classic 1980S Visual Elements in Editing Workflow</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-honor-magic-6-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Honor Magic 6 Pro? | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-perfect-your-xbox-footage-4-recording-strategies-revealed/"><u>In 2024, Perfect Your Xbox Footage  4 Recording Strategies Revealed</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-ultimate-guide-to-free-pptp-vpn-for-beginners-on-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Free PPTP VPN For Beginners On Sony Xperia 10 V | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-geo-blocking-and-how-to-bypass-it-on-vivo-s18e-drfone-by-drfone-virtual-android/"><u>In 2024, What is Geo-Blocking and How to Bypass it On Vivo S18e? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Why does the pokemon go battle league not available On Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/inclusive-leadership-through-multilingual-expertise/"><u>Inclusive Leadership Through Multilingual Expertise</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/intercultural-agility-mastering-adaptable-communication-skills/"><u>Intercultural Agility: Mastering Adaptable Communication Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-to-polyglot-status-a-study-in-time/"><u>Journey to Polyglot Status: A Study in Time</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/korean-alphabet-a-quick-guide-to-hangul/"><u>Korean Alphabet – A Quick Guide to Hangul</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-linkages-the-portuguese-connection-across-continents/"><u>Language Linkages: The Portuguese Connection Across Continents</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-of-love-a-global-valentines-day-guide/"><u>Language of Love: A Global Valentine’s Day Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-french-efficiently-from-home-guide/"><u>Learn French Efficiently From Home Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-korean-fast-master-hangul-in-no-time/"><u>Learn Korean Fast: Master Hangul in No Time</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lively-spanish-lessons-for-young-minds/"><u>Lively Spanish Lessons for Young Minds</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/magnifying-youtube-visual-experience-for-2024/"><u>Magnifying YouTube Visual Experience for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/majority-mother-tongues-the-15-summit/"><u>Majority Mother Tongues – The #15 Summit</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mapping-out-the-ideal-next-linguistic-adventure/"><u>Mapping Out The Ideal Next Linguistic Adventure</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-romanian-naturally/"><u>Mastering Romanian, Naturally</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/meme-ology-manual-easy-ways-to-whip-up-giggles/"><u>Meme-Ology Manual  Easy Ways to Whip Up Giggles</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multicultural-mastery-the-art-of-interacting-across-borders/"><u>Multicultural Mastery: The Art of Interacting Across Borders</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/myths-in-mouths-exploring-viking-dialects/"><u>Myths in Mouths: Exploring Viking Dialects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pace-yourself-learn-japans-counting-quickly/"><u>Pace Yourself, Learn Japan's Counting Quickly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/persuasive-prose-for-pleasure-flirting-tactics-in-english/"><u>Persuasive Prose for Pleasure: Flirting Tactics in English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-urdu-skills-enhancement-10-minsday-plan/"><u>Quick Urdu Skills Enhancement - 10 Mins/Day Plan</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/reflecting-on-a-fruitful-decade-with-mondlyback/"><u>Reflecting on a Fruitful Decade with MondlyBack</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/round-the-houses-full-rotation-photography-for-2024/"><u>Round the Houses  Full Rotation Photography for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/second-language-skills-unleash-your-potential/"><u>Second-Language Skills: Unleash Your Potential</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/slang-demystified-comprehensive-guide-to-informal-language/"><u>Slang Demystified: Comprehensive Guide to Informal Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speech-precision-unlock-with-a-set-of-twisters/"><u>Speech Precision: Unlock with a Set of Twisters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spoken-bliss-us-liberty-celebrations/"><u>Spoken Bliss: U.S. Liberty Celebrations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/stun-sicilians-with-20plus-authentic-expressions/"><u>Stun Sicilians with 20+ Authentic Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-elongated-term-epic-quest/"><u>The Elongated Term Epic Quest</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-sound-strategy-for-successful-language-acquisition/"><u>The Sound Strategy for Successful Language Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/thriving-at-sixty-five-language-learning-perks/"><u>Thriving at Sixty: Five Language Learning Perks</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/tips-for-a-seamless-experience-accessing-youtube-video-comments-for-2024/"><u>Tips for a Seamless Experience  Accessing YouTube Video Comments for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-picks-6-exceptional-online-platforms-for-korean-learning/"><u>Top Picks: 6 Exceptional Online Platforms for Korean Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-into-a-tagalog-conversationalist-quickly/"><u>Transform Into a Tagalog Conversationalist Quickly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/turkish-alphabet-and-pronunciation-a-quick-guide/"><u>Turkish Alphabet and Pronunciation: A Quick Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukranian-in-a-flash-one-minute-a-day-65-chars-note-adjusted-for-brevity/"><u>Ukranian in a Flash, One Minute a Day (65 Chars) - Note: Adjusted for Brevity</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/uniting-platforms-sharing-vids-on-twtplustumblr-space-for-2024/"><u>Uniting Platforms  Sharing Vids on Twt+Tumblr Space for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unleashing-potential-with-johannes-honterus/"><u>Unleashing Potential with Johannes Honterus</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-secrets-of-turko-korean-relationship/"><u>Unveiling the Secrets of Turko-Korean Relationship</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/valentine-vocabulary-gift-romance-across-cultures/"><u>Valentine Vocabulary Gift: Romance Across Cultures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/what-language-is-spoken-in-israel/"><u>What Language Is Spoken in Israel?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/which-dialect-flourishes-in-israeli-territory/"><u>Which Dialect Flourishes in Israeli Territory?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/workplace-excellence-via-exceptional-language-application-selection/"><u>Workplace Excellence via Exceptional Language Application Selection</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "Aussie Vocabulary: From Surfing to BBQs"
-date: 2024-07-12T08:54:36.932Z
-updated: 2024-07-13T08:54:36.932Z
+date: 2024-08-27T22:46:44.289Z
+updated: 2024-08-28T22:46:44.289Z
 tags:
   - speak
   - english
@@ -54,6 +54,9 @@ Well, I don’t mind if you call me a “barbie girl” now.
 
  There’s no better replacement for the word “mouth”. Why isn’t everybody using this?
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### 6._Ankle-Biter_ – A Small or Young Child
 
 It can also refer to a small, aggressive dog like a chihuahua.
@@ -78,6 +81,9 @@ _Oi, mate!_ This one’s a classic. You ought to use it. Additionally, you can a
 
 ![aussie slang](https://edge.mondly.com/blog/wp-content/uploads/2020/05/aussie-slang-600x600.jpg "100+ Australian Slang Words To Help You Speak Like A True Aussie 6")
 
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Australian slang
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "100+ Australian Slang Words To Help You Speak Like A True Aussie 7")
@@ -187,28 +193,43 @@ _Oi, mate!_ This one’s a classic. You ought to use it. Additionally, you can a
 
  Aussie slang
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Funny Australian Slang Phrases
 
  If it weren’t for this list, you’d need an Australian slang translator when you hear these Australian slang phrases! Use them in your day-to-day conversations and Aussies might think you’re one of their own.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ### 1\. What’s the John Dory?
 
 **What’s going on?**
 
  John Dory is an edible fish found on the coasts of Africa, Southeast Asia, New Zealand, and – of course – Australia. There’s no secret story to it apart from the fact that it just rhymes with ‘story’. So, instead of asking,_“what’s the story?”_ , in Australian slang, you ask_“what’s the John Dory?”_ .
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. Chuck a sickie
 
 **Call in sick without actually being sick.**
 
  If you ever took a day off work pretending to be sick, you’re guilty of chucking a sickie._“I’m chucking a sickie to go to the beach. Wanna join?”_
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 3\. Fair dinkum
 
 **Honest, true or genuine.**
 
  Popular Australian exclamation often used to emphasize or seek confirmation (if used with the proper intonation) of the genuineness or truth of something._“This pork barbie is fair dinkum!”_
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 4\. Wrap your laughing gear ‘round that
 
 **Eat that.**
@@ -229,6 +250,10 @@ It seems that this phrase has had a lot of variations:
 
  While the original message referred to an object that is out of place, the modern meaning has slightly shifted. So, when you hear someone using this Australian slang phrase, know that they are referring to someone who behaves foolishly, makes a fuss, complains, or rants.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ### 6\. Dog’s breakfast
 
 **Complete chaos, mess.**
@@ -243,6 +268,9 @@ It seems that this phrase has had a lot of variations:
 
 Some say he “did the bolt” from his responsibilities as a prime minister.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
 ### 8\. No worries, mate, she’ll be apples
 
 **Everything will be fine.**
@@ -265,6 +293,9 @@ Coming Soon
 
 ![sheila bloke](https://edge.mondly.com/blog/wp-content/uploads/2020/05/sheila-bloke-600x600.jpg "100+ Australian Slang Words To Help You Speak Like A True Aussie 9")
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<!-- affiliate ads end -->
  Australian slang
 
 ## What You Need to Know About Aussie Slang
@@ -278,10 +309,16 @@ Coming Soon
 
 Before you go, let’s answer some frequently asked questions.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<!-- affiliate ads end -->
 ### What does ‘Aussie’ mean?
 
  Aussie means Australian, also known as a person from Australia. Remember that “Aussie” is an informal word and you should use it accordingly.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
 ### What is the most common Australian slang?
 
  The most common Australian slang words are ‘arvo’ (afternoon), ‘Maccas’ (McDonald’s), ‘sheila’ (woman or female), ‘brekkie’ (breakfast), ‘barbie’ (barbecue), ‘mate’ (friend), ‘avo’ (avocado), ‘bikkie’ (biscuit), ‘cobber’ (friend) and many other more.
@@ -299,6 +336,9 @@ Before you go, let’s answer some frequently asked questions.
 
 Get Mondly now and speak any language like you never dreamed you would ![Give it a try](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-4765&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-4765%26utm%5Fsource%3Dblog-post-id-4765&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-4765%26utm%5Fsource%3Dblog-post-id-4765&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-4765%26utm%5Fsource%3Dblog-post-id-4765&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-4765%26mt%3D8 "Give it a try")
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
@@ -317,3 +357,64 @@ Get Mondly now and speak any language like you never dreamed you would ![Give it
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-flight-friendly-robot-categories/"><u>[New] 2024 Approved  Flight-Friendly Robot Categories</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-skills-style-success-your-roadmap-in-the-creative-industry/"><u>[New] Skills, Style, Success  Your Roadmap in the Creative Industry</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-step-by-step-guide-to-enhancing-instagram-stories-with-photos/"><u>[Updated] 2024 Approved  Step-by-Step Guide to Enhancing Instagram Stories with Photos</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-guide-to-seamlessly-share-your-igtv-story/"><u>[Updated] In 2024, Guide to Seamlessly Share Your IGTV Story</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-shot-synergy-2024s-masterful-cinematic-insights-and-tips/"><u>[Updated] Shot Synergy  2024’S Masterful Cinematic Insights & Tips</u></a></li>
+<li><a href="https://video-capture.techidaily.com/7-advanced-mobile-applications-transforming-voice-clarity/"><u>7 Advanced Mobile Applications Transforming Voice Clarity</u></a></li>
+<li><a href="https://article-files.techidaily.com/best-text-title-effect-types-in-after-effects/"><u>Best Text Title Effect Types in After Effects</u></a></li>
+<li><a href="https://win-dash.techidaily.com/complete-guide-to-installing-nvme-software-on-your-windows-pc/"><u>Complete Guide to Installing NVMe Software on Your Windows PC</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/discovering-instagram-unveiling-its-features-and-purpose/"><u>Discovering Instagram: Unveiling Its Features and Purpose</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/get-ready-to-connect-your-ai-conversation-guide/"><u>Get Ready to Connect: Your AI Conversation Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/google-play-recognizes-mondly-a-top-choice-for-families-in-2017/"><u>Google Play Recognizes: Mondly - A Top Choice for Families in 2017</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/guide-to-implementing-gpt-mentions-for-recognizing-personalized-ai-responses-within-chatbot-conversations/"><u>Guide to Implementing GPT Mentions for Recognizing Personalized AI Responses Within Chatbot Conversations</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-nokia-130-music-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Nokia 130 Music</u></a></li>
+<li><a href="https://win-answers.techidaily.com/how-to-stop-team-fortress-2-from-continuously-crashing-fixed/"><u>How to Stop Team Fortress 2 From Continuously Crashing (Fixed)</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-update-iphone-13-pro-without-losing-anything-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update iPhone 13 Pro without Losing Anything? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-2-ways-to-transfer-text-messages-from-lava-storm-5g-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 2 Ways to Transfer Text Messages from Lava Storm 5G to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-charting-the-future-essential-online-stock-yts/"><u>In 2024, Charting the Future  Essential Online Stock YTs</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-direct-music-upload-top-tools-for-turning-spotify-into-youtube-listings/"><u>In 2024, Direct Music Upload  Top Tools for Turning Spotify Into YouTube Listings</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-from-pc-to-tablet-master-recording-hulu-across-all-platforms/"><u>In 2024, From PC to Tablet  Master Recording Hulu Across All Platforms</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-smooth-scene-grabs-the-top-8-non-lagging-tools/"><u>In 2024, Smooth Scene Grabs  The Top 8 Non-Lagging Tools</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-step-by-step-guide-to-full-sphere-video-via-iphone/"><u>In 2024, Step-by-Step Guide to Full-Sphere Video via iPhone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-streamline-your-music-library-mp3s-direct-to-youtube-playlist/"><u>In 2024, Streamline Your Music Library  MP3s Direct to YouTube Playlist</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/israelian-excursion-guide-must-know-phrases-and-practical-suggestions/"><u>Israelian Excursion Guide: Must-Know Phrases & Practical Suggestions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/johannes-honterus-a-man-who-matters/"><u>Johannes Honterus: A Man Who Matters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jubilant-joys-july-the-4th-festival/"><u>Jubilant Joys, July the 4Th Festival</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/key-russian-greetings-for-easy-language-conversations/"><u>Key Russian Greetings for Easy Language Conversations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-made-fun-oculus-quest-and-mondly-collaboration/"><u>Language Learning Made Fun: Oculus Quest and Mondly Collaboration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-languages-a-year-end-promise/"><u>Learn Languages: A Year-End Promise</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-the-language-of-chinese-scripts/"><u>Learning the Language of Chinese Scripts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lifelong-learners-guide-to-the-perks-of-multilingual-adulthood/"><u>Lifelong Learners' Guide to the Perks of Multilingual Adulthood</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/make-a-statement-the-most-influential-50-latin-quotes/"><u>Make a Statement - The Most Influential 50 Latin Quotes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/minutes-to-master-catalan-effortless-way/"><u>Minutes to Master Catalan, Effortless Way</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-empowers-learning-for-everyone-reaching-70-million-globally/"><u>Mondly Empowers Learning for Everyone, Reaching 70 Million Globally</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-kids-edition-smart-filter-feature-2017/"><u>Mondly Kid's Edition: Smart Filter Feature, 2017</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-wins-chairmans-award-at-2021-witsa-global-ict-excellence-awards/"><u>Mondly Wins Chairman’s Award at 2021 WITSA Global ICT Excellence Awards</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-ar-journey-transforming-language-acquisition/"><u>Mondly's AR Journey: Transforming Language Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multicultural-linguistics-in-macau/"><u>Multicultural Linguistics in Macau</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multipurpose-language-lesson/"><u>Multipurpose Language Lesson</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-social-etiquette-in-chinese-dialogues/"><u>Navigating Social Etiquette in Chinese Dialogues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/overcoming-barriers-in-german-learning/"><u>Overcoming Barriers in German Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pasos-esenciales-para-lectura-de-tiempo-en-espanol/"><u>Pasos Esenciales Para Lectura De Tiempo en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pearson-reimagines-gsl-with-mondly-for-maximum-accuracy/"><u>Pearson Reimagines GSL with Mondly for Maximum Accuracy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-catalan-corner-learn-every-day/"><u>Quick Catalan Corner – Learn Every Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-introduction-to-the-chinese-alphabet-chinese-characters-and-pinyin/"><u>Quick Introduction to the Chinese Alphabet, Chinese Characters and Pinyin</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Realme Narzo 60x 5G? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/russian-counting-companion-for-new-learners/"><u>Russian Counting Companion for New Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/russian-greetings-common-phrases-and-basic-words/"><u>Russian Greetings: Common Phrases and Basic Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/skyrocket-sales-the-secret-of-sophisticated-biz-dialogue/"><u>Skyrocket Sales: The Secret of Sophisticated Biz Dialogue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speedy-catalan-comprehension-minutes-only/"><u>Speedy Catalan Comprehension, Minutes Only</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/supercharge-your-finnish-with-online-tutoring/"><u>Supercharge Your Finnish with Online Tutoring</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/the-guide-to-video-opposite-on-snapchat/"><u>The Guide to Video Opposite on Snapchat</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-how-to-fix-vrchat-when-it-wont-load-or-function/"><u>Troubleshooting: How to Fix VRChat When It Won't Load or Function</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/unlocking-secure-periscope-streaming-techniques-and-strategies/"><u>Unlocking Secure Periscope Streaming Techniques & Strategies</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-dvr-wars-tivo-and-comcast-go-head-to-head-for-2024/"><u>Updated DVR Wars TiVo and Comcast Go Head-to-Head for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/viking-vocabulary-the-speech-of-the-scandinavian-saga-tellers/"><u>Viking Vocabulary: The Speech of the Scandinavian Saga-Tellers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vocal-voyage-irish-scottish-and-aussie-rhythmic-riffs-uncovered/"><u>Vocal Voyage: Irish, Scottish, and Aussie Rhythmic Riffs Uncovered</u></a></li>
+<li><a href="https://driver-error.techidaily.com/win-keyboards-refusing-to-work/"><u>Win Keyboards Refusing to Work</u></a></li>
+</ul></div>

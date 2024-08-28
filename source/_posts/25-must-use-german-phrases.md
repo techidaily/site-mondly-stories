@@ -1,7 +1,7 @@
 ---
 title: 25 Must-Use German Phrases
-date: 2024-07-12T08:50:19.760Z
-updated: 2024-07-13T08:50:19.760Z
+date: 2024-08-27T22:51:20.742Z
+updated: 2024-08-28T22:51:20.742Z
 tags:
   - speak
   - english
@@ -42,6 +42,9 @@ thumbnail: https://thmb.techidaily.com/781e8428af43f7240e5d953add419c8aa194f2d4e
 
  Germans and sausages go together like… well, Germans and sausages! For this reason, it’s no surprise that their idioms include_wursts_ . Even if the special treatment implies getting more dessert,[Germans will still say](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) you’re asking for an extra sausage.
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **3.** _Lügen haben kurze Beine_
 
 **Literal translation:** Lies have short legs.
@@ -50,6 +53,9 @@ thumbnail: https://thmb.techidaily.com/781e8428af43f7240e5d953add419c8aa194f2d4e
 
  Is someone lying to your face? Better remind them that_Lügen haben kurze Beine_ or lies won’t get them too far with those tiny legs. This idiom is similar to the English expression “Liar, liar, pants on fire.”
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
 ### **4.** _Ich glaube ich spinne_
 
 **Literal translation:** I believe I spider.
@@ -68,6 +74,9 @@ thumbnail: https://thmb.techidaily.com/781e8428af43f7240e5d953add419c8aa194f2d4e
 
 !['German idioms in English' by Ron Lach©](https://edge.mondly.com/blog/wp-content/uploads/2022/09/german-idioms-in-english-960x640.jpg "Top 25 German Idioms To Speak Like A German 2")
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
+<!-- affiliate ads end -->
 ### **6.** _Die Kirche im Dorf lassen_
 
 **Literal translation:** Leave the church in the village.
@@ -84,6 +93,9 @@ thumbnail: https://thmb.techidaily.com/781e8428af43f7240e5d953add419c8aa194f2d4e
 
  In Germany, when you are blind to what’s happening around you, people could say you have tomatoes on your eyes. Maybe you’re not up to date with the latest news, or you’re not seeing the truth staring you right in the face. Either way, tomatoes seem to affect your vision.
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<!-- affiliate ads end -->
 ### **8.** _Ich verstehe nur Bahnhof_
 
 **Literal translation:** I can only understand ‘train station.’
@@ -92,6 +104,9 @@ thumbnail: https://thmb.techidaily.com/781e8428af43f7240e5d953add419c8aa194f2d4e
 
  The origin of this idiom goes back to World War I when deployed German soldiers would say that the only thing they understood when given orders was ‘train station’ because they hoped to go home. Nowadays, it’s used to say you didn’t comprehend something that was explained to you.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### **9.** _Man soll den Tag nicht vor dem Abend lobe_ n
 
 **Literal translation:** One shouldn’t praise the day before the evening.
@@ -100,6 +115,9 @@ thumbnail: https://thmb.techidaily.com/781e8428af43f7240e5d953add419c8aa194f2d4e
 
  This idiom is perfect for those who usually celebrate their victories prematurely. Its sentiment is similar to the English equivalent “Don’t count your chickens before they hatch. “
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<!-- affiliate ads end -->
 ### **10.** _Da kannst du Gift drauf nehmen_
 
 **Literal translation:** You can take poison on that.
@@ -116,6 +134,9 @@ thumbnail: https://thmb.techidaily.com/781e8428af43f7240e5d953add419c8aa194f2d4e
 
  Now that’s a fun way of saying someone is getting on your nerves! It’s so cute that we’re actually thinking of making a petition to adopt it in English as well. Are you in?
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **12.** _Da steppt der Bär_
 
 **Literal translation:** The bear dances there.
@@ -124,6 +145,10 @@ thumbnail: https://thmb.techidaily.com/781e8428af43f7240e5d953add419c8aa194f2d4e
 
  There are several ways to look at this one, but the main idea is that the party is so good that the bear will also join it. Or — there’s a dancing bear at the party and you should absolutely not miss it. Either way, this party is probably the best party ever.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<!-- affiliate ads end -->
 ### **13.** _Das ist ein Katzensprung_
 
 **Literal translation:** That’s a cat’s jump.
@@ -150,6 +175,9 @@ thumbnail: https://thmb.techidaily.com/781e8428af43f7240e5d953add419c8aa194f2d4e
 
  It’s interesting how similar this idiom is to our English equivalent. It looks like feeling out of place is finally something more languages can agree on.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
 ### **16.** _Die Daumen drücken_
 
 **Literal translation:** Press the thumbs.
@@ -174,6 +202,9 @@ thumbnail: https://thmb.techidaily.com/781e8428af43f7240e5d953add419c8aa194f2d4e
 
  We don’t support insults, but this one can also be used as a joke between very – and we mean**very** – close friends.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **19.** _Alles hat ein Ende, nur die Wurst hat zwei_
 
 **Literal translation:** Everything has an end. Only the sausage has two.
@@ -182,6 +213,11 @@ thumbnail: https://thmb.techidaily.com/781e8428af43f7240e5d953add419c8aa194f2d4e
 
  Sausages again! Even when they come up with witty remarks about life itself, Germans must make a reference to_wursts_ . We do feel inspired, but we must admit we’re also drooling at this point.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->
 ### **20.** _Ich habe Schwein gehabt_
 
 **Literal translation:** I’ve had a pig.
@@ -192,6 +228,12 @@ thumbnail: https://thmb.techidaily.com/781e8428af43f7240e5d953add419c8aa194f2d4e
 
 !['German expressions' by Picography©](https://edge.mondly.com/blog/wp-content/uploads/2022/09/german-expressions-960x640.jpg "Top 25 German Idioms To Speak Like A German 4")
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### **21.** _Haare auf den Zähnen haben_
 
 **Literal translation:** To have hair on one’s teeth.
@@ -238,6 +280,9 @@ It’s usually used as an insult, so be careful to who you are saying this.
 
  Do you have someone in your life who just won’t stop talking? If you feel like your ear will fall off, this is the perfect example of _Jemandem ein Ohr abkauen_ .
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<!-- affiliate ads end -->
 ## **Why should you learn German idioms?**
 
  No matter how funny or weird, German idioms are, first and foremost, a great way to boost your German vocabulary. However, there is more to it than that. If you want to [learn German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and speak it like a fluent speaker, idioms can help you take your conversations to the next level in more than one way.**German idioms will:**
@@ -290,3 +335,61 @@ _ [Tschüss](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=10
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-mastering-the-art-of-social-media-top-7-essential-tiktok-emojis/"><u>[New] 2024 Approved  Mastering the Art of Social Media  Top 7 Essential TikTok Emojis</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-finest-list-of-cost-effective-video-conferencing-apps/"><u>[New] Finest List of Cost-Effective Video Conferencing Apps</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-navigating-screencastifys-screen-capture-feature/"><u>[New] In 2024, Navigating Screencastify's Screen Capture Feature</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nlocking-youtube-studios-power-for-professional-edits-for-2024/"><u>[New] Unlocking YouTube Studio's Power for Professional Edits for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-unveiling-the-basics-of-facebook-membership-creation/"><u>[New] Unveiling the Basics of Facebook Membership Creation</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-exclusive-recording-gadgets-for-windows-10-gamers/"><u>[Updated] 2024 Approved  Exclusive Recording Gadgets for Windows 10 Gamers</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-reviving-camera-victory-over-obs-glitches/"><u>[Updated] 2024 Approved  Reviving Camera  Victory Over OBS Glitches</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accelerated-pathways-to-fluency-in-foreign-tongues/"><u>Accelerated Pathways to Fluency in Foreign Tongues</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/arctic-acrobatics-2022s-olympians-for-2024/"><u>Arctic Acrobatics  2022'S Olympians for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aufforderungen-in-einem-respektvollen-ton-deutsch/"><u>Aufforderungen in Einem Respektvollen Ton: Deutsch</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aussie-expressions-made-easy-100plus-phrases/"><u>Aussie Expressions Made Easy: 100+ Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-cultures-top-17-spanish-colloquialisms/"><u>Bridging Cultures: Top 17 Spanish Colloquialisms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cinematic-journey-selecting-films-for-linguistic-growth/"><u>Cinematic Journey: Selecting Films for Linguistic Growth</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/commemorating-1500-no-cost-everyday-learning-sessions/"><u>Commemorating 1,500 No-Cost Everyday Learning Sessions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-koreas-linguistic-treasure-trove-squid-game/"><u>Decoding Korea's Linguistic Treasure Trove - Squid Game</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/down-under-dialect-100plus-australian-terms/"><u>Down Under Dialect: 100+ Australian Terms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhanced-travel-experiences-with-language-mastery/"><u>Enhanced Travel Experiences with Language Mastery</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/evaluating-artificial-intelligence-for-personal-finance-decisions/"><u>Evaluating Artificial Intelligence for Personal Finance Decisions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/examining-por-que-vs-por-que-in-context/"><u>Examining Por Que vs Por Qué in Context</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-the-intricacies-of-nippons-alphabet/"><u>Exploring the Intricacies of Nippon's Alphabet</u></a></li>
+<li><a href="https://techtrends.techidaily.com/exploring-the-sustainability-of-electric-car-use-a-comprehensive-guide/"><u>Exploring the Sustainability of Electric Car Use – A Comprehensive Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressing-friendship-across-borders/"><u>Expressing Friendship Across Borders</u></a></li>
+<li><a href="https://android-location.techidaily.com/fake-android-location-without-rooting-for-your-honor-x50-gt-drfone-by-drfone-virtual/"><u>Fake Android Location without Rooting For Your Honor X50 GT | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-teach-english-as-a-second-language/"><u>How to Teach English as a Second Language</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-how-to-speed-up-tiktok-videos-simple-guide/"><u>In 2024, How to Speed Up TikTok Videos? [Simple Guide]</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-ultimate-sound-selection-for-social-media-stars/"><u>In 2024, Ultimate Sound Selection for Social Media Stars</u></a></li>
+<li><a href="https://extra-information.techidaily.com/infusing-homes-with-suns-invisible-light/"><u>Infusing Homes with Sun's Invisible Light</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/joint-endeavor-mondly-pearson-button-filters-elevation/"><u>Joint Endeavor: Mondly-Pearson Button Filters Elevation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-connectivity-pearsons-online-hub/"><u>Language Connectivity: Pearson's Online Hub</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/languages-spoken-in-the-star-wars-universe/"><u>Languages Spoken in the Star Wars Universe</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/milestones-ten-years-of-mondlyback-button-innovation/"><u>Milestones: Ten Years of MondlyBack Button Innovation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-success-with-pearson-education/"><u>Multilingual Success with Pearson Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577339220-norwegian-skills-surge-10-minute-mini-marathons/"><u>Norwegian Skills Surge, 10-Minute Mini-Marathons!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/practica-diario-como-decir-colores/"><u>Práctica Diario: Cómo Decir Colores</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/privacy-innovation-new-terms-and-usage-guide/"><u>Privacy Innovation: New Terms & Usage Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pronunciation-patchwork-unraveling-irish-aussie-and-us-accents/"><u>Pronunciation Patchwork: Unraveling Irish, Aussie, and U.S. Accents</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/recent-amendment-to-tandcs/"><u>Recent Amendment to T&Cs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revealing-mondlys-updated-user-assistance-guide/"><u>Revealing Mondly's Updated User Assistance Guide</u></a></li>
+<li><a href="https://video-capture.techidaily.com/seeking-speed-identifying-the-top-5-racer-games/"><u>Seeking Speed  Identifying the Top 5 Racer Games</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/shared-heritage-in-slavic-languages-uk-and-rus/"><u>Shared Heritage in Slavic Languages: Uk & Rus</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/starting-off-in-urdu-core-language-building-blocks/"><u>Starting Off in Urdu: Core Language Building Blocks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essential-uk-speak-compendium/"><u>The Essential UK Speak Compendium</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-mental-gymnastics-of-language-learning-post-50/"><u>The Mental Gymnastics of Language Learning Post-50</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-blueprint-mastering-a-language-through-the-web/"><u>The Ultimate Blueprint: Mastering a Language Through the Web</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-mondly-user-guide-for-optimal-experience/"><u>The Ultimate Mondly User Guide for Optimal Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/together-we-learn-mondlys-language-course-drive/"><u>Together, We Learn: Mondly’s Language Course Drive</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tracing-linguistic-concentration-french-speaking-populations/"><u>Tracing Linguistic Concentration: French Speaking Populations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/un-viaje-intrigante-al-cuerpo-humano-en-espanol-de-la-boca-al-subterraneo/"><u>Un Viaje Intrigante Al Cuerpo Humano en Español: De La Boca Al Subterráneo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/uncovering-the-basics-of-german-phonetics/"><u>Uncovering the Basics of German Phonetics</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/unleashing-creativity-uploading-movies-from-mmc-to-vimeo-for-2024/"><u>Unleashing Creativity  Uploading Movies From MMC to Vimeo for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/unpacking-the-impact-of-youtubes-shorts-programme/"><u>Unpacking the Impact of YouTube's Shorts Programme</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-mysteries-of-chinese-letters/"><u>Unveiling the Mysteries of Chinese Letters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/viking-voices-vanished-a-linguistic-quest-through-time/"><u>Viking Voices Vanished: A Linguistic Quest Through Time</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/your-israel-adventure-blueprint-key-expressions-and-essentials/"><u>Your Israel Adventure Blueprint: Key Expressions and Essentials</u></a></li>
+</ul></div>

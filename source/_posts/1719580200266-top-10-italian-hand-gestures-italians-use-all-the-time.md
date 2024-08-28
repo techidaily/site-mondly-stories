@@ -1,7 +1,7 @@
 ---
 title: Top 10 Italian Hand Gestures Italians Use All the Time
-date: 2024-07-12T08:55:42.308Z
-updated: 2024-07-13T08:55:42.308Z
+date: 2024-08-27T22:45:20.072Z
+updated: 2024-08-28T22:45:20.072Z
 tags:
   - speak
   - english
@@ -42,6 +42,9 @@ thumbnail: https://thmb.techidaily.com/60a050976608e9140d90809a0ac2529ef41e9995b
 
 **Origin:** funnily enough, the most common theory could be considered inappropriate and I shall not disclose it here. Google is a big place, though. I’m sure you’ll manage 🤭.
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 9\. The “stealing” gesture
 
 **How to do it:** lower the palm and move all your fingers towards the palm, starting with the little finger and finishing with the index while also slowly moving the wrist.
@@ -62,6 +65,9 @@ thumbnail: https://thmb.techidaily.com/60a050976608e9140d90809a0ac2529ef41e9995b
 
 ![i can't stand you italian gesture](https://edge.mondly.com/blog/wp-content/uploads/2022/01/i-cant-stand-you-italian-gesture-960x766.jpg "Top 10 Italian Hand Gestures Italians Use All The Time 14")
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  The ‘I can’t stand you’ gesture
 
 **When to do it:** when you can’t stand the person you’re talking to or a third person you’re talking about. It’s actually pretty funny and not necessarily a rude sign.
@@ -70,6 +76,9 @@ thumbnail: https://thmb.techidaily.com/60a050976608e9140d90809a0ac2529ef41e9995b
 
 **Origin:** the gesture indicates a very specific part of your body that’s just above your stomach and it’s usually accompanied by the phrase “you/he/she is here”. It means that you cannot “digest” that person, just like you cannot digest the food that your body rejects or you don’t like.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 7\. The “Oh, please!” gesture (the ‘prayer clasp’)
 
  Italy is a very religious country and a common gesture is to join both your hands like you are praying. This can communicate both a wish for something to happen or your desire for something to do or to stop doing something.
@@ -84,6 +93,15 @@ thumbnail: https://thmb.techidaily.com/60a050976608e9140d90809a0ac2529ef41e9995b
 
 **Origin:** you are basically praying or hoping for something to happen or someone to stop doing something. It’s a very common gesture. The word ‘please’ in Italian is translated with_(ti) prego_ which literally means “I pray”.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
+
+ It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
+
+  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
+
+  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<!-- affiliate ads end -->
 ### 6\. The “I don’t know” hands
 
 **How to do it:** open your arms and show both palms usually while also raising your shoulders.
@@ -114,6 +132,14 @@ This is a pretty common gesture among angry drivers and football players.
 
 **Origin:** we can’t know for sure, but it probably refers to an unspecified direction where you want the person talking to you to go (so he/she will leave you alone).
 
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 4\. The “I don’t care” gesture (the ‘chin flick’)
 
  This gesture generally means “get lost” in Northern Italy, whereas in Southern Italy, it simply means “no”.
@@ -130,6 +156,9 @@ This is a pretty common gesture among angry drivers and football players.
 
 **Origin:** you’re basically scratching your chin, hence you’re completely indifferent to something that requires your attention.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ### 3\. The “horns” gesture
 
  While in other cultures, this is not a rude gesture and usually means “rock and roll”, in Italy, it can be kind of rude and has two very distinct meanings:
@@ -141,6 +170,9 @@ This is a pretty common gesture among angry drivers and football players.
 
 ![italian horns sign](https://edge.mondly.com/blog/wp-content/uploads/2022/01/italian-horns-sign-960x840.jpg "Top 10 Italian Hand Gestures Italians Use All The Time 19")
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<!-- affiliate ads end -->
  The ‘horns’
 
 **When to do it:** when someone is being a jinx or when you believe something bad might happen.
@@ -149,6 +181,9 @@ This is a pretty common gesture among angry drivers and football players.
 
 **Origin:** several [sources](https://www.ipersoap.com/2019/11/04/il-vero-significato-e-lorigine-di-alcuni-dei-gesti-piu-diffusi/) agree that the horns are theoretically pointed toward bad luck the same way an animal would strike something with its horns.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 2\. The “get out” gesture
 
 **How to do it:** Flatten all fingers but the thumb, keep your wrist steady and move your other hand up and down at least 3 times (it should be a 90-degree movement). Be careful, though: if done very energetically and accompanied by an angry face, this gesture could be considered rude.
@@ -157,6 +192,9 @@ This is a pretty common gesture among angry drivers and football players.
 
 ![get out sign](https://edge.mondly.com/blog/wp-content/uploads/2022/01/get-out-sign-960x738.jpg "Top 10 Italian Hand Gestures Italians Use All The Time 20")
 
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  The ‘let’s get out of here’ gesture
 
 **When to do it:** When you want someone to leave you alone, get out of the way, or you simply want to ask a friend to leave with you. It’s often used by drivers to ask other cars to move out of the way.
@@ -165,6 +203,9 @@ This is a pretty common gesture among angry drivers and football players.
 
 **Origin:** it symbolizes the movement from one place to another.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 1\. The “finger purse/pinched fingers” gesture
 
  Undoubtedly, the most famous around the world and probably the most used in Italy as well. It became a meme and also an emoji to basically symbolize the whole country.
@@ -227,3 +268,54 @@ The rest is history.
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-7-simple-methods-for-capturing-youtube-content/"><u>[New] 7 Simple Methods for Capturing YouTube Content</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-backtrack-your-youtube-queue-swiftly-and-sweetly-for-2024/"><u>[New] Backtrack Your YouTube Queue, Swiftly & Sweetly for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-cutting-edge-editing-advanced-strategies-for-using-the-background-erase-feature-for-2024/"><u>[New] Cutting Edge Editing  Advanced Strategies for Using the Background Erase Feature for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-from-novice-to-expert-film-cameras-you-can-trust/"><u>[New] From Novice to Expert  Film Cameras You Can Trust</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-speed-kings-guide-to-fast-frame-gathering-for-2024/"><u>[New] Speed King's Guide to Fast Frame Gathering for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-channel-expansion-techniques-for-30plus-online-platforms-for-2024/"><u>[Updated] Channel Expansion Techniques for 30+ Online Platforms for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-emancipate-your-engagement-facebook-restored-for-2024/"><u>[Updated] Emancipate Your Engagement  Facebook Restored for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-vivo-v29e-by-drfone-android/"><u>10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Vivo V29e</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/5-solutions-for-itel-a60-unlock-without-password-by-drfone-android/"><u>5 Solutions For Itel A60 Unlock Without Password</u></a></li>
+<li><a href="https://fake-location.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-zte-nubia-z60-ultra-drfone-by-drfone-virtual-android/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On ZTE Nubia Z60 Ultra | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-contacts-files-on-oppo-by-fonelab-android-recover-contacts/"><u>Complete guide for recovering contacts files on Oppo .</u></a></li>
+<li><a href="https://driver-download.techidaily.com/effortless-compatibility-how-to-secure-and-install-microsoft-surface-pro-4-drivers-for-optimal-windows-functionality/"><u>Effortless Compatibility: How to Secure and Install Microsoft Surface Pro 4 Drivers for Optimal Windows Functionality</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/germany-loves-mondly-the-online-language-kingpin/"><u>Germany Loves Mondly: The Online Language Kingpin</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-educational-revolution-by-mondly/"><u>Global Educational Revolution by Mondly</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-remove-icloud-on-iphone-6s-plus-smoothly-by-drfone-ios/"><u>How To Remove iCloud On iPhone 6s Plus Smoothly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hustle-and-learn-japanese-numbers-made-easy/"><u>Hustle and Learn: Japanese Numbers Made Easy</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-is-greyed-out-from-iphone-11-pro-how-to-bypass-by-drfone-ios/"><u>In 2024, Apple ID is Greyed Out From iPhone 11 Pro How to Bypass?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-best-apple-iphone-xr-and-ipad-screen-mirroring-app-drfone-by-drfone-ios/"><u>In 2024, Best Apple iPhone XR & iPad Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-mastering-the-art-of-video-repetition-a-guide-for-instagram-users/"><u>In 2024, Mastering the Art of Video Repetition  A Guide for Instagram Users</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-ultimate-guide-from-iphone-6s-icloud-activation-lock-bypass-by-drfone-ios/"><u>In 2024, Ultimate Guide from iPhone 6s iCloud Activation Lock Bypass</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/is-correctness-a-barrier-to-language-growth/"><u>Is Correctness a Barrier to Language Growth?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/joint-venture-mondly-enhances-with-pearson-filters/"><u>Joint Venture: Mondly Enhances with Pearson Filters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-to-korean-mastery-squid-game-edition/"><u>Journey to Korean Mastery - Squid Game Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lifetime-access-to-new-languages-zero-price-endless-potential/"><u>Lifetime Access to New Languages: Zero Price, Endless Potential</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-agility-challenge-your-speaking-skills/"><u>Linguistic Agility: Challenge Your Speaking Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-multiple-languages-with-help-from-googled-editors-mondly/"><u>Mastering Multiple Languages with Help From Googled Editors - Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-editor-choice-for-enhanced-language-acquisition/"><u>Mondly's Editor Choice for Enhanced Language Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-lifespan-in-learning-7-triumphant-years/"><u>Mondly's Lifespan in Learning: 7 Triumphant Years</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-japanese-social-interactions/"><u>Navigating Japanese Social Interactions</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-ditch-premiere-rush-top-alternative-video-editing-software/"><u>New In 2024, Ditch Premiere Rush Top Alternative Video Editing Software</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polyglot-realm-multilingual-education-in-3d/"><u>Polyglot Realm: Multilingual Education in 3D</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rapidly-expand-your-communication-skills-with-leading-3-apps-for-linguistic-advancement/"><u>Rapidly Expand Your Communication Skills with Leading 3 Apps for Linguistic Advancement</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/reflecting-on-10-years-mondlybacks-filters-evolution/"><u>Reflecting on 10 Years: MondlyBack's Filters Evolution</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/refreshing-tandc-for-improved-clarity/"><u>Refreshing T&C for Improved Clarity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/romantic-revelries-in-rue-saint-michel/"><u>Romantic Revelries in Rue Saint-Michel</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sail-through-the-sea-of-language-unraveling-squid-game/"><u>Sail Through the Sea of Language, Unraveling Squid Game</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speech-clarity-100-eng-exerited-tongue-challenges/"><u>Speech Clarity: 100 Eng Exerited Tongue Challenges</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/time-honored-tongues-ancient-language-guide/"><u>Time-Honored Tongues: Ancient Language Guide</u></a></li>
+<li><a href="https://techtrends.techidaily.com/tips-for-seamlessly-running-two-apps-simultaneously-in-split-screen-on-macbook-air/"><u>Tips for Seamlessly Running Two Apps Simultaneously in Split Screen on MacBook Air</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-complexity-navigating-9-struggle-filled-languages/"><u>Unveiling Complexity: Navigating 9 Struggle-Filled Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-regional-differences-in-portuguese-keyboards/"><u>Unveiling Regional Differences in Portuguese Keyboards</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/urdu-essentials-for-learning-starter-packet/"><u>Urdu Essentials for Learning Starter Packet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/voices-from-the-heart-of-africa-language-diversity-unveiled/"><u>Voices From the Heart of Africa: Language Diversity Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/what-dialect-is-official-in-israel/"><u>What Dialect Is Official in Israel?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/whispering-desires-italys-sultry-sayings/"><u>Whispering Desires: Italy's Sultry Sayings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-master-english-for-global-success/"><u>Why Master English for Global Success?</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/your-go-to-tools-for-screen-recording-for-2024/"><u>Your Go-To Tools for Screen Recording for 2024</u></a></li>
+</ul></div>

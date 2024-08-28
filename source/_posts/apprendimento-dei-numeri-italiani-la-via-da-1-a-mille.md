@@ -1,7 +1,7 @@
 ---
 title: "Apprendimento Dei Numeri Italiani: La Via Da 1 a Mille"
-date: 2024-07-12T08:50:27.271Z
-updated: 2024-07-13T08:50:27.271Z
+date: 2024-08-27T22:51:12.648Z
+updated: 2024-08-28T22:51:12.648Z
 tags:
   - speak
   - english
@@ -88,6 +88,9 @@ Let’s see some examples:
 * to say “18 years”, you’ll say_diciotto anni_
 * to say “20 children”, you’ll say_venti bambini_
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ## Italian numbers to 30 and beyond
 
  Essentially, Italian numbers are very similar to English numbers. Once you get to 20, you just put together the tens with the single numbers (units). The best part is that Italian doesn’t even require spaces or hyphens. For example, if you want to say 22 (“twenty-two”), in Italian you say venti (20) + due (2) = _**venti** due_ (22).
@@ -100,6 +103,10 @@ Let’s see some examples:
 
  See how easy Italian numbers are? The only thing you have to remember is that the final vowel of the tens disappears when you add 1_(uno)_ or 8_(otto)_ . Thus, you’ll say _**vent** uno_ and not “ventiuno”. Additionally, number 3_(tre)_ gains an accent mark on the final vowel. For example, 33 will be_trentatré_ and 83 will be_ottantatré._
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ### Count tens in Italian
 
  Except for 10_(dieci)_ and 20_(venti)_ , all tens digits in Italian are based on their roots. Once you know all of them, you’ll know how to count to 100 – which is_cento_ – in Italian.
@@ -133,6 +140,9 @@ Let’s see some examples:
 * 84 – _ottanta**quattro**_
 * 98 – _novant**otto**_
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
 ## Italian numbers 100 to 1000 and beyond
 
  The same rules apply to bigger numbers as well. Add the suffix_cento_ to the multiplier digit and here are your hundreds:
@@ -161,6 +171,9 @@ Let’s see some examples:
 
 ![italian numbers pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2020/05/italian-numbers-pronunciation-960x640.jpg "Italian Numbers Made Easy - Count To 1000 And Beyond In Italian 3")
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
  “The Amalfi Coast” by Gregory Smirnov©
 
  Back to counting, from 100 and beyond, the bigger the number is, the longer its written form. Italian doesn’t isolate hundreds, tens and ones. They become one long word with no hyphens or spaces. For example:
@@ -235,3 +248,47 @@ Let’s see some examples:
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-professional-techniques-for-sims-4-live-action/"><u>[New] 2024 Approved  Professional Techniques for Sims 4 Live-Action</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-a-step-by-written-by-a-lawyer-in-2024/"><u>[New] A Step-By Written by a Lawyer, In 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-accelerating-engagement-with-optimized-youtube-video-speeds/"><u>[Updated] 2024 Approved  Accelerating Engagement with Optimized YouTube Video Speeds</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-open-air-fb-audio-downloads-for-2024/"><u>[Updated] Open Air FB Audio Downloads for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-reliable-steps-toward-attaining-safe-and-ethical-one-million-follower-status-for-2024/"><u>[Updated] Reliable Steps Toward Attaining Safe and Ethical One-Million Follower Status for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/abbyys-innovative-identity-verification-system-minimizes-fraud-and-streamlines-client-enrollment-process/"><u>ABBYY's Innovative Identity Verification System Minimizes Fraud & Streamlines Client Enrollment Process</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/app-driven-romanian-local-insights-inside/"><u>App-Driven Romanian: Local Insights Inside</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ausdruckskunst-in-der-deutschen-sprache-grusse-ausserhalb-von-hallo/"><u>Ausdruckskunst in Der Deutschen Sprache: Grüße Außerhalb Von Hallo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579565357-black-friday-96-off-on-worldwide-language-learning/"><u>Black Friday: 96%% Off on Worldwide Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-communication-gaps-across-africa/"><u>Bridging Communication Gaps Across Africa</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/connect-and-learn-pearsons-interactive-classroom/"><u>Connect and Learn: Pearson's Interactive Classroom</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciphering-the-nuances-of-english-contraction-forms/"><u>Deciphering the Nuances of English Contraction Forms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-romanian-with-local-insight/"><u>Dive Into Romanian with Local Insight</u></a></li>
+<li><a href="https://techtrends.techidaily.com/diy-domestic-singalongs-planning-and-executing-a-perfect-karaoke-evening-at-home/"><u>DIY Domestic Singalongs: Planning and Executing a Perfect Karaoke Evening at Home</u></a></li>
+<li><a href="https://location-social.techidaily.com/edit-and-send-fake-location-on-telegram-for-your-vivo-y100t-in-3-ways-drfone-by-drfone-virtual-android/"><u>Edit and Send Fake Location on Telegram For your Vivo Y100t in 3 Ways | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-passion-italys-romantic-flirtations/"><u>Embrace Passion: Italy's Romantic Flirtations</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/exploring-the-world-of-biometrics-a-comprehensive-guide/"><u>Exploring the World of Biometrics: A Comprehensive Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-speak-like-a-pro-the-top-25-essential-idioms-list/"><u>German Speak Like a Pro: The Top 25 Essential Idioms List</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/guide-disabling-windows-11s-acoustic-enhancement-settings/"><u>Guide: Disabling Windows 11'S Acoustic Enhancement Settings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hone-your-urdu-skills-in-10-minute-sessions/"><u>Hone Your Urdu Skills in 10-Minute Sessions</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-reset-a-oppo-a1-5g-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Oppo A1 5G Phone that is Locked?</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-contemplating-if-video-selfies-need-validation-on-instagram/"><u>In 2024, Contemplating if Video Selfies Need Validation On Instagram</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-honor-70-lite-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Honor 70 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-enable-usb-debugging-on-a-locked-xiaomi-redmi-note-12r-phone-by-drfone-android/"><u>In 2024, How To Enable USB Debugging on a Locked Xiaomi Redmi Note 12R Phone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-a-locked-xiaomi-redmi-12-phone-by-drfone-android/"><u>In 2024, How to Reset a Locked Xiaomi Redmi 12 Phone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-a-lost-oppo-k11-5g-for-free-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track a Lost Oppo K11 5G for Free? | Dr.fone</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/in-2024-streamline-screen-scans-your-essential-toolkit-for-vid-saving/"><u>In 2024, Streamline Screen Scans  Your Essential Toolkit for Vid Saving</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-advanced-interactive-qanda-for-enhanced-support/"><u>Introducing Advanced Interactive Q&A for Enhanced Support</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-essentials-greetings-expressions-and-vocabulary-for-latin-america/"><u>Language Essentials: Greetings, Expressions & Vocabulary for Latin America</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-updates-support-with-a-fresh-faq-section/"><u>Mondly Updates Support with a Fresh FAQ Section</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/navigating-access-hurdles-proven-strategies-for-approval/"><u>Navigating Access Hurdles: Proven Strategies for Approval</u></a></li>
+<li><a href="https://games-able.techidaily.com/1719173428059-oled-gaming-tech-why-i-made-the-switch-in-2-years/"><u>OLED Gaming Tech: Why I Made the Switch in 2 Years</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/persians-epochal-journey-gaining-from-its-study/"><u>Persian's Epochal Journey: Gaining From Its Study</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581262422-spanish-vs-english-grammar-understanding-por-que-and-why/"><u>Spanish Vs. English Grammar: Understanding 'Por Que' And 'Why'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-pedagogy-of-mondlys-learning-system/"><u>The Pedagogy of Mondly's Learning System</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-swashbuckling-lexicon-unveiled/"><u>The Swashbuckling Lexicon Unveiled</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/unlocking-personalization-secrets-in-your-website-boost-performance-using-cookiebot-solutions/"><u>Unlocking Personalization Secrets in Your Website: Boost Performance Using Cookiebot Solutions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-usage-shift-por-que-vs-por-que/"><u>Unveiling the Usage Shift: Por Que vs Por Qué</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vocal-variety-via-verse-harmonizing-education-with-hymns/"><u>Vocal Variety Via Verse: Harmonizing Education with Hymns</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/poiothta-eygnwmwn-synadelfia-gkreman/"><u>Ποιότητα Ευγνώμων Συνάδελφια Γκρεμάν</u></a></li>
+</ul></div>

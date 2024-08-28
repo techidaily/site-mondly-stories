@@ -1,7 +1,7 @@
 ---
 title: "Multilingual Cupid’s Arrow: Say 'I Love You' More Ways"
-date: 2024-07-12T08:53:59.869Z
-updated: 2024-07-13T08:53:59.869Z
+date: 2024-08-27T22:47:24.050Z
+updated: 2024-08-28T22:47:24.050Z
 tags:
   - speak
   - english
@@ -113,14 +113,23 @@ Here are some more ways to say “I love you” in other languages:
 
 ![I love you in sign language](https://edge.mondly.com/blog/wp-content/uploads/2018/10/i-love-you-sign-language.jpg "Say It Like You Mean It: How To Say “I Love You” In 32 Different Languages 4")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The perfect Valentine’s Day gift: 365 gifts for 365 days
 
  Now that you know how to say “I love you” in so many languages, here’s a sweet present idea you could use for your next anniversary or Valentine’s Day. All you need to buy is a big jar – big enough for all your love. The rest of it comes from the bottom of your heart. The first step is to prepare 365 pieces of paper of different colors and sizes and write “I love you” in different languages on the first 32 of them. Go wildly romantic with the rest of them: you could write love quotes for him or love quotes for her, poems or songs that you both like. Next step? Decorate the jar with tiny lights, pieces of lace or stickers.
 
 ![i love you in spanish by Diego PH©](https://edge.mondly.com/blog/wp-content/uploads/2018/10/i-love-you-in-spanish-scaled-480x600.jpg "Say It Like You Mean It: How To Say “I Love You” In 32 Different Languages 5")
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  When it’s ready, tell your lover to read one piece of paper every day. Even when you are not around. That’s how they’ll smile and know that your heart always belongs to them.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 ### A love poem for your loved one
 
  Look no further if you need a love poem or a love song for your jar. It doesn’t necessarily need to be original. It just has to come from the heart. Here’s**a love song for your love jar:**
@@ -173,6 +182,13 @@ _With you, my heart will forever blend._
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Yearly Membership</a>
+<!-- affiliate ads end -->
 ### From “I love you” to conversational fast
 
  Do you want to go the extra mile and learn a new language for someone you love? Try Mondly, the award-winning language app that can help you master languages in record time.
@@ -207,3 +223,44 @@ _With you, my heart will forever blend._
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-new-to-youtube-how-to-skip-the-top-8-common-errors-on-your-platform-journey/"><u>[New] 2024 Approved  New to YouTube  How to Skip the Top 8 Common Errors on Your Platform Journey</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-free-online-video-editors-for-youtube-for-2024/"><u>[New] 8 Free Online Video Editors for YouTube for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-top-10-web-based-subtitle-editor-tools/"><u>[New] Top 10 Web-Based Subtitle Editor Tools</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-20-guidelines-livestream-webinars-at-no-extra-charge/"><u>[Updated] 20 Guidelines  Livestream Webinars at No Extra Charge</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-pro-video-essentials-selecting-superior-camera-lenses/"><u>[Updated] 2024 Approved  Pro Video Essentials  Selecting Superior Camera Lenses</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-apple-m1-pro-versus-m1-max-unveiling-variations/"><u>2024 Approved  Apple M1 Pro Versus M1 Max  Unveiling Variations</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-changing-photo-colors-with-ease/"><u>2024 Approved  Changing Photo Colors with Ease</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-essential-windows-10-secrets-and-shortcuts/"><u>2024 Approved  Essential Windows 10 Secrets & Shortcuts</u></a></li>
+<li><a href="https://driver-error.techidaily.com/bring-back-life-to-your-offline-laptop-keys-repair-guide-for-fix-hp-notebooks-keyboard-problem-article-name-358-characters/"><u>Bring Back Life to Your 'Offline’ Laptop Keys: Repair Guide For Fix HP Notebook's Keyboard Problem - Article Name — 358 Characters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gute-auftaktsatze-im-deutschen-ausgewahlt/"><u>Gute-Auftaktsätze Im Deutschen Ausgewählt</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hello-in-portuguese-all-the-portuguese-greetings-you-need-to-knowback-buttonfilter-button/"><u>Hello In Portuguese - All The Portuguese Greetings You Need To KnowBack ButtonFilter Button</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/helping-those-who-need-it-most-fundacion-danny-from-colombia/"><u>Helping Those Who Need It Most: Fundación Danny From Colombia</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-itel-a70-phone-frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Itel A70 Phone FRP Lock</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-motorola-moto-g73-5g-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Motorola Moto G73 5G | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-quickly-master-iphones-screencasting-feature/"><u>In 2024, Quickly Master iPhone's Screencasting Feature</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/intercultural-agility-mastering-adaptable-communication-skills/"><u>Intercultural Agility: Mastering Adaptable Communication Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-link-turkish-korean-connections/"><u>Language Link: Turkish-Korean Connections</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-linkages-the-portuguese-connection-across-continents/"><u>Language Linkages: The Portuguese Connection Across Continents</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lively-spanish-lessons-for-young-minds/"><u>Lively Spanish Lessons for Young Minds</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/national-days-of-thankfulness-beyond-usa/"><u>National Days of Thankfulness Beyond USA</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-through-common-language-learning-fallacies/"><u>Navigating Through Common Language Learning Fallacies</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/navigating-through-the-world-of-ar-stickers-highlighting-google-for-2024/"><u>Navigating Through the World of AR Stickers, Highlighting Google for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/persuasive-prose-for-pleasure-flirting-tactics-in-english/"><u>Persuasive Prose for Pleasure: Flirting Tactics in English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/privacy-update-clearer-terms-better-usage/"><u>Privacy Update - Clearer Terms, Better Usage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rhetoric-romance-pickup-line-playbook/"><u>Rhetoric Romance: Pickup Line Playbook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speedy-syntax-mastery-with-these-mindful-mental-routines/"><u>Speedy Syntax Mastery with These Mindful Mental Routines</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spoken-bliss-us-liberty-celebrations/"><u>Spoken Bliss: U.S. Liberty Celebrations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-bards-impact-vocabulary-that-never-dies/"><u>The Bard's Impact: Vocabulary That Never Dies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-picks-6-exceptional-online-platforms-for-korean-learning/"><u>Top Picks: 6 Exceptional Online Platforms for Korean Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-three-advantages-for-fluency-in-late-adulthoods-linguistic-journey/"><u>Top Three Advantages for Fluency in Late Adulthood's Linguistic Journey</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-and-resolving-windows-11-setup-failures-successfully/"><u>Troubleshooting and Resolving Windows 11 Setup Failures Successfully</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-guide-getting-forza-horizon-4-running-top-strategies/"><u>Troubleshooting Guide: Getting Forza Horizon 4 Running - Top Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukraines-educational-revolution-mondly-provides-language-lessons-freely/"><u>Ukraine's Educational Revolution: Mondly Provides Language Lessons, Freely</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-secrets-of-turko-korean-relationship/"><u>Unveiling the Secrets of Turko-Korean Relationship</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/valentine-vocabulary-gift-romance-across-cultures/"><u>Valentine Vocabulary Gift: Romance Across Cultures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-choice-todays-apple-favorite/"><u>Worldwide Choice: Today's Apple Favorite</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-spring-celebration-dialogues/"><u>Worldwide Spring Celebration Dialogues</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "A Beacon of Inspiration: Johannes Honterus"
-date: 2024-07-12T08:50:49.994Z
-updated: 2024-07-13T08:50:49.994Z
+date: 2024-08-27T22:50:47.584Z
+updated: 2024-08-28T22:50:47.584Z
 tags:
   - speak
   - english
@@ -38,6 +38,9 @@ thumbnail: https://thmb.techidaily.com/5996397f505d52b0f60ffe77c36fd8859621590a5
 
  Additionally,_Rudimenta Cosmographica_ contained 13 maps of all known parts of the world engraved by Honterus himself. The book proved to be so successful that there were printed 39 editions of it in Brașov, Basel, Prague, Zürich, Antwerp and Cologne. Many consider_Rudimenta Cosmographica_ to be the first European-wide manual and the first Minor Atlas in Central and South-Eastern Europe.
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Draw inspiration from the best
 
  Everything Johannes Honterus did throughout his life is an inspiration for us at Mondly. He literally put Romania on the map before the unified nation was even born and our ambition is to continue his endeavor.
@@ -61,6 +64,9 @@ thumbnail: https://thmb.techidaily.com/5996397f505d52b0f60ffe77c36fd8859621590a5
 
 Get Mondly now and speak any language like you never dreamed you would ![Get Mondly now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-5187&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-5187%26utm%5Fsource%3Dblog-post-id-5187&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-5187%26utm%5Fsource%3Dblog-post-id-5187&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-5187%26utm%5Fsource%3Dblog-post-id-5187&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-5187%26mt%3D8 "Get Mondly now")
 
+<!-- affiliate ads begin -->
+<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<!-- affiliate ads end -->
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
@@ -79,3 +85,45 @@ Get Mondly now and speak any language like you never dreamed you would ![Get Mon
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-prime-obs-arrangements-on-economy-computers/"><u>[New] 2024 Approved  Prime OBS Arrangements on Economy Computers</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-the-fundamentals-of-color-grading-using-luts-in-ae/"><u>[New] In 2024, The Fundamentals of Color Grading Using LUTs in AE</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-stardews-ultimate-enhancements-ranked-the-seven-best-mods-for-2024/"><u>[New] Stardew's Ultimate Enhancements Ranked  The Seven Best Mods for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-enhance-visibility-top-methods-for-instagram-hits/"><u>[Updated] 2024 Approved  Enhance Visibility  Top Methods for Instagram Hits</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-go-digital-go-social-send-snaps-instantly/"><u>[Updated] 2024 Approved  Go Digital, Go Social  Send Snaps Instantly</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-exclusive-software-gamers-streaming-companions-for-2024/"><u>[Updated] Exclusive Software  Gamers' Streaming Companions for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-unlock-youtubes-monetizing-potential-with-strategic-short-videos/"><u>[Updated] Unlock YouTube's Monetizing Potential with Strategic Short Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-reasons-why-you-should-learn-afrikaans/"><u>10 Reasons Why You Should Learn Afrikaans</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-learners-guide-to-japanese-kanji-and-kana/"><u>A Learner's Guide to Japanese Kanji & Kana</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/babels-echo-ancient-greek-influence-and-today/"><u>Babel’s Echo: Ancient Greek Influence & Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beat-time-learn-japanese-digits-fast/"><u>Beat Time, Learn Japanese Digits Fast</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-slovak-in-minutes-easy-online-learning-pathway/"><u>Conquer Slovak in Minutes: Easy Online Learning Pathway</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ein-musterbeispiel-des-abschieds-in-deutscher-sprache/"><u>Ein Musterbeispiel Des Abschieds in Deutscher Sprache</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevate-enterprise-efficacy-via-tailored-talk-techniques/"><u>Elevate Enterprise Efficacy via Tailored Talk Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580403599-fastidious-norsk-comprehension-in-short-spurts/"><u>Fastidious Norsk Comprehension in Short Spurts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/horas-y-segundos-un-guia-para-empezar/"><u>Horas Y Segundos: Un Guía Para Empezar</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-teach-you-to-transfer-files-from-infinix-note-30-pro-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways To Teach You To Transfer Files from Infinix Note 30 Pro to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/instagram-engagement-game-changers-the-top-25-hashtags-you-need/"><u>Instagram Engagement Game-Changers  The Top 25 Hashtags You Need</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-leap-forward-fastest-to-learn-global-languages/"><u>Language Leap Forward: Fastest-to-Learn Global Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/le-monde-interne-explique-anatomie-et-physiologie-des-parties-corporelles-en-francais/"><u>Le Monde Interne Expliqué: Anatomie Et Physiologie Des Parties Corporelles en Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lectura-y-manejo-de-hora-en-espanol-para-nuevos-aprendices/"><u>Lectura Y Manejo De Hora en Espaňol Para Nuevos Aprendices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-diversity-in-the-realm-of-affection/"><u>Linguistic Diversity in the Realm of Affection</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/local-voices-teach-you-romanian/"><u>Local Voices Teach You Romanian</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/mastering-gpt-navigate-through-the-openai-interface-easily/"><u>Mastering GPT-Navigate Through the OpenAI Interface Easily!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-kids-and-parents-unite-winning-app-features-on-play/"><u>Mondly Kids and Parents Unite! Winning App Features on Play</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-meets-with-the-global-community-of-educators-at-bett-2022/"><u>Mondly Meets With the Global Community of Educators At BETT 2022</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilanguage-mastery-method/"><u>Multilanguage Mastery Method</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/oppo-find-x6-not-connecting-to-wi-fi-12-quick-ways-to-fix-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Oppo Find X6 Not Connecting to Wi-Fi? 12 Quick Ways to Fix | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pa-kul-annars-swedish/"><u>På Kul Annars (Swedish)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/precision-in-speech-apt-language-courses-outline/"><u>Precision in Speech: Apt Language Courses Outline</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/quick-fixes-for-why-is-my-vivo-y77t-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Vivo Y77t Black and White | Dr.fone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/solving-the-no-ping-from-data-centers-issue-in-halo-infinity/"><u>Solving the 'No Ping From Data Centers' Issue in Halo Infinity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/stepwise-czech-study-top-efficient-online-tutorials/"><u>Stepwise Czech Study: Top Efficient Online Tutorials</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/teachers-united-the-bett-2022-edition/"><u>Teachers United: The BETT 2022 Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/turbocharge-your-turkish-learning-with-this-phonetic-and-orthographic-guide/"><u>Turbocharge Your Turkish Learning With This Phonetic & Orthographic Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ultra-fast-language-learning-secrets/"><u>Ultra-Fast Language Learning Secrets</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/universal-speech-hierarchy-ranking-unveiled/"><u>Universal Speech Hierarchy: Ranking Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-8-engaging-reasons-to-master-hindi-with-mondly-online/"><u>Unveiling 8 Engaging Reasons to Master Hindi with Mondly Online</u></a></li>
+</ul></div>

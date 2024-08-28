@@ -1,7 +1,7 @@
 ---
 title: Beat Time, Learn Japanese Digits Fast!
-date: 2024-07-12T08:55:39.047Z
-updated: 2024-07-13T08:55:39.047Z
+date: 2024-08-27T22:45:24.123Z
+updated: 2024-08-28T22:45:24.123Z
 tags:
   - speak
   - english
@@ -118,6 +118,9 @@ thumbnail: https://thmb.techidaily.com/58e5d972b07e7d47a47d775672521bb7b4d26dbda
 
  As you can see, the rule you learned for the first 100 Japanese numbers is still valid. To count further than 100 in Japanese, you just continue to stack numbers. Then, when you get to 1,000,_hyaku_ becomes_sen_ and so on.
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to count in Japanese Hiragana?
 
  To count in Japanese Hiragana, you use specific symbols for each number, as follows:
@@ -144,6 +147,9 @@ thumbnail: https://thmb.techidaily.com/58e5d972b07e7d47a47d775672521bb7b4d26dbda
 
 ![numbers in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/11/numbers-in-japanese-960x647.jpeg "Counting In Japanese From 1 To 10000 9")
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<!-- affiliate ads end -->
 ## Japanese Lucky Numbers
 
  The two main**Japanese lucky numbers are seven (なな, Nana) and eight (はち, Hachi).** Given this, do you think the names of two of the most popular Japanese animal characters in the world were merely coincidental? We’re talking, of course, about the cat Nana from_The Travelling Cat Chronicles_ by Hiro Arikawa and Hachi from_Hachiko: The True Story of a Loyal Dog_ by Pamela S. Turner.
@@ -154,6 +160,9 @@ thumbnail: https://thmb.techidaily.com/58e5d972b07e7d47a47d775672521bb7b4d26dbda
 
  On the other hand, you probably noticed that 4, 7, and 9 have two different readings each. As we, in the Western world, consider the number 13 to bring bad luck, the Japanese people consider the numbers 4 and 9 to be unlucky because し (_shi_ – 4_)_ ) and く (_ku_ – 9) sound the same as the words for “death” (死, shi) and “suffering, agony or torture” (苦, ku). Thus, Japanese people avoid using these unlucky numbers as much as possible. If you ever travel to Japan, pay close attention to the prices. Chances are you won’t see prices like 9.99 or 4.99 anywhere.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ## Japanese Counters List
 
 **Japanese counters** are specific words that you must add after a number when counting particular objects. If we were to adapt the concept of Japanese counters to English, we might say “two pieces of pie” instead of “two pies”. In this situation, the word “pieces” acts as the counter. Thus, depending on the objects you are counting, you need to choose the appropriate counter word.
@@ -166,6 +175,9 @@ thumbnail: https://thmb.techidaily.com/58e5d972b07e7d47a47d775672521bb7b4d26dbda
 
  o clearly indicate that you are referring to seconds, minutes, hours, months, or years, you must use specific counters in Japanese. Seconds are expressed with \~秒_(_ _byou)_ , minutes with \~分_(fun or pun)_ , hours with \~時_(ji)_ , months with \~月_(getsu)_ , and years with \~年_(nen)_ .
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Japanese counters for people
 
  To count people in Japanese, use the counter ひとり_(hitori)_ for one person, ふたり_(futari)_ for two people, and \~人_(nin)_ for three or more people.
@@ -176,16 +188,25 @@ thumbnail: https://thmb.techidaily.com/58e5d972b07e7d47a47d775672521bb7b4d26dbda
 
  To count small and round objects like apples or tennis balls, you must use the \~個_(ko)_ counter. Conversely, to count thin and flat objects (such as sheets of paper, plates, or articles of clothing), you should use the まい_(mai)_ counter.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Japanese counters for animals
 
  For small animals like insects, fish, dogs or cats, you need to use the counter \~匹_(_ _hiki_ _)._ For larger animals, such as elephants, the appropriate counter \~頭_(tou)_ .
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Japanese counters for food
 
  To count sliced items (especially foods like meat), you can use the counter 切れ_(kire)_ . For parts of a meal or courses, use 品_(hin_ or_pin)_ . Meanwhile, for food portions, the counter 人前_(ninmae)_ is suitable.
 
 ![Japanese numbers kanji](https://edge.mondly.com/blog/wp-content/uploads/2019/11/japanese-numbers-kanji-960x640.jpeg "Counting In Japanese From 1 To 10000 11")
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Japanese counters for cars or bicycles
 
  If you’re not overwhelmed yet, for cars, machines, and all types of household appliances, the counter \~台_(dai)_ is necessary.
@@ -206,6 +227,9 @@ Before you go, make sure you check out these FAQs.
 
  To say numbers in Japanese, start by learning the numbers up to 10: ichi (1), ni (2), san (3), yon (4), go (5), roku (6), nana (7), hatchi (8), kyu (9) and juu (10). If you're not familiar with the Japanese writing system, you may have to rely heavily on the Romanized version (Romaji) to learn the correct pronunciation of each number. Once you've mastered the numbers 1-10 in Japanese, counting up to 100 becomes straightforward.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### How to write Japanese numbers?
 
  To write Japanese numbers, you can use the Kanji characters: 一 (1), 二 (2), 三 (3), 四 (4), 五 (5), 六 (6), 七 (7), 八 (8), 九 (9), and 十 (10). While hiragana can also be used for smaller numbers, it is less common for larger numbers as it can be more cumbersome. However, in many cases, Arabic numerals are widely used and accepted, even by Japanese people, for their simplicity and universality.
@@ -249,3 +273,44 @@ Before you go, make sure you check out these FAQs.
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-unfollowers-alert-on-your-instagram-map-for-2024/"><u>[New] Unfollowers Alert on Your Instagram Map for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-future-scrutiny-alternate-viewpoints/"><u>2024 Approved  Future Scrutiny  Alternate Viewpoints</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-steps-to-ensure-obs-captures-sound-effectively/"><u>2024 Approved  Steps to Ensure OBS Captures Sound Effectively</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/boost-sales-with-live-shopping-learn-winning-strategies-from-top-brands/"><u>Boost Sales with Live Shopping Learn Winning Strategies From Top Brands</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/deciphering-nlps-role-versus-mls-role/"><u>Deciphering NLP's Role Versus ML's Role</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-phrasecraft-tools-for-intercultural-harmony-communication/"><u>Global Phrasecraft: Tools for Intercultural Harmony Communication</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-migrate-android-data-from-huawei-nova-y91-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Migrate Android Data From Huawei Nova Y91 to New Android Phone? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-introduction-essentials/"><u>International Introduction Essentials</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-through-the-seasons-korean-weekday-insights/"><u>Journey Through the Seasons: Korean Weekday Insights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ladaptation-dix-jours-en-francais/"><u>L'Adaptation: Dix Jours en Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/la-maison-de-la-semaine-francaise/"><u>La Maison De La Semaine Française</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/la-secta-semanal-los-diez-nombres-en-espanol-y-su-significado/"><u>La Secta Semanal: Los Diez Nombres en Español Y Su Significado</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-kaleidoscope-the-multilingual-eu-story-echoed/"><u>Language Kaleidoscope: The Multilingual EU Story Echoed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-driven-joy-global-birthday-phrases/"><u>Language-Driven Joy: Global Birthday Phrases</u></a></li>
+<li><a href="https://driver-download.techidaily.com/latest-intel-hardware-accelerated-stack-driver-downloads-for-windows-xpvista781011/"><u>Latest Intel Hardware Accelerated Stack Driver Downloads for Windows XP/Vista/7/8/10/11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-the-essence-of-netflixs-best-show-through-hangul/"><u>Learn the Essence of Netflix's Best Show Through Hangul</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-english-dialogue-top-9-conversation-methods/"><u>Mastering English Dialogue: Top 9 Conversation Methods</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/mastering-performance-your-ultimate-source-for-hardware-analysis-and-advice-toms-tech-wisdom/"><u>Mastering Performance: Your Ultimate Source for Hardware Analysis and Advice - Tom's Tech Wisdom</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/mechanized-sky-dwellers-classes/"><u>Mechanized Sky-Dwellers' Classes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mitternachtsverabschiedungssatze-im-deutschen/"><u>Mitternachtsverabschiedungssätze Im Deutschen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-the-worldwide-learning-family-now-grows-to-70-million/"><u>Mondly: The Worldwide Learning Family Now Grows to 70 Million</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/navigating-media-landsranking-with-magix-video-pro-x/"><u>Navigating Media Landsranking with Magix Video Pro X</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-is-this-a-pigeon-meme-generator-for-2024/"><u>New Is This a Pigeon Meme Generator for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-privacy-update-notice/"><u>New Privacy Update Notice</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pearsons-language-learning-online-hub/"><u>Pearson's Language Learning Online Hub</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/realizing-your-cinematic-dreams-the-art-of-perfect-sound-in-videos-for-2024/"><u>Realizing Your Cinematic Dreams  The Art of Perfect Sound in Videos for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/screen-driven-language-acquisition-advice-and-methods/"><u>Screen-Driven Language Acquisition: Advice and Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/simple-path-to-proficiency-in-latin-online/"><u>Simple Path to Proficiency in Latin Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-locals-learn-romanian-fast/"><u>Speak Like Locals, Learn Romanian Fast</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-best-way-to-learn-a-foreign-language-in-the-21st-century/"><u>The Best Way to Learn a Foreign Language in the 21St Century</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-unseen-strength-of-elder-polyglots/"><u>The Unseen Strength of Elder Polyglots</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-vocabulary-voyage-unraveling-the-nordic-narrative/"><u>The Vocabulary Voyage: Unraveling the Nordic Narrative</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-your-grammar-skills-with-9-top-strategies-by-esl-pioneers/"><u>Transform Your Grammar Skills with 9 Top Strategies by ESL Pioneers</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-portrait-perfection-the-best-video-editing-apps-for-ios-and-android/"><u>Updated Portrait Perfection The Best Video Editing Apps for iOS and Android</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/what-is-an-ai-editor-for-2024/"><u>What Is an AI Editor for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-learn-german-a-convincing-10-point-perspective/"><u>Why Learn German? - A Convincing 10-Point Perspective</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saayd-alyom-lk-arabic/"><u>سعيد اليوم لك (Arabic)</u></a></li>
+</ul></div>

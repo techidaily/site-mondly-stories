@@ -1,7 +1,7 @@
 ---
 title: "Accent Across the Seas: From British to American Cockney-Isms"
-date: 2024-07-12T08:50:45.794Z
-updated: 2024-07-13T08:50:45.794Z
+date: 2024-08-27T22:50:52.351Z
+updated: 2024-08-28T22:50:52.351Z
 tags:
   - speak
   - english
@@ -62,6 +62,9 @@ thumbnail: https://thmb.techidaily.com/d3d14caf519c1def322723a3dc59c24a3c8f8aede
 
  To hear the Cockney accent in action, watch the movie Snatch – specifically Jason Statham’s character.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<!-- affiliate ads end -->
 ### Brummie Accent
 
 Awww, doesn’t “Brummie” sound really cute?
@@ -70,14 +73,23 @@ Awww, doesn’t “Brummie” sound really cute?
 
 ![British accent](https://media.giphy.com/media/l3mZpcNC69UuXjoME/giphy-downsized-large.gif "English Accents: From Queen’s English To Aussie 11")
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
  But I guess it’s true what they say: he who laughs last, laughs best. Now the Brummie accent has millions of fans all over the world because everybody wants to speak – and dress – like Tommy Shelby.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
 ### Scottish Accent
 
  Born from the language contact between Scots and the Standard English of England in the late 1700s, the Scottish accent is a rhotic accent. This means that the “r” is pronounced and rolled. Additionally, this accent is also characterized by elongated vowel sounds and the glottal stop (the letter “t” is not pronounced between vowels).
 
  To hear the Scottish accent in action, you can take a trip to Edinburgh, Glasgow, or watch the animated movie Brave which features multiple types of Scottish accents.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Yorkshire Accent
 
  The Yorkshire dialect (also known as Yorkie or Yorkshire English) is an [English accent](https://www.ef.com/wwen/blog/language/british-dialects-you-need-to-know/) of Northern England spoken in Yorkshire, the largest county in the UK.
@@ -92,12 +104,18 @@ Awww, doesn’t “Brummie” sound really cute?
 
  Because this accent has roots in Old English and is influenced by Old Norse, the language of the [Vikings](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , you’ll hear it used in many fantasy TV shows such as Game of Thrones.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Northern Irish Accent
 
  If you watched at least one episode of Outlander, the Northern Irish accent will probably be your favorite on this list. Once you get to know Jamie Fraser and his lads, you can’t help but try to imitate their way of speaking.
 
  Distinctive thanks to its often funny slang (“wee” means “small”, “lassie” means “young girl”), Northern Irish was influenced by the lowland Scots language and is characterized by an exaggerated “r”, especially at the end of some sentences.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Welsh Accent
 
  Officially a country of its own, Wales also has a different language which heavily influences the Welsh English dialect. As you may expect, this is especially true in households where English is the second language and people speak it with a thick and breathy accent.
@@ -130,10 +148,16 @@ Awww, doesn’t “Brummie” sound really cute?
 
 ![american accent](https://edge.mondly.com/blog/wp-content/uploads/2020/11/american-accent-960x768.jpg "English Accents: From Queen’s English To Aussie 14")
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
  “Having a fun time in America” by frank mckenna©
 
  Most American speakers use the rhotic accent and the only traditionally non-rhotic regional American accents are spoken in eastern New England and New York City. But let’s dive in and give a little more detail. Here are the most notable**North American English accents** :
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<!-- affiliate ads end -->
 ### **General English American Accent**
 
  This is the “standard” American English spoken by TV actors, new presenters, and a percentage of middle-class Americans;
@@ -168,6 +192,9 @@ Coming Soon
 * **Central Canadian accent** – fairly similar to General American accent;
 * **Eastern Canadian accent** – as these territories were first settled by Scottish and Irish people, many of the present-day accents maintain some of the European features of their “cousins”. The most notable is the Newfoundland Dialect, which in some cases sounds much more like an Irish accent than a North American one.
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Australian English Accent
 
  When compared to British English accents, the**Australian accent** is even more homogeneous than the North American English accents. In fact, there are only three main varieties of Australian English: Broad Australian, General Australian, and Cultivated Australian. If you want to broaden your vocabulary with some fun Aussie slang, check out our article [right here](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
@@ -178,6 +205,9 @@ Coming Soon
 
 ![australian accent](https://edge.mondly.com/blog/wp-content/uploads/2020/11/australian-accent-960x637.jpg "English Accents: From Queen’s English To Aussie 15")
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<!-- affiliate ads end -->
  “Oh, hello there, Aussie” by David Clode©
 
  In conclusion, the world of English accents is a rich tapestry reflecting the diversity of cultures, histories, and identities across the globe. From the refined tones of Received Pronunciation to the colorful cadences of Cockney, and the melodic rhythms of Australian English, each accent tells a unique story of its speakers and their heritages.
@@ -190,10 +220,16 @@ Coming Soon
 
  The most common English accent varies depending on the context and region. In terms of global recognition, Received Pronunciation (RP) or Standard British English is often perceived as the "standard" accent due to its historical prestige. However, within specific countries like the United States or Australia, regional accents may be more prevalent.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Can accents change over time?
 
  Yes, accents can change over time due to various factors such as migration, urbanization, globalization, and media influence. Language is dynamic, and as societies evolve, so do their accents.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Are English accents influenced by other languages?
 
  Yes, English accents can be influenced by other languages, especially in regions with significant linguistic diversity or historical contact with other language communities.
@@ -229,3 +265,49 @@ English mastery is at your fingertips – and in your native tongue.
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/updated-gamer-guides-and-tips-best-streamers-for-2024/"><u>[Updated] Gamer Guides and Tips  Best Streamers for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-mastering-the-art-of-recording-private-whatsapp-calls/"><u>[Updated] Mastering the Art of Recording Private WhatsApp Calls</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-seamless-slack-filmora-synergy-your-guide-to-meeting-organization/"><u>[Updated] Seamless Slack-Filmora Synergy  Your Guide to Meeting Organization</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/1-complimentary-full-access-unlock-macxdvd-professional-suite-with-an-official-license/"><u>1. Complimentary Full Access: Unlock MacXDVD Professional Suite with an Official License</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580814216-100plus-basic-russian-phrases-every-traveler-needs-to-know/"><u>100+ Basic Russian Phrases Every Traveler Needs to Know</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-flashing-lights-of-olympic-speed/"><u>2024 Approved  Flashing Lights of Olympic Speed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/4-egayements-francais-lart-de-dire-merci/"><u>4 Égayements Français: L'Art De Dire 'Merci'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/8-essential-esl-grammar-hints-for-fluent-comprehension/"><u>8 Essential ESL Grammar Hints for Fluent Comprehension</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/be-a-winner-save-up-to-96-on-mondly-pro-lifetime/"><u>Be a Winner : Save Up To 96%% on Mondly Pro Lifetime</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/colombias-caregiving-organization-fundacion-danny/"><u>Colombia’s Caregiving Organization - Fundacion Danny</u></a></li>
+<li><a href="https://games-able.techidaily.com/cross-platform-use-for-ps5-with-ps4/"><u>Cross-Platform Use for PS5 with PS4?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daily-dose-of-urdu-10-minute-challenge/"><u>Daily Dose of Urdu – 10-Minute Challenge</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-tecno-camon-20-device-sim-by-drfone-android/"><u>Easily Unlock Your Tecno Camon 20 Device SIM</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/effective-ways-to-fix-checkra1n-error-31-from-apple-iphone-13-by-drfone-ios/"><u>Effective Ways To Fix Checkra1n Error 31 From Apple iPhone 13</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/el-ingenioso-mundo-muscular-en-espanol-descubrimiento-desde-el-hombro-a-las-unas/"><u>El Ingenioso Mundo Muscular en Español: Descubrimiento Desde El Hombro A Las Uñas</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhance-your-speech-with-these-17-dynamic-spanish-idioms/"><u>Enhance Your Speech with These 17 Dynamic Spanish Idioms</u></a></li>
+<li><a href="https://discover-alternatives.techidaily.com/enhanced-with-the-ai-of-cookiebot-elevate-your-websites-user-experience/"><u>Enhanced with the AI of Cookiebot - Elevate Your Website's User Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fast-track-fluency-in-foreign-dialects/"><u>Fast-Track Fluency in Foreign Dialects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-tell-time-in-spanish-a-complete-guide-for-beginners/"><u>How to Tell Time in Spanish – A Complete Guide for Beginners</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-10-open-source-video-players-for-linux-windows-and-mac/"><u>In 2024, 10 Open Source Video Players for Linux, Windows and Mac</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-vivo-x90s-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Vivo X90S to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-switch-cards-between-apple-iphone-x-and-other-iphones-will-move-all-phone-services-drfone-by-drfone-transfer-from-ios/"><u>In 2024, Switch Cards Between Apple iPhone X and other iPhones Will Move All Phone Services? | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/income-on-instagram-comprehensive-step-by-step-guide/"><u>Income on Instagram  Comprehensive Step-by-Step Guide</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/innovative-backdrop-changer-toolkit-unveiled-for-2024/"><u>Innovative Backdrop Changer Toolkit Unveiled for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/intellectual-stimulation-through-foreign-words/"><u>Intellectual Stimulation Through Foreign Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learners-unite-with-googled-editors-recommended-mondly/"><u>Language Learners Unite with Googled Editors' Recommended Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-celebrates-its-7th-anniversary-with-75-million-learners-worldwide/"><u>Mondly Celebrates Its 7Th Anniversary With 75 Million Learners Worldwide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-delivers-the-ultimate-modernized-language-resource/"><u>Mondly Delivers: The Ultimate Modernized Language Resource</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-kids-the-smart-choice-for-childrens-snacks-a-top-2017-google-app/"><u>Mondly Kids: The Smart Choice for Children's Snacks, A Top 2017 Google App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-mastery-your-complete-user-manual/"><u>Mondly Mastery: Your Complete User Manual</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-a-curated-pick-for-fluent-multilingualism/"><u>Mondly: A Curated Pick for Fluent Multilingualism</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-the-best-online-approaches-to-language-study/"><u>Navigating The Best Online Approaches to Language Study</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/neuroplasticity-through-polyglotism/"><u>Neuroplasticity Through Polyglotism</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pearsons-enhanced-gsl-precision-with-mondly-collaboration/"><u>Pearson's Enhanced GSL Precision with Mondly Collaboration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polite-pleas-in-china-understanding-xiexie-and-more/"><u>Polite Pleas in China: Understanding Xièxiè and More</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speedy-fluency-in-secondary-communication/"><u>Speedy Fluency in Secondary Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-future-is-arabic-exciting-reasons-to-master-through-mondly-online/"><u>The Future Is Arabic: Exciting Reasons to Master Through Mondly Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-indonesian-conversations-a-quick-guide/"><u>Unlocking Indonesian Conversations: A Quick Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-macaus-language-mosaic/"><u>Unveiling Macau’s Language Mosaic</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-premier-8-voice-recognition-tools-windows-macos-and-cloud-solutions-roundup-for-2024/"><u>Updated Premier 8 Voice Recognition Tools Windows, macOS & Cloud Solutions Roundup for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/which-languages-sing-in-belgiums-streets/"><u>Which Languages Sing in Belgium’s Streets?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/world-of-education-at-mansion-house-bett/"><u>World of Education at Mansion House BETT</u></a></li>
+</ul></div>

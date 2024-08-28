@@ -1,7 +1,7 @@
 ---
 title: "Adept at British Vernacular: Your New Language Companion"
-date: 2024-07-12T08:50:28.334Z
-updated: 2024-07-13T08:50:28.334Z
+date: 2024-08-27T22:51:11.480Z
+updated: 2024-08-28T22:51:11.480Z
 tags:
   - speak
   - english
@@ -44,6 +44,9 @@ thumbnail: https://thmb.techidaily.com/75e496d7d03af882c809a7273c9e1eb1d9baeae9a
 
  Although it may mean “ok” in North America, it’s the equivalent of “how are you?” in British English.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### _I’m knackered_
 
 I’m tired.
@@ -56,6 +59,9 @@ Mischievous or playful.
 
 This is a very British thing to say meaning very.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### _I’m pissed_
 
  Not meaning the regular “angry”, in British talk it actually means you’re very drunk and is used quite a lot when you are out drinking with friends.
@@ -64,26 +70,44 @@ This is a very British thing to say meaning very.
 
 A common one and quite cliché – mate means friend.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### _Rubbish_
 
  It could mean_garbage_ or_nonsense,_ depending on the context.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ### _Cockney_
 
 A person native to East London.
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
+<!-- affiliate ads end -->
 ### _Blimey_
 
  Similar to the American_wow_ ,_blimey_ is used to describe something that takes you by surprise.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### _Bloke_
 
  Similar to_guy_ in America, it is a blanket term to describe a man in general.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ### _Bollocks_
 
  One of the more well-known British terms, it actually has a multitude of meanings. It could be used to symbolize disbelief, or to talk about a man’s private parts.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Funny British Sayings
 
 * _I was gobsmacked_ – The key here being “gobsmacked”. The entire phrase means I was shocked.
@@ -158,6 +182,9 @@ A person native to East London.
 * _Innit?_ – An even more contracted form of isn’t it?
 * _Miffed_ – Annoyed
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Stereotypical British Phrases
 
 * _Keep calm and carry on_ – A famous British slogan encouraging people to remain level-headed in times of turmoil.
@@ -186,10 +213,16 @@ A person native to East London.
 
 ![british english](https://edge.mondly.net/blog/wp-content/uploads/2020/02/british-english-960x960.png "50+ British Phrases And Slangs To Impress Your British Mates 5")
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<!-- affiliate ads end -->
  American English vs. British English
 
  British phrases and expressions are extraordinarily interesting to those who aren’t familiar with their terms. The common British words we see already seem so fancy and sometimes even whimsical and learning them will surely give you a leg up next time you start writing your [5 paragraph essay](https://edubirdie.com/blog/five-paragraph-essay) , or have a chinwag with your British mates!
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Differences Between American and British English
 
  As mentioned before, British terms, British phrases, British expressions as well as spelling differ by American phrases and expressions, but what else is there? When we think about [British versus American English](https://preply.com/en/blog/british-english-vs-american-english-slang-compared/) , we think about slang terms and pronunciation.
@@ -206,6 +239,9 @@ A person native to East London.
 
  ‘Cheers’ is an informal manner of expressing gratitude, akin to saying ‘thank you’. When combined with the word ‘mate’, it forms the phrase “Cheers, mate”, which carries the same meaning as “Thank you, my friend.”
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Can you be British but not English?
 
  People who are English are from the country of England. On the other hand, British people are people who live in Great Britain (Britain) and the UK. Consequently, being English implies a distinction from being Scottish, Welsh, or Northern Irish. In contrast, the term British encompasses anyone originating from Great Britain. This means that everyone residing in Scotland, Wales, or England is collectively identified as British.
@@ -249,3 +285,52 @@ Get Mondly now and speak any language like you never dreamed you would ![Learn w
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-elevate-engagement-natural-ways-to-popularize-your-videos/"><u>[New] 2024 Approved  Elevate Engagement  Natural Ways to Popularize Your Videos</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-brand-reflection-personalize-free-logo-templates-to-perfection/"><u>[New] Brand Reflection  Personalize Free Logo Templates to Perfection</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-endorsements-on-screen-shaping-perceptions-for-2024/"><u>[New] Endorsements on Screen Shaping Perceptions for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-premium-4k-screen-capturing-solutions-for-2024/"><u>[New] Premium 4K Screen Capturing Solutions for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-the-essential-tools-every-new-creator-needs/"><u>[Updated] 2024 Approved  The Essential Tools Every New Creator Needs</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-flip-the-script-ios-method-to-reverse-vids/"><u>[Updated] In 2024, Flip the Script  IOS Method to Reverse Vids</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-framing-for-instagram-techniques-for-vertical-footage-in-fcpx/"><u>[Updated] In 2024, Framing for Instagram  Techniques for Vertical Footage in FCPX</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-guiding-through-audio-transition-in-ableton-live/"><u>2024 Approved  Guiding Through Audio Transition in Ableton Live</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/27-french-sayings-and-idioms-to-make-your-french-sound-authentic/"><u>27 French Sayings And Idioms To Make Your French Sound Authentic</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/8-ways-language-learning-reimagines-your-worldview/"><u>8 Ways Language Learning Reimagines Your Worldview</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-comprehensible-approach-for-learning-english-contractions/"><u>A Comprehensible Approach for Learning English Contractions</u></a></li>
+<li><a href="https://article-posts.techidaily.com/a-guide-to-seamless-video-integration-pip-techniques-for-mac-users-for-2024/"><u>A Guide to Seamless Video Integration  PIP Techniques for Mac Users for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/advancements-in-quantum-hdr-technology-explained/"><u>Advancements in Quantum HDR Technology Explained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/building-bridges-in-bilingual-relationships/"><u>Building Bridges in Bilingual Relationships</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/como-identificar-animales-con-nombres-hispanos/"><u>Cómo Identificar Animales Con Nombres Hispanos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprendre-la-semaine-qui-sont-les-jours/"><u>Comprendre La Semaine : Qui Sont Les Jours?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/croatian-linguistic-landscape/"><u>Croatian Linguistic Landscape</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daily-dose-of-bengali-language/"><u>Daily Dose of Bengali Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-limitless-possibilities-get-free-mondly-pro-for-life-today/"><u>Discover Limitless Possibilities - Get Free Mondly Pro for Life Today!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/diving-into-traditional-han-characters/"><u>Diving Into Traditional Han Characters</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-nvidia-graphics-drivers-compatible-versions-for-windows-10-11-7-and-8/"><u>Download NVIDIA Graphics Drivers: Compatible Versions for Windows 10, 11, 7 & 8</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/downloading-samfw-frp-tool-30-for-vivo-x90s-by-drfone-android/"><u>Downloading SamFw FRP Tool 3.0 for Vivo X90S</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elite-software-solutions-for-fluent-communication/"><u>Elite Software Solutions for Fluent Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-the-distinctive-features-of-us-and-uk-english/"><u>Exploring the Distinctive Features of US and UK English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-greetings-101-saying-hello-in-the-language-of-love/"><u>French Greetings 101: Saying Hello in the Language of Love</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-alphabets-to-characters-chinese-writing-101/"><u>From Alphabets to Characters: Chinese Writing 101</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hangul-made-simple-the-quickest-way-to-asian-alphabets/"><u>Hangul Made Simple: The Quickest Way to Asian Alphabets</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/harnessing-the-power-of-software-for-seamless-vimeo-video-downloads/"><u>Harnessing the Power of Software for Seamless Vimeo Video Downloads</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hora-y-segundo-un-curso-inicial-en-espanol/"><u>Hora Y Segundo: Un Curso Inicial en Español</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-nokia-c12-phone-without-password-by-drfone-android/"><u>How To Unlock Nokia C12 Phone Without Password?</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-unlock-from-apple-iphone-6s-plus-how-to-fix-it-by-drfone-ios/"><u>In 2024, Apple ID Unlock From Apple iPhone 6s Plus? How to Fix it?</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-comparing-leading-cam-tech-with-mymanycam/"><u>In 2024, Comparing Leading Cam Tech with MyManyCam</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-vivo-s17-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Vivo S17? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/le-corps-humain-explique-en-francais-anatomie-basique/"><u>Le Corps Humain Expliqué en Français (Anatomie Basique)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-bengali-daily-quick-lessons-in-10-minutes/"><u>Master Bengali Daily: Quick Lessons in 10 Minutes</u></a></li>
+<li><a href="https://win-forum.techidaily.com/maximizing-your-online-presence-on-major-networks-a-closer-look-at-facebook-twitter-instagram-and-youtube/"><u>Maximizing Your Online Presence on Major Networks: A Closer Look at Facebook, Twitter, Instagram, and YouTube</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-10-innovative-methods-revolutionizing-learning-languages/"><u>Mondly’s 10 Innovative Methods Revolutionizing Learning Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/nations-with-thanksgiving-customs-and-rituals/"><u>Nations with Thanksgiving Customs and Rituals</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/peak-viewership-decoding-the-ideal-video-release-time-for-2024/"><u>Peak Viewership  Decoding the Ideal Video Release Time for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/perfectly-poached-or-poured-tips-for-excellent-fried-eggs-106-characters-slightly-over-but-within-acceptable-limits-if-slight-adjustments-are-made-to-avoid-1/"><u>Perfectly Poached or Poured? Tips for Excellent Fried Eggs (106 Characters, Slightly over but Within Acceptable Limits if Slight Adjustments Are Made to Avoid Including Non-Relevant Content.)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/recursos-visuales-para-colores-espanol/"><u>Recursos Visuales Para Colores Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580207699-speak-croatian-with-confidence-unveil-these-top-7-advantages-now/"><u>Speak Croatian with Confidence: Unveil These Top 7 Advantages Now</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swedish-sound-system-decoded-quickly/"><u>Swedish Sound System Decoded Quickly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/world-teachers-day-a-collection-of-words-for-teacher-in-different-languages/"><u>World Teachers' Day: A Collection Of Words For Teacher In Different Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-whipped-cream-30-chocolate-translations/"><u>Worldwide Whipped Cream: 30 Chocolate Translations</u></a></li>
+</ul></div>

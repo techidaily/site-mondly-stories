@@ -1,7 +1,7 @@
 ---
 title: A Primer to Popular German Witticisms - Top 25 Selection
-date: 2024-07-12T08:54:45.609Z
-updated: 2024-07-13T08:54:45.609Z
+date: 2024-08-27T22:46:34.846Z
+updated: 2024-08-28T22:46:34.846Z
 tags:
   - speak
   - english
@@ -34,6 +34,9 @@ thumbnail: https://thmb.techidaily.com/0fc33f78a6ac7efb4d7528f193803031f45ec9e70
 
  Germans are usually pretty straightforward, but there are times when even they happen to beat around the bush. When such a situation occurs, you can use this idiom to invite them to get straight to the point.
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **2.** _Eine Extrawurst haben_
 
 **Literal translation:** To ask for an extra sausage.
@@ -50,6 +53,9 @@ thumbnail: https://thmb.techidaily.com/0fc33f78a6ac7efb4d7528f193803031f45ec9e70
 
  Is someone lying to your face? Better remind them that_Lügen haben kurze Beine_ or lies won’t get them too far with those tiny legs. This idiom is similar to the English expression “Liar, liar, pants on fire.”
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### **4.** _Ich glaube ich spinne_
 
 **Literal translation:** I believe I spider.
@@ -68,6 +74,12 @@ thumbnail: https://thmb.techidaily.com/0fc33f78a6ac7efb4d7528f193803031f45ec9e70
 
 !['German idioms in English' by Ron Lach©](https://edge.mondly.com/blog/wp-content/uploads/2022/09/german-idioms-in-english-960x640.jpg "Top 25 German Idioms To Speak Like A German 2")
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ### **6.** _Die Kirche im Dorf lassen_
 
 **Literal translation:** Leave the church in the village.
@@ -108,6 +120,11 @@ thumbnail: https://thmb.techidaily.com/0fc33f78a6ac7efb4d7528f193803031f45ec9e70
 
  After all the funny idioms about food and animals, it’s time for a more grim one. If you’re absolutely certain of the information you are giving, you can assure the person you are talking to by saying_Da kannst du Gift drauf nehmen_ , which essentially means “you can bet on it.”
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->
 ### **11.** _Du gehst mir auf den Keks_
 
 **Literal translation:** You’re walking on my cookie.
@@ -116,6 +133,9 @@ thumbnail: https://thmb.techidaily.com/0fc33f78a6ac7efb4d7528f193803031f45ec9e70
 
  Now that’s a fun way of saying someone is getting on your nerves! It’s so cute that we’re actually thinking of making a petition to adopt it in English as well. Are you in?
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<!-- affiliate ads end -->
 ### **12.** _Da steppt der Bär_
 
 **Literal translation:** The bear dances there.
@@ -124,6 +144,9 @@ thumbnail: https://thmb.techidaily.com/0fc33f78a6ac7efb4d7528f193803031f45ec9e70
 
  There are several ways to look at this one, but the main idea is that the party is so good that the bear will also join it. Or — there’s a dancing bear at the party and you should absolutely not miss it. Either way, this party is probably the best party ever.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **13.** _Das ist ein Katzensprung_
 
 **Literal translation:** That’s a cat’s jump.
@@ -142,6 +165,9 @@ thumbnail: https://thmb.techidaily.com/0fc33f78a6ac7efb4d7528f193803031f45ec9e70
 
  Is someone you know constantly talking about an issue that is over and decided? _Das ist Schnee von gestern_ is perfect in this context.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<!-- affiliate ads end -->
 ### **15.** _Ein Fisch auf dem Trockenen_
 
 **Literal translation:** A fish on the dry.
@@ -150,6 +176,9 @@ thumbnail: https://thmb.techidaily.com/0fc33f78a6ac7efb4d7528f193803031f45ec9e70
 
  It’s interesting how similar this idiom is to our English equivalent. It looks like feeling out of place is finally something more languages can agree on.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### **16.** _Die Daumen drücken_
 
 **Literal translation:** Press the thumbs.
@@ -166,6 +195,9 @@ thumbnail: https://thmb.techidaily.com/0fc33f78a6ac7efb4d7528f193803031f45ec9e70
 
  Germans have a unique take on this idiom. Instead of pulling one’s leg, they are taken on someone’s arm. Picture the scene and you can help but giggle! Obviously, both versions are used to express disbelief about someone’s actions or claims.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<!-- affiliate ads end -->
 ### **18.** _Dumm wie Bohnenstroh_
 
 **Literal translation:** Dumb as a bean straw.
@@ -200,6 +232,9 @@ thumbnail: https://thmb.techidaily.com/0fc33f78a6ac7efb4d7528f193803031f45ec9e70
 
  That’s just weird, but okay, German. If someone’s having one of those days, it may prove helpful the lighten the mood with this funny idiom.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### **22.** _Einen Kater haben_
 
 **Literal translation:** To have a cat.
@@ -218,6 +253,9 @@ thumbnail: https://thmb.techidaily.com/0fc33f78a6ac7efb4d7528f193803031f45ec9e70
 
  Sometimes we see a bad situation coming and we warn the parties involved, but they choose not to listen. Well, this idiom is perfect for the aftermath when all you want to say is: I told you so!
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
 ### **24.** _Einen Vogel haben_
 
 **Literal translation:** To have a bird.
@@ -230,6 +268,10 @@ thumbnail: https://thmb.techidaily.com/0fc33f78a6ac7efb4d7528f193803031f45ec9e70
 
 It’s usually used as an insult, so be careful to who you are saying this.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+</a>
+<!-- affiliate ads end -->
 ### **25.** _Jemandem ein Ohr abkauen_
 
 **Literal translation:** Chew off someone’s ear.
@@ -256,6 +298,9 @@ _ [Tschüss](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=10
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Speak German like a fluent speaker fast
 
  Do you want to round up your studies and [speak German](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-7030&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-7030?mother%5Flang=en%5Fus?target%5Flang=de&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-7030?mother%5Flang=en%5Fus?target%5Flang=de) fluently fast? Try Mondly, the award-winning language app that is serious about making learning German fun.
@@ -290,3 +335,52 @@ _ [Tschüss](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=10
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-11-best-free-youtube-name-generators-you-should-know/"><u>[New] 2024 Approved  11 Best Free YouTube Name Generators You Should Know</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-tips-for-successful-video-game-broadcasting/"><u>[New] In 2024, Tips for Successful Video Game Broadcasting</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-discover-the-best-offline-ios-games-your-ultimate-guide-for-2024/"><u>[Updated] Discover the Best Offline iOS Games – Your Ultimate Guide for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-twitters-hilarious-highlights/"><u>[Updated] In 2024, Twitter's Hilarious Highlights</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-inauguration-setting-up-a-twitter-profile/"><u>[Updated] Inauguration  Setting Up a Twitter Profile</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-top-8-enhanced-peripherals-for-a-richer-metaverse-experience/"><u>[Updated] Top 8 Enhanced Peripherals for a Richer Metaverse Experience</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-customizing-iphone-tones-a-step-by-step-guide/"><u>2024 Approved  Customizing iPhone Tones  A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-diverse-vlogging-content-suggestions/"><u>2024 Approved  Diverse Vlogging Content Suggestions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gute-auftaktsatze-im-deutschen-ausgewahlt/"><u>Gute-Auftaktsätze Im Deutschen Ausgewählt</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/hassle-free-guide-to-freshly-update-your-asus-z370-e-motherboard-drivers/"><u>Hassle-Free Guide to Freshly Update Your Asus Z370-E Motherboard Drivers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hello-in-portuguese-all-the-portuguese-greetings-you-need-to-knowback-buttonfilter-button/"><u>Hello In Portuguese - All The Portuguese Greetings You Need To KnowBack ButtonFilter Button</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/helping-those-who-need-it-most-fundacion-danny-from-colombia/"><u>Helping Those Who Need It Most: Fundación Danny From Colombia</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-vivo-t2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Vivo T2 5G? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/intercultural-agility-mastering-adaptable-communication-skills/"><u>Intercultural Agility: Mastering Adaptable Communication Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-to-polyglot-status-a-study-in-time/"><u>Journey to Polyglot Status: A Study in Time</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-link-turkish-korean-connections/"><u>Language Link: Turkish-Korean Connections</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-linkages-the-portuguese-connection-across-continents/"><u>Language Linkages: The Portuguese Connection Across Continents</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-korean-fast-master-hangul-in-no-time/"><u>Learn Korean Fast: Master Hangul in No Time</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lively-spanish-lessons-for-young-minds/"><u>Lively Spanish Lessons for Young Minds</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mapping-out-the-ideal-next-linguistic-adventure/"><u>Mapping Out The Ideal Next Linguistic Adventure</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/myths-in-mouths-exploring-viking-dialects/"><u>Myths in Mouths: Exploring Viking Dialects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/national-days-of-thankfulness-beyond-usa/"><u>National Days of Thankfulness Beyond USA</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/persuasive-prose-for-pleasure-flirting-tactics-in-english/"><u>Persuasive Prose for Pleasure: Flirting Tactics in English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/privacy-update-clearer-terms-better-usage/"><u>Privacy Update - Clearer Terms, Better Usage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-urdu-skills-enhancement-10-minsday-plan/"><u>Quick Urdu Skills Enhancement - 10 Mins/Day Plan</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/reflecting-on-a-fruitful-decade-with-mondlyback/"><u>Reflecting on a Fruitful Decade with MondlyBack</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/second-language-skills-unleash-your-potential/"><u>Second-Language Skills: Unleash Your Potential</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/slang-demystified-comprehensive-guide-to-informal-language/"><u>Slang Demystified: Comprehensive Guide to Informal Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speech-precision-unlock-with-a-set-of-twisters/"><u>Speech Precision: Unlock with a Set of Twisters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speedy-syntax-mastery-with-these-mindful-mental-routines/"><u>Speedy Syntax Mastery with These Mindful Mental Routines</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spoken-bliss-us-liberty-celebrations/"><u>Spoken Bliss: U.S. Liberty Celebrations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/stun-sicilians-with-20plus-authentic-expressions/"><u>Stun Sicilians with 20+ Authentic Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-sound-strategy-for-successful-language-acquisition/"><u>The Sound Strategy for Successful Language Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/thriving-at-sixty-five-language-learning-perks/"><u>Thriving at Sixty: Five Language Learning Perks</u></a></li>
+<li><a href="https://program-issues.techidaily.com/top-6-solutions-to-reduce-high-cpu-consumption-on-zoom/"><u>Top 6 Solutions to Reduce High CPU Consumption on Zoom</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-picks-6-exceptional-online-platforms-for-korean-learning/"><u>Top Picks: 6 Exceptional Online Platforms for Korean Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-three-advantages-for-fluency-in-late-adulthoods-linguistic-journey/"><u>Top Three Advantages for Fluency in Late Adulthood's Linguistic Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-into-a-tagalog-conversationalist-quickly/"><u>Transform Into a Tagalog Conversationalist Quickly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/turkish-alphabet-and-pronunciation-a-quick-guide/"><u>Turkish Alphabet and Pronunciation: A Quick Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukraines-educational-revolution-mondly-provides-language-lessons-freely/"><u>Ukraine's Educational Revolution: Mondly Provides Language Lessons, Freely</u></a></li>
+<li><a href="https://win11.techidaily.com/unblocking-msstore-from-error-0x0-issue-in-windows-os/"><u>Unblocking MsStore From Error 0X0 Issue in Windows OS</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-secrets-of-turko-korean-relationship/"><u>Unveiling the Secrets of Turko-Korean Relationship</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/valentine-vocabulary-gift-romance-across-cultures/"><u>Valentine Vocabulary Gift: Romance Across Cultures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/what-language-is-spoken-in-israel/"><u>What Language Is Spoken in Israel?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-spring-celebration-dialogues/"><u>Worldwide Spring Celebration Dialogues</u></a></li>
+</ul></div>

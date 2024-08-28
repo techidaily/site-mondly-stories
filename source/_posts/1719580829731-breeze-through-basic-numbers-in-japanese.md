@@ -1,7 +1,7 @@
 ---
 title: Breeze Through Basic Numbers in Japanese
-date: 2024-07-12T08:52:41.930Z
-updated: 2024-07-13T08:52:41.930Z
+date: 2024-08-27T22:48:47.919Z
+updated: 2024-08-28T22:48:47.919Z
 tags:
   - speak
   - english
@@ -118,6 +118,9 @@ thumbnail: https://thmb.techidaily.com/8859a6a8995fd23a6d3c164e4eb7814defea1c5b8
 
  As you can see, the rule you learned for the first 100 Japanese numbers is still valid. To count further than 100 in Japanese, you just continue to stack numbers. Then, when you get to 1,000,_hyaku_ becomes_sen_ and so on.
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
+<!-- affiliate ads end -->
 ## How to count in Japanese Hiragana?
 
  To count in Japanese Hiragana, you use specific symbols for each number, as follows:
@@ -144,6 +147,9 @@ thumbnail: https://thmb.techidaily.com/8859a6a8995fd23a6d3c164e4eb7814defea1c5b8
 
 ![numbers in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/11/numbers-in-japanese-960x647.jpeg "Counting In Japanese From 1 To 10000 9")
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Japanese Lucky Numbers
 
  The two main**Japanese lucky numbers are seven (なな, Nana) and eight (はち, Hachi).** Given this, do you think the names of two of the most popular Japanese animal characters in the world were merely coincidental? We’re talking, of course, about the cat Nana from_The Travelling Cat Chronicles_ by Hiro Arikawa and Hachi from_Hachiko: The True Story of a Loyal Dog_ by Pamela S. Turner.
@@ -152,6 +158,9 @@ thumbnail: https://thmb.techidaily.com/8859a6a8995fd23a6d3c164e4eb7814defea1c5b8
 
 ![hatchi](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExdDQ0cHlhYjkxb2QwaTd1MWh1aDYyc3U3am05dnAzcnAxaGxkZWJsaiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/bzoD9WOiU1wAg/giphy.gif "Counting In Japanese From 1 To 10000 10")
 
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  On the other hand, you probably noticed that 4, 7, and 9 have two different readings each. As we, in the Western world, consider the number 13 to bring bad luck, the Japanese people consider the numbers 4 and 9 to be unlucky because し (_shi_ – 4_)_ ) and く (_ku_ – 9) sound the same as the words for “death” (死, shi) and “suffering, agony or torture” (苦, ku). Thus, Japanese people avoid using these unlucky numbers as much as possible. If you ever travel to Japan, pay close attention to the prices. Chances are you won’t see prices like 9.99 or 4.99 anywhere.
 
 ## Japanese Counters List
@@ -162,6 +171,10 @@ thumbnail: https://thmb.techidaily.com/8859a6a8995fd23a6d3c164e4eb7814defea1c5b8
 
  There are over 500 counters in the Japanese language; however, not all are commonly used. Read on to discover the most frequently used counters.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
+The ultimate burning program for all your needs!</a>
+<!-- affiliate ads end -->
 ### Japanese counters for time
 
  o clearly indicate that you are referring to seconds, minutes, hours, months, or years, you must use specific counters in Japanese. Seconds are expressed with \~秒_(_ _byou)_ , minutes with \~分_(fun or pun)_ , hours with \~時_(ji)_ , months with \~月_(getsu)_ , and years with \~年_(nen)_ .
@@ -170,6 +183,9 @@ thumbnail: https://thmb.techidaily.com/8859a6a8995fd23a6d3c164e4eb7814defea1c5b8
 
  To count people in Japanese, use the counter ひとり_(hitori)_ for one person, ふたり_(futari)_ for two people, and \~人_(nin)_ for three or more people.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
 ### Japanese objects counters
 
  Long and thin objects, such as pencils, bottles, chopsticks, umbrellas, rivers, train tracks, or roads, have their own Japanese counter: \~本_(hon)_ . When counting these objects, all numbers end in_\-hon_ , except for 3, which ends in –_bon_ , and the numbers 1, 6, 8, and 10, which end in_\-pon_ . Although this might seem overwhelming initially, practice will help you master these exceptions more quickly.
@@ -186,12 +202,19 @@ thumbnail: https://thmb.techidaily.com/8859a6a8995fd23a6d3c164e4eb7814defea1c5b8
 
 ![Japanese numbers kanji](https://edge.mondly.com/blog/wp-content/uploads/2019/11/japanese-numbers-kanji-960x640.jpeg "Counting In Japanese From 1 To 10000 11")
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ### Japanese counters for cars or bicycles
 
  If you’re not overwhelmed yet, for cars, machines, and all types of household appliances, the counter \~台_(dai)_ is necessary.
 
  Not ready to dive into**Japanese counters** yet? Then consider using the general-purpose counter based on the Native-Japanese reading (一つ_hitotsu ,_ 二つ_futatsu_ and so on). This system allows you to count almost any kind of object up to ten without worrying about using the incorrect counter.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### Special Number Zero in Japanese
 
  For zero in Japanese, the kanji is 零 (_rei_). However, it is more common to use and pronounce “zero” the same way as in English: ゼロ (_zero_). Alternatively, マル (_maru_), meaning “circle”, is used used similarly to how “oh” is used instead of “zero” in English when reading individual digits of a number.
@@ -202,6 +225,9 @@ In conclusion,  while the prevalence of Arabic numerals in Japan offers a famili
 
 Before you go, make sure you check out these FAQs.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### How to say numbers in Japanese?
 
  To say numbers in Japanese, start by learning the numbers up to 10: ichi (1), ni (2), san (3), yon (4), go (5), roku (6), nana (7), hatchi (8), kyu (9) and juu (10). If you're not familiar with the Japanese writing system, you may have to rely heavily on the Romanized version (Romaji) to learn the correct pronunciation of each number. Once you've mastered the numbers 1-10 in Japanese, counting up to 100 becomes straightforward.
@@ -249,3 +275,54 @@ Before you go, make sure you check out these FAQs.
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-transitioning-from-smartphone-to-watching-fb-videos-on-appletv/"><u>[New] 2024 Approved  Transitioning From Smartphone to Watching FB Videos on AppleTV</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-how-to-speed-up-windows-file-inspection/"><u>[New] In 2024, How To Speed Up Windows File Inspection</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-the-ultimate-playlist-plan-for-insta/"><u>2024 Approved  The Ultimate Playlist Plan for Insta</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-top-virtual-recording-tools-online/"><u>2024 Approved  Top Virtual Recording Tools Online</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/design-your-dream-collage-top-online-photo-and-video-tools/"><u>Design Your Dream Collage Top Online Photo and Video Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-perfection-with-every-dark-series-binge-watch/"><u>German Perfection with Every Dark Series Binge-Watch</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-samsung-galaxy-z-flip-5-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Samsung Galaxy Z Flip 5? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/huaweis-appgallery-welcomes-mondly/"><u>Huawei's AppGallery Welcomes Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hurried-articulation-guide-for-french-vibrancy/"><u>Hurried Articulation Guide for French Vibrancy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/join-the-new-years-club-dive-into-mondly-pro-at-a-low-cost/"><u>Join the New Year's Club - Dive Into Mondly Pro at a Low Cost!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-without-limits-mondly-integrated-into-oculus-quests-vr-odyssey/"><u>Language without Limits: Mondly Integrated Into Oculus Quest's VR Odyssey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-catalan-online-in-just-10-minutes-a-day/"><u>Learn Catalan Online In Just 10 Minutes A Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-for-living-top-10-reasons-to-be-bilingual-or-multilingual/"><u>Learning for Living: Top 10 Reasons to Be Bilingual or Multilingual</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/los-diez-dias-del-mundo-el-espanol-para-cada-jornada/"><u>Los Diez Días Del Mundo: El Español Para Cada Jornada</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/make-a-statement-in-croatia-speak-its-language-with-these-top-7-motivations/"><u>Make a Statement in Croatia: Speak Its Language with These Top 7 Motivations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/make-language-learning-your-easiest-new-years-resolution-with-a-discount-of-95/"><u>Make Language Learning Your Easiest New Year's Resolution With A Discount Of 95%%</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-basic-russian-salutations-and-vocabulary/"><u>Mastering Basic Russian Salutations and Vocabulary</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-english-keyly-commonly-misspelled-terms-countdown/"><u>Mastering English: Keyly Commonly Misspelled Terms Countdown</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-multiple-languages-through-film/"><u>Mastering Multiple Languages Through Film</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-joins-forces-with-pearson-academics-group/"><u>Mondly Joins Forces with Pearson Academics Group</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-ar-app-the-future-of-interactive-language-study/"><u>Mondly's AR App: The Future of Interactive Language Study</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mornings-unleashed-the-many-faces-of-good-morning-worldwide/"><u>Mornings Unleashed: The Many Faces of Good Morning Worldwide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-spanish-language-with-correct-accents-and-typography/"><u>Navigating Spanish Language with Correct Accents and Typography</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/neural-networking-a-babel-effect-on-brains/"><u>Neural Networking: A Babel Effect on Brains</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/online-czech-learning-made-simple-and-effective/"><u>Online Czech Learning Made Simple & Effective</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-daily-bengali-lessons-online/"><u>Quick Daily Bengali Lessons (Online)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-quality-urdu-education-just-10-minsday/"><u>Quick, Quality Urdu Education - Just 10 Mins/Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saudade-de-portugal-conhecimento-das-melhores-expressoes/"><u>Saudade De Portugal! - Conhecimento Das Melhores Expressões</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sensorylingua-the-sensorial-approach-to-language-learning/"><u>SensoryLingua: The Sensorial Approach to Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/solo-language-learning-achieving-french-mastery/"><u>Solo Language Learning: Achieving French Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-essentials-the-top-93-phrases-for-international-excursions/"><u>Spanish Essentials: The Top 93 Phrases for International Excursions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tender-whispers-essential-pick-up-italian-lines/"><u>Tender Whispers: Essential Pick-Up Italian Lines</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-language-of-friendship-in-indonesia/"><u>The Language of Friendship in Indonesia</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-quick-guide-to-korean-mastery-6-recommended-digital-platforms/"><u>The Quick Guide to Korean Mastery - 6 Recommended Digital Platforms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-spectrum-of-worldwide-halloween/"><u>The Spectrum of Worldwide Halloween</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-ultimate-guide-to-fugetek-ft-568-testing-and-evaluating-the-elite-selfie-accessory/"><u>The Ultimate Guide to Fugetek FT-568: Testing and Evaluating the Elite Selfie Accessory</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/todays-worldwide-winning-apple-app/"><u>Today's Worldwide Winning Apple App</u></a></li>
+<li><a href="https://android-frp.techidaily.com/top-5-oppo-a56s-5g-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Oppo A56s 5G Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transforming-language-learning-mondly-introduces-immersive-virtual-reality/"><u>Transforming Language Learning: Mondly Introduces Immersive Virtual Reality</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/trim-tongue-training-the-three-mental-agility-steps/"><u>Trim Tongue Training: The Three Mental Agility Steps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-the-soul-of-german-speech-select-25-phrases/"><u>Understanding the Soul of German Speech - Select 25 Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-fluent-interaction-italys-top-10-conversation-starters/"><u>Unlock Fluent Interaction: Italy's Top 10 Conversation Starters</u></a></li>
+<li><a href="https://driver-install.techidaily.com/unlock-full-potential-download-and-use-hd-logitech-webcam-software/"><u>Unlock Full Potential: Download & Use HD Logitech Webcam Software</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-a-comprehensive-guide-to-video-and-subtitle-translation-with-veedio/"><u>Updated A Comprehensive Guide to Video and Subtitle Translation with Veed.io</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/verbal-vibrance-the-dynamics-of-dialogue-in-pick-up-lines/"><u>Verbal Vibrance: The Dynamics of Dialogue in Pick-Up Lines</u></a></li>
+<li><a href="https://win-answers.techidaily.com/1723010283278-why-do-incredible-heroes-crash-my-pc-fix-that-now/"><u>Why Do Incredible Heroes Crash My PC? Fix That Now!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-welcoming-lexicon/"><u>Worldwide Welcoming Lexicon</u></a></li>
+</ul></div>

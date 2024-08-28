@@ -1,7 +1,7 @@
 ---
 title: "Hello In German: 10+ German Greetings Beyond Hallo"
-date: 2024-07-12T08:51:47.802Z
-updated: 2024-07-13T08:51:47.802Z
+date: 2024-08-27T22:49:45.951Z
+updated: 2024-08-28T22:49:45.951Z
 tags:
   - speak
   - english
@@ -36,6 +36,9 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 
  Since we’re discussing diminutives, let’s also mention that_tschüss_ (‘bye’) can become_tschüssi_ . How cute!
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## 3\. Guten Tag – “Hello” or “Good day”
 
  Time to put your tie on!_Guten Tag_ is how you keep things formal. If you want to say ‘hello’ in German to a stranger or maybe to someone you respect, this is the best choice for you.
@@ -52,6 +55,9 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 * _Tag!_
 * _Abend!_
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 4\. Wie geht es dir? – “How’s it going?”
 
  Don’t we all sometimes throw in a “how are you” instead of “hello” just to mix things up? Well, Germans do the same.
@@ -66,6 +72,9 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 
  The simplest way to answer to_alles klar?_ is by saying_ya, danke_ meaning “yes, thanks”. As one would expect, this German greeting is mostly used by youngsters.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->
 ## 6\. Was ist los? – “What’s up?”
 
  Very similar to_alles klar?_ ,_was ist los?_ is appropriate for very casual conversations.
@@ -95,6 +104,9 @@ _– Na._ (“Fine. Thanks!”)
 
 **Localization:** mostly northern Germany.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 2\. Moin moin – “Hi”
 
  The ‘harsh’ German language strikes again. Imagine you’re in Hamburg and people are cheerfully saying_moin_ or_moin moin_ or even_moinsten_ to you. What do you do? You say_moin_ back, of course!
@@ -103,12 +115,18 @@ _– Na._ (“Fine. Thanks!”)
 
 **Localization:** northern Germany, especially in and around Hamburg.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
 ### 3\. Grüezi – “Hello”
 
 _Grüezi_ is a greeting you can use in formal situations, such as speaking with people you don’t know.
 
 **Localization:** Switzerland.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 4\. Grüß Gott – “God bless you”
 
  Mainly used by the older generations,_Grüß Gott_ is a very formal greeting that literally means “greetings (from) God” or “God greets you”.
@@ -168,3 +186,42 @@ _Tschüss!_ (‘Goodbye!’)
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-craft-the-ultimate-outro-with-pro-maker-advice/"><u>[New] 2024 Approved  Craft the Ultimate Outro with Pro Maker Advice</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-complete-digest-exploring-google-podcast-apps-essence/"><u>2024 Approved  Complete Digest  Exploring Google Podcast App's Essence</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-effortless-subscriber-acquisition-for-enhanced-viewership/"><u>2024 Approved  Effortless Subscriber Acquisition for Enhanced Viewership</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-seamless-integration-of-luts-for-enhanced-cinematography/"><u>2024 Approved  Seamless Integration of LUTs for Enhanced Cinematography</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-start-chatting-in-real-time-learn-live-on-instagram/"><u>2024 Approved  Start Chatting in Real-Time  Learn Live on Instagram</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/cosmic-corner-prime-video-showcases-plus-praise/"><u>Cosmic Corner: Prime Video Showcases + Praise</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/crafting-a-story-unique-to-you-amongst-tiktok-titans-for-2024/"><u>Crafting a Story Unique to You Amongst TikTok Titans for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/discover-the-power-of-youtube-editing-a-compre-written-in-code-the-intricacies-of-javascript-functions/"><u>Discover the Power of YouTube Editing  A Compre Written in Code  The Intricacies of JavaScript Functions</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/effortless-broadcast-blending-a-guide-to-obspluszoom-for-2024/"><u>Effortless Broadcast Blending  A Guide to OBS+Zoom for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-phrasecraft-tools-for-intercultural-harmony-communication/"><u>Global Phrasecraft: Tools for Intercultural Harmony Communication</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/harmonizing-volume-dial-down-with-fl-studio-features/"><u>Harmonizing Volume Dial-Down with FL Studio Features</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-samsung-galaxy-a05s-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Samsung Galaxy A05s? | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-on-honor-magic-5-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock on Honor Magic 5 Devices</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-latest-guide-how-to-bypass-motorola-razr-40-ultra-frp-without-computer-by-drfone-android/"><u>In 2024, Latest Guide How To Bypass Motorola Razr 40 Ultra FRP Without Computer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/italian-hand-speech-a-tourists-companion-guide/"><u>Italian Hand Speech: A Tourist's Companion Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-through-the-seasons-korean-weekday-insights/"><u>Journey Through the Seasons: Korean Weekday Insights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ladaptation-dix-jours-en-francais/"><u>L'Adaptation: Dix Jours en Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/la-maison-de-la-semaine-francaise/"><u>La Maison De La Semaine Française</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/la-secta-semanal-los-diez-nombres-en-espanol-y-su-significado/"><u>La Secta Semanal: Los Diez Nombres en Español Y Su Significado</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-driven-joy-global-birthday-phrases/"><u>Language-Driven Joy: Global Birthday Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/languages-of-croatia/"><u>Languages of Croatia</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-the-essence-of-netflixs-best-show-through-hangul/"><u>Learn the Essence of Netflix's Best Show Through Hangul</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lexical-legibility-strategies-for-difficult-term-articulation/"><u>Lexical Legibility: Strategies for Difficult Term Articulation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-english-dialogue-top-9-conversation-methods/"><u>Mastering English Dialogue: Top 9 Conversation Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/meet-the-future-innovative-ai-for-discussion/"><u>Meet the Future: Innovative AI for Discussion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-the-worldwide-learning-family-now-grows-to-70-million/"><u>Mondly: The Worldwide Learning Family Now Grows to 70 Million</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-privacy-update-notice/"><u>New Privacy Update Notice</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pearsons-language-learning-online-hub/"><u>Pearson's Language Learning Online Hub</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/screen-driven-language-acquisition-advice-and-methods/"><u>Screen-Driven Language Acquisition: Advice and Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/simple-path-to-proficiency-in-latin-online/"><u>Simple Path to Proficiency in Latin Online</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-art-of-dialogue-in-writing-scripts-for-2024/"><u>The Art of Dialogue in Writing Scripts for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-best-way-to-learn-a-foreign-language-in-the-21st-century/"><u>The Best Way to Learn a Foreign Language in the 21St Century</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-unseen-strength-of-elder-polyglots/"><u>The Unseen Strength of Elder Polyglots</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-vocabulary-voyage-unraveling-the-nordic-narrative/"><u>The Vocabulary Voyage: Unraveling the Nordic Narrative</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-major-french-speakers-belt-worldwide/"><u>Unveiling Major French Speakers' Belt Worldwide</u></a></li>
+</ul></div>

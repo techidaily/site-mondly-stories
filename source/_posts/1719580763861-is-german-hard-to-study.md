@@ -1,7 +1,7 @@
 ---
 title: Is German Hard To Study?
-date: 2024-07-12T08:55:44.760Z
-updated: 2024-07-13T08:55:44.760Z
+date: 2024-08-27T22:45:17.665Z
+updated: 2024-08-28T22:45:17.665Z
 tags:
   - speak
   - english
@@ -34,6 +34,10 @@ thumbnail: https://thmb.techidaily.com/4f70f650b6f9e154154b14a23a923935cddb729dc
 
 **Verdict: false assumption.**
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ### 2\. German words are neverending
 
  Or so they seem. The German language is famous for having some of the [longest words in the world](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . But did you know that these words are, in fact, compounds? This means that German puts different words together to create a new word. In turn, English uses spaces or hyphens to make everything much easier to read. German, unfortunately, spells everything together. For example,_rindfleischetikettierungsüberwachungsaufgabenübertragungsgesetz_ (63 letters) means “law delegating beef label monitoring”.
@@ -57,6 +61,9 @@ thumbnail: https://thmb.techidaily.com/4f70f650b6f9e154154b14a23a923935cddb729dc
 
 !['German hard to learn' by Sebastian Herrmann©](https://edge.mondly.com/blog/wp-content/uploads/2022/04/german-hard-to-learn-960x640.jpg "Is German Hard To Study? 3")
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 4\. German grammar is too hard to learn
 
  It’s true that German grammar is a bit more complex, but German is a very logical language. Once you will understand the basics, you’ll have no problem going forward with the rest of the curriculum. In addition, due to the shared vocabulary, there are many English and German phrases that follow the same order. For example:
@@ -69,6 +76,9 @@ Doesn’t this sound familiar?
 
 **Verdict: false assumption.**
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Is German hard to learn?
 
  Yes and no. Compared to the very popular [Romance language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) Spanish and French, German is regarded as hard to learn. But in truth,**German is actually easier to learn than a lot of other languages.**
@@ -77,12 +87,18 @@ Doesn’t this sound familiar?
 
  However, according to [the FSI](https://www.state.gov/foreign-language-training/) (Foreign Service Institute) of the US government, which ranks languages in terms of difficulty,**German is a tier II language.** Considering that there are five tiers in total, with tier V including Arabic, Chinese, Japanese and Korean, tier II doesn’t seem so daunting. This indicates that German is not hard to learn after all.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ## How long does it take to study German?
 
  According to the FSI (Foreign Service Institute) of the US government, an English speaker would need about **750 class hours or 30 weeks of practice to [become fluent in German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .** Of course, this is not 100% accurate for every individual. Some people have a knack for learning languages, and others don’t. It all depends on your determination and passion for the task at hand.
 
  Moreover, your progress can also be influenced by the learning method you’re using. While dry memorization techniques used to be the norm until a few years ago, nowadays learning German can be much more enjoyable.
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Can German be easy to learn?
 
  Definitely yes. As complex as the German language may be, the language learning app [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6661&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6661?mother%5Flang=en%5Fus?target%5Flang=de&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6661?mother%5Flang=en%5Fus?target%5Flang=de) can make it fun and quite easy to learn. Millions of people have learned German with Mondly and they all agree that German is not as hard to learn as ‘advertised’.
@@ -94,6 +110,10 @@ Doesn’t this sound familiar?
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ### Study German in just 10 minutes a day
 
  Do you want to understand German fast? Get Mondly, the award-winning language learning app that will help you speak German from day 1.
@@ -126,3 +146,58 @@ Doesn’t this sound familiar?
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-disrupt-unbidden-youtube-content-feeds/"><u>[New] In 2024, Disrupt Unbidden YouTube Content Feeds</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-perfecting-your-dialogue-a-google-meet-strategy-for-2024/"><u>[New] Perfecting Your Dialogue  A Google Meet Strategy for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-unveiling-time-saving-shortcuts-for-efficient-mac-screenshots-for-2024/"><u>[New] Unveiling Time-Saving Shortcuts for Efficient Mac Screenshots for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-gameplay-recording-must-haves/"><u>[Updated] 2024 Approved  Gameplay Recording Must-Haves</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-the-blueprint-to-establishing-an-online-review-community-for-toys/"><u>2024 Approved  The Blueprint to Establishing an Online Review Community for Toys</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/adept-approaches-for-capturing-high-impact-presentations/"><u>Adept Approaches for Capturing High-Impact Presentations</u></a></li>
+<li><a href="https://extra-information.techidaily.com/androids-power-to-replay-film-slices-for-2024/"><u>Android's Power to Replay Film Slices for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/dynamic-voice-training-in-free-fire-games-for-2024/"><u>Dynamic Voice Training in Free Fire Games for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/forgot-locked-iphone-15-pro-max-password-learn-the-best-methods-to-unlock-by-drfone-ios/"><u>Forgot Locked iPhone 15 Pro Max Password? Learn the Best Methods To Unlock</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-greeting-handbook/"><u>Global Greeting Handbook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-speak-with-ease-top-10-accessible-languages-guide/"><u>Global Speak with Ease: Top 10 Accessible Languages Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-thanksgiving-a-comparative-study/"><u>Global Thanksgiving: A Comparative Study</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-immerse-yourself-in-a-language-6-helpful-tips/"><u>How to Immerse Yourself in a Language: 6 Helpful Tips</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-realme-gt-neo-5-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Realme GT Neo 5 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/join-the-quest-for-europes-language-riches-this-day/"><u>Join the Quest for Europe's Language Riches This Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/key-to-proper-spanish-accent-usage-in-writing/"><u>Key to Proper Spanish Accent Usage in Writing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lhospitalite-francaise-en-phrase-simple/"><u>L'Hospitalité Française En Phrase Simple</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-reinvented-mondlys-ascent-in-germanys-online-world/"><u>Learning Reinvented: Mondly’s Ascent in Germany's Online World</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-russian-letters-pronunciation-techniques/"><u>Learning Russian Letters Pronunciation Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/limited-time-offer-learn-languages-at-96-off/"><u>Limited Time Offer: Learn Languages at 96%% Off</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lingering-lovespeak-sicilian-courtship-craft/"><u>Lingering Lovespeak: Sicilian Courtship Craft</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-kinship-between-uk-and-russ/"><u>Linguistic Kinship Between Uk & Russ</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-utility-evaluation-german-vs-french-comparison/"><u>Linguistic Utility Evaluation: German Vs French Comparison</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-goal-achievement-on-january-1st/"><u>Mastering Goal Achievement on January 1St</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-japanese-language-without-spending-money/"><u>Mastering Japanese Language Without Spending Money</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-leap-forward-bridging-education-for-over-70-million-learners/"><u>Mondly's Leap Forward: Bridging Education for Over 70 Million Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/paso-a-paso-entender-tiempo-en-espanol/"><u>Paso a Paso: Entender Tiempo en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pearsons-eslefl-interactive-classroom/"><u>Pearson's ESL/EFL Interactive Classroom</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-xiaomi-redmi-note-13-5g-and-browser-drfone-by-drfone-virtual-android/"><u>Prevent Cross-Site Tracking on Xiaomi Redmi Note 13 5G and Browser | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pronunciation-perfection-mastery-through-english-tongue-twisters/"><u>Pronunciation Perfection: Mastery Through English Tongue Twisters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quatre-exemples-francais-un-merci-accepte/"><u>Quatre Exemples Français: Un 'Merci' Accepté</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/reinstate-lost-video-icon-in-facebook-watch-for-2024/"><u>Reinstate Lost Video Icon in Facebook Watch for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rhythm-based-language-leapfrogging-scientific-approaches/"><u>Rhythm-Based Language Leapfrogging: Scientific Approaches</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/romantic-riddles-unraveling-italys-pick-up-lines/"><u>Romantic Riddles: Unraveling Italy's Pick Up Lines</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/salutations-francaises-pour-equilibrer-la-montoirie/"><u>Salutations Françaises Pour Équilibrer La Montoirie</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sich-zu-verantworten-deutsche-ausdrucksweisen-erlernen/"><u>Sich Zu Verantworten – Deutsche Ausdrucksweisen Erlernen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-numbers-1-10-explained/"><u>Spanish Numbers 1-10 Explained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-a-native-innovative-vr-language-learning/"><u>Speak Like a Native: Innovative VR Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-naturally-17-commonplace-spanish-phrases/"><u>Speak Naturally: 17 Commonplace Spanish Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-by-step-into-hangul-quick-learning-for-beginners/"><u>Step by Step Into Hangul: Quick Learning for Beginners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swedish-alphabet-and-pronunciation-a-quick-guide/"><u>Swedish Alphabet And Pronunciation: A Quick Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swift-progress-in-learning-polish/"><u>Swift Progress in Learning Polish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-cooking-key-principles-that-will-take-your-dishes-to-new-heights/"><u>The Art of Cooking: Key Principles that Will Take Your Dishes to New Heights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-best-93-spanish-travel-terms-to-enhance-your-global-experienences/"><u>The Best 93 Spanish Travel Terms to Enhance Your Global Experienences</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-grammar-gap-understanding-por-que-and-por-que/"><u>The Grammar Gap: Understanding Por Que and Por Qué</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-polyglot-puzzle-europes-linguistic-plurality-celebrated/"><u>The Polyglot Puzzle: Europe's Linguistic Plurality Celebrated</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-6-motivators-for-learning-arabic-on-mondly-online-platform/"><u>Top 6 Motivators for Learning Arabic on Mondly Online Platform</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/trailblazing-ar-dialogue-enabler/"><u>Trailblazing AR Dialogue Enabler</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-communication-skills-with-these-10-essential-and-versatile-spanish-salutations/"><u>Unlock Communication Skills With These 10 Essential & Versatile Spanish Salutations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-hindi-potential-with-mondly-the-best-reasons-why/"><u>Unlocking Hindi Potential with Mondly: The Best Reasons Why!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-earths-primordial-language-pioneers/"><u>Unveiling Earth's Primordial Language Pioneers</u></a></li>
+</ul></div>
