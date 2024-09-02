@@ -1,7 +1,7 @@
 ---
 title: A Complete Collection of Top 16 German Gratefulness Statements
-date: 2024-07-12T08:48:09.751Z
-updated: 2024-07-13T08:48:09.751Z
+date: 2024-09-01T00:15:17.905Z
+updated: 2024-09-02T00:15:17.905Z
 tags:
   - speak
   - english
@@ -34,10 +34,16 @@ _**Danke**_ translates to “thank you” or “thanks” and it is probably the
 
  Moving on and adding a little more formality to our “Danke!”, we discover_**Danke schön!**_ which is just as short and sweet, but maybe a little bit more formal. Although it is often used in the business environment, **_Danke schön!_ seems suitable for all kinds of formal and informal situations.** My advice would be to trust your gut.
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **3._Danke Sehr!_ – Thank you very much!**
 
  This is a more formal variation of_Danke schön_ , but both expressions can be used interchangeably. Like I said: trust your gut. It’s very important to take into consideration your way to talk to other people and your personality.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **4._Vielen Dank!_ — Many thanks!**
 
  Do you know that moment when you are really grateful to someone because they helped you a lot? Well, that’s the perfect moment to thank them in German using “Vielen Dank!”.
@@ -54,6 +60,9 @@ _Tausend Dank!_ is**the** **German equivalent of our** **“Thanks a million!”
 
  As I said, there are multiple and different ways to say thank you in German._**Vergelt’s Gott**_ is a regional expression used mainly in the southern region of Germany.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **8._(Danke!) Sehr aufmerksam._ — (Thank you!) That is very kind of you.**
 
  We all have moments in our lives when we need to thank the extraordinary people that helped when we were in trouble. Well, “Sehr aufmerksa” is for one of those situations. It’s a heartfelt way of thanking someone that has done something kind for you.
@@ -66,22 +75,38 @@ _Tausend Dank!_ is**the** **German equivalent of our** **“Thanks a million!”
 
  Rarely used, but still useful if you want the complete list of ways to say thank you in German.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<!-- affiliate ads end -->
 ## **11._Danke, gleichfalls!_ — Thank you, the same to you!**
 
  “Gleichfalls” is what you should add to your “Danke!” when someone wishes you “Guten Appetit!” (“Good appetite” or “Enjoy your meal”) or something similar.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **12._Ich danke Ihnen!_ – I give you my thanks!**
 
  Like we said in the beginning, this is one of the most formal ways of thanking someone in German.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **13._Ich danke dir!_ – I thank you!**
 
  Although it does not seems so,_**Ich danke dir!**_ is rather informal, but more elegant than just Danke.
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **14._Ich möchte mich recht herzlich bedanken._ — I would like to thank you sincerely.**
 
  This is the best “thanks” you can use when you want to thank someone that has helped you a lot in a formal context. Use it with confidence the same way you would use it in English.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ## **15._Vielen Dank im Voraus!_ – Thank you in advance!**
 
  Well, you’ll probably need this one at some point, won’t you? This is especially useful when you make a request.
@@ -122,6 +147,9 @@ _Tausend Dank!_ is**the** **German equivalent of our** **“Thanks a million!”
 
 Get Mondly now and speak German like you never dreamed you would ![Learn German now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-2929&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-2929%26utm%5Fsource%3Dblog-post-id-2929&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-2929%26utm%5Fsource%3Dblog-post-id-2929&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-2929%26utm%5Fsource%3Dblog-post-id-2929&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-2929%26mt%3D8 "Learn German now")
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
@@ -140,3 +168,45 @@ Get Mondly now and speak German like you never dreamed you would ![Learn German 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-rhyme-and-groove-top-20-rap-sensations-on-tiktok-today/"><u>[New] 2024 Approved  Rhyme & Groove  Top 20 Rap Sensations on TikTok Today</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-streamline-your-twitch-live-recordings-today/"><u>[New] In 2024, Streamline Your Twitch Live Recordings Today</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-unlocking-viewer-analysis-on-your-instagram-snapshots/"><u>[New] In 2024, Unlocking Viewer Analysis on Your Instagram Snapshots</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-revenue-calculation-for-every-clicked-video/"><u>[Updated] 2024 Approved  Revenue Calculation for Every Clicked Video</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-unlock-the-power-of-online-interaction-essential-tips-for-successful-zoom-chats/"><u>[Updated] Unlock the Power of Online Interaction  Essential Tips for Successful Zoom Chats</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-deciphering-facebooks-iconic-blue-emoji-usage-in-messages/"><u>2024 Approved  Deciphering Facebook's Iconic Blue Emoji Usage in Messages</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-one-click-coordination-sync-your-zoom-calls-across-devices/"><u>2024 Approved  One-Click Coordination  Sync Your Zoom Calls Across Devices</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-top-strategies-for-adjusting-song-speed-on-spotify/"><u>2024 Approved  Top Strategies for Adjusting Song Speed on Spotify</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/budget-friendly-video-grabber-selections/"><u>Budget-Friendly Video Grabber Selections</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gran-expedicion-anatomica-la-jornada-del-ser-humano-desde-la-nariz-a-los-pies/"><u>Gran Expedición Anatómica: La Jornada Del Ser Humano Desde La Nariz A Los Pies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grasping-german-is-it-tough-to-grasp/"><u>Grasping German: Is It Tough to Grasp?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/guided-path-to-your-ideal-new-language/"><u>Guided Path To Your Ideal New Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/historical-hunt-for-earths-elongated-expression/"><u>Historical Hunt for Earth's Elongated Expression</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-upgrade-iphone-6s-plus-without-data-loss-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade iPhone 6s Plus without Data Loss? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-xiaomi-civi-3-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Xiaomi Civi 3 | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-vivo-y100a-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Vivo Y100A to Laptop Without USB | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/la-semaine-francaise-comprendre-les-mots/"><u>La Semaine Française: Comprendre Les Mots</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-languages-via-sound-science-effective-musical-methods/"><u>Learn Languages via Sound Science: Effective, Musical Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-to-perfectly-articulate-ru-letters/"><u>Learn to Perfectly Articulate RU Letters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mandarin-manners-made-simple-learn-to-thank-in-chinese/"><u>Mandarin Manners Made Simple: Learn to Thank in Chinese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-turkish-writing-and-speech-quick-guide-to-its-phonetics/"><u>Mastering Turkish Writing & Speech: Quick Guide to Its Phonetics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-non-verbal-communication-in-italys-culture/"><u>Navigating Non-Verbal Communication in Italy's Culture</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/no-more-language-barriers-your-95-off-lifetime-pass/"><u>No More Language Barriers - Your 95%% Off Lifetime Pass</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polyphonic-progress-embrace-language-mastery-via-virtual-realms/"><u>Polyphonic Progress: Embrace Language Mastery via Virtual Realms</u></a></li>
+<li><a href="https://network-issues.techidaily.com/resolved-clearing-cloudy-desktop-view/"><u>Resolved: Clearing Cloudy Desktop View</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sovac-slovaci-language-journey-unfolding-one-quick-lesson-daily/"><u>Sovac Slováci - Language Journey Unfolding, One Quick Lesson Daily!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speed-in-language-acquisition-theoretical-and-practical-views/"><u>Speed in Language Acquisition: Theoretical & Practical Views</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tank-om-sverige-valkomma/"><u>Tänk Om Sverige: Välkomma</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ted-approach-carving-out-your-space-on-youtube/"><u>Targeted Approach  Carving Out Your Space on YouTube</u></a></li>
+<li><a href="https://techidaily.com/the-easiest-methods-to-hard-reset-vivo-y27-4g-drfone-by-drfone-reset-android-reset-android/"><u>The Easiest Methods to Hard Reset Vivo Y27 4G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-secret-to-fluent-use-of-english-conjunctions-and-contractions/"><u>The Secret to Fluent Use of English Conjunctions & Contractions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-10-international-languages-learned-by-americans/"><u>Top 10 International Languages Learned by Americans</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-the-world-with-words-mastering-multi-language-immersion/"><u>Unlock the World with Words: Mastering Multi-Language Immersion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/urdu-basics-must-learn-words-for-newcomers/"><u>Urdu Basics: Must-Learn Words for Newcomers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/varfor-sverige-allt-i-genom/"><u>Varför Sverige? - Allt I Genom</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/why-does-facebook-suggested-videos-not-showing-up-in-2024/"><u>Why Does Facebook Suggested Videos Not Showing Up, In 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/your-step-by-step-spanish-verb-learning-journey/"><u>Your Step-by-Step Spanish Verb Learning Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/synapseis-eyxes-politikhs-gkreman/"><u>Συνάψεις Ευχές Πολιτικής Γκρεμάν</u></a></li>
+</ul></div>

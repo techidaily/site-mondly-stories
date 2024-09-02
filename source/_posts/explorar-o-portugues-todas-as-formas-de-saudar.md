@@ -1,7 +1,7 @@
 ---
 title: "Explorar O Português: Todas As Formas De Saudar"
-date: 2024-07-12T08:45:24.912Z
-updated: 2024-07-13T08:45:24.912Z
+date: 2024-09-01T00:18:17.170Z
+updated: 2024-09-02T00:18:17.170Z
 tags:
   - speak
   - english
@@ -38,6 +38,10 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
  “Lisbon, Portugal” by Diego García©
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 ### “How are you” in Portuguese – Tudo bem?
 
  Asking someone how they are doing is probably just as important as saying “hello”. Sometimes you don’t even expect an answer. This is just an even nicer way to greet someone. So let’s see the many ways Portuguese-speaking people ask someone how they are doing depending on the context.
@@ -57,6 +61,9 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ![good morning in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/good-morning-in-portuguese-1024x642.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 3")
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<!-- affiliate ads end -->
  “Rio de Janeiro, Brazil” by Raphael Nogueira©
 
  **Good morning in Portuguese –_Bom dia!_**  – literally meaning “good day”, this greeting is widely used between approximately 5:30 am and 12:00 – 1:00 pm. If you are in Brazil, you should say “bom GEE-a” and if you are in Portugal, you should sound like this: “bom DEE-a”.
@@ -81,8 +88,14 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ![portuguese greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/08/portuguese-greetings-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 4")
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<!-- affiliate ads end -->
  “Ruínas da Fortaleza de Arrifana, Aljezur, Portugal” by Ferhat Deniz Fors©
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Bonus: other basic Portuguese phrases that you should know
 
  Now that you know how to greet in Portuguese, shouldn’t you also master basic words like “yes”, “no” or “thank you” in Portuguese? Let’s kill two birds with one stone and see how a basic conversation in Portuguese should sound like:
@@ -107,6 +120,14 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ![obrigado](https://edge.mondly.com/blog/wp-content/uploads/2019/08/obrigado-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 5")
 
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  “Gruta do Lago Azul, Brazil” by Ademir Alves©
 
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fhello-in-portuguese-basic-portuguese-greetings-you-need%2F&t=Hello+in+Portuguese+and+Other+Basic+Portuguese+Greetings+You+Need+to+Know "Share on Facebook")
@@ -114,6 +135,9 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Here’s how to speak Portuguese in 10 minutes a day
 
  Do you want to practice what you’ve learned and maybe learn some more Portuguese? **Check Mondly, the revolutionary language learning platform that makes language learning fun, fast and easy!**
@@ -148,3 +172,46 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-from-conference-room-to-youtube-google-meet-broadcasting/"><u>[New] 2024 Approved  From Conference Room to Youtube  Google Meet Broadcasting</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-which-should-you-use-obs-studio-or-bandicam/"><u>[New] In 2024, Which Should You Use, OBS Studio or Bandicam?</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-the-screen-savers-guide-to-recording-tech-for-2024/"><u>[New] The Screen Saver's Guide to Recording Tech for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-twitters-video-guidelines-and-step-by-step-uploading-guide/"><u>[New] Twitter's Video Guidelines & Step-by-Step Uploading Guide</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-crystal-clear-play-premium-cards-for-4k/"><u>[Updated] Crystal Clear Play  Premium Cards for 4K</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-organizing-information-mastery-seamless-integration-of-chapters-in-youtube-videos/"><u>[Updated] Organizing Information Mastery  Seamless Integration of Chapters in YouTube Videos</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-cinematic-cadences-finding-film-friendly-sounds/"><u>2024 Approved  Cinematic Cadences  Finding Film-Friendly Sounds</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3utools-virtual-location-not-working-on-huawei-p60-fix-now-drfone-by-drfone-virtual-android/"><u>3uTools Virtual Location Not Working On Huawei P60? Fix Now | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/essential-knowledge-of-using-look-up-tables-for-image-grading/"><u>Essential Knowledge of Using Look-Up Tables for Image Grading</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-numbers-learn-how-to-count-from-1-to-100-in-german/"><u>German Numbers: Learn How to Count From 1 to 100 in German</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-gratitude-day-adopting-thanksgiving/"><u>Global Gratitude Day: Adopting Thanksgiving</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-complete-assessment-exploring-dji-inspire-1/"><u>In 2024, Complete Assessment  Exploring DJI Inspire 1</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-motorola-edge-40-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Motorola Edge 40 Pro | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-remove-and-reset-face-id-on-iphone-x-by-drfone-ios/"><u>In 2024, How to Remove and Reset Face ID on iPhone X</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-unlocking-live-streams-rokus-path-to-fb-live/"><u>In 2024, Unlocking Live Streams  Roku's Path to FB LIVE</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/la-sequence-du-lundi-au-dimanche/"><u>La Séquence Du Lundi Au Dimanche</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-mastery-boosting-brain-power-and-social-connectivity/"><u>Language Mastery: Boosting Brain Power and Social Connectivity</u></a></li>
+<li><a href="https://blog-min.techidaily.com/leading-mp4-transcoding-applications-the-ultimate-list-of-the-top-3-for-mac-and-pc-users/"><u>Leading MP4 Transcoding Applications: The Ultimate List of the Top 3 for Mac & PC Users</u></a></li>
+<li><a href="https://driver-install.techidaily.com/lightning-fast-drivers-maximum-yoga-capability/"><u>Lightning-Fast Drivers, Maximum Yoga Capability</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-words-with-mondly-top-of-the-language-app-rankings-2022/"><u>Mastering Words with Mondly - Top of the Language App Rankings, 2022</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-celebrates-7-years-of-success-75-million-learners-worldwide/"><u>Mondly Celebrates 7 Years Of Success: 75 Million Learners Worldwide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-reimagines-buttons-with-pearsons-expertise/"><u>Mondly Reimagines Buttons with Pearson's Expertise</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-eternal-savings-deal/"><u>Mondly's Eternal Savings Deal</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingualism-an-elders-cognitive-boost/"><u>Multilingualism: An Elders' Cognitive Boost</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/never-pay-again-get-mondly-elite/"><u>Never Pay Again - Get Mondly Elite</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/nombres-de-fauna-en-espanol-para-empezar/"><u>Nombres De Fauna en Español Para Empezar</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/paso-a-paso-entender-la-semana-completa/"><u>Paso a Paso: Entender La Semana Completa</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/reconhecinas-o-portuguese-todos-os-gritos-apropriados/"><u>Reconhecinas O Portuguese: Todos Os Gritos Apropriados</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revolutionary-applications-for-rapid-vocabulary-growth/"><u>Revolutionary Applications for Rapid Vocabulary Growth</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/start-the-year-smart-savings-alert-on-mondly-premium-up-to-96-off/"><u>Start the Year Smart - Savings Alert on Mondly Premium, Up to 96%% Off!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essentials-of-polite-expression-learning-xiexie/"><u>The Essentials of Polite Expression: Learning Xièxiè</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-swedish-sound-system-simplified/"><u>The Swedish Sound System Simplified</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-spanish-verb-conjugations/"><u>The Ultimate Guide to Spanish Verb Conjugations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-3-language-learning-platforms-master-new-languages-easilyback-buttonfilter-button/"><u>Top 3 Language Learning Platforms: Master New Languages EasilyBack ButtonFilter Button</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/unbeatable-free-webcam-matchups-for-2024/"><u>Unbeatable Free Webcam Matchups for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlimited-unbeatable-mondly-savings/"><u>Unlimited, Unbeatable Mondly Savings</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/updated-epson-stylus-nx420-driver-software-for-enhanced-printing-on-windows-7-8-and-10/"><u>Updated Epson Stylus NX420 Driver Software for Enhanced Printing on Windows 7, 8 & 10</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/zahlenreimlernen-einsteigen-in-die-deutsche-zahlensprache/"><u>Zahlenreimlernen: Einsteigen in Die Deutsche Zahlensprache</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/timwtores-eygnwmwn-dyshs/"><u>Τιμωτόρες Ευγνώμων Δύσης</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "Ausdauer Der Sprache: Deutsche Grüße Abseits Von Hallo"
-date: 2024-07-12T08:48:59.030Z
-updated: 2024-07-13T08:48:59.030Z
+date: 2024-09-01T00:14:21.410Z
+updated: 2024-09-02T00:14:21.410Z
 tags:
   - speak
   - english
@@ -36,6 +36,10 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 
  Since we’re discussing diminutives, let’s also mention that_tschüss_ (‘bye’) can become_tschüssi_ . How cute!
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ## 3\. Guten Tag – “Hello” or “Good day”
 
  Time to put your tie on!_Guten Tag_ is how you keep things formal. If you want to say ‘hello’ in German to a stranger or maybe to someone you respect, this is the best choice for you.
@@ -74,10 +78,16 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 
 !['German greetings' by Angelo Abear©](https://edge.mondly.com/blog/wp-content/uploads/2022/05/german-greetings-960x640.jpg "Hello In German: 10+ German Greetings Beyond Hallo 2")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Regional German greetings
 
  Now that you have enough greetings to get by in the entire German-speaking world, it’s time to get into specifics. These next greetings are generally used in just a few regions.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<!-- affiliate ads end -->
 ### 1\. Na – “Hey, how are you?”
 
  Ok, here’s a tough one._Na_ literally means ‘well!’ in German, but as a greeting, it’s used like a contracted way of saying “hi, how are you doing?”. What’s more,_na_ can even be used as an answer to the greeting:
@@ -95,6 +105,9 @@ _– Na._ (“Fine. Thanks!”)
 
 **Localization:** mostly northern Germany.
 
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. Moin moin – “Hi”
 
  The ‘harsh’ German language strikes again. Imagine you’re in Hamburg and people are cheerfully saying_moin_ or_moin moin_ or even_moinsten_ to you. What do you do? You say_moin_ back, of course!
@@ -103,12 +116,18 @@ _– Na._ (“Fine. Thanks!”)
 
 **Localization:** northern Germany, especially in and around Hamburg.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ### 3\. Grüezi – “Hello”
 
 _Grüezi_ is a greeting you can use in formal situations, such as speaking with people you don’t know.
 
 **Localization:** Switzerland.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 4\. Grüß Gott – “God bless you”
 
  Mainly used by the older generations,_Grüß Gott_ is a very formal greeting that literally means “greetings (from) God” or “God greets you”.
@@ -168,3 +187,70 @@ _Tschüss!_ (‘Goodbye!’)
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-enhancing-youtube-presence-creating-professional-thumbnails-from-smartphones/"><u>[New] 2024 Approved  Enhancing YouTube Presence  Creating Professional Thumbnails From Smartphones</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-fluidity-in-filming-a-deep-dive-into-inshots-transition-features/"><u>[New] Fluidity in Filming  A Deep Dive Into Inshot's Transition Features</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-haste-in-video-supercharge-facebook-videos-with-proxies-and-tools/"><u>[New] Haste in Video  Supercharge Facebook Videos with Proxies and Tools</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-frugal-hardware-efficient-obs-arrangements/"><u>[New] In 2024, Frugal Hardware  Efficient OBS Arrangements</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-calculating-expenses-for-youtubers-success/"><u>[Updated] Calculating Expenses for YouTubers' Success</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-ideal-screen-capturing-solutions-for-igadgets-for-2024/"><u>[Updated] Ideal Screen Capturing Solutions for iGadgets for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-the-ultimate-mac-obs-guide-installation-and-operational-knowledge/"><u>[Updated] In 2024, The Ultimate Mac OBS Guide  Installation & Operational Knowledge</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-top-editors-for-virtual-backgrounds-spectrumswitch-studio/"><u>[Updated] In 2024, Top Editors for Virtual Backgrounds  SpectrumSwitch Studio</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-mastering-time-lapse-android-tips-and-tricks/"><u>[Updated] Mastering Time-Lapse  Android Tips & Tricks</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-navigating-the-world-with-a-fisheye-lens-for-2024/"><u>[Updated] Navigating the World with a Fisheye Lens for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-tech-triumphs-10-high-definition-screen-recorder-tools/"><u>[Updated] Tech Triumphs  #10 High-Definition Screen Recorder Tools</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-boosting-sales-via-high-roi-animated-fb-ad-campaigns/"><u>2024 Approved  Boosting Sales via High-ROI Animated FB Ad Campaigns</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/7-insights-on-integrating-chatgpt-in-health-advice/"><u>7 Insights on Integrating ChatGPT in Health Advice</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/comprehensive-tutorial-how-to-link-up-your-printer-for-device-accessibility/"><u>Comprehensive Tutorial: How to Link Up Your Printer For Device Accessibility</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-numbers-learn-how-to-count-from-1-to-100-in-german/"><u>German Numbers: Learn How to Count From 1 to 100 in German</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ghouls-pumpkins-and-global-celebrations/"><u>Ghouls, Pumpkins & Global Celebrations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-gratitude-day-adopting-thanksgiving/"><u>Global Gratitude Day: Adopting Thanksgiving</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-successfully-resolve-error-code-0x80ebbbb-on-windows-updates-proven-techniques-inside/"><u>How to Successfully Resolve Error Code 0X80ebbbb on Windows Updates - Proven Techniques Inside</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-16-steps-to-successfully-livestream-and-save-money-on-education-platforms/"><u>In 2024, 16 Steps to Successfully Livestream and Save Money on Education Platforms</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-honor-x8b-drfone-by-drfone-virtual-android/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Honor X8b? | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-delete-icloud-account-from-iphone-7-without-password-by-drfone-ios/"><u>In 2024, How to Delete iCloud Account From iPhone 7 without Password?</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-the-complete-guide-to-samsung-galaxy-a25-5g-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Complete Guide to Samsung Galaxy A25 5G FRP Bypass Everything You Need to Know</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-ultimate-guide-on-vivo-x90s-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide on Vivo X90S FRP Bypass</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-through-santas-language-landscape/"><u>Journey Through Santa's Language Landscape</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/la-sequence-du-lundi-au-dimanche/"><u>La Séquence Du Lundi Au Dimanche</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-simplified-mondlys-victory-2022-edition/"><u>Language Learning Simplified: Mondly's Victory, 2022 Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-mastery-boosting-brain-power-and-social-connectivity/"><u>Language Mastery: Boosting Brain Power and Social Connectivity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-croatian-why-and-how-discover-the-7-key-advantages/"><u>Learn Croatian: Why and How – Discover the 7 Key Advantages</u></a></li>
+<li><a href="https://discover-alternatives.techidaily.com/leveraging-cookiebot-technology-for-enhanced-website-performance-and-insights/"><u>Leveraging Cookiebot Technology for Enhanced Website Performance and Insights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mariners-mouthpiece-essential-words-for-the-wayward/"><u>Mariner's Mouthpiece: Essential Words for the Wayward</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-new-tongues-with-our-top-3-mobile-language-education-apps/"><u>Master New Tongues with Our Top 3 Mobile Language Education Apps</u></a></li>
+<li><a href="https://program-issues.techidaily.com/1723011773844-master-the-fixes-eliminating-steamvr-error-code-groggy-and-irritable-you-can-try-a-combination-of-these-strategies/"><u>Master the Fixes: Eliminating SteamVR Error Code Groggy and Irritable, You Can Try a Combination of These Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-languages-made-simple-with-mondlys-updated-phrasebook/"><u>Mastering Languages Made Simple with Mondly's Updated Phrasebook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-words-with-mondly-top-of-the-language-app-rankings-2022/"><u>Mastering Words with Mondly - Top of the Language App Rankings, 2022</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-celebrates-7-years-of-success-75-million-learners-worldwide/"><u>Mondly Celebrates 7 Years Of Success: 75 Million Learners Worldwide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-reimagines-buttons-with-pearsons-expertise/"><u>Mondly Reimagines Buttons with Pearson's Expertise</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-the-gateway-to-fluency-crowned-in-germany/"><u>Mondly: The Gateway to Fluency, Crowned in Germany</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-eternal-savings-deal/"><u>Mondly's Eternal Savings Deal</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingualism-an-elders-cognitive-boost/"><u>Multilingualism: An Elders' Cognitive Boost</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/never-pay-again-get-mondly-elite/"><u>Never Pay Again - Get Mondly Elite</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/nombres-de-fauna-en-espanol-para-empezar/"><u>Nombres De Fauna en Español Para Empezar</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/paso-a-paso-entender-la-semana-completa/"><u>Paso a Paso: Entender La Semana Completa</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pioneering-filtration-the-mondly-pearson-collaboration/"><u>Pioneering Filtration: The Mondly-Pearson Collaboration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/reconhecinas-o-portuguese-todos-os-gritos-apropriados/"><u>Reconhecinas O Portuguese: Todos Os Gritos Apropriados</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revolutionary-applications-for-rapid-vocabulary-growth/"><u>Revolutionary Applications for Rapid Vocabulary Growth</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/six-sweet-secrets-of-being-bilingual/"><u>Six Sweet Secrets of Being Bilingual</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/slang-variations-between-american-and-british-youth/"><u>Slang Variations Between American & British Youth</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/solutions-for-missing-shorts-thumbnails-on-youtube-for-2024/"><u>Solutions for Missing Shorts Thumbnails on YouTube for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-happily-ever-after-in-hungarian-dialects/"><u>Speaking Happily Ever After in Hungarian Dialects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/start-the-year-smart-savings-alert-on-mondly-premium-up-to-96-off/"><u>Start the Year Smart - Savings Alert on Mondly Premium, Up to 96%% Off!</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/students-digital-arsenal-discover-the-top-9-gadgets-for-academic-success/"><u>Student's Digital Arsenal: Discover the Top 9 Gadgets for Academic Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-complete-set-of-castilian-speakers/"><u>The Complete Set of Castilian Speakers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essentials-of-polite-expression-learning-xiexie/"><u>The Essentials of Polite Expression: Learning Xièxiè</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-hands-of-italy-deciphering-silent-dialogue/"><u>The Hands of Italy: Deciphering Silent Dialogue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-swedish-sound-system-simplified/"><u>The Swedish Sound System Simplified</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-spanish-verb-conjugations/"><u>The Ultimate Guide to Spanish Verb Conjugations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-3-language-learning-platforms-master-new-languages-easilyback-buttonfilter-button/"><u>Top 3 Language Learning Platforms: Master New Languages EasilyBack ButtonFilter Button</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlimited-unbeatable-mondly-savings/"><u>Unlimited, Unbeatable Mondly Savings</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/unveiling-the-potential-in-depth-review-of-the-hp-zbook-firefly-15-g8-mobile-workstation/"><u>Unveiling the Potential: In-Depth Review of the HP ZBook Firefly 15 G8 Mobile Workstation</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/why-are-my-instagram-photos-flipped-seeking-answers/"><u>Why Are My Instagram Photos Flipped? Seeking Answers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/be-earnings-per-watch-average-income-breakdown-for-2024/"><u>YouTube Earnings per Watch  Average Income Breakdown for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/zahlenreimlernen-einsteigen-in-die-deutsche-zahlensprache/"><u>Zahlenreimlernen: Einsteigen in Die Deutsche Zahlensprache</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/timwtores-eygnwmwn-dyshs/"><u>Τιμωτόρες Ευγνώμων Δύσης</u></a></li>
+</ul></div>

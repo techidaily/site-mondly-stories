@@ -1,7 +1,7 @@
 ---
 title: "Master Chat: Essential 17 Spontaneous Spanish Phrases"
-date: 2024-07-12T08:47:24.806Z
-updated: 2024-07-13T08:47:24.806Z
+date: 2024-09-01T00:16:11.615Z
+updated: 2024-09-02T00:16:11.615Z
 tags:
   - speak
   - english
@@ -50,6 +50,9 @@ thumbnail: https://thmb.techidaily.com/107b878568a292795df7223b3d5abd69ab5019b1e
 
  “Valldemossa, Spain” by Patrick Baum©
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ### 4\. Cuando el río suena, agua lleva
 
 **Literal translation:** When the river makes noise, it’s carrying water.
@@ -72,6 +75,10 @@ thumbnail: https://thmb.techidaily.com/107b878568a292795df7223b3d5abd69ab5019b1e
 
 Who wouldn’t prefer cakes over bread though?
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ### 7\. El hábito no hace al monje
 
 **Literal translation:** The habit doesn’t make the monk.
@@ -80,6 +87,9 @@ Who wouldn’t prefer cakes over bread though?
 
  Don’t ever judge a person solely by appearances because this is not a reliable indication of the true character of that person. No matter if it’s a positive or a negative bias. You might be surprised.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 8\. Mucho ruido y pocas nueces
 
 **Literal translation:** Lots of noise and few nuts.
@@ -90,6 +100,9 @@ Who wouldn’t prefer cakes over bread though?
 
  But it’s not entirely absurd though. Think about the moment you break in a nutshell. If it’s empty, it made a loud noise for literally nothing.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 9\. El que no arriesga, no gana
 
 **Literal translation:** The person who does not risk cannot win.
@@ -100,8 +113,14 @@ Who wouldn’t prefer cakes over bread though?
 
 ![spanish saying](https://edge.mondly.com/blog/wp-content/uploads/2021/05/spanish-saying-960x640.jpg "17 Spanish Sayings That Will Make You Sound Like A Native 3")
 
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  “Barcelona, Spain” by Toa Heftiba©
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->
 ### 10\. En casa del herrero, cuchillo de palo
 
 **Literal translation:** In the blacksmith’s house, a wooden knife.
@@ -158,6 +177,10 @@ _–_   _Me preocupa no haberlo hecho bien en el examen de ayer. Estaba realment
 
 _– ¡Buena suerte! No olvides que a quien madruga, Dios le ayuda._ (“Good luck! Don’t forget that God helps those who are determined to get the work done.”)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
+LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ### 4\. Como Pedro por su casa
 
 **Literal translation:** Like Pedro in his house.
@@ -174,6 +197,9 @@ _– Tu suegra lleva aquí un tiempo. Supongo que se siente cómoda aquí._ (“
 
 _– Si, como Pedro por su casa._ (“Yes, like Peter in his house.”)
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Spanish sayings about animals
 
  Sayings about [animals are common in any language and Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) makes no exception. Here are some of the most common Spanish sayings about animals.
@@ -188,8 +214,14 @@ _– Si, como Pedro por su casa._ (“Yes, like Peter in his house.”)
 
 ![spanish idioms](https://edge.mondly.com/blog/wp-content/uploads/2021/05/spanish-idioms-960x720.jpg "17 Spanish Sayings That Will Make You Sound Like A Native 5")
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
  “A man and his dog in San Sebastián, Spain” by Lucian Alexe©
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. Más vale pájaro en mano que ciento volando
 
 **Literal translation:** A bird in the hand is worth more than one hundred flying.
@@ -215,6 +247,9 @@ _– No es asunto tuyo. En boca cerrada no entran moscas._ (“It’s none of yo
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ## Speak Spanish fluently in just 10 minutes a day
 
  Do you want to see the Spanish sayings in action in real conversations? Get Mondly, the award-winning language learning app that will help you [speak Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) as if you were born in Madrid.
@@ -243,3 +278,44 @@ _– No es asunto tuyo. En boca cerrada no entran moscas._ (“It’s none of yo
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-8-sites-to-download-free-green-screen-backgrounds-and-footage/"><u>[New] 2024 Approved  8 Sites to Download Free Green Screen Backgrounds and Footage</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/oost-engagement-with-effortless-youtube-thumbnail-tips-for-2024/"><u>[New] Boost Engagement with Effortless Youtube Thumbnail Tips for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-boosting-zoom-clarity-the-guide-to-using-filters-wisely/"><u>[New] Boosting Zoom Clarity  The Guide to Using Filters Wisely</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-fast-photography-path-to-crafting-quick-google-collage-pics/"><u>[New] The Fast Photography Path to Crafting Quick Google Collage Pics</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/hriving-despite-youtubes-rigorous-copyright-strike-system/"><u>[New] Thriving Despite YouTube's Rigorous Copyright Strike System</u></a></li>
+<li><a href="https://program-issues.techidaily.com/solved-chrome-high-cpu-usage/"><u>[SOLVED] Chrome High CPU Usage</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-methods-to-mirror-samsung-galaxy-s23plus-to-roku-drfone-by-drfone-android/"><u>3 Methods to Mirror Samsung Galaxy S23+ to Roku | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-vs-french-which-language-is-more-useful-to-learn/"><u>German Vs French: Which Language Is More Useful To Learn</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-gifts-of-love-a-valentines-international-guide/"><u>Global Gifts of Love: A Valentine’s International Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-glossary-accessible-languages-via-vr/"><u>Global Glossary: Accessible Languages via VR</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/how-long-should-my-question-be-to-stay-within-chatgpts-range/"><u>How Long Should My Question Be to Stay Within ChatGPT's Range?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ignite-industry-insights-via-mastery-of-business-jargon/"><u>Ignite Industry Insights via Mastery of Business Jargon</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-nubia-red-magic-9-proplus-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Nubia Red Magic 9 Pro+? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-c55-phone-with-broken-screen-by-drfone-android/"><u>In 2024, How to Unlock Realme C55 Phone with Broken Screen</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-apple-iphone-13-mini-online-without-jailbreak-by-drfone-ios/"><u>In 2024, How to Unlock SIM Card on Apple iPhone 13 mini online without jailbreak</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-motorola-moto-g73-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Snapchat Location Spoofer to Protect Your Privacy On Motorola Moto G73 5G? | Dr.fone</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-top-10-gamers-defining-modern-tiktok-culture/"><u>In 2024, Top 10 Gamers Defining Modern TikTok Culture</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/italys-sweet-notions-love-expressions-unveiled/"><u>Italy's Sweet Notions: Love Expressions Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-differences-in-macau/"><u>Language Differences in Macau</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-evolution-top-10-centuries-old-systems/"><u>Language Evolution: Top 10 Centuries-Old Systems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-german-with-dark-the-popular-netflix-series/"><u>Learn German With Dark, The Popular Netflix Series</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/les-organe-du-corps-un-voyage-anatomique-en-francais/"><u>Les Organe Du Corps: Un Voyage Anatomique en Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leverage-linguistic-expertise-to-launch-your-business/"><u>Leverage Linguistic Expertise to Launch Your Business</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lingo-love-mastering-spanish-courtship-quips/"><u>Lingo Love: Mastering Spanish Courtship Quips</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/1721268179440-mastering-photorepair-on-windows-with-stellars-top-tier-software-solution/"><u>Mastering Photorepair on Windows with Stellar's Top-Tier Software Solution</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sovace-slovaci-language-made-easy-with-10-minute-daily-doses-online/"><u>Sovace Slováci - Language Made Easy with 10-Minute Daily Doses Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tempting-tones-the-seduction-symphony-in-italy/"><u>Tempting Tones: The Seduction Symphony in Italy</u></a></li>
+<li><a href="https://change-location.techidaily.com/the-best-ispoofer-alternative-to-try-on-vivo-x-flip-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Vivo X Flip | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-mondly-method-elevating-english-to-next-levels/"><u>The Mondly Method: Elevating English to Next Levels</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-unheard-advantages-of-aging-bilinguals/"><u>The Unheard Advantages of Aging Bilinguals</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukraines-new-dawn-of-dialogue-mondlys-free-language-courses-ignite-change/"><u>Ukraine's New Dawn of Dialogue – Mondly's Free Language Courses Ignite Change</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/universal-message-of-peace-for-easter/"><u>Universal Message of Peace for Easter</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-koreas-secrets-squid-game-edition/"><u>Unlocking Korea's Secrets: Squid Game Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-german-sounds-an-alphabetic-tour-for-newcomers/"><u>Unveiling German Sounds: An Alphabetic Tour for Newcomers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-top-8-computer-giants-of-2024-expert-rankings-revealed/"><u>Unveiling the Top 8 Computer Giants of 2024: Expert Rankings Revealed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/updated-terms-of-service-clarity/"><u>Updated Terms of Service Clarity</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/zoom-recording-101-a-practical-approach-for-2024/"><u>Zoom Recording 101  A Practical Approach for 2024</u></a></li>
+</ul></div>

@@ -1,0 +1,182 @@
+---
+title: Russian Math Breakdown for Beginners
+date: 2024-09-01T00:36:57.734Z
+updated: 2024-09-02T00:36:57.734Z
+tags:
+  - speak
+  - english
+  - learning
+categories:
+  - languages
+description: This Article Describes Russian Math Breakdown for Beginners
+excerpt: This Article Describes Russian Math Breakdown for Beginners
+keywords: Beginner's Guide to Russian Mathematics,Basic Math Concepts in Russian Education,Easy-to-Understand Russian Math,Introduction to Russian Mathematical Methods,Simplified Russian Math for Beginners,Learn Russian Mathematics as a Starter,Beginner's Breakdown
+thumbnail: https://thmb.techidaily.com/1040d06f8d0aa10730551351f9cb44d3bcea699d80952a8774c562402ba30c3b.jpg
+---
+
+## Russian Math Breakdown for Beginners
+
+ When was the last time you used numbers in one of your conversations? If you think about it, there’s hardly a day that passes without using any numbers. When learning a new language – Russian in your case – learning how to count is just as important as learning [how to say “hello”](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . So if you’re planning a trip to a [Russian-speaking country](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , learning the Russian numbers is a must.
+
+ Whether you need to find out what’s the price for a matryoshka, ask a stranger when is the next bus arriving or give someone your phone number, knowing the Russian numbers is definitely essential. On top of that, they are not even that hard to learn. Once you learn how to count to ten, counting to 100 is a piece of cake.
+
+## Russian numbers 1-10
+
+ In order to understand the logic behind counting in Russian faster, it’s best to break down the information into multiple sections. As you may expect, the Russian numbers from 1 to 10 are the most important. Not only these are the ones you’ll probably use the most, but they also lay the foundations for the bigger numbers in Russian.
+
+ Here are the numbers from 1 to 10 in Russian with their respective pronunciations so you can begin practicing right now:
+
+![russian numbers 1-10](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-numbers-1-10-600x424.jpg "Russian Numbers - Learn How To Count In Russian 2")
+
+ Russian numbers 1-10
+
+**Good to know:** when the numbers один (“one”) and два (“two”) are put before a noun, they can change their form according to the gender of the noun thus:
+
+* masculine: один _(odin)_ ; два _(dva)_
+* feminine: одна _(odna)_ ; две _(dve)_
+* neuter: одно _(odno)_ ; два _(dva)_
+
+## Learn how to count to 20 in Russian
+
+ Did you manage to learn the Russian pronunciation for the first ten numbers? If you are having issues with the accent, you can [get Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4729&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4729?mother%5Flang=en%5Fus?target%5Flang=ru&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4729?mother%5Flang=en%5Fus?target%5Flang=ru) now and hear them pronounced by professional Russian speakers.
+
+If you did manage, good job! You must be a natural.
+
+ Let’s move on to the next section: learning how to count to 20 in Russian. As you’ll see, the numbers from 11 to 19 are simply formed by adding “надцать” to the numbers 1-9.
+
+![numbers in russian](https://edge.mondly.com/blog/wp-content/uploads/2020/04/numbers-in-russian-600x424.jpg "Russian Numbers - Learn How To Count In Russian 3")
+
+ Russian numbers 11-20
+
+**Good to know:** If you want to bring a flower bouquet when you are invited to someone’s house in Russia, choose an odd number of flowers – so три, пять, семь or девять flowers. One Russian superstition says that bouquets with an even number of flowers are adequate only for funerals.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
+## Russian numbers: 21 and onwards
+
+ From here on, Russian numbers are formed similarly to the English numbers (minus the word “and”). If 20 is двадцать_(dvadtsat)_ , then 21 is двадцать**один** _(_ _dvadtsat odin)_ and 22 is двадцать**два** _(dvadtsat dva)_ . Basically, you just**add the numbers from 1 to 9 to the tens.**
+
+![russian numbers](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-numbers-600x424.jpg "Russian Numbers - Learn How To Count In Russian 4")
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+ Russian tens
+
+Here are some examples:
+
+* 33 is тридцать**три** _(tridtsat tri)_
+* 46 is сорок**шесть** _(sorok shest)_
+* 52 is пятьдесят**два** _(pyatdesyat dva)_
+* 64 is шестьдесят**четыре** _(shestdesyat chetyre)_
+* 79 is семьдесят**девять** _(semdesyat devyat)_
+* 88 is восемьдесят**восемь** _(vosemdesyat vosem)_
+* 96 is девяносто**шесть** _(devyanosto shest)_
+
+And guess what! It works the same with the hundreds.
+
+![russian hundreds](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-hundreds-600x424.jpg "Russian Numbers - Learn How To Count In Russian 5")
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
+ Russian hundreds
+
+ For example, if you want to say 146, you say сто сорок шесть_(sto sorok shest)_ .
+
+Not as hard as you’d expect, is it?
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
+## Russian ordinal numbers
+
+ Now that you’ve learned the Russian cardinal numbers, let’s end this short lesson with some ordinal numbers. You never know when they may come in handy.
+
+* the first – Первый _(pervyy)_
+* the second – Второй _(vtoroy)_
+* the third – Третий _(tretiy)_
+* the fourth – Четвертый _(chetvyortyy)_
+* the fifth – Пятый _(pyatyy)_
+* the sixth – Шестой _(shestoy)_
+* the seventh – Седьмой _(sed’moy)_
+* the eighth – Восьмой _(vos’moy)_
+* the ninth – Девятый _(devyatyy)_
+* the tenth – Десятый _(desyatyy)_
+
+* [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Frussian-numbers%2F&t=Russian+Numbers+%E2%80%93+Learn+How+to+Count+in+Russian "Share on Facebook")
+* [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
+
+---
+
+#### Speak Russian fluently in just 10 minutes a day
+
+ Do you want to speak Russian fluently fast? Get Mondly, the award-winning language learning app that will help you speak Russian as if it were your first language.
+
+ It’s true: it can be really tricky to master Russian pronunciation if you don’t actively live in a Russian-speaking country. But with Mondly, you’ll have access to a unique, fast and highly efficient learning method that allows you to learn Russian naturally with practical topics, authentic conversations and bite-sized Daily Lessons.
+
+ **Start using Mondly for free on your computer or download the app and learn Russian fast anytime, anywhere.**
+
+[Learn Russian now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-4729&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-4729%26utm%5Fsource%3Dblog-post-id-4729&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-4729%26utm%5Fsource%3Dblog-post-id-4729&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-4729%26utm%5Fsource%3Dblog-post-id-4729&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-4729%26mt%3D8 "Learn Russian now")
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-addressed-discrepancy-in-shorts-showcase/"><u>[New] 2024 Approved  Addressed  Discrepancy in Shorts Showcase</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-mastering-gif-a-step-by-step-guide/"><u>[New] Mastering GIF  A Step-by-Step Guide</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-designing-customized-instagram-feed-narratives-for-2024/"><u>[Updated] Designing Customized Instagram Feed Narratives for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/2022-speak-anywhere-for-a-bargain-priced-language-bundle/"><u>2022: Speak Anywhere for a Bargain-Priced Language Bundle</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/6-danish-flicks-to-immerse-in-lingua-franca/"><u>6 Danish Flicks to Immerse in Lingua Franca</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/7-thrilling-benefits-learning-hindi-online-via-mondly/"><u>7 Thrilling Benefits: Learning Hindi Online via Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-beacon-of-inspiration-johannes-honterus/"><u>A Beacon of Inspiration: Johannes Honterus</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprender-o-portuguese-e-suas-variantes-de-boas-vindas/"><u>Aprender O Portuguese E Suas Variantes De Boas-Vindas</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/augment-realities-mondly-redefining-language-learning/"><u>Augment Realities: Mondly Redefining Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aussie-vocabulary-from-surfing-to-bbqs/"><u>Aussie Vocabulary: From Surfing to BBQs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bangla-boost-mastering-in-ten-minutes/"><u>Bangla Boost: Mastering in Ten Minutes!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/befriend-germanys-language-essential-sayings-for-conversation/"><u>Befriend Germany's Language - Essential Sayings for Conversation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beginning-your-italian-journey-top-10-welcoming-phrases/"><u>Beginning Your Italian Journey: Top 10 Welcoming Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beyond-borders-beyond-barriers-the-top-4-motivations-to-study-a-new-language-in-your-forties/"><u>Beyond Borders, Beyond Barriers: The Top 4 Motivations to Study a New Language in Your Forties</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bonnes-nouvelles-en-francais-oui-bienvenue/"><u>Bonnes Nouvelles en Français: Oui, Bienvenue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-borders-with-words-mondlys-affordable-linguistic-program-for-ukrainians/"><u>Bridging Borders with Words – Mondly’s Affordable Linguistic Program for Ukrainians</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/catalan-in-bite-size-learn-each-day/"><u>Catalan in Bite-Size: Learn Each Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/challenges-in-learning-german/"><u>Challenges in Learning German</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/chord-powered-communication-science-backed-music-learning-techniques/"><u>Chord-Powered Communication: Science Backed Music Learning Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-finnish-with-top-rated-online-courses/"><u>Conquer Finnish with Top-Rated Online Courses</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-urdu-in-just-10-minute-sessions/"><u>Conquer Urdu in Just 10-Minute Sessions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conversational-cupid-flirting-lines-for-love-enthusiasts/"><u>Conversational Cupid: Flirting Lines for Love Enthusiasts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/crafting-connections-romantic-german-pick-up-lines/"><u>Crafting Connections: Romantic German Pick Up Lines</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/crafting-success-tips-from-ginger-islet-for-2024/"><u>Crafting Success  Tips From Ginger Islet for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultivating-global-understanding-pathways-to-successful-communication/"><u>Cultivating Global Understanding: Pathways to Successful Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultures-spooky-holiday-rituals/"><u>Cultures' Spooky Holiday Rituals</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dannys-humanitarran-efforts-in-colombias-neediest-areas/"><u>Danny’s Humanitarran Efforts in Colombia's Neediest Areas</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-the-voices-of-europe-a-day-of-language-joy/"><u>Decoding the Voices of Europe: A Day of Language Joy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deutsche-grussformeln-fur-die-abreise/"><u>Deutsche Grußformeln Für Die Abreise</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-the-value-in-second-languages-past-fifty/"><u>Discover the Value in Second Languages Past Fifty</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/efficiently-producing-quality-videos-on-the-latest-windows-os/"><u>Efficiently Producing Quality Videos on the Latest Windows OS</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevate-your-social-skills-with-these-top-italian-greetings/"><u>Elevate Your Social Skills with These Top Italian Greetings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevating-language-instruction-through-ai-systems/"><u>Elevating Language Instruction Through AI Systems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embark-on-reading-in-france-with-these-top-20-novels/"><u>Embark on Reading in France with These Top 20 Novels</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/experts-guide-to-best-terria-mods/"><u>Expert's Guide to Best Terria Mods</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/guide-to-completely-erase-data-on-iphone-12-to-avoid-privacy-leak-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Guide to Completely Erase Data on iPhone 12 to Avoid Privacy Leak | Stellar</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/hairstyles-for-visual-gurus/"><u>Hairstyles for Visual Gurus</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-breaking-down-the-fundamentals-of-lut-design/"><u>In 2024, Breaking Down the Fundamentals of LUT Design</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-oppo-reno-11f-5g-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Oppo Reno 11F 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/mapping-your-friends-facebooks-new-neighborhood-structure/"><u>Mapping Your Friends: Facebook's New Neighborhood Structure</u></a></li>
+<li><a href="https://howto.techidaily.com/play-store-not-working-on-oppo-find-n3-flip-8-solutions-inside-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Not Working On Oppo Find N3 Flip? 8 Solutions Inside | Dr.fone</u></a></li>
+</ul></div>

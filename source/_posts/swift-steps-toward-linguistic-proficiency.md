@@ -1,7 +1,7 @@
 ---
 title: Swift Steps Toward Linguistic Proficiency
-date: 2024-07-12T08:45:49.716Z
-updated: 2024-07-13T08:45:49.716Z
+date: 2024-09-01T00:18:47.064Z
+updated: 2024-09-02T00:18:47.064Z
 tags:
   - speak
   - english
@@ -42,6 +42,9 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
 
  The reason behind this “trick” is that the**most common 1000 words account for 75% of all spoken communication** , while the**most common 3000 words account for 85% of it** . If this doesn’t feel real, just ask yourself if you know and use all the words in your mother tongue. You will soon realize that the answer is “no”.
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. Use mnemonics
 
  I know this sounds complicated, but you may have used this learning tactic before when repetition alone wasn’t enough.
@@ -50,6 +53,9 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
 
  For example, when I was in college and I had to memorize a long list of words, I always tried to come up with funny sentences or songs using them. I strongly recommend trying this or other types of mnemonics to improve your learning rhythm.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ### 3\. Identify your learning style
 
  Identifying your dominant learning style can accelerate the learning process. Many people struggle to learn [languages because teachers](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) often use the same teaching tactics for everyone, forgetting that we all have unique learning styles. How do_you_ prefer to learn? Here are the main individualized learning styles:
@@ -90,6 +96,9 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
 
 [Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-1322&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-1322&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-1322&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-1322&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-1322%26mt%3D8)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 6\. Talk to yourself
 
  As weird as this advice might be, talk to yourself! Not by yourself, but to yourself. This means that you can practice by expressing your inner thoughts in the language you want to learn.
@@ -106,6 +115,9 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
 
  Just as effective,[music will give a new perspective on the language you’re learning](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Learn the lyrics, sing along and enjoy one of the best ways to learn a language.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 8\. Read only what matters
 
  Probably the best way to learn a language is through reading. Once you have mastered the basics of the language you’re learning, reading can take you to the next level. Even though you don’t know all the foreign words, context can help you extract their meaning.
@@ -114,6 +126,9 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
 
  And it doesn’t necessarily have to be books. You can also read articles, poetry or whatever interests you more. Are you a Harry Potter fan? Great, read that. Considering its reading level (middle grade), Harry Potter is a good choice. Sure, it contains a lot of made-up terms as it’s a book about wizards, but that shouldn’t stop you from learning new and useful words. It’s not all magic and spells, after all.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 9\. Try comprehensible input
 
  Comprehensible input is highly connected to what we mentioned earlier about consuming content in the language you want to learn. Basically, comprehensible input refers to language material that is at or slightly above your current proficiency level, allowing you to understand and learn from it.
@@ -128,6 +143,9 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
 
 !['Learning a new language' by Sam Lion©](https://edge.mondly.com/blog/wp-content/uploads/2018/04/learning-a-new-language-960x620.jpg "Tips And Techniques For Fast And Effective Language Learning 9")
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  So what’s to be done? The cheapest way is to create an immersion environment at home. Basically, apply all the above-mentioned tips at once. Surround yourself with books in the language you want to learn, listen to music, learn the lyrics and sing along, read books and articles in your target language – everything all at once. The idea is to bring the new language into your environment.
 
 ### Bonus tip: Stay optimistic
@@ -156,6 +174,9 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<!-- affiliate ads end -->
 ### From 0 to conversational fast
 
  Do you want to learn a language fast? Try Mondly, the award-winning language app that can help you master languages in record time.
@@ -190,3 +211,47 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-the-ultimate-playbook-speaking-with-flair-on-slides/"><u>[New] 2024 Approved  The Ultimate Playbook  Speaking with Flair on Slides</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-best-ff-browser-add-ons-for-fb-videos/"><u>[Updated] 2024 Approved  Best FF Browser Add-Ons for FB Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-maximizing-your-potential-is-a-joined-force-right-for-you/"><u>[Updated] Maximizing Your Potential  Is a Joined Force Right for You?</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-advanced-zoom-practices-for-chromebook-users/"><u>2024 Approved  Advanced Zoom Practices for Chromebook Users</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-precision-toolkit-for-flawless-webp-to-jpg-changeover/"><u>2024 Approved  Precision Toolkit for Flawless WebP to JPG Changeover</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/blueear-bluetooth-headset-cap-reveal-uncomplicated-style-meets-solid-audio-performance/"><u>BlueEar Bluetooth Headset Cap Reveal: Uncomplicated Style Meets Solid Audio Performance</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-zte-axon-40-lite-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On ZTE Axon 40 Lite | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/honoring-time-mondlybacks-filter-evolution/"><u>Honoring Time: MondlyBack’s Filter Evolution</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-vivo-y27-4g-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass Vivo Y27 4G FRP In 3 Different Ways</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-fix-an-unresponsive-ios-email-client-on-iphone-devices/"><u>How to Fix an Unresponsive iOS Email Client on iPhone Devices</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/how-to-get-up-close-with-video-chat-colleagues/"><u>How to Get Up Close with Video Chat Colleagues</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-vivo-s17e-phone-without-any-data-loss-by-drfone-android/"><u>How to Unlock Vivo S17e Phone without Any Data Loss</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-lock-apps-on-oppo-k11-5g-to-protect-your-individual-information-by-drfone-android/"><u>In 2024, How to Lock Apps on Oppo K11 5G to Protect Your Individual Information</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-innovative-chroma-techniques-for-stunning-visual-storytelling/"><u>In 2024, Innovative Chroma Techniques for Stunning Visual Storytelling</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jolly-juxtaposition-of-latins-and-games/"><u>Jolly Juxtaposition of Latins and Games</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-growth-beyond-grammar-constraints/"><u>Linguistic Growth Beyond Grammar Constraints</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-love-letters-for-lifes-milestones/"><u>Linguistic Love Letters for Life's Milestones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/maximizing-your-israeli-travel-experience-key-advice-and-local-lingo/"><u>Maximizing Your Israeli Travel Experience: Key Advice & Local Lingo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-announces-enhanced-customer-support-qanda/"><u>Mondly Announces Enhanced Customer Support Q&A</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-conjuncts-with-pearson-knowledge-hub/"><u>Mondly Conjuncts With Pearson Knowledge Hub</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-kids-the-ultimate-guide-to-kid-friendly-snacks-2017s-best-app/"><u>Mondly Kids: The Ultimate Guide to Kid-Friendly Snacks, 2017'S Best App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-rejoices-7-years-of-worldwide-learning/"><u>Mondly Rejoices - 7 Years of Worldwide Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-magic-unleashed-mondly-and-oculus-quest/"><u>Multilingual Magic Unleashed: Mondly and Oculus Quest</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pioneering-your-data-protection/"><u>Pioneering Your Data Protection</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/proficient-communication-premium-linguistic-tools-reviewed/"><u>Proficient Communication: Premium Linguistic Tools Reviewed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revel-in-advanced-usage-techniques-for-mondly/"><u>Revel in Advanced Usage Techniques for Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revolutionize-your-language-skills-using-mondlys-10-innovative-techniques/"><u>Revolutionize Your Language Skills Using Mondly's 10 Innovative Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saying-hello-and-goodbye-indonesias-communication-norms/"><u>Saying Hello & Goodbye: Indonesia's Communication Norms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seamless-connections-with-huawei-plus-mondly/"><u>Seamless Connections with Huawei + Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/semana-espanola-dias-y-horas-al-alcance/"><u>Semana Española: Días Y Horas Al Alcance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/silk-strands-of-sentiment-elegant-italian-pick-up-lines/"><u>Silk Strands of Sentiment: Elegant Italian Pick-Up Lines</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-a-native-in-latvia-the-ten-minute-method/"><u>Speak Like a Native in Latvia: The Ten-Minute Method</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ise-approach-to-snagging-youtube-playlists-efficiently/"><u>Stepwise Approach to Snagging YouTube Playlists Efficiently</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-french-romance-banter/"><u>The Art of French Romance Banter</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/the-insignia-ns-43df710na19-fire-tv-review-of-an-economic-smart-device-with-alexa-and-superior-picture-quality/"><u>The Insignia NS-43DF710NA19 Fire TV - Review of an Economic Smart Device with Alexa and Superior Picture Quality</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-melting-pot-africas-linguistic-landscape/"><u>The Melting Pot: Africa’s Linguistic Landscape</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshooting-launch-problems-in-games-confirm-your-data-integrity/"><u>Troubleshooting Launch Problems in Games: Confirm Your Data Integrity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/uss-preferred-foreign-language-study-pathways/"><u>U.S.'s Preferred Foreign Language Study Pathways</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/ultimate-battle-of-video-capturing-apps-for-2024/"><u>Ultimate Battle of Video Capturing Apps for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/which-nations-prepare-for-thanksgiving/"><u>Which Nations Prepare for Thanksgiving?</u></a></li>
+</ul></div>

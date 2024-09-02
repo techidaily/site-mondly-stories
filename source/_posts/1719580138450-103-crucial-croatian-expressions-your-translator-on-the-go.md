@@ -1,7 +1,7 @@
 ---
 title: "103 Crucial Croatian Expressions: Your Translator On-the-Go"
-date: 2024-07-12T08:45:03.033Z
-updated: 2024-07-13T08:45:03.033Z
+date: 2024-09-01T00:17:52.549Z
+updated: 2024-09-02T00:17:52.549Z
 tags:
   - speak
   - english
@@ -83,12 +83,19 @@ thumbnail: https://thmb.techidaily.com/8df3a9bbe5d32c1e5c4eef1f9c5ff4d8504e6e331
 * Please wait a moment. –_Pričekajte trenutak, molim Vas._
 * I’ll be back immediately. –_Odmah se vraćam._
 
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 3\. Croatian phrases for food lovers
 
  Food is all that some of us can think about. Yep. We all know that one friend who has to try every new food when visiting a new country. We sometimes are that friend. But who can blame the gourmand? Food is soooo good! And Croatia is nothing short of delightful food. You’ll absolutely need to try Peka (baking meat, seafood, and veggies), Brudet (fish stew), Stuffed peppers, Zagreb Schnitzel and the addictive Fritule dessert. So here’s**how to order drinks or food in Croatian restaurants:**
 
 ![croatian translation](https://edge.mondly.com/blog/wp-content/uploads/2019/07/croatian-translation-1024x694.jpg "100+ Essential Croatian Phrases You'Ll Need Before Traveling To Croatia 3")
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
  “Delicious” by Cel Lisboa©
 
 * I have a reservation. My name is \_\_\_\_\_. –_Imam rezervaciju. Moje ime je \_\_\_\_._
@@ -104,6 +111,9 @@ thumbnail: https://thmb.techidaily.com/8df3a9bbe5d32c1e5c4eef1f9c5ff4d8504e6e331
 * I would like a coffee. –_Rado bih kavu._
 * Can I have some ice cream? –_Mogu li dobiti sladoleda?_
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ## 4\. Basic Croatian for travelers who need a place to spend the night
 
  Finding the perfect place to stay can get stressful sometimes. Now imagine you found the perfect place on Airbnb, but the host only**speaks Croatian.** It wouldn’t hurt knowing some**basic Croatian** in this situation, would it?
@@ -117,6 +127,9 @@ thumbnail: https://thmb.techidaily.com/8df3a9bbe5d32c1e5c4eef1f9c5ff4d8504e6e331
 * Very pleasant, thank you. –_Vrlo ugodan, hvala Vam._
 * Here is your bill, please look it over. –_Izvolite Vas Racun, molimo pregledajte ga._
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 5\. Croatian to English for tourists who want to have fun
 
  You’ll have to admit that parties connect people. Phones used to do that, but not anymore. Now going to a party is the best way to connect with people and get to know a new culture. Thus, if you have already planned your trip to Croatia, also squeeze in a night out to party and enjoy the Old Town from another perspective. It may reveal itself differently.
@@ -134,6 +147,9 @@ thumbnail: https://thmb.techidaily.com/8df3a9bbe5d32c1e5c4eef1f9c5ff4d8504e6e331
 * One ticket, please. –_Jednu kartu bih Vas molio._
 * Are there seats available? –_Ima li slobodnih mjesta?_
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
 ## 6\. Croatian phrases about love
 
  Love is paramount and ubiquitous. So don’t be surprised if you fall in love in Croatia. Everywhere is the perfect place to fall in love. Your soulmate can be right beside you or maybe thousands of miles away. So why not be thoughtful and learn some**Croatian phrases** about love beforehand? You never know who you might bump into. Kit Harington and Emilia Clarke could be roaming the streets of Dubrovnik right now (hihihi).
@@ -168,6 +184,9 @@ thumbnail: https://thmb.techidaily.com/8df3a9bbe5d32c1e5c4eef1f9c5ff4d8504e6e331
 * What would you like? –_Što bi željela?_
 * Can I have some ice cream? –_Mogu li dobiti sladoleda?_
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 8\. Days of the week and numbers in Croatian
 
  The days of the week and the numbers are absolutely essential words in any language. Sooner or later you’ll need them when roaming the world. So here are the days of the week and the**numbers in Croatian.**
@@ -239,3 +258,48 @@ thumbnail: https://thmb.techidaily.com/8df3a9bbe5d32c1e5c4eef1f9c5ff4d8504e6e331
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-cutting-edge-techniques-for-google-meet-aesthetic-enhancement/"><u>[New] In 2024, Cutting-Edge Techniques for Google Meet Aesthetic Enhancement</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-the-ultimate-guide-for-iphone-screen-taping-for-2024/"><u>[New] The Ultimate Guide for iPhone Screen Taping for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-building-buzz-strategies-for-shaping-your-unique-youtubing-image/"><u>[Updated] 2024 Approved  Building Buzz  Strategies for Shaping Your Unique YouTubing Image</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-top-vr-gloves-to-check-out/"><u>[Updated] Top VR Gloves to Check Out</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/find-joy-one-anime-at-a-time-youtubes-best-channels-list-for-2024/"><u>Find Joy, One Anime at a Time  YouTube's Best Channels (List) for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/google-advocates-mondly-your-comprehensive-learning-companion/"><u>Google Advocates: Mondly - Your Comprehensive Learning Companion</u></a></li>
+<li><a href="https://driver-install.techidaily.com/harmonize-hp-envy-laptop-driver-with-win10-system/"><u>Harmonize HP Envy Laptop Driver with Win10 System</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/harness-ai-in-your-queries-learn-how-to-register-on-microsofts-innovative-bing-platform/"><u>Harness AI in Your Queries: Learn How to Register on Microsoft's Innovative Bing Platform</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/heartbeats-in-verona-italian-charming-quips/"><u>Heartbeats in Verona: Italian Charming Quips</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-warmly-welcome-in-chinese-social-settings/"><u>How To Warmly Welcome In Chinese Social Settings</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-10-best-instagram-video-editor-for-android-pc-online/"><u>In 2024, 10 Best Instagram Video Editor for Android, PC, Online</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-frp-hijacker-by-hagard-download-and-bypass-your-infinix-smart-8-plus-frp-locks-by-drfone-android/"><u>In 2024, FRP Hijacker by Hagard Download and Bypass your Infinix Smart 8 Plus FRP Locks</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-generate-funny-image-for-giphy/"><u>In 2024, Generate Funny Image for Giphy</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-oppo-a78-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Oppo A78 to BlackBerry | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/infatuation-inkling-german-flirtations/"><u>Infatuation Inkling: German Flirtations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-mondly-to-your-huawei-device/"><u>Introducing Mondly to Your Huawei Device</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jumpstart-your-latvian-commit-to-10-daily-minutes/"><u>Jumpstart Your Latvian - Commit to 10 Daily Minutes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-the-language-top-100-most-commonly-misspelled-english-words/"><u>Master the Language: Top 100 Most Commonly Misspelled English Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-languages-made-easy-googles-choice-mondly/"><u>Navigating Languages Made Easy: Google's Choice Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/neurospeak-language-mastery-through-virtual-reality/"><u>NeuroSpeak: Language Mastery Through Virtual Reality</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oculus-quest-launches-multilingual-support-with-mondly/"><u>Oculus Quest Launches Multilingual Support with 'Mondly'!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/one-minute-a-day-thousands-of-words-gained/"><u>One Minute A Day, Thousands of Words Gained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-polish-learning-techniques/"><u>Quick Polish Learning Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quickstep-ukranian-proficiency-10-minute-daily-goal-84-chars/"><u>Quickstep Ukranian Proficiency, 10-Minute Daily Goal (84 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revolutionize-your-year-with-unlimited-lifetime-access-to-mondly-premium-at-no-cost/"><u>Revolutionize Your Year with Unlimited Lifetime Access to Mondly Premium at No Cost</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saber-a-melhora-na-qualquer-comuniccao-no-portugues/"><u>Saber a Melhora Na Qualquer Comunicção No Português</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seafaring-savvy-essential-piratical-lexicon-unveiled/"><u>Seafaring Savvy: Essential Piratical Lexicon Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-love-understand-each-other-tackling-relationship-barriers/"><u>Speak Love, Understand Each Other: Tackling Relationship Barriers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sprint-your-way-through-urdu-ten-minutes-daily/"><u>Sprint Your Way Through Urdu: Ten Minutes Daily</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tech-driven-learning-mondlys-commitment-to-apples-tools-for-students/"><u>Tech-Driven Learning: Mondly's Commitment to Apple's Tools for Students</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-big-three-of-asian-languages-quick-save-function/"><u>The Big Three of Asian Languages: Quick Save Function</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-cousins-contrast-spains-spanish-compared-to-portugale-portuguese/"><u>The Cousins' Contrast: Spain’s Spanish Compared to Portugal'e Portuguese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essential-guide-to-mastering-conversational-skills/"><u>The Essential Guide to Mastering Conversational Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-iberian-code-deciphering-the-sounds-of-spanish-and-portuguese/"><u>The Iberian Code: Deciphering the Sounds of Spanish and Portuguese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-pearson-way-to-fluent-multilingualism/"><u>The Pearson Way to Fluent Multilingualism</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-6-benefits-embracing-arabic-learning-via-mondly-online/"><u>Top 6 Benefits: Embracing Arabic Learning via Mondly Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-efficiency-prime-approaches-to-master-an-online-language/"><u>Unlocking Efficiency: Prime Approaches to Master an Online Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-hungarian-languages-lovestory-tactics/"><u>Unveiling Hungarian Language's Lovestory Tactics</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/watch-lord-of-the-rings-like-a-true-hobbit-unveiling-the-perfect-movie-marathon-sequence/"><u>Watch 'Lord of the Rings' Like a True Hobbit: Unveiling the Perfect Movie Marathon Sequence</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/which-upcoming-language-should-i-embrace/"><u>Which Upcoming Language Should I Embrace?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/whimsical-whispers-seducing-with-spoken-spanish/"><u>Whimsical Whispers: Seducing With Spoken Spanish</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Lettura Intermedia per Comunicare I Numeri Italiani
-date: 2024-07-12T08:47:22.694Z
-updated: 2024-07-13T08:47:22.694Z
+date: 2024-09-01T00:16:08.975Z
+updated: 2024-09-02T00:16:08.975Z
 tags:
   - speak
   - english
@@ -88,6 +88,9 @@ Let’s see some examples:
 * to say “18 years”, you’ll say_diciotto anni_
 * to say “20 children”, you’ll say_venti bambini_
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Italian numbers to 30 and beyond
 
  Essentially, Italian numbers are very similar to English numbers. Once you get to 20, you just put together the tens with the single numbers (units). The best part is that Italian doesn’t even require spaces or hyphens. For example, if you want to say 22 (“twenty-two”), in Italian you say venti (20) + due (2) = _**venti** due_ (22).
@@ -100,6 +103,9 @@ Let’s see some examples:
 
  See how easy Italian numbers are? The only thing you have to remember is that the final vowel of the tens disappears when you add 1_(uno)_ or 8_(otto)_ . Thus, you’ll say _**vent** uno_ and not “ventiuno”. Additionally, number 3_(tre)_ gains an accent mark on the final vowel. For example, 33 will be_trentatré_ and 83 will be_ottantatré._
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Count tens in Italian
 
  Except for 10_(dieci)_ and 20_(venti)_ , all tens digits in Italian are based on their roots. Once you know all of them, you’ll know how to count to 100 – which is_cento_ – in Italian.
@@ -133,6 +139,9 @@ Let’s see some examples:
 * 84 – _ottanta**quattro**_
 * 98 – _novant**otto**_
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Italian numbers 100 to 1000 and beyond
 
  The same rules apply to bigger numbers as well. Add the suffix_cento_ to the multiplier digit and here are your hundreds:
@@ -161,6 +170,9 @@ Let’s see some examples:
 
 ![italian numbers pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2020/05/italian-numbers-pronunciation-960x640.jpg "Italian Numbers Made Easy - Count To 1000 And Beyond In Italian 3")
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
+<!-- affiliate ads end -->
  “The Amalfi Coast” by Gregory Smirnov©
 
  Back to counting, from 100 and beyond, the bigger the number is, the longer its written form. Italian doesn’t isolate hundreds, tens and ones. They become one long word with no hyphens or spaces. For example:
@@ -235,3 +247,75 @@ Let’s see some examples:
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-affiliate-allies-for-small-channels-an-easy-approach/"><u>[New] 2024 Approved  Affiliate Allies for Small Channels  An Easy Approach</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-stepwise-journey-to-master-large-heads-in-tiktok-filmmaking-3-strategies/"><u>[New] 2024 Approved  Stepwise Journey to Master Large Heads in TikTok Filmmaking (3 Strategies)</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-the-2023-shift-in-facebooks-video-presentation-style/"><u>[New] 2024 Approved  The 2023 Shift in Facebook’s Video Presentation Style</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-asmr-content-deep-dive-101/"><u>[New] ASMR Content Deep Dive 101</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-hassle-free-techniques-for-igtv-on-stories/"><u>[New] In 2024, Hassle-Free Techniques for IGTV on Stories</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-streamline-your-social-experience-with-mobile-music-files-for-2024/"><u>[New] Streamline Your Social Experience with Mobile Music Files for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-15-pioneering-online-education-websites-beyond-udemy/"><u>[Updated] 2024 Approved  15 Pioneering Online Education Websites Beyond Udemy</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-how-to-download-install-and-use-obs-on-mac/"><u>[Updated] In 2024, How to Download, Install and Use OBS on Mac</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-top-10-online-screen-video-recorders/"><u>[Updated] In 2024, Top 10 Online Screen Video Recorders</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-the-key-to-smooth-segments-crossfade-logic-pro-steps-for-2024/"><u>[Updated] The Key to Smooth Segments  Crossfade Logic Pro Steps for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-ultimate-audio-compilations-for-video-production-for-2024/"><u>[Updated] Ultimate Audio Compilations for Video Production for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-secrets-to-viral-meme-innovation/"><u>2024 Approved  Secrets to Viral Meme Innovation</u></a></li>
+<li><a href="https://howto.techidaily.com/9-solutions-to-fix-process-system-isnt-responding-error-on-realme-c67-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Process System Isnt Responding Error on Realme C67 4G | Dr.fone</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/advanced-methods-for-creating-quick-quality-thumbnails/"><u>Advanced Methods for Creating Quick, Quality Thumbnails</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/budget-friendly-top-picks-thermalright-frozen-notte-vs-aqua-elite-360-white-v3-comprehensive-aio-reviews/"><u>Budget-Friendly Top Picks: Thermalright Frozen Notte Vs. Aqua Elite 360 White V3 - Comprehensive AIO Reviews</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/can-i-bypass-a-forgotten-phone-password-of-xiaomi-redmi-k70e-by-drfone-android/"><u>Can I Bypass a Forgotten Phone Password Of Xiaomi Redmi K70E?</u></a></li>
+<li><a href="https://program-issues.techidaily.com/conquering-the-start-up-dilemma-eliminating-swtor-game-boot-errors/"><u>Conquering the Start-Up Dilemma - Eliminating SWTOR Game Boot Errors</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/elevate-video-production-mastering-obs-on-android/"><u>Elevate Video Production  Mastering OBS on Android</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/fixing-not-found-mfc42dll-errors-in-windows-efficiently/"><u>Fixing Not Found mfc42.dll Errors in Windows Efficiently</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/grasping-the-nuances-in-youtube-viewer-reactions/"><u>Grasping the Nuances in YouTube Viewer Reactions</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-oppo-a38-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Oppo A38 | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-motorola-moto-g24-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Motorola Moto G24 to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-vivo-y100a-bootloader-easily-by-drfone-android/"><u>How to Unlock Vivo Y100A Bootloader Easily</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-best-zoom-tools-for-clear-session-capture/"><u>In 2024, Best Zoom Tools for Clear Session Capture</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-gt-5-pro-phone-without-pin-by-drfone-android/"><u>In 2024, How to Unlock Realme GT 5 Pro Phone without PIN</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-oppo-f25-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Oppo F25 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-premier-top-5-minimalist-action-cameras-review/"><u>In 2024, Premier Top 5 Minimalist Action Cameras Review</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-step-by-step-guide-to-creating-engaging-trendy-fb-reels/"><u>In 2024, Step-by-Step Guide to Creating Engaging, Trendy FB Reels</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-streamline-your-experience-free-screen-capture-software-on-windowsmac/"><u>In 2024, Streamline Your Experience - Free Screen Capture Software on Windows/Mac</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/interactive-intelligence-acquire-new-language-skills-virtually/"><u>Interactive Intelligence: Acquire New Language Skills Virtually</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/introducing-the-groundbreaking-photo-restoration-and-fixing-tool-by-stellar-breaking-news/"><u>Introducing the Groundbreaking Photo Restoration & Fixing Tool by Stellar – Breaking News!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-the-art-of-saying-thank-you-in-german-culture/"><u>Master the Art of Saying 'Thank You' In German Culture</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/meet-your-innovative-ai-discussion-partner/"><u>Meet Your Innovative AI Discussion Partner</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-collaborates-with-pearson-academic-union/"><u>Mondly Collaborates With Pearson Academic Union</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-no-cost-language-learning-nationwide/"><u>Mondly: No-Cost Language Learning Nationwide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-learning-revolution-the-gateway-to-knowledge-for-70-million/"><u>Mondly’s Learning Revolution – The Gateway to Knowledge for 70 Million</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigate-conversation-easily-17-basic-spanish-sayings/"><u>Navigate Conversation Easily: 17 Basic Spanish Sayings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-horizons-in-your-forties-language-learnings-top-4-advantages/"><u>New Horizons in Your Forties: Language Learning's Top 4 Advantages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/norsk-noob-to-novice-in-just-ten-minutes/"><u>Norsk Noob to Novice - In Just Ten Minutes!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/number-1-10-in-everyday-spanish/"><u>Number 1-10 in Everyday Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/opening-doors-with-foreign-tongues-anytime/"><u>Opening Doors with Foreign Tongues Anytime</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polish-skills-boost-quick-start-guide/"><u>Polish Skills Boost: Quick Start Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/portuguese-diversity-a-study-of-south-and-north-dialects/"><u>Portuguese Diversity: A Study of South & North Dialects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pronunciation-pioneers-unveiling-scottish-irish-and-aussie-flair/"><u>Pronunciation Pioneers: Unveiling Scottish, Irish, and Aussie Flair</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolved-fixing-the-windows-update-error-code-0x802n4002e/"><u>Resolved: Fixing the Windows Update Error Code 0X802n4002E</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/semana-hispana-descifrando-los-dias-en-espanol/"><u>Semana Hispana: Descifrando Los Días en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/setting-and-securing-your-2022-success/"><u>Setting & Securing Your 2022 Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-swede-smoothly-shortcuts-to-sounds/"><u>Speak Swede Smoothly: Shortcuts to Sounds</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/stay-in-touch-on-the-go-mondly-for-huawei/"><u>Stay in Touch on the Go: Mondly for Huawei</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-echoing-languages-of-asias-elite-top-3/"><u>The Echoing Languages of Asia's Elite: Top 3</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-finest-3-online-schools-learn-languages-with-precision-and-passion/"><u>The Finest 3 Online Schools: Learn Languages with Precision & Passion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-truth-about-multilingualism-5-misconited-beliefs-explored/"><u>The Truth About Multilingualism: 5 Misconited Beliefs Explored</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-hindi-adventure-awaits-dive-into-8-engaging-mondly-reasons/"><u>The Ultimate Hindi Adventure Awaits: Dive Into 8 Engaging Mondly Reasons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/timeless-tongues-earths-most-antique-linguistic-forms/"><u>Timeless Tongues: Earth's Most Antique Linguistic Forms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transformative-technology-mondly-and-pearsons-buttonfusion/"><u>Transformative Technology: Mondly and Pearson's ButtonFusion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transforming-your-company-talk-into-strategic-dialogue/"><u>Transforming Your Company Talk Into Strategic Dialogue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tv-and-cinema-cultivating-communicative-skills/"><u>TV & Cinema: Cultivating Communicative Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/uncovering-the-top-120-vital-vietnamese-words/"><u>Uncovering the Top 120 Vital Vietnamese Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-the-secrets-of-the-japanese-writing-system-and-alphabet-your-ultimate-guide/"><u>Unlock the Secrets of the Japanese Writing System and Alphabet: Your Ultimate Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-your-potential-in-just-7-steps-learn-afrikaans-with-mondlys-support/"><u>Unlock Your Potential in Just 7 Steps - Learn Afrikaans with Mondly's Support</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-the-secrets-of-turkish-quick-pronunciation-and-letter-reference/"><u>Unlocking the Secrets of Turkish: Quick Pronunciation and Letter Reference</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-germanys-quirkiest-phrases-top-25/"><u>Unveiling Germany's Quirkiest Phrases (Top 25)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-best-language-for-my-learning-journey/"><u>Unveiling The Best Language for My Learning Journey</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/unveiling-the-lenovo-thinkpad-x1-titanium-yoga-the-ultimate-2-in-1-solution-for-true-thinkpad-fans/"><u>Unveiling the Lenovo ThinkPad X1 Titanium Yoga - The Ultimate 2-in-1 Solution for True ThinkPad Fans</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vibrant-verses-of-venetian-verve/"><u>Vibrant Verses of Venetian Verve</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/where-is-thanksgiving-celebrated-globally/"><u>Where Is Thanksgiving Celebrated Globally?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/wordcraft-wisdom-how-shakespeare-shapes-our-speech/"><u>Wordcraft Wisdom: How Shakespeare Shapes Our Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/world-words-whirlwind-simplest-10-tongue-list/"><u>World Words Whirlwind: Simplest 10 Tongue List</u></a></li>
+</ul></div>

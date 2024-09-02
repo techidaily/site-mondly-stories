@@ -1,7 +1,7 @@
 ---
 title: "Palabras Comunes en Inglés Y Español: Cognados Realizadores"
-date: 2024-07-12T08:47:35.059Z
-updated: 2024-07-13T08:47:35.059Z
+date: 2024-09-01T00:16:24.147Z
+updated: 2024-09-02T00:16:24.147Z
 tags:
   - speak
   - english
@@ -42,6 +42,9 @@ thumbnail: https://thmb.techidaily.com/2635526a9b4bc31b09f99f8ed1ec33a28f3bd1734
 
  Some of the most popular examples are: _hospital, horrible, actor, artificial, agenda, animal, original, idea, flexible, vulnerable, superficial, reunion_ (_reunión_ in Spanish)_, melon, interminable, inevitable, tropical, experimental, excursion_ (_excursión_ in Spanish)_, capital, chocolate, probable, conclusion_ (_conclusión_ in Spanish) _, doctor, director, festival, general, individual, nostalgia, panorama, television_ (_televisión_ in Spanish)_, perfume, total, similar, terror_ and_verbal._
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Near-perfect English-Spanish cognates
 
  Did you know that about 90% of Spanish cognates have the same meaning in English? The rest of them are, obviously, false friends words. This means you have only a 10% chance of saying something embarrassing or awkward. That’s not too bad, isn’t it? Besides, after reading this article the percent will surely drop significantly. Even below 0 if you also start [learning Spanish with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4685&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4685?mother%5Flang=en%5Fus?target%5Flang=es&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4685?mother%5Flang=en%5Fus?target%5Flang=es) right now (wink wink).
@@ -74,6 +77,9 @@ thumbnail: https://thmb.techidaily.com/2635526a9b4bc31b09f99f8ed1ec33a28f3bd1734
 * evide**nt** and   _evide**nte**_
 * preside**nt** and   _preside**nte**_
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ### Spanish cognates that change “-ate” to “ar”
 
 * abbrevi**ate** and   _abrevi**ar**_
@@ -89,6 +95,9 @@ thumbnail: https://thmb.techidaily.com/2635526a9b4bc31b09f99f8ed1ec33a28f3bd1734
 
 ![english spanish cognates](https://edge.mondly.com/blog/wp-content/uploads/2020/04/english-spanigh-cognates-600x399.jpg "50+ Most Popular English-Spanish Cognates And False Cognates 3")
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<!-- affiliate ads end -->
  “Mommy, what are cognates?” by Josh Applegate©
 
 ### Spanish cognates that add an “-o”
@@ -104,6 +113,9 @@ thumbnail: https://thmb.techidaily.com/2635526a9b4bc31b09f99f8ed1ec33a28f3bd1734
 * artistic and   _artístic**o**_
 * dynamic and   _dinámic**o**_
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Spanish cognates that add an “-ar” or an “-ir”
 
 [Spanish verbs](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) can end in_\-ar_ ,_\-er_ , or_\-ir_ and each type follows its own conjugation rules. What you are about to find out is that many of these are English cognates with an added “-ar” or “-ir” in the end.
@@ -119,6 +131,9 @@ thumbnail: https://thmb.techidaily.com/2635526a9b4bc31b09f99f8ed1ec33a28f3bd1734
 * calm and   _calm**ar**_
 * control and   _control**ar**_
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Spanish cognates that change “-ly” to “-mente”
 
 * absolute**ly** and   _absoluta**mente**_
@@ -193,6 +208,9 @@ _Realizar_ in Spanish means “to do” or “to perform” and not “to realiz
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Speak Spanish in just 10 minutes a day
 
  All these funny little examples convinced you it’s high time you learned Spanish, didn’t they? Lucky for you, we have the perfect tool for learning Spanish: Mondly, the award-winning language learning app that makes language learning fun, fast and easy.
@@ -223,3 +241,45 @@ _Realizar_ in Spanish means “to do” or “to perform” and not “to realiz
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-resources.techidaily.com/new-belly-laughs-exclusive-access-to-freebies/"><u>[New] Belly Laughs  Exclusive Access to Freebies</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-ultimate-list-of-idevice-screen-recorders/"><u>[New] In 2024, Ultimate List of iDevice Screen Recorders</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-mirth-manual-best-free-meme-kits-alive/"><u>[New] Mirth Manual  Best Free Meme Kits Alive</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-under-100-investments-in-action-cameras-top-selections/"><u>[Updated] 2024 Approved  Under $100 Investments in Action Cameras – Top Selections</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-fix-for-sudden-audio-gaps-in-obs-captures/"><u>[Updated] Fix for Sudden Audio Gaps in OBS Captures</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-pathway-to-instagrams-elite-circle-expanding-your-audience-with-key-tips-for-2024/"><u>[Updated] The Pathway to Instagram's Elite Circle  Expanding Your Audience with Key Tips for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2023s-finest-mechanical-and-wireless-keyboards-reviewed/"><u>2023'S Finest Mechanical and Wireless Keyboards Reviewed</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-facebook-video-downloader-round-up-1-5-edition/"><u>2024 Approved  Facebook Video Downloader Round-Up  #1-5 Edition</u></a></li>
+<li><a href="https://network-issues.techidaily.com/fixing-radeon-r9-drivers-on-new-windows-11/"><u>Fixing Radeon R9 Drivers on New Windows 11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/glad-attack-grev-for-sverige/"><u>Glad Attack: Grev För Sverige</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/groundbreaking-ai-powered-ar-speaker/"><u>Groundbreaking AI-Powered AR Speaker</u></a></li>
+<li><a href="https://win-dash.techidaily.com/guide-to-the-newest-video-driver-downloads-and-setup-instructions-for-toshiba-satellite-models-windows-compatible/"><u>Guide to the Newest Video Driver Downloads & Setup Instructions for Toshiba Satellite Models - Windows Compatible</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/harmonious-easter-wishes-in-multiple-languages/"><u>Harmonious Easter Wishes in Multiple Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/heartstrings-and-heritage-love-filled-french-films/"><u>Heartstrings and Héritage: Love-Filled French Films</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-honor-100-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Honor 100? | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-sony-a6400-video-not-showing-troubleshooting-guide/"><u>In 2024, Sony A6400 Video Not Showing  Troubleshooting Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/little-linguists-from-playing-with-puppies-to-elementary-spanish/"><u>Little Linguists: From Playing with Puppies To Elementary Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/local-lingo-lessons-australian-slang-unpacked/"><u>Local Lingo Lessons: Australian Slang Unpacked</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/new-in-2024-deciphering-the-prowess-of-magix-samplitude-in-modern-music-production/"><u>New In 2024, Deciphering the Prowess of MAGIX Samplitude in Modern Music Production</u></a></li>
+<li><a href="https://win-answers.techidaily.com/overcoming-graphic-drivers-the-newly-resolved-overwatch-bug/"><u>Overcoming Graphic Drivers: The Newly Resolved Overwatch Bug</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/refining-reality-close-up-creations-in-minecraft/"><u>Refining Reality  Close-Up Creations in Minecraft</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/romance-rivalry-unpacking-spanish-and-portuguese-linguistics/"><u>Romance Rivalry: Unpacking Spanish & Portuguese Linguistics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/savor-the-language-uncover-germanys-top-25-idioms/"><u>Savor the Language: Uncover Germany's Top 25 Idioms</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-recent-calls-back-from-vivo-y36i-by-fonelab-android-recover-call-logs/"><u>Simple ways to get recent calls back from Vivo Y36i</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/slang-evolution-in-american-vs-british-english-over-time/"><u>Slang Evolution in American vs British English Over Time</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-counting-1-10-for-starters/"><u>Spanish Counting 1-10 For Starters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-latvian-fast-10-minute-daily-routine/"><u>Speak Latvian Fast: 10-Minute Daily Routine</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-savvy-the-evolution-of-multilingualism-today/"><u>Speaking Savvy: The Evolution of Multilingualism Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-by-step-pronunciation-practice-for-beginners-in-germany/"><u>Step-by-Step Pronunciation Practice for Beginners in Germany</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-10-arguments-to-start-studying-german/"><u>Top 10 Arguments to Start Studying German</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-16-german-phrases-perfect-for-showing-appreciation/"><u>Top 16 German Phrases Perfect for Showing Appreciation</u></a></li>
+<li><a href="https://fox-that.techidaily.com/top-8-solutions-and-hacks-for-iphone-photo-library-woes/"><u>Top 8 Solutions & Hacks for iPhone Photo Library Woes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-spelling-blunders-in-english-a-comprehensive-list-of-mistakes/"><u>Top Spelling Blunders in English: A Comprehensive List of Mistakes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/united-learners-unstoppable-mondly/"><u>United Learners, Unstoppable Mondly</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unleashing-creativity-with-magix-video-pro-x-for-2024/"><u>Unleashing Creativity with Magix Video Pro X for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unraveling-the-mysteries-of-russian-phonology/"><u>Unraveling the Mysteries of Russian Phonology</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/unveiling-instagram-insights-a-deep-dive-into-data-trends/"><u>Unveiling Instagram Insights  A Deep Dive Into Data Trends</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-linguistic-curiosity-is-still-flourishing-at-sixty/"><u>Why Linguistic Curiosity Is Still Flourishing at Sixty?</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "Unlock Romance: Say I Love You In 10+ Languages"
-date: 2024-07-12T08:49:51.365Z
-updated: 2024-07-13T08:49:51.365Z
+date: 2024-09-01T00:13:23.402Z
+updated: 2024-09-02T00:13:23.402Z
 tags:
   - speak
   - english
@@ -113,14 +113,23 @@ Here are some more ways to say “I love you” in other languages:
 
 ![I love you in sign language](https://edge.mondly.com/blog/wp-content/uploads/2018/10/i-love-you-sign-language.jpg "Say It Like You Mean It: How To Say “I Love You” In 32 Different Languages 4")
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
 ## The perfect Valentine’s Day gift: 365 gifts for 365 days
 
  Now that you know how to say “I love you” in so many languages, here’s a sweet present idea you could use for your next anniversary or Valentine’s Day. All you need to buy is a big jar – big enough for all your love. The rest of it comes from the bottom of your heart. The first step is to prepare 365 pieces of paper of different colors and sizes and write “I love you” in different languages on the first 32 of them. Go wildly romantic with the rest of them: you could write love quotes for him or love quotes for her, poems or songs that you both like. Next step? Decorate the jar with tiny lights, pieces of lace or stickers.
 
 ![i love you in spanish by Diego PH©](https://edge.mondly.com/blog/wp-content/uploads/2018/10/i-love-you-in-spanish-scaled-480x600.jpg "Say It Like You Mean It: How To Say “I Love You” In 32 Different Languages 5")
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
  When it’s ready, tell your lover to read one piece of paper every day. Even when you are not around. That’s how they’ll smile and know that your heart always belongs to them.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### A love poem for your loved one
 
  Look no further if you need a love poem or a love song for your jar. It doesn’t necessarily need to be original. It just has to come from the heart. Here’s**a love song for your love jar:**
@@ -173,6 +182,10 @@ _With you, my heart will forever blend._
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+</a>
+<!-- affiliate ads end -->
 ### From “I love you” to conversational fast
 
  Do you want to go the extra mile and learn a new language for someone you love? Try Mondly, the award-winning language app that can help you master languages in record time.
@@ -207,3 +220,57 @@ _With you, my heart will forever blend._
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-a-step-by-step-guide-for-sharing-camera-roll-pictures-on-snapchat/"><u>[New] In 2024, A Step by Step Guide for Sharing Camera Roll Pictures on Snapchat</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-ultimate-evaluation-of-samsungs-image-editing-software/"><u>[New] The Ultimate Evaluation of Samsung's Image Editing Software</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-dynamic-public-speaker-review-v8/"><u>[Updated] Dynamic Public Speaker Review V8</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-cross-service-song-matching-sharing-your-musical-journey/"><u>[Updated] In 2024, Cross-Service Song Matching  Sharing Your Musical Journey</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-simplifying-the-process-of-finding-facebook-watch-history/"><u>[Updated] In 2024, Simplifying the Process of Finding Facebook Watch History</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-mastering-youtube-cards-and-markup-tips/"><u>[Updated] Mastering YouTube Cards & Markup Tips</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-optimal-programs-making-movies-from-picture-files/"><u>[Updated] Optimal Programs  Making Movies From Picture Files</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-joining-google-meet-easily-anytime-anywhere/"><u>2024 Approved  Joining Google Meet Easily, Anytime, Anywhere</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/delete-gmail-account-withwithout-password-on-realme-c51-by-drfone-android/"><u>Delete Gmail Account With/Without Password On Realme C51</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-epson-stylus-artisan-1430-printer-software-for-windows-11-10-and-8/"><u>Download Epson Stylus Artisan 1430 Printer Software for Windows 11, 10 & 8</u></a></li>
+<li><a href="https://win11.techidaily.com/effective-steps-to-update-login-credentials-on-win-11/"><u>Effective Steps to Update Login Credentials on Win 11</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/exploring-digital-innovations-with-toms-hardware-analysis-and-reviews/"><u>Exploring Digital Innovations with Tom's Hardware Analysis and Reviews</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/full-guide-on-mirroring-your-oneplus-ace-2-pro-to-your-pcmac-drfone-by-drfone-android/"><u>Full Guide on Mirroring Your OnePlus Ace 2 Pro to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/google-play-acclaim-for-mondly-kids-childhood-nutrition-guide-of-2017/"><u>Google Play Acclaim for Mondly Kids - Childhood Nutrition Guide of 2017</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-best-3-software-to-transfer-files-tofrom-your-motorola-moto-g23-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Best 3 Software to Transfer Files to/from Your Motorola Moto G23 via a USB Cable | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-best-android-options-10-gb-emulation-tools/"><u>In 2024, Best Android Options  10 GB Emulation Tools</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-clear-video-borders-streamline-webcam-footage/"><u>In 2024, Clear Video Borders  Streamline Webcam Footage</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-samsung-galaxy-m14-5g-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock Samsung Galaxy M14 5G Phone without Google Account?</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-xiaomi-redmi-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Xiaomi Redmi 12 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-dialogue-starters/"><u>International Dialogue Starters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/japanese-mastery-on-a-dime-best-online-and-autonomous-resources/"><u>Japanese Mastery on a Dime: Best Online & Autonomous Resources</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/johannes-honterus-a-great-personality-who-inspires-and-motivates-us/"><u>Johannes Honterus: A Great Personality Who Inspires And Motivates Us</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-leap-kindergarten-to-fifth-grade-in-spanish/"><u>Language Leap: Kindergarten to Fifth Grade in Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/le-temps-de-la-france/"><u>Le Temps De La France</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lerne-deutsche-wochentage-inklusive-namen/"><u>Lerne Deutsche Wochentage Inklusive Namen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-tools-for-navigating-vietnam/"><u>Linguistic Tools for Navigating Vietnam</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/make-every-moment-count-save-96-on-infinite-mondly-premium-life/"><u>Make Every Moment Count - Save $96 on Infinite Mondly Premium Life</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-russian-greetings-essential-phrases-and-basic-vocabulary/"><u>Mastering Russian Greetings: Essential Phrases And Basic Vocabulary</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-tricky-pronunciations-tips-and-examples-of-hard-words-to-pronounce/"><u>Mastering Tricky Pronunciations: Tips And Examples Of Hard Words To Pronounce</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/melody-as-mnemonic-device-science-and-songs-to-master-multiple-languages/"><u>Melody as Mnemonic Device: Science and Songs to Master Multiple Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-celebrated-as-10-in-apples-educational-app-list/"><u>Mondly Celebrated as #10 in Apple’s Educational App List</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-educates-the-young-ones-cited-by-google-play-2017/"><u>Mondly Educates the Young Ones, Cited by Google Play 2017</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-kids-a-smart-choice-for-young-minds-in-2017/"><u>Mondly Kids - A Smart Choice for Young Minds in 2017</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-meets-precision-pearsons-gsl-upgrade/"><u>Mondly Meets Precision: Pearson's GSL Upgrade</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/optimizing-youtube-content-with-social-blade-a-stats-journey-for-2024/"><u>Optimizing YouTube Content With Social Blade - A Stats Journey for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/parsing-rules-or-linguistic-fluency/"><u>Parsing Rules or Linguistic Fluency?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pioneering-professionalism-language-proficiency-in-companies/"><u>Pioneering Professionalism: Language Proficiency in Companies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/simplified-hangul-the-ultimate-language-learning-tool/"><u>Simplified Hangul: The Ultimate Language-Learning Tool</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sprachliche-wege-den-kontakt-abzubrechen/"><u>Sprachliche Wege, Den Kontakt Abzubrechen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sprachtraining-deutsches-wochenabschnitte-verstehen/"><u>Sprachtraining: Deutsches Wochenabschnitte Verstehen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-cognitive-advantages-of-multilingualism-post-fifty/"><u>The Cognitive Advantages of Multilingualism Post-Fifty</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-journey-and-advantages-of-learning-english/"><u>The Journey and Advantages of Learning English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-home-french-education-playbook/"><u>The Ultimate Home French Education Playbook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukranian-in-bits-learning-fast-just-a-minute-a-day-85-chars/"><u>Ukranian in Bits: Learning Fast, Just a Minute a Day (85 Chars)</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ing-suspension-how-to-erase-youtube-shorts-for-2024/"><u>Unending Suspension  How to Erase YouTube Shorts for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/unleash-creativity-with-these-essential-vector-editors-for-2024/"><u>Unleash Creativity with These Essential Vector Editors for 2024</u></a></li>
+<li><a href="https://os-tips.techidaily.com/unveiling-the-truth-how-governments-could-be-using-push-alerts-as-a-surveillance-tool/"><u>Unveiling the Truth: How Governments Could Be Using Push Alerts as a Surveillance Tool</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/weekly-rhythmes-en-francais/"><u>Weekly Rhythmes En Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-its-never-too-late-to-learn-a-foreign-language-mondly/"><u>Why It’s Never Too Late To Learn A Foreign Language - Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/world-words-within-the-web-of-english-language/"><u>World Words Within the Web of English Language</u></a></li>
+</ul></div>

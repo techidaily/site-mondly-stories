@@ -1,7 +1,7 @@
 ---
 title: A Global Guide to Grateful Gestures in 30 Languages (156)
-date: 2024-07-12T08:49:00.137Z
-updated: 2024-07-13T08:49:00.137Z
+date: 2024-09-01T00:14:20.177Z
+updated: 2024-09-02T00:14:20.177Z
 tags:
   - speak
   - english
@@ -81,6 +81,9 @@ thumbnail: https://thmb.techidaily.com/307c74c604613a22f691edcf44e5f2764e78d11c7
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ## From 0 to conversational in over 40 languages
 
  Do you want to speak Spanish fluently fast? Or maybe French? Get [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6274&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6274&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6274) , the award-winning language learning app that will help you speak up to 41 languages.
@@ -114,3 +117,57 @@ thumbnail: https://thmb.techidaily.com/307c74c604613a22f691edcf44e5f2764e78d11c7
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://mondly-stories.techidaily.com/mondly-bridging-communication-gaps-in-the-virtual-reality-arena-with-oculus-quest/"><u>'Mondly': Bridging Communication Gaps in the Virtual Reality Arena with Oculus Quest</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/por-que-vs-por-que-a-language-conundrum-solved/"><u>'Por Que' Vs 'Por Qué': A Language Conundrum Solved</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-a-deep-dive-into-youtube-mastery-using-sony-vegas-software/"><u>[New] 2024 Approved  A Deep Dive Into YouTube Mastery Using Sony Vegas Software</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-ps5-ssd-and-hdd-wonders-top-10-exteriors/"><u>[New] In 2024, PS5 SSD & HDD Wonders  Top 10 Exteriors</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-cracked-the-full-screen-hurdle-in-obs/"><u>[Updated] Cracked  The Full Screen Hurdle in OBS</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-from-screen-to-stage-best-anime-inspired-tiktok-plays/"><u>[Updated] From Screen to Stage  Best Anime-Inspired TikTok Plays</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-gigglygraphics-mememakers-haven/"><u>[Updated] GigglyGraphics  MemeMaker's Haven</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-how-often-should-you-upload-videos-to-youtube-to-get-more-views-for-2024/"><u>[Updated] How Often Should You Upload Videos to YouTube to Get More Views for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-unveiling-the-best-practices-for-skype-in-obs/"><u>[Updated] In 2024, Unveiling the Best Practices for Skype in OBS</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/1-tiktok-videos-that-trended-on-twitter/"><u>1 TikTok Videos That Trended on Twitter</u></a></li>
+<li><a href="https://win-answers.techidaily.com/beat-high-cpu-usage-on-discord-with-these-proven-fixes-updated-guide/"><u>Beat High CPU Usage on Discord with These Proven Fixes (Updated Guide)</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/capturing-dynamic-action-sequences-on-iphone-for-2024/"><u>Capturing Dynamic Action Sequences on iPhone for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/edit-and-send-fake-location-on-telegram-for-your-google-pixel-7a-in-3-ways-drfone-by-drfone-virtual-android/"><u>Edit and Send Fake Location on Telegram For your Google Pixel 7a in 3 Ways | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exclusive-look-at-nvidia-shield-tv-pro-the-ideal-choice-for-hardcore-gamers-entertainment-hub/"><u>Exclusive Look at Nvidia Shield TV Pro - The Ideal Choice for Hardcore Gamers' Entertainment Hub</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/harmony-or-hindrance-grammar-in-language-education/"><u>Harmony or Hindrance: Grammar in Language Education?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/heartbeats-in-verona-italian-charming-quips/"><u>Heartbeats in Verona: Italian Charming Quips</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-whatsapp-messages-on-samsung-galaxy-s24plus-without-them-knowing-drfone-by-drfone-virtual-android/"><u>How to Track WhatsApp Messages on Samsung Galaxy S24+ Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-use-special-features-virtual-location-on-oneplus-nord-ce-3-5g-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On OnePlus Nord CE 3 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-on-motorola-edge-40-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock on Motorola Edge 40 Devices</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Snapchat Location Spoofer to Protect Your Privacy On Realme GT Neo 5 SE? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-mondly-to-your-huawei-device/"><u>Introducing Mondly to Your Huawei Device</u></a></li>
+<li><a href="https://extra-support.techidaily.com/leading-marketplaces-for-bespoke-wrapping-marvels-for-2024/"><u>Leading Marketplaces for Bespoke Wrapping Marvels for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-the-language-top-100-most-commonly-misspelled-english-words/"><u>Master the Language: Top 100 Most Commonly Misspelled English Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oculus-quest-launches-multilingual-support-with-mondly/"><u>Oculus Quest Launches Multilingual Support with 'Mondly'!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/one-minute-a-day-thousands-of-words-gained/"><u>One Minute A Day, Thousands of Words Gained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pronunciation-precision-learn-with-english-twisters/"><u>Pronunciation Precision: Learn with English Twisters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pronunciation-prowess-engage-in-twisting-words/"><u>Pronunciation Prowess: Engage in Twisting Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-learning-guide-over-100-essential-russian-expressions/"><u>Quick-Learning Guide: Over 100 Essential Russian Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quickstep-ukranian-proficiency-10-minute-daily-goal-84-chars/"><u>Quickstep Ukranian Proficiency, 10-Minute Daily Goal (84 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ranking-of-popularly-taught-international-languages-usa/"><u>Ranking of Popularly Taught International Languages USA</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revolutionize-your-year-with-unlimited-lifetime-access-to-mondly-premium-at-no-cost/"><u>Revolutionize Your Year with Unlimited Lifetime Access to Mondly Premium at No Cost</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/scorecard-for-the-apple-watch-se-premium-features-at-a-lower-price-point/"><u>Scorecard for the Apple Watch SE: Premium Features at a Lower Price Point</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seafaring-savvy-essential-piratical-lexicon-unveiled/"><u>Seafaring Savvy: Essential Piratical Lexicon Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-love-understand-each-other-tackling-relationship-barriers/"><u>Speak Love, Understand Each Other: Tackling Relationship Barriers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-inside-the-world-of-spanish-greetings-with-these-10-key-phrases/"><u>Step Inside The World Of Spanish Greetings With These 10 Key Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swedens-alphabet-in-a-nutshell/"><u>Sweden's Alphabet in a Nutshell</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tech-driven-learning-mondlys-commitment-to-apples-tools-for-students/"><u>Tech-Driven Learning: Mondly's Commitment to Apple's Tools for Students</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-cousins-contrast-spains-spanish-compared-to-portugale-portuguese/"><u>The Cousins' Contrast: Spain’s Spanish Compared to Portugal'e Portuguese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-rich-tapestry-of-italian-handspeak/"><u>The Rich Tapestry of Italian Handspeak</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-fluent-socializing-across-latam-languages/"><u>The Ultimate Guide to Fluent Socializing Across LatAm Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-language-learning-my-experience-using-mondly-top-10/"><u>The Ultimate Guide to Language Learning: My Experience Using Mondly (Top 10)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-6-benefits-of-being-bilingual-what-is-bilingualism/"><u>Top 6 Benefits Of Being Bilingual - What Is Bilingualism?</u></a></li>
+<li><a href="https://location-social.techidaily.com/top-7-skype-hacker-to-hack-any-skype-account-on-your-samsung-galaxy-a54-5g-drfone-by-drfone-virtual-android/"><u>Top 7 Skype Hacker to Hack Any Skype Account On your Samsung Galaxy A54 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-germanys-language-discover-our-top-25-sayings/"><u>Unlock Germany's Language - Discover Our Top 25 Sayings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-efficiency-prime-approaches-to-master-an-online-language/"><u>Unlocking Efficiency: Prime Approaches to Master an Online Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/viking-vernacular-unveiling-the-lost-nordic-dialect/"><u>Viking Vernacular: Unveiling the Lost Nordic Dialect</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vocabulary-voyage-comparing-cockney-chatter-to-aussie-buzzwords/"><u>Vocabulary Voyage: Comparing Cockney Chatter to Aussie Buzzwords</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/which-upcoming-language-should-i-embrace/"><u>Which Upcoming Language Should I Embrace?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/your-step-by-step-guide-to-korean-day-names/"><u>Your Step-by-Step Guide to Korean Day Names</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/zero-cost-to-zero-limit-explore-languages-on-black-friday/"><u>Zero Cost to Zero Limit - Explore Languages on Black Friday</u></a></li>
+</ul></div>

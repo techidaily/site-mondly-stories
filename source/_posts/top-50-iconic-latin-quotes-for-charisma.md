@@ -1,7 +1,7 @@
 ---
 title: Top 50 Iconic Latin Quotes for Charisma
-date: 2024-07-12T08:44:54.411Z
-updated: 2024-07-13T08:44:54.411Z
+date: 2024-09-01T00:19:52.409Z
+updated: 2024-09-02T00:19:52.409Z
 tags:
   - speak
   - english
@@ -28,6 +28,9 @@ These are nearly as famous as Julius Caesar himself.
 
  Famously attributed to Julius Caesar in a message he supposedly sent to the Roman Senate to describe his swift, conclusive victory against King Pharnaces II of Pontus near Zela in 47 BC.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ### **Alea iacta est. —** _The die has been cast._
 
  Another Latin phrase said by Julius Caesar upon crossing the Rubicon to enter Italy and begin the long civil war against Pompey and the Optimates. The meaning of this phrase refers to the point of no return.
@@ -36,12 +39,23 @@ These are nearly as famous as Julius Caesar himself.
 
  Probably the most popular Latin phrase of modern times. Luckily, we have an even better one:_carpe vinum_ . Literally ‘seize the wine’. The only Latin phrase you’ll ever need on a Friday night out. And speaking of night, you should also remember the_carpe noctem_ variation which literally translates to ‘seize the night’. Either way, the general meaning is to make the most of everything.
 
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **Cogito, ergo sum. —** _I think, therefore I am._
 
  A_dictum_ (‘a short statement that expresses a general truth’) coined by French philosopher René Descartes in Latin.
 
  What Descartes doesn’t know is that nowadays people prefer the_bibo, ergo sum_ version which literally means “I drink, therefore I am”.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
 ### **In vino veritas. —_In wine, there is truth._**
 
  Be careful if you_carpe vinum_ on that Friday night out we talked about. This Latin saying suggests that you’ll probably spill all your secrets if you drink too much alcohol.
@@ -52,6 +66,9 @@ These are nearly as famous as Julius Caesar himself.
 
  That scene is very tragic indeed, but nowadays, the phrase can be used jokingly to condemn a friend’s change of heart.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **Acta, non verba. —** _Deeds, not words._
 
  Similar to_res, non verba_ , the English equivalent of this phrase is “actions speak louder than words”. In other words, act upon it or always follow your declarations with actions.
@@ -62,6 +79,9 @@ These are nearly as famous as Julius Caesar himself.
 
 ![latin phrases](https://edge.mondly.com/blog/wp-content/uploads/2021/07/latin-phrases.jpg "50 Popular Latin Phrases To Impress Your Friends 6")
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
  Using some Latin phrases here and there will automatically make you look smarter.
 
 ## Common Latin Words & Sayings
@@ -130,6 +150,9 @@ Every student’s favorite. We all know what this one means, don’t we?
 
  “In vino veritas” by Daniel Vogel©
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cool Latin that are still used today
 
  Do you know what’s the coolest thing about these following cool [Latin phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ? They’re evergreen. If time travel gets invented in a few years,[these phrases](https://en.wikipedia.org/wiki/List%5Fof%5FLatin%5Fphrases%5F%28full%29) are gonna come in handy regardless of the century you choose to travel to. Besides, this selection includes only the most relevant expressions so you don’t have to worry about redundancy.
@@ -158,6 +181,9 @@ Get ready to bring your Roman alter ego to life in 3… 2… 1\. Go!
 
 ![common latin phrases](https://edge.mondly.com/blog/wp-content/uploads/2021/07/common-latin-phrases-960x720.jpg "50 Popular Latin Phrases To Impress Your Friends 8")
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<!-- affiliate ads end -->
  “Laughing” by Peter Lloyd©
 
 * **Nemo saltat sobrius.** —_Nobody dances sober._
@@ -256,6 +282,9 @@ Different phrase, same story. You’re welcome.
 
 ![latin words](https://edge.mondly.com/blog/wp-content/uploads/2021/07/latin-words-960x640.jpg "50 Popular Latin Phrases To Impress Your Friends 9")
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
  “Roman statue” by engin akyurt©
 
 ## Latin Words and Phrases for Love
@@ -294,6 +323,9 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 
  Latin words are used in law because of the historical influence Roman law has on the legal system of many countries. As the lingua franca of the Roman Empire, Latin not only shaped the empire's legal constructs but also left a lasting imprint on the evolution of legal systems, especially within Europe. As Roman law became the foundation for many modern legal codes, Latin legal words were passed on throughout history until the present day. This incorporation of Latin words in law ensures a degree of precision and continuity, bridging legal concepts across different eras and jurisdictions.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<!-- affiliate ads end -->
 ### Why are Latin words powerful?
 
  Latin words are perceived as powerful most probably in relation to the Roman Empire, a civilization of immense historical influence and achievement. Additionally, Latin words may be considered powerful thanks to their ability to convey complex legal, scientific, and philosophical concepts succinctly. Their use in various specialized fields has endowed them with a sense of authority and timelessness, allowing for clear and unambiguous communication across different languages and cultures.
@@ -333,3 +365,66 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-locate-and-watch-vintage-facebook-moments/"><u>[New] 2024 Approved  Locate and Watch Vintage Facebook Moments</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-webcam-innovation-cutting-edge-live-video-technology/"><u>[New] In 2024, Webcam Innovation  Cutting-Edge Live Video Technology</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-prime-places-for-accessible-outstanding-vector-design-tools/"><u>[New] Prime Places for Accessible, Outstanding Vector Design Tools</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-unveiling-paid-content-in-product-analysis/"><u>[Updated] 2024 Approved  Unveiling Paid Content in Product Analysis</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-analyzing-active-presenters-advantage-on-screens/"><u>2024 Approved  Analyzing Active Presenter’s Advantage on Screens</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-free-yourself-from-fringe-a-youtube-video-fix-guide/"><u>2024 Approved  Free Yourself From Fringe  A YouTube Video Fix Guide</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-sdr-to-hdri-pioneers-expert-tips-and-techniques/"><u>2024 Approved  SDR to HDRI Pioneers  Expert Tips and Techniques</u></a></li>
+<li><a href="https://howto.techidaily.com/8-ultimate-fixes-for-google-play-your-samsung-galaxy-a23-5g-isnt-compatible-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Ultimate Fixes for Google Play Your Samsung Galaxy A23 5G Isnt Compatible | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-retrieve-lost-contacts-from-vivo-y100a-by-fonelab-android-recover-contacts/"><u>Best Android Data Recovery - Retrieve Lost Contacts from Vivo Y100A.</u></a></li>
+<li><a href="https://facebook.techidaily.com/challenging-the-notion-of-facebook-supremacy/"><u>Challenging the Notion of 'Facebook Supremacy'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-numbers-learn-how-to-count-from-1-to-100-in-german/"><u>German Numbers: Learn How to Count From 1 to 100 in German</u></a></li>
+<li><a href="https://driver-download.techidaily.com/1722974626826-get-the-most-recent-intel-ac-9560-wifi-drivers-here/"><u>Get the Most Recent Intel AC 9560 WiFi Drivers Here!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ghouls-pumpkins-and-global-celebrations/"><u>Ghouls, Pumpkins & Global Celebrations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-gratitude-day-adopting-thanksgiving/"><u>Global Gratitude Day: Adopting Thanksgiving</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-language-masters-top-3-platforms-for-rapid-acquisition/"><u>Global Language Masters: Top 3 Platforms for Rapid Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/improved-terms-and-conditions-alert/"><u>Improved Terms & Conditions Alert</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-cinematic-masterpiece-dialogues/"><u>In 2024, Cinematic Masterpiece Dialogues</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-itel-p55-phone-password-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Itel P55 Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unveiling-the-artist-within-using-auditions-gradual-volume-increase/"><u>In 2024, Unveiling the Artist Within  Using Audition's Gradual Volume Increase</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-through-ru-cyrillic-sounds-and-pronunciation/"><u>Journey Through RU Cyrillic Sounds and Pronunciation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-through-santas-language-landscape/"><u>Journey Through Santa's Language Landscape</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/le-temps-fait-revolution-weekdays-en-francais/"><u>Le Temps Fait Révolution: Weekdays en Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-germanys-favorite-sayings-in-25-words/"><u>Learn Germany's Favorite Sayings in 25 Words</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/lenovo-screen-recording-a-quick-guide/"><u>Lenovo Screen Recording  A Quick Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mariners-mouthpiece-essential-words-for-the-wayward/"><u>Mariner's Mouthpiece: Essential Words for the Wayward</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-new-tongues-with-our-top-3-mobile-language-education-apps/"><u>Master New Tongues with Our Top 3 Mobile Language Education Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-languages-made-simple-with-mondlys-updated-phrasebook/"><u>Mastering Languages Made Simple with Mondly's Updated Phrasebook</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/mastering-the-art-of-capturing-live-hulu-content-across-platforms-for-2024/"><u>Mastering the Art of Capturing Live Hulu Content Across Platforms for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-celebrates-7-years-of-success-75-million-learners-worldwide/"><u>Mondly Celebrates 7 Years Of Success: 75 Million Learners Worldwide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-the-gateway-to-fluency-crowned-in-germany/"><u>Mondly: The Gateway to Fluency, Crowned in Germany</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingualism-an-elders-cognitive-boost/"><u>Multilingualism: An Elders' Cognitive Boost</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/never-pay-again-get-mondly-elite/"><u>Never Pay Again - Get Mondly Elite</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pioneering-filtration-the-mondly-pearson-collaboration/"><u>Pioneering Filtration: The Mondly-Pearson Collaboration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-liftoff-soaring-over-japanese-numbers/"><u>Quick Liftoff: Soaring Over Japanese Numbers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revolutionary-applications-for-rapid-vocabulary-growth/"><u>Revolutionary Applications for Rapid Vocabulary Growth</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/simple-steps-to-mastering-turkish-orthography-an-easy-to-use-reference/"><u>Simple Steps to Mastering Turkish Orthography: An Easy-to-Use Reference</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/slang-variations-between-american-and-british-youth/"><u>Slang Variations Between American & British Youth</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/slavic-speaks-contrasting-uk-and-rus/"><u>Slavic Speaks: Contrasting Uk & Rus</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-one-to-ten-a-learning-pathway/"><u>Spanish One to Ten: A Learning Pathway</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spelling-grammar-and-idioms-differ/"><u>Spelling, Grammar, and Idioms Differ</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/start-the-year-smart-savings-alert-on-mondly-premium-up-to-96-off/"><u>Start the Year Smart - Savings Alert on Mondly Premium, Up to 96%% Off!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/start-with-hangul-the-least-complex-way-to-language-learning/"><u>Start with Hangul: The Least Complex Way to Language Learning</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/the-art-of-antiquated-visuals-for-modern-audienciplines-for-2024/"><u>The Art of Antiquated Visuals for Modern Audienciplines for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-complete-set-of-castilian-speakers/"><u>The Complete Set of Castilian Speakers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essentials-of-polite-expression-learning-xiexie/"><u>The Essentials of Polite Expression: Learning Xièxiè</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-most-impactful-danish-movies-to-learn-the-language-proficiently/"><u>The Most Impactful Danish Movies to Learn the Language Proficiently</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-significance-of-learning-german-explained-in-10-points/"><u>The Significance of Learning German Explained in 10 Points</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-swedish-sound-system-simplified/"><u>The Swedish Sound System Simplified</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-spanish-verb-conjugations/"><u>The Ultimate Guide to Spanish Verb Conjugations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-pick-from-157-countries-apple-app/"><u>Top Pick From 157 Countries: Apple App</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/top-picks-must-watch-lgbtqplus-series-streaming-on-netflix-in-july-2024/"><u>Top Picks: Must-Watch LGBTQ+ Series Streaming on Netflix in July 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/tower-of-fantasy-pc-stability-issues-solutions-for-a-smoother-gaming-experience/"><u>Tower of Fantasy PC Stability Issues: Solutions for a Smoother Gaming Experience</u></a></li>
+<li><a href="https://fox-that.techidaily.com/troubleshoot-and-repair-airpods-connectivity-problems-in-11-steps/"><u>Troubleshoot and Repair AirPods' Connectivity Problems in 11 Steps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlimited-unbeatable-mondly-savings/"><u>Unlimited, Unbeatable Mondly Savings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-slovak-speech-one-quick-session-at-a-time/"><u>Unlock Slovak Speech, One Quick Session at a Time!</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/unlocking-ai-potential-should-you-upgrade-to-chatgpt-plus/"><u>Unlocking AI Potential: Should You Upgrade to ChatGPT Plus?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-natures-longest-nomenclature/"><u>Unveiling Nature’s Longest Nomenclature</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-revolutionize-your-job-search-top-video-resume-makers-and-free-templates/"><u>Updated 2024 Approved Revolutionize Your Job Search Top Video Resume Makers and Free Templates</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/zahlenreimlernen-einsteigen-in-die-deutsche-zahlensprache/"><u>Zahlenreimlernen: Einsteigen in Die Deutsche Zahlensprache</u></a></li>
+</ul></div>

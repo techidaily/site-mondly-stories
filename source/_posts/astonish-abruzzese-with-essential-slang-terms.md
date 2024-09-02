@@ -1,7 +1,7 @@
 ---
 title: Astonish Abruzzese with Essential Slang Terms
-date: 2024-07-12T08:48:01.155Z
-updated: 2024-07-13T08:48:01.155Z
+date: 2024-09-01T00:15:28.028Z
+updated: 2024-09-02T00:15:28.028Z
 tags:
   - speak
   - english
@@ -51,8 +51,18 @@ thumbnail: https://thmb.techidaily.com/ece2bc720a8bffcaadf07cecfb821d8b916ae290e
 
 ![Italian expressions](https://edge.mondly.com/blog/wp-content/uploads/2019/09/italian-expressions-960x640.jpg "Go Beyond “Ciao Bella”: 20+ Italian Slang Words &Amp; Expressions 5")
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
 ## Funny Italian Slang Words & Phrases
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<!-- affiliate ads end -->
 ### 1\. Cavoli amari
 
 _Cavoli amari_ literally translates to “bitter cabbages” in Italian but refers to a tough situation or impending problems. Interestingly, Italians frequently mention cabbages! For instance,_cavoli miei_ (“my cabbages”) implies something is your personal business that others shouldn’t meddle with.
@@ -69,6 +79,9 @@ _Cavoli amari_ literally translates to “bitter cabbages” in Italian but refe
 * _Dai! Passa la palla a Luigi!_ – Come on! Pass the ball to Luigi! (encouragement)
 * _Dai! Basta! Smettila!_ – Come on! That’s enough! Stop that! (frustration or annoyance)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 4\. Pantofolaio
 
  Literally “slipper-man”. Italian slang_pantofolaio_ refers to someone who prefers to stay home in their slippers rather than go out. Do you recognize yourself in this description? A_pantofolaio_ is basically the Italian equivalent of “couch potato”.
@@ -83,12 +96,18 @@ _Scialla_ is an Italian slang word that has become very popular lately, thanks t
 
  There’s a 2011 movie with the same name in case you’re looking to expand your Italian slang word repertoire further.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 7\. Figo
 
  Mostly used by younger people, this Italian slang word is the equivalent of “cool”. If you want to say that something is extraordinary, fantastic, or cool, in Italian you would say_figo_ or_che figata_ .
 
  Additionally,_figo_ (or_figa_ for women) can also be used to say that someone is very attractive. For example,_Brad Pitt è un gran figo_ translates to “Brad Pitt is very attractive”.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ### 8\. Sbronza
 
 _Sbronza_ is for everything related to alcohol as it essentially describes the state of intoxication resulted from consuming it. Are you having a_sbronza_ ? It means you have a hangover.
@@ -103,12 +122,18 @@ _Casino_ in Italian has nothing to do with gambling because it is literally a �
 
 _Beccarsi_ is an Italian slang verb that comes from_beccare,_ which literally means “to peck”. However, in slang or informal language,_beccarsi_ has several meanings depending on the context. The most common is “to meet” or “to catch up” with someone. For example,_Ci becchiamo dopo la scuola?_ translates to “Shall we meet up after school?”.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### 11\. Americanata
 
 _Americanata_ is a playful jab, not to be taken offensively, used to describe something absurdly grandiose, extravagant, or exaggerated, reflecting a humorous observation of American culture.
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Go Beyond “Ciao Bella”: 20+ Italian Slang Words &Amp; Expressions 6")
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Learn Italian today 🍝
 
  Build practical Italian skills for real life with Mondly.
@@ -166,10 +191,17 @@ _Americanata_ is a playful jab, not to be taken offensively, used to describe so
 
 Before you go, make sure you check out these FAQs.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+</a>
+<!-- affiliate ads end -->
 ### Is it okay to use slang when speaking Italian?
 
  Yes, using slang is okay when speaking Italian, as it can make your conversations more natural and show familiarity with the culture. Just make sure you’re mindful of the context and the company you’re in.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Where can I learn more Italian slang?
 
  You can learn more Italian slang on the Mondly blog, from Italian movies and TV shows, social media, and online forums frequented by fluent speakers.
@@ -217,3 +249,40 @@ Before you go, make sure you check out these FAQs.
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-conducting-collaborative-discussions-in-a-hassle-free-manner-via-skype-across-operating-systems/"><u>[New] 2024 Approved  Conducting Collaborative Discussions in a Hassle-Free Manner via Skype Across Operating Systems</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-chronicle-samsung-games-with-precision-timing/"><u>[Updated] In 2024, Chronicle Samsung Games with Precision Timing</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-in-depth-review-mastering-facetunes-complete-features/"><u>[Updated] In-Depth Review  Mastering Facetune's Complete Features</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-novice-networking-affordable-channel-buy-options/"><u>[Updated] Novice Networking  Affordable Channel Buy Options</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-guide-to-avoidable-exposure-hiding-objects-and-faces-online/"><u>2024 Approved  Guide to Avoidable Exposure  Hiding Objects and Faces Online</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-fake-gps-without-root-on-nokia-c02-drfone-by-drfone-virtual-android/"><u>3 Ways to Fake GPS Without Root On Nokia C02 | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-realme-12-proplus-5g-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Realme 12 Pro+ 5G</u></a></li>
+<li><a href="https://fox-that.techidaily.com/consolidating-identical-images-tips-for-iphone-and-mac-users/"><u>Consolidating Identical Images: Tips for iPhone and Mac Users</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-se-to-other-iphone-12-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone SE To Other iPhone 12 devices? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-samsung-galaxy-m54-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Samsung Galaxy M54 5G to iPhone | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-realme-v30-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/iniciar-tu-manual-de-botones-del-reloj-digital/"><u>Iniciar Tu Manual De Botones Del Reloj Digital</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-easter-acknowledgments-via-diverse-vernaculars/"><u>International Easter Acknowledgments Via Diverse Vernaculars</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introduccion-al-medir-tiempo-en-espanol/"><u>Introducción Al Medir Tiempo en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introduction-to-chinese-onomatopoeic-greetings/"><u>Introduction to Chinese Onomatopoeic Greetings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jour-de-fois-francais/"><u>Jour De Fois Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/key-cinematic-works-to-learn-and-love-the-danish-tongue/"><u>Key Cinematic Works to Learn and Love the Danish Tongue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-a-10-point-guide-for-success/"><u>Language Learning: A 10-Point Guide for Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lead-with-eloquence-mastery-of-business-communication/"><u>Lead with Eloquence: Mastery of Business Communication</u></a></li>
+<li><a href="https://extra-information.techidaily.com/lower-volume-level-by-level-with-fl/"><u>Lower Volume Level by Level with FL</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-impactful-global-network-engages-over-70-million-learners/"><u>Mondly's Impactful Global Network Engages Over 70 Million Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/music-infused-learning-a-research-driven-approach-to-languages/"><u>Music-Infused Learning: A Research-Driven Approach to Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/opening-doors-with-russian-vital-travel-linguistic-tools/"><u>Opening Doors with Russian: Vital Travel Linguistic Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-speak-quick-learn-top-10-simple-language-list/"><u>Quick Speak, Quick Learn: Top 10 Simple Language List</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/russian-number-journey-for-aspiring-learners/"><u>Russian Number Journey for Aspiring Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seamless-hangul-acquisition-the-korean-alphabet-in-a-nutshell/"><u>Seamless Hangul Acquisition: The Korean Alphabet in a Nutshell</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seamless-transition-into-the-world-of-latin/"><u>Seamless Transition Into the World of Latin</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-seedlings-early-education-blossoms/"><u>Spanish Seedlings: Early Education Blossoms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-with-soul-top-17-authentic-spanish-proverbs/"><u>Speak With Soul: Top 17 Authentic Spanish Proverbs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-volumes-mondly-languages-2-year-odyssey-to-dreams/"><u>Speaking Volumes: Mondly Languages' 2 Year Odyssey to Dreams</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/spreading-twitter-vid-facebook-integration-methods-for-2024/"><u>Spreading Twitter Vid  Facebook Integration Methods for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/top-8-mobile-mosaics-best-blend-of-affordable-and-premium-android-videomosaic-apps-for-2024/"><u>Top 8 Mobile Mosaics  Best Blend of Affordable and Premium Android Videomosaic Apps for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-language-training-solutions-for-effective-communication-skills/"><u>Top Language Training Solutions For Effective Communication Skills</u></a></li>
+</ul></div>

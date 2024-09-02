@@ -1,7 +1,7 @@
 ---
 title: International Friendship Starters
-date: 2024-07-12T08:47:19.566Z
-updated: 2024-07-13T08:47:19.566Z
+date: 2024-09-01T00:16:05.280Z
+updated: 2024-09-02T00:16:05.280Z
 tags:
   - speak
   - english
@@ -56,6 +56,9 @@ _안녕하세요 (Annyeonghaseyo)_ is the most popular semi-formal Korean hello.
 
  “Mount Fuji, Japan” by David Edelstein©
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<!-- affiliate ads end -->
 ## Hello in French — Bonjour
 
  When talking about traveling to another country, greetings should always be number 1 on your to-do list. The locals regard your attempt to speak their language as a sign of respect and respond accordingly. Why not take advantage of this interaction? Every place looks different and more like home through the eyes of someone who already lives there.
@@ -82,8 +85,14 @@ _안녕하세요 (Annyeonghaseyo)_ is the most popular semi-formal Korean hello.
 
 ![hello in french](https://edge.mondly.com/blog/wp-content/uploads/2021/06/hello-in-french-960x640.jpg "How To Say &Quot;Hello&Quot; In Different Languages 4")
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<!-- affiliate ads end -->
  “Antibes, France” by Reuben Mcfeeters©
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ## Hello in Italian — Ciao
 
  The Italian_Ciao_ is so popular that it has also been borrowed by other countries to be used between friends as a joke or even seriously. Together with_Capisce_ and_Grazie_ ,_Ciao_ forms the Holy Trinity of the Italian language. Anyone who wants to summon his or her inner Italian just uses these three words and automatically becomes Italian. Oh, let’s not forget about the famous [Italian hand gesture](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ! (Admit it. You tried that, too, at some point.)
@@ -94,6 +103,9 @@ _안녕하세요 (Annyeonghaseyo)_ is the most popular semi-formal Korean hello.
 
  If you want to learn more about how to say**‘hi’ in Italian,** you can check out this in-depth **[guide on Italian greetings](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .**
 
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Hello in Chinese — 你好 (Nǐ hǎo)
 
  The Chinese language is just as rich in greetings as any other language, but the most popular way to say**‘hello’ in Chinese** is definitely**你好 (Nǐ hǎo).** And when we say ‘popular’, it’s 1 billion people popular because, as you probably already know, Chinese is the [most spoken language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) in the world by the total number of native speakers.
@@ -108,12 +120,23 @@ _Olá_ , just like the Spanish_Hola_ , is suitable for any situation regardless 
 
  To learn more about Portuguese greetings, check out our guide on how to say [**‘** **hello’ in Portuguese**](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ## Hello in different languages
 
  Now that we’ve properly covered some of the most spoken languages in the world let’s move on to the real gold mine of**‘hello’ in different languages.** From ‘hello’ in Arabic to ‘hello’ in Catalan and even Latin, you’ll find them all here. Besides, if you want to hear them in action in real conversations, spoken by fluent speakers, you can always get Mondly. Just choose the language you always wanted to speak, and you can be conversational from day 1.
 
 ![hello in spanish](https://edge.mondly.com/blog/wp-content/uploads/2021/06/hello-in-spanish-960x640.jpg "How To Say &Quot;Hello&Quot; In Different Languages 6")
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
+
+ Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
+
+ DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
+ PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
  “Hello” by Octavian Dan©
 
  These next greetings are a mixture of formal and informal. Don’t worry, though! This kind of ‘hello’ is the best choice for most social interactions regardless of the person you are addressing because it is somehow formal but also friendly. Just what you need when traveling abroad!
@@ -185,3 +208,40 @@ _Olá_ , just like the Spanish_Hola_ , is suitable for any situation regardless 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-building-dreams-in-mc-ideal-village-housing-plans/"><u>[New] Building Dreams in MC  Ideal Village Housing Plans</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/huckle-chest-selecting-15-hilarious-video-treasures-for-your-viewing-pleasure-for-2024/"><u>[New] Chuckle Chest  Selecting 15 Hilarious Video Treasures for Your Viewing Pleasure for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-a-glimpse-into-future-facebook-ad-tactics-for-24-for-2024/"><u>[Updated] A Glimpse Into Future-Facebook Ad Tactics for '24 for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-expert-list-superior-gaming-live-options/"><u>[Updated] Expert List  Superior Gaming Live Options</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-premium-apps-for-capturing-crystal-clear-android-screenshots/"><u>[Updated] In 2024, Premium Apps for Capturing Crystal Clear Android Screenshots</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-clearshot-video-amplifier-cross-device-compatible/"><u>2024 Approved  ClearShot Video Amplifier - Cross-Device Compatible</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-tiktoks-rise-to-fame-through-twitters-top-10-list/"><u>2024 Approved  TikTok's Rise to Fame Through Twitter’s Top 10 List</u></a></li>
+<li><a href="https://extra-information.techidaily.com/become-the-star-of-your-match-unique-tinder-profile-ideas-to-try-for-2024/"><u>Become the Star of Your Match - Unique Tinder Profile Ideas to Try for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hello-in-swedish-all-the-swedish-greetings/"><u>Hello In Swedish: All The Swedish Greetings</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-can-you-transfer-files-from-realme-c53-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How Can You Transfer Files From Realme C53 To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-many-people-speak-french-a-look-at-the-top-french-speaking-countries/"><u>How Many People Speak French? A Look At The Top French-Speaking Countries</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-frp-from-lava-blaze-pro-5g-by-drfone-android/"><u>In 2024, How to Bypass FRP from Lava Blaze Pro 5G?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/inbordes-valkomma-sveriges-hjartefar/"><u>Inbördes Välkomma: Sverige's Hjärtefär</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/la-vocabularia-animalista-en-espanol-continua/"><u>La Vocabularia Animalista en Español Continua</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-seafarer-speak-pirate-vocabulary-guide/"><u>Mastering Seafarer Speak: Pirate Vocabulary Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingualism-an-investment-for-the-fifties-and-beyond/"><u>Multilingualism: An Investment for the Fifties and Beyond</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-beginnings-in-learning-arabic/"><u>New Beginnings in Learning Arabic</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-path-to-latvian-proficiency-10-minutes-daily/"><u>Quick Path to Latvian Proficiency, 10 Minutes Daily</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/resolutions-for-a-successful-new-year/"><u>Resolutions for a Successful New Year</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/simplified-hangul-learning-your-guide-to-seamless-script-acquisition/"><u>Simplified Hangul Learning: Your Guide to Seamless Script Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/support-system-danny-from-colombia-for-the-needy/"><u>Support System: Danny From Colombia for the Needy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tailored-for-success-customizing-language-training-goals-to-fit-your-corporate-culture/"><u>Tailored for Success: Customizing Language Training Goals to Fit Your Corporate Culture</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/teachers-crossroads-bett-2022-connectivity/"><u>Teacher's Crossroads: BETT 2022 Connectivity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essential-guide-to-spanish-counting/"><u>The Essential Guide to Spanish Counting</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-importance-of-chatgpts-translation-engine-in-ai-conversations/"><u>The Importance of ChatGPT's Translation Engine in AI Conversations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-premium-three-your-key-to-speedier-happier-learning/"><u>The Premium Three: Your Key to Speedier, Happier Learning</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/top-10-airplay-apps-in-huawei-p60-for-streaming-drfone-by-drfone-android/"><u>Top 10 AirPlay Apps in Huawei P60 for Streaming | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-into-a-korean-speaker-in-no-time-these-tools-will-help/"><u>Transform Into a Korean Speaker in No Time - These Tools Will Help</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/trending-tutorial-tracker/"><u>Trending Tutorial Tracker</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/turbocharged-introduction-to-turkish-letters-and-sounds/"><u>Turbocharged Introduction to Turkish Letters and Sounds</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-brit-slang-the-ultimate-guidebook/"><u>Unlocking Brit Slang: The Ultimate Guidebook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-santas-international-oratory-skills/"><u>Unveiling Santa's International Oratory Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/what-languages-does-santa-claus-speak-find-out-now/"><u>What Languages Does Santa Claus Speak? Find Out Now</u></a></li>
+</ul></div>

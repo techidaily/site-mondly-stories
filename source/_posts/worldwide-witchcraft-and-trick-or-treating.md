@@ -1,7 +1,7 @@
 ---
 title: Worldwide Witchcraft and Trick-or-Treating
-date: 2024-07-12T08:46:53.269Z
-updated: 2024-07-13T08:46:53.269Z
+date: 2024-09-01T00:17:48.871Z
+updated: 2024-09-02T00:17:48.871Z
 tags:
   - speak
   - english
@@ -36,10 +36,17 @@ thumbnail: https://thmb.techidaily.com/9bd169ce317850079833c4c232eaa6d389f824b0e
 
 ![Colorful ofrendas and calaveras during Día de Muertos in Mexico](https://edge.mondly.com/blog/wp-content/uploads/2019/09/dia-de-muertos-960x639.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 6")
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+</a>
+<!-- affiliate ads end -->
  “Calaveras” by Valeria Almaraz©
 
  As you probably already know, the main symbols of [_Día de Muertos_](https://ich.unesco.org/en/RL/indigenous-festivity-dedicated-to-the-dead-00054) are [_ofrendas_](https://en.wikipedia.org/wiki/Ofrenda) (altars),[_calaveras_](https://en.wikipedia.org/wiki/Calavera) (representations of a human skull often applied to edible or decorative skulls) and people wearing the colorful_calaveras_ makeup known all over the world. During the Day of the Dead, families will visit the graves of their loved ones and bring gifts and the favorite foods and beverages of the departed.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### China: The Hungry Ghost Festival
 
  The Ghost Festival, also known as the Hungry Ghost Festival, Zhongyuan Jie (中元節), or Gui Jie (鬼節) is a traditional Buddhist and Taoist celebration during which the deceased are believed to visit the living.
@@ -58,6 +65,9 @@ thumbnail: https://thmb.techidaily.com/9bd169ce317850079833c4c232eaa6d389f824b0e
 
  Fourteen days after the festival, to make sure spirits will find their way back to hell, people set lotus flower-shaped lanterns on paper boats outside their homes. When these lanterns go out, it means the ghosts have found their way back.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Italy: Tutti i Morti / Giorno dei Morti (All Souls’ Day)
 
  Moving to Europe, we discover that although American Halloween is even more notorious here than in other parts of the world, people still have their own traditional ways of celebrating the afterlife. For example, Italy has_Tutti i Morti,_ a public day celebrated on the 1st and 2nd of November by remembering and praying for the deceased.
@@ -66,16 +76,31 @@ thumbnail: https://thmb.techidaily.com/9bd169ce317850079833c4c232eaa6d389f824b0e
 
 ![halloween in different countries](https://edge.mondly.com/blog/wp-content/uploads/2019/09/neonbrand-A59lWOrZVnw-unsplash-1024x682.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 8")
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  “Halloween party” by NeONBRAND©
 
  Contrary to what you may believe, pumpkins and asking for candy and gifts are traditions of the past that were popular in many Italian regions before the American Halloween became so notorious.
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Romania: Saint Andrew’s Day
 
  Thanks to Dracula, Romania is now one of the most well-known Halloween destinations. Everyone dreams of partying at Dracula’s Castle. In reality, both Catholic and Orthodox churches in Romania discourage Halloween celebrations. Instead, they advocate for the celebrations of the Day of the Dead on 1 November, when special religious ceremonies are held for the souls of the deceased.
 
 ![dracula's castle](https://edge.mondly.com/blog/wp-content/uploads/2019/09/draculas-castle-1024x682.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 9")
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
+
+ It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
+
+  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
+
+  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<!-- affiliate ads end -->
  “Dracula’s Castle in Romania” by Nomadic Julien©
 
  It is said that on St. Andrew’s Eve, ghosts roam freely between the living and people must protect their homes using garlic, a symbol that is now also related to scaring off vampires. Thus, to this day, especially old people from the countryside, rub the doors and the windows with garlic to keep the bad spirits away.
@@ -121,3 +146,45 @@ thumbnail: https://thmb.techidaily.com/9bd169ce317850079833c4c232eaa6d389f824b0e
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-tailor-made-video-cuts-macs-top-mp4-slicers-revealed/"><u>[New] In 2024, Tailor-Made Video Cuts  Mac's Top MP4 Slicers Revealed</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-mastering-the-zoom-meeting-experience-tips-for-fluid-online-discussion/"><u>[New] Mastering the Zoom Meeting Experience  Tips for Fluid Online Discussion</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-unraveling-the-purpose-of-facebooks-blue-messenger-emblem/"><u>2024 Approved  Unraveling the Purpose of Facebook's Blue Messenger Emblem</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/elevate-your-desktop-experience-with-windows-11-widgets/"><u>Elevate Your Desktop Experience with Windows 11 Widgets</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grasp-the-essence-of-english-grammar-top-9-tips-by-esl-expert/"><u>Grasp the Essence of English Grammar: Top 9 Tips by ESL Expert</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-3-effective-ways-to-bypass-activation-lock-from-iphone-13-by-drfone-ios/"><u>In 2024, 3 Effective Ways to Bypass Activation Lock from iPhone 13</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-high-def-camera-the-top-audio-mics-guide/"><u>In 2024, High-Def Camera  The Top Audio Mics Guide</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-gps-location-on-oppo-k11x-easily-and-safely-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change GPS Location on Oppo K11x Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-lava-blaze-curve-5g-to-mac-drfone-by-drfone-android/"><u>In 2024, How to Mirror Lava Blaze Curve 5G to Mac? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/la-lengua-diaria-domingo-al-lunes-en-espanol/"><u>La Lengua Diaria: Domingo Al Lunes en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-blend-how-global-speech-shapes-english/"><u>Language Blend: How Global Speech Shapes English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-differences-in-macau/"><u>Language Differences in Macau</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-evolution-in-action-popular-slang-and-meanings/"><u>Language Evolution in Action: Popular Slang and Meanings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/les-organe-du-corps-un-voyage-anatomique-en-francais/"><u>Les Organe Du Corps: Un Voyage Anatomique en Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-supremacy-earths-favored-five-five/"><u>Linguistic Supremacy: Earth's Favored Five-Five</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-93-must-know-spanish-expressions-for-international-voyages/"><u>Mastering 93 Must-Know Spanish Expressions for International Voyages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-languages-made-simple-by-mondly-app/"><u>Mastering Languages Made Simple by Mondly App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-spanish-socially-through-vr-adventures/"><u>Mastering Spanish Socially Through VR Adventures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mitternachtspreisgabe-im-deutschen/"><u>Mitternachtspreisgabe Im Deutschen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-connects-inspiring-educational-journeys-in-70-millions-lives/"><u>Mondly Connects - Inspiring Educational Journeys in 70 Millions Lives</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-unites-affordable-language-lessons-breaking-down-ukrainian-barriers/"><u>Mondly Unites: Affordable Language Lessons Breaking Down Ukrainian Barriers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/never-too-old-always-ready-for-language-learning/"><u>Never Too Old, Always Ready for Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oculus-quest-gets-its-first-ever-language-app-mondlyback-buttonfilter-button/"><u>Oculus Quest Gets Its First-Ever Language App: MondlyBack ButtonFilter Button</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pantheon-of-philology-greek-influence-and-legacy/"><u>Pantheon of Philology: Greek Influence & Legacy</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/premium-live-screenbackscapes-2023/"><u>Premium Live Screenbackscapes 2023</u></a></li>
+<li><a href="https://extra-information.techidaily.com/psychedelic-pulse-the-fade-technique-in-music-mixing/"><u>Psychedelic Pulse  The Fade Technique in Music Mixing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rapidly-speak-in-rich-french-hues/"><u>Rapidly Speak in Rich French Hues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/soviet-echoes-comparing-ukrainian-and-russian/"><u>Soviet Echoes: Comparing Ukrainian and Russian</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/step-by-step-guide-installing-third-party-applications-directly-on-your-fire-tvstick/"><u>Step-by-Step Guide: Installing Third-Party Applications Directly on Your Fire TV/Stick</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-sunrise-salutations-good-mornings-in-10-languages/"><u>The Art of Sunrise Salutations: Good Mornings in 10 Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-enigma-of-turkish-korean-dialogue/"><u>The Enigma of Turkish-Korean Dialogue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-unheard-advantages-of-aging-bilinguals/"><u>The Unheard Advantages of Aging Bilinguals</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/through-language-through-people-mondly-connects-millions-to-world-wide-opportunities/"><u>Through Language, Through People: Mondly Connects Millions to World Wide Opportunities</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/top-frameer-tools-perfect-pictures-with-ease-online/"><u>Top Frameer Tools  Perfect Pictures with Ease Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/us-leading-non-native-language-classes/"><u>U.S. Leading Non-Native Language Classes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unleash-potential-with-arabic-and-mondly-onlines-6-key-reasons/"><u>Unleash Potential with Arabic & Mondly Online's 6 Key Reasons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-japanese-top-gratis-web-tools-for-self-education/"><u>Unlock Japanese: Top Gratis Web Tools for Self-Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/world-languages-fusing-into-the-english-phonetic-palette/"><u>World Languages Fusing Into the English Phonetic Palette</u></a></li>
+</ul></div>

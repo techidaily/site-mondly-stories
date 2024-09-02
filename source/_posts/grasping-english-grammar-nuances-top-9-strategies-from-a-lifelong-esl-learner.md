@@ -1,7 +1,7 @@
 ---
 title: "Grasping English Grammar Nuances: Top 9 Strategies From a Lifelong ESL Learner"
-date: 2024-07-12T08:47:17.234Z
-updated: 2024-07-13T08:47:17.234Z
+date: 2024-09-01T00:16:02.815Z
+updated: 2024-09-02T00:16:02.815Z
 tags:
   - speak
   - english
@@ -63,6 +63,9 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
  At first glance, there is a lot of information you need to remember. But rest assured: you won’t always have to analyze the situation over and over again in order to choose the correct tense. In time, you will get used to using the correct form naturally.
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<!-- affiliate ads end -->
 ## 3\. Learn the English irregular verbs
 
  There are about 200 [irregular verbs](https://en.wikipedia.org/wiki/English%5Firregular%5Fverbs) (and significantly more if prefixed forms are counted) in English. In most cases, the irregularity concerns the past tense or the past participle.
@@ -71,6 +74,9 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
  Don’t forget that this is a central part of English grammar and mastering it will help you sound like a true native fast. Besides, mistaking one verb form for another is something you should avoid at all costs!
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 4\. Focus on context instead of rules
 
  When it comes to [**speaking English**](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ,[Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4717&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4717&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4717) is probably the best tool that can get you there really fast. Why? Because Mondly is based on the inductive method: learn by doing, context and example, and extrapolate to rules. In other words, start thinking in English rather than construct a phrase in your native language, apply the rules and only then translate it accordingly.
@@ -81,6 +87,9 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
  The experts behind Mondly know how amazing the human brain is. This is why they carefully selected the content so that you’ll practice and the brain will make the connections itself. You don’t focus on the process but on the final result: speaking English like a native.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<!-- affiliate ads end -->
 ## 5\. Learn the most common exceptions
 
  Forget about rules. Focus on the most common exceptions. Once you begin using the inductive learning method, rules will follow naturally. So it’s the exception you need to study and master.
@@ -95,8 +104,14 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
 ![english grammar lessons](https://edge.mondly.com/blog/wp-content/uploads/2020/04/english-grammar-lessons-600x555.jpg "9 English Grammar Tips From An Esl Speaker 2")
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
  “Find your favorite book” by 🇸🇮 Janko Ferlič©
 
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
 ## 7\. Don’t overthink it
 
  Go with the flow and let the inductive method work. Trust your instinct. In time, once you get used to the language, you’ll be able to speak English as easily as you speak your native language.
@@ -111,6 +126,10 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
  Seeing the English grammar in context will help you assimilate the information faster and learn to use it successfully yourself.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ## 9\. Make English grammar your friend
 
  After reading, it’s time to practice what you’ve learned with a nice English writing session. Write about your passions, your hobbies, or just about anything you want. The idea is to practice expressing yourself in English in regard to the things you are more likely to talk about in a future conversation with an English speaker.
@@ -148,3 +167,48 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-how-to-screen-hulu-on-any-system-seamlessly/"><u>[New] 2024 Approved  How to Screen Hulu On Any System Seamlessly</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-how-to-harness-the-power-of-puzzles-for-your-instagram-presence/"><u>[New] In 2024, How to Harness the Power of Puzzles for Your Instagram Presence</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-step-by-step-to-supercharge-videos-on-snapchat/"><u>[New] In 2024, Step by Step to Supercharge Videos on Snapchat</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-squaring-the-circle-your-imovie-path-to-perfect-instagram-videos/"><u>[Updated] Squaring the Circle  Your iMovie Path to Perfect Instagram Videos</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-gopros-hero5-up-against-yis-high-res-adventures/"><u>2024 Approved  GoPro's Hero5 Up Against Yi's High-Res Adventures</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-win-10s-top-10-video-cam-applications/"><u>2024 Approved  Win 10'S Top 10 Video Cam Applications</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/complete-breakdown-the-dji-inspire-1-uav/"><u>Complete Breakdown  The DJI Inspire 1 UAV</u></a></li>
+<li><a href="https://location-social.techidaily.com/does-honor-x7b-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>Does Honor X7b Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/expert-analysis-of-the-premium-nzxt-c1email-protected-power-unit-unveiling-its-capabilities/"><u>Expert Analysis of the Premium NZXT C1([email Protected]) Power Unit: Unveiling Its Capabilities</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gran-expedicion-anatomica-la-jornada-del-ser-humano-desde-la-nariz-a-los-pies/"><u>Gran Expedición Anatómica: La Jornada Del Ser Humano Desde La Nariz A Los Pies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grasping-german-is-it-tough-to-grasp/"><u>Grasping German: Is It Tough to Grasp?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/groundbreran-applications-transform-language-comprehension/"><u>Groundbreran Applications Transform Language Comprehension</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/guided-path-to-your-ideal-new-language/"><u>Guided Path To Your Ideal New Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/historical-hunt-for-earths-elongated-expression/"><u>Historical Hunt for Earth's Elongated Expression</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-vivo-t2x-5g-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Vivo T2x 5G | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-detect-and-remove-spyware-on-vivo-y78t-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Remove Spyware on Vivo Y78t? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-verizon-iphone-14-plus-by-drfone-ios/"><u>In 2024, How to Unlock Verizon iPhone 14 Plus</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-top-5-oneplus-ace-2-pro-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>In 2024, Top 5 OnePlus Ace 2 Pro Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/la-semaine-francaise-comprendre-les-mots/"><u>La Semaine Française: Comprendre Les Mots</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-languages-via-sound-science-effective-musical-methods/"><u>Learn Languages via Sound Science: Effective, Musical Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-to-perfectly-articulate-ru-letters/"><u>Learn to Perfectly Articulate RU Letters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mandarin-manners-made-simple-learn-to-thank-in-chinese/"><u>Mandarin Manners Made Simple: Learn to Thank in Chinese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-turkish-writing-and-speech-quick-guide-to-its-phonetics/"><u>Mastering Turkish Writing & Speech: Quick Guide to Its Phonetics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-non-verbal-communication-in-italys-culture/"><u>Navigating Non-Verbal Communication in Italy's Culture</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/no-more-language-barriers-your-95-off-lifetime-pass/"><u>No More Language Barriers - Your 95%% Off Lifetime Pass</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polyphonic-progress-embrace-language-mastery-via-virtual-realms/"><u>Polyphonic Progress: Embrace Language Mastery via Virtual Realms</u></a></li>
+<li><a href="https://change-location.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-samsung-galaxy-xcover-6-pro-tactical-edition-drfone-by-drfone-virtual-android/"><u>Preparation to Beat Giovani in Pokemon Go For Samsung Galaxy XCover 6 Pro Tactical Edition | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sovac-slovaci-language-journey-unfolding-one-quick-lesson-daily/"><u>Sovac Slováci - Language Journey Unfolding, One Quick Lesson Daily!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-anywhere-learn-everywhere-top-3-multilingual-centers/"><u>Speak Anywhere, Learn Everywhere: Top 3 Multilingual Centers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speed-in-language-acquisition-theoretical-and-practical-views/"><u>Speed in Language Acquisition: Theoretical & Practical Views</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tank-om-sverige-valkomma/"><u>Tänk Om Sverige: Välkomma</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-language-labyrinth-journey-through-the-verbal-cosmos-of-star-wars/"><u>The Language Labyrinth: Journey Through the Verbal Cosmos of Star Wars</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-secret-to-fluent-use-of-english-conjunctions-and-contractions/"><u>The Secret to Fluent Use of English Conjunctions & Contractions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-10-international-languages-learned-by-americans/"><u>Top 10 International Languages Learned by Americans</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-windows-10-update-errors-and-unresponsive-behavior/"><u>Troubleshooting Windows 10 Update Errors and Unresponsive Behavior</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-the-world-with-words-mastering-multi-language-immersion/"><u>Unlock the World with Words: Mastering Multi-Language Immersion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/urdu-basics-must-learn-words-for-newcomers/"><u>Urdu Basics: Must-Learn Words for Newcomers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/varfor-sverige-allt-i-genom/"><u>Varför Sverige? - Allt I Genom</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/words-made-simple-strategies-for-pronouncing-complex-terms/"><u>Words Made Simple: Strategies for Pronouncing Complex Terms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/your-step-by-step-spanish-verb-learning-journey/"><u>Your Step-by-Step Spanish Verb Learning Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/synapseis-eyxes-politikhs-gkreman/"><u>Συνάψεις Ευχές Πολιτικής Γκρεμάν</u></a></li>
+</ul></div>

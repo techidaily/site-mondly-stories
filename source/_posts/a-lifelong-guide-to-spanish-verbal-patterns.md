@@ -1,7 +1,7 @@
 ---
 title: A Lifelong Guide to Spanish Verbal Patterns
-date: 2024-07-12T08:48:55.827Z
-updated: 2024-07-13T08:48:55.827Z
+date: 2024-09-01T00:14:25.772Z
+updated: 2024-09-02T00:14:25.772Z
 tags:
   - speak
   - english
@@ -107,6 +107,9 @@ And the conjugation of comer will look like this:
 
  Keep in mind the fact that the first person singular (_yo_), third person singular (_él, ella_), and second person formal singular (_usted_) forms use tildes on the final letters of the verb endings. And one little tilde can make all the difference in the world! If you don’t know yet how accents work, take a look at our article on **[Spanish accents and how to master them all](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .**
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Spanish Simple Future Tense – Regular Simple Future Verb Endings
 
  In Spanish, there are two ways to form the future tense:**the informal future tense** (the verb_ir_ \+ a + infinitive ->_voy a comer_) and**the simple future tense,** which we will illustrate in this article.
@@ -139,12 +142,18 @@ And the conjugation of comer will look like this:
 * _Vosotros / Vosotras escrib**iréis**_
 * _Ellos / Ellas / Ustedes escrib**irán**_
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Spanish verbs: how to master irregular Spanish verbs
 
  Remember how you managed to learn**irregular English verbs** ? Well, there are tricks that you can use, but the truth is that, in time,**irregular Spanish verbs** will just… come to you. No joke. Once you get used to the language and use it all the time, your brain will start making connections.
 
  As you already know,**irregular verbs** are “rebel” verbs that follow no regular set of rules. Statistically, in Spanish, almost all verbs ending in_\-ar_ are regular, almost all verbs ending in_\-er_ are irregular and less than half of all verbs ending in_\-ir_ are irregular. So, let’s disentangle this complicated situation of**irregular Spanish verbs** and look for some patterns to help us learn faster.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
 ### 1\. Stem-Changing Verbs in Spanish
 
  The easiest type of**irregular verbs in Spanish** are the ones that require stem-changing but keep the regular endings. By the way, the stem of a verb is the result you get when you remove the infinitive suffix (meaning the_\-ar_ ,_\-er_ , or_\-ir_) from the infinitive form. For example, the stems of_deber_ ,_hablar_ and_vivir_ are “deb-“, “habl-” and “viv-“.
@@ -199,6 +208,9 @@ And the conjugation of comer will look like this:
 
 _Adquirir_ (to acquire) and_inquirir_ (to inquire) are just as rebellious because to the final letter “i” of their stem, we will need to add an “e”. Thus, “I acquire” will be “Yo adquiero”.
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 2\. Spanish verbs with an irregular “yo” form
 
  This category includes two types of verbs:  
@@ -223,6 +235,9 @@ _Adquirir_ (to acquire) and_inquirir_ (to inquire) are just as rebellious becaus
  –_dar_ (to give) –_Yo doy_ ,_Tú das_
  –_ver_ (to see) –_Yo veo_ ,_Tú ves_
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Spanish verbs conjugation examples –_ser, estar, ir_
 
  Now that we managed to paint the big picture for both**regular and irregular Spanish verbs** , let’s finish this lesson with some eloquent examples of the most “rebel” verbs of the Spanish language:_ser_ (to be),_estar_ (to be, to be situated) and_ir_ (to go). Here’s the**present tense** ,**preterite tense** , and**future tense conjugation** for each and every one of them:
@@ -317,3 +332,46 @@ Well… this is it! This is our full lesson on**Spanish verbs.**
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-daily-dosage-of-serenity-top-yoga-channels-for-life/"><u>[New] 2024 Approved  Daily Dosage of Serenity  Top Yoga Channels for Life</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-cutting-edge-software-transform-and-tweet-videos/"><u>[New] In 2024, Cutting-Edge Software  Transform and Tweet Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-depth-review-cloud-pricing-trends-for-2024/"><u>[New] In-Depth Review  Cloud Pricing Trends for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-beat-the-competition-macs-7-best-speech-to-text-apps-explored/"><u>[Updated] 2024 Approved  Beat the Competition  Mac's 7 Best Speech-to-Text Apps Explored</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-charting-new-territory-youtubes-revised-policies/"><u>[Updated] Charting New Territory  YouTube's Revised Policies</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-the-fundamentals-of-starting-an-instantaneous-broadcast-for-2024/"><u>[Updated] The Fundamentals of Starting an Instantaneous Broadcast for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-top-live-streaming-technologies-for-broadcinas/"><u>2024 Approved  Top Live Streaming Technologies for Broadcinas</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-restart-motorola-razr-40-ultra-without-power-button-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Restart Motorola Razr 40 Ultra Without Power Button | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/banish-the-chaos-strategies-to-refine-overwhelming-tiktok-drafts-for-2024/"><u>Banish the Chaos  Strategies to Refine Overwhelming TikTok Drafts for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/complete-guide-to-magic-mouse-windows-driver-download-and-setup-process/"><u>Complete Guide to Magic Mouse Windows Driver Download and Setup Process</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/crafting-an-engaging-review-vlog-for-everyday-items-for-2024/"><u>Crafting an Engaging Review Vlog for Everyday Items for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/efficient-techniques-for-srt-files-on-twitter-facebook/"><u>Efficient Techniques for SRT Files on Twitter, Facebook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hangul-simplified-a-beginners-journey-into-korean-scripts/"><u>Hangul Simplified: A Beginner's Journey Into Korean Scripts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/heartfelt-messages-across-cultures-on-valentines-day/"><u>Heartfelt Messages Across Cultures on Valentine's Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-quickly-can-i-become-a-conversationalist/"><u>How Quickly Can I Become a Conversationalist?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/how-to-produce-a-trending-solo-podcast-series/"><u>How To Produce A Trending Solo Podcast Series</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, iPogo will be the new iSpoofer On Apple iPhone 14 Pro? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/infusing-character-into-speech-learn-27-french-idioms/"><u>Infusing Character Into Speech: Learn 27 French Idioms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-a-new-era-of-customer-service-mondlys-faqs/"><u>Introducing a New Era of Customer Service - Mondly's FAQs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-latvian-online-in-just-10-minutes-a-day/"><u>Learn Latvian Online in Just 10 Minutes a Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-dynamics-in-macau/"><u>Linguistic Dynamics in Macau</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-leapfrogging-with-these-brain-teasers/"><u>Linguistic Leapfrogging with These Brain Teasers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-bangla-in-just-10-mins-a-day/"><u>Master Bangla in Just 10 Mins a Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-the-digital-bridge-to-learning-and-growth-for-70-millionplus-users/"><u>Mondly: The Digital Bridge to Learning & Growth for 70 Million+ Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-the-premier-app-for-language-acquisition/"><u>Mondly: The Premier App for Language Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-pathway-to-fluent-afrikaans-explained-in-7-points/"><u>Mondly's Pathway to Fluent Afrikaans Explained in 7 Points</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-japenese-warm-welcomes/"><u>Navigating Japenese Warm Welcomes</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/navigating-the-export-transferring-your-chatgpt-records/"><u>Navigating the Export: Transferring Your ChatGPT Records</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/non-copyrighted-meditation-sounds/"><u>Non-Copyrighted Meditation Sounds</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pt-variants-analysis-brazilians-vs-europeans-button-trends/"><u>PT Variants Analysis: Brazilians vs Europeans - Button Trends</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saying-hello-like-a-pro-mastering-italys-friendliest-greetings/"><u>Saying Hello Like a Pro: Mastering Italy's Friendliest Greetings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sea-raiders-sayings-the-old-norse-language-story/"><u>Sea-Raiders' Sayings: The Old Norse Language Story</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-necessity-of-flexible-language-learning-frameworks/"><u>The Necessity of Flexible Language Learning Frameworks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-revolutionary-ai-conversationalist-is-here/"><u>The Revolutionary AI Conversationalist Is Here</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-motivations-for-learning-the-german-language/"><u>Top Motivations for Learning the German Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-the-art-of-saying-hello-in-spanish-top-10-methods/"><u>Unlocking the Art of Saying Hello In Spanish - Top 10 Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/update-privacy-policy-and-terms-of-useback-buttonfilter-button/"><u>Update: Privacy Policy & Terms Of UseBack ButtonFilter Button</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-online-tools-to-delete-tiktok-watermarks-for-free/"><u>Updated Online Tools to Delete TikTok Watermarks for Free</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/your-israel-expedition-guide-crucial-tips-and-vital-expressions/"><u>Your Israel Expedition Guide: Crucial Tips & Vital Expressions</u></a></li>
+</ul></div>

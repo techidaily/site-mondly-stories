@@ -1,7 +1,7 @@
 ---
 title: "Astonish Amalfitans: Enjoy the Richness of Italian Expressions"
-date: 2024-07-12T08:46:03.955Z
-updated: 2024-07-13T08:46:03.955Z
+date: 2024-09-01T00:16:51.387Z
+updated: 2024-09-02T00:16:51.387Z
 tags:
   - speak
   - english
@@ -61,6 +61,11 @@ _Cavoli amari_ literally translates to “bitter cabbages” in Italian but refe
 
  When you’re clueless about something or you don’t know what to say, in Italian, you can simply say “boh!”. This one is quite similar to the Italian expression_che ne so!_ meaning “how should I know?”.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
+🎬 Nero Video:
+The powerful video editing program for your Windows PC</a>
+<!-- affiliate ads end -->
 ### 3\. Dai
 
  There’s no denying that Italians are experts in expression. For example, the Italian expression [“dai!”](http://www.bbc.com/culture/story/20171207-dai-the-italian-word-with-many-meanings) can be used in three quite different contexts. And if you are wondering how that is possible, well, it’s all about the correct use of intonation, mimics, and [Italian hand gestures](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
@@ -69,10 +74,20 @@ _Cavoli amari_ literally translates to “bitter cabbages” in Italian but refe
 * _Dai! Passa la palla a Luigi!_ – Come on! Pass the ball to Luigi! (encouragement)
 * _Dai! Basta! Smettila!_ – Come on! That’s enough! Stop that! (frustration or annoyance)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
 ### 4\. Pantofolaio
 
  Literally “slipper-man”. Italian slang_pantofolaio_ refers to someone who prefers to stay home in their slippers rather than go out. Do you recognize yourself in this description? A_pantofolaio_ is basically the Italian equivalent of “couch potato”.
 
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 5\. Tirare il pacco
 
  “To throw the package”. Contrary to what some may think, this has nothing to do with the delivery man. Instead, it means to stand someone up. So, Italians don’t just skip a meeting or a date, they “throw the package”.
@@ -83,6 +98,9 @@ _Scialla_ is an Italian slang word that has become very popular lately, thanks t
 
  There’s a 2011 movie with the same name in case you’re looking to expand your Italian slang word repertoire further.
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 7\. Figo
 
  Mostly used by younger people, this Italian slang word is the equivalent of “cool”. If you want to say that something is extraordinary, fantastic, or cool, in Italian you would say_figo_ or_che figata_ .
@@ -103,12 +121,19 @@ _Casino_ in Italian has nothing to do with gambling because it is literally a �
 
 _Beccarsi_ is an Italian slang verb that comes from_beccare,_ which literally means “to peck”. However, in slang or informal language,_beccarsi_ has several meanings depending on the context. The most common is “to meet” or “to catch up” with someone. For example,_Ci becchiamo dopo la scuola?_ translates to “Shall we meet up after school?”.
 
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 11\. Americanata
 
 _Americanata_ is a playful jab, not to be taken offensively, used to describe something absurdly grandiose, extravagant, or exaggerated, reflecting a humorous observation of American culture.
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Go Beyond “Ciao Bella”: 20+ Italian Slang Words &Amp; Expressions 6")
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ##### Learn Italian today 🍝
 
  Build practical Italian skills for real life with Mondly.
@@ -134,6 +159,9 @@ _Americanata_ is a playful jab, not to be taken offensively, used to describe so
 
 ![Italian slang](https://edge.mondly.com/blog/wp-content/uploads/2019/09/italian-slang-960x640.jpg "Go Beyond “Ciao Bella”: 20+ Italian Slang Words &Amp; Expressions 7")
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<!-- affiliate ads end -->
 ## Bonus: More Italian Slang Words and Expressions
 
 | Italian slang words and expressions          | Translation                          | Comments                                                              |
@@ -166,10 +194,16 @@ _Americanata_ is a playful jab, not to be taken offensively, used to describe so
 
 Before you go, make sure you check out these FAQs.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Is it okay to use slang when speaking Italian?
 
  Yes, using slang is okay when speaking Italian, as it can make your conversations more natural and show familiarity with the culture. Just make sure you’re mindful of the context and the company you’re in.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<!-- affiliate ads end -->
 ### Where can I learn more Italian slang?
 
  You can learn more Italian slang on the Mondly blog, from Italian movies and TV shows, social media, and online forums frequented by fluent speakers.
@@ -217,3 +251,42 @@ Before you go, make sure you check out these FAQs.
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-bringing-videos-to-life-using-youtube-in-educational-environments-for-2024/"><u>[New] Bringing Videos to Life  Using YouTube in Educational Environments for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-complete-review-for-hero4-black-for-2024/"><u>[New] Complete Review for Hero4 Black for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-navigate-through-settings-enabledisable-video-comments/"><u>[Updated] 2024 Approved  Navigate Through Settings  Enable/Disable Video Comments</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-the-professionals-playbook-mastering-live-video-sharing-on-fb/"><u>[Updated] 2024 Approved  The Professional's Playbook  Mastering Live Video Sharing on FB</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/designing-impactful-social-media-fb-ads/"><u>Designing Impactful Social Media FB Ads</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/expert-advice-detecting-and-dealing-with-chatgpt-fraudulent-websites/"><u>Expert Advice: Detecting and Dealing with ChatGPT Fraudulent Websites</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gran-expedicion-anatomica-la-jornada-del-ser-humano-desde-la-nariz-a-los-pies/"><u>Gran Expedición Anatómica: La Jornada Del Ser Humano Desde La Nariz A Los Pies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/groundbreran-applications-transform-language-comprehension/"><u>Groundbreran Applications Transform Language Comprehension</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/guided-path-to-your-ideal-new-language/"><u>Guided Path To Your Ideal New Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/historical-hunt-for-earths-elongated-expression/"><u>Historical Hunt for Earth's Elongated Expression</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-can-xiaomi-redmi-k70mirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Xiaomi Redmi K70Mirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-honor-x9b-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Honor X9b? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-xiaomi-redmi-12-5g-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your Xiaomi Redmi 12 5G Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/incorporating-chatgpt-into-your-teams-online-interactions-for-improved-communication/"><u>Incorporating ChatGPT Into Your Team's Online Interactions for Improved Communication</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/instagram-disconnect-watch-stay-ahead-for-2024/"><u>Instagram Disconnect Watch  Stay Ahead for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mandarin-manners-made-simple-learn-to-thank-in-chinese/"><u>Mandarin Manners Made Simple: Learn to Thank in Chinese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mind-multitasker-top-6-benefits-of-dual-language-skills/"><u>Mind-Multitasker: Top 6 Benefits of Dual Language Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-non-verbal-communication-in-italys-culture/"><u>Navigating Non-Verbal Communication in Italy's Culture</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/snappy-lesson-plan-quick-japanese-numbers-1-10/"><u>Snappy Lesson Plan: Quick Japanese Numbers 1-10</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tank-om-sverige-valkomma/"><u>Tänk Om Sverige: Välkomma</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-italian-signal-speaking/"><u>The Art of Italian Signal Speaking</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essential-reference-for-japanese-language-learners/"><u>The Essential Reference for Japanese Language Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-explorers-voice-guide-to-vietnamese-expressions/"><u>The Explorer's Voice Guide to Vietnamese Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-secret-to-fluent-use-of-english-conjunctions-and-contractions/"><u>The Secret to Fluent Use of English Conjunctions & Contractions</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-ultimate-guide-to-shaping-audio-with-chatgpt-in-your-daw/"><u>The Ultimate Guide to Shaping Audio with ChatGPT in Your DAW</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-skillful-home-cooking-techniques-and-strategies/"><u>The Ultimate Guide to Skillful Home Cooking Techniques and Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-10-international-languages-learned-by-americans/"><u>Top 10 International Languages Learned by Americans</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/top-5-from-poco-m6-5g-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 5 from Poco M6 5G to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tv-series-and-films-the-language-acquisition-route/"><u>TV Series & Films: The Language Acquisition Route</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-the-world-with-words-mastering-multi-language-immersion/"><u>Unlock the World with Words: Mastering Multi-Language Immersion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unraveling-korean-mastering-hangul-with-ease/"><u>Unraveling Korean: Mastering Hangul with Ease</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-tone-it-up-5-easy-to-use-online-generators-no-charge/"><u>Updated In 2024, Tone It Up 5 Easy-to-Use Online Generators No Charge</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/varfor-sverige-allt-i-genom/"><u>Varför Sverige? - Allt I Genom</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vocal-flair-engage-in-100-english-twisters/"><u>Vocal Flair: Engage in 100 English Twisters</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-itel-p40plus-drfone-by-drfone-virtual-android/"><u>Will iSpoofer update On Itel P40+ | Dr.fone</u></a></li>
+</ul></div>

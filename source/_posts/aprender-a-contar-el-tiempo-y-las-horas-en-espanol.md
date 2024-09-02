@@ -1,7 +1,7 @@
 ---
 title: Aprender a Contar El Tiempo Y Las Horas en Español
-date: 2024-07-12T08:48:11.888Z
-updated: 2024-07-13T08:48:11.888Z
+date: 2024-09-01T00:15:15.456Z
+updated: 2024-09-02T00:15:15.456Z
 tags:
   - speak
   - english
@@ -73,8 +73,14 @@ Here are some examples:
 
 ![telling time in spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/06/telling-time-in-spanish-600x600.jpg "How To Tell Time In Spanish - A Complete Guide For Beginners 3")
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Telling time in Spanish – a visual guide
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Hour + minutes in Spanish time
 
  Wanna be a little more specific? Here’s how Spanish time works when you need to indicate the exact number of minutes that have past from the hour.
@@ -86,6 +92,9 @@ Here are some examples:
 * _Son las ocho y cuarto._ (“it’s a quarter past eight”)
 * _Son las ocho y quince._ (“it’s eight and fifteen minutes”)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<!-- affiliate ads end -->
 ### Different ways of telling time in Spanish
 
  There are three formulas of telling time in Spanish. Here are different ways of telling it’s 3:10:
@@ -96,6 +105,9 @@ Here are some examples:
 
  Which one do you prefer? Additionally, if we also count it_cuarto_ and_media_ , there are no less than four different ways to tell the time in Spanish. And you’ve just mastered them all!
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to indicate the time of day in Spanish
 
  If you are using the 12-hour clock, you sometimes might want to also point out the time of day. For instance, “it’s two in the afternoon” translates to_**son las dos de la tarde**_ in Spanish. Not too complicated, is it? Here are some more times of day that might come in handy:
@@ -110,6 +122,9 @@ Here are some examples:
 
  To indicate that an event occurs at a specific time, use the formula **a +_la(s)_ \+ time** :_La clase de español empieza a las nueve_ – “The Spanish class begins at 9”.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Other useful time phrases in Spanish
 
 * _por la mañana_ – in the morning
@@ -145,6 +160,9 @@ Here are some examples:
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Speak Spanish fluently in just 10 minutes a day
 
  Do you want to [speak Spanish fluently](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) fast? Get Mondly, the award-winning language learning app that will help you speak Spanish as if you were Spanish-born.
@@ -173,3 +191,68 @@ Here are some examples:
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-elite-meme-design-software/"><u>[New] 2024 Approved  Elite Meme Design Software</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-effortless-transition-from-spotify-to-youtube-find-the-best-apps/"><u>[New] Effortless Transition From Spotify to YouTube  Find the Best Apps</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-fine-tuning-your-approach-to-360-videos-on-facebook/"><u>[New] In 2024, Fine-Tuning Your Approach to 360 Videos on Facebook</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-igtv-video-submission-made-simple/"><u>[New] In 2024, IGTV Video Submission Made Simple</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/treaming-service-showdown-facebook-vs-youtube-vs-twitvision/"><u>[New] Streaming Service Showdown  Facebook Vs. YouTube Vs. TwitVision</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-transforming-your-videos-first-impression-fb-cover-makeover-techniques-for-2024/"><u>[New] Transforming Your Videos' First Impression  FB Cover Makeover Techniques for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-11-year-old-video-sensation-unprecedented-wealth-accumulation/"><u>[Updated] 2024 Approved  11-Year-Old Video Sensation  Unprecedented Wealth Accumulation</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-achieving-professional-skype-recordings-in-obs-for-2024/"><u>[Updated] Achieving Professional Skype Recordings in OBS for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-essential-tips-for-adapting-to-facebooks-algorithm-update-for-2024/"><u>[Updated] Essential Tips for Adapting to Facebook's Algorithm Update for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-viral-videos-vaulted-into-visuals-optimal-tiktok-to-gif-tools/"><u>[Updated] In 2024, Viral Videos Vaulted Into Visuals  Optimal TikTok-to-GIF Tools</u></a></li>
+<li><a href="https://extra-information.techidaily.com/best-of-the-best-essential-themes-for-animes/"><u>Best of the Best  Essential Themes for Animes</u></a></li>
+<li><a href="https://driver-install.techidaily.com/cutting-edge-tech-windows-11-and-acer-updates/"><u>Cutting-Edge Tech: Windows 11 & Acer Updates</u></a></li>
+<li><a href="https://media-tips.techidaily.com/exploring-the-world-of-online-entertainment-what-to-stream-on-your-nintendo-switch/"><u>Exploring the World of Online Entertainment: What to Stream on Your Nintendo Switch?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-classroom-heroes-vocabulary-mosaic/"><u>Global Classroom Heroes: Vocabulary Mosaic</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-educonnect-forum-london-uk/"><u>Global Educonnect Forum - London, UK</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/honoring-time-mondlybacks-filter-evolution/"><u>Honoring Time: MondlyBack’s Filter Evolution</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-changefake-your-vivo-s18-location-on-viber-drfone-by-drfone-virtual-android/"><u>How to Change/Fake Your Vivo S18 Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-it-honor-play-40c-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix It Honor Play 40C Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-to-apple-iphone-13-pro-drfone-by-drfone-ios/"><u>How to Mirror PC to Apple iPhone 13 Pro? | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/how-to-retract-macos-upgrade-from-sierra-to-el-capitan-for-2024/"><u>How to Retract macOS Upgrade From Sierra to El Capitan for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-15-pro-max-to-others-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 15 Pro Max To Others devices? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-3-ways-to-change-location-on-facebook-marketplace-for-motorola-moto-g14-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Change Location on Facebook Marketplace for Motorola Moto G14 | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-constructing-an-inviting-subscribe-link-for-youtube-enthusiasts/"><u>In 2024, Constructing an Inviting Subscribe Link for YouTube Enthusiasts</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-many-attempts-to-unlock-apple-iphone-xs-max-by-drfone-ios/"><u>In 2024, How Many Attempts To Unlock Apple iPhone XS Max</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-motorola-g24-power-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location on TikTok to See More Content On your Motorola G24 Power | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-communication-standouts/"><u>International Communication Standouts</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/ix-escort-advanced-radar-detector-smart-learning-tech-for-safer-driving/"><u>IX Escort Advanced Radar Detector - Smart Learning Tech for Safer Driving</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-growth-beyond-grammar-constraints/"><u>Linguistic Growth Beyond Grammar Constraints</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-love-letters-for-lifes-milestones/"><u>Linguistic Love Letters for Life's Milestones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/memorable-pick-up-lines-in-german-for-every-occasion/"><u>Memorable Pick-Up Lines in German for Every Occasion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/milestone-1500-days-of-priceless-education/"><u>Milestone: 1,500 Days of Priceless Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-announces-enhanced-customer-support-qanda/"><u>Mondly Announces Enhanced Customer Support Q&A</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-conjuncts-with-pearson-knowledge-hub/"><u>Mondly Conjuncts With Pearson Knowledge Hub</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-is-offering-free-mobile-language-courses-for-millions-of-ukrainian-refugees/"><u>Mondly Is Offering Free Mobile Language Courses for Millions of Ukrainian Refugees</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-kids-the-ultimate-guide-to-kid-friendly-snacks-2017s-best-app/"><u>Mondly Kids: The Ultimate Guide to Kid-Friendly Snacks, 2017'S Best App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-rejoices-7-years-of-worldwide-learning/"><u>Mondly Rejoices - 7 Years of Worldwide Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-magic-unleashed-mondly-and-oculus-quest/"><u>Multilingual Magic Unleashed: Mondly and Oculus Quest</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/passionate-phrases-the-heart-of-french-charm/"><u>Passionate Phrases: The Heart of French Charm</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pioneering-your-data-protection/"><u>Pioneering Your Data Protection</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/proficient-communication-premium-linguistic-tools-reviewed/"><u>Proficient Communication: Premium Linguistic Tools Reviewed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revel-in-advanced-usage-techniques-for-mondly/"><u>Revel in Advanced Usage Techniques for Mondly</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/reviving-the-past-top-5-desktop-friendly-gb-emulation-software-for-2024/"><u>Reviving the Past  Top 5 Desktop-Friendly GB Emulation Software for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revolutionize-your-language-skills-using-mondlys-10-innovative-techniques/"><u>Revolutionize Your Language Skills Using Mondly's 10 Innovative Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saying-hello-and-goodbye-indonesias-communication-norms/"><u>Saying Hello & Goodbye: Indonesia's Communication Norms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seamless-connections-with-huawei-plus-mondly/"><u>Seamless Connections with Huawei + Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/semana-espanola-dias-y-horas-al-alcance/"><u>Semana Española: Días Y Horas Al Alcance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-a-native-in-latvia-the-ten-minute-method/"><u>Speak Like a Native in Latvia: The Ten-Minute Method</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/symphonic-syntax-rhythmic-techniques-for-language-acquisition/"><u>Symphonic Syntax: Rhythmic Techniques for Language Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-appreciation-multilingual-thank-you-expressions-156/"><u>The Art of Appreciation: Multilingual Thank You Expressions (156)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-french-romance-banter/"><u>The Art of French Romance Banter</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-curiosity-of-turkish-korean-language-exploration/"><u>The Curiosity of Turkish-Korean Language Exploration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-melting-pot-africas-linguistic-landscape/"><u>The Melting Pot: Africa’s Linguistic Landscape</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-rich-tapestry-of-african-linguistics/"><u>The Rich Tapestry of African Linguistics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/thrilling-techniques-for-latin-learning/"><u>Thrilling Techniques for Latin Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/uss-preferred-foreign-language-study-pathways/"><u>U.S.'s Preferred Foreign Language Study Pathways</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-belgian-language-etiquette/"><u>Understanding Belgian Language Etiquette</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unfolding-horizons-at-mondlylanguages-a-visionary-saga/"><u>Unfolding Horizons at MondlyLanguages - A Visionary Saga</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-your-minds-capabilities-with-7-reasons-to-study-afrikaans-on-mondly/"><u>Unlock Your Mind's Capabilities with 7 Reasons to Study Afrikaans on Mondly</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/unveiling-the-secrets-to-successful-social-media-film-making/"><u>Unveiling the Secrets to Successful Social Media Film Making</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/what-is-the-purpose-of-rundll32exe-how-to-handle-it-correctly/"><u>What Is the Purpose of rundll32.exe? How to Handle It Correctly?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/which-nations-prepare-for-thanksgiving/"><u>Which Nations Prepare for Thanksgiving?</u></a></li>
+</ul></div>

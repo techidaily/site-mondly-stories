@@ -1,7 +1,7 @@
 ---
 title: Valentine’s Multilingual Love Declaration Challenge
-date: 2024-07-12T08:46:52.190Z
-updated: 2024-07-13T08:46:52.190Z
+date: 2024-09-01T00:17:47.657Z
+updated: 2024-09-02T00:17:47.657Z
 tags:
   - speak
   - english
@@ -113,14 +113,23 @@ Here are some more ways to say “I love you” in other languages:
 
 ![I love you in sign language](https://edge.mondly.com/blog/wp-content/uploads/2018/10/i-love-you-sign-language.jpg "Say It Like You Mean It: How To Say “I Love You” In 32 Different Languages 4")
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ## The perfect Valentine’s Day gift: 365 gifts for 365 days
 
  Now that you know how to say “I love you” in so many languages, here’s a sweet present idea you could use for your next anniversary or Valentine’s Day. All you need to buy is a big jar – big enough for all your love. The rest of it comes from the bottom of your heart. The first step is to prepare 365 pieces of paper of different colors and sizes and write “I love you” in different languages on the first 32 of them. Go wildly romantic with the rest of them: you could write love quotes for him or love quotes for her, poems or songs that you both like. Next step? Decorate the jar with tiny lights, pieces of lace or stickers.
 
 ![i love you in spanish by Diego PH©](https://edge.mondly.com/blog/wp-content/uploads/2018/10/i-love-you-in-spanish-scaled-480x600.jpg "Say It Like You Mean It: How To Say “I Love You” In 32 Different Languages 5")
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  When it’s ready, tell your lover to read one piece of paper every day. Even when you are not around. That’s how they’ll smile and know that your heart always belongs to them.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### A love poem for your loved one
 
  Look no further if you need a love poem or a love song for your jar. It doesn’t necessarily need to be original. It just has to come from the heart. Here’s**a love song for your love jar:**
@@ -173,6 +182,9 @@ _With you, my heart will forever blend._
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### From “I love you” to conversational fast
 
  Do you want to go the extra mile and learn a new language for someone you love? Try Mondly, the award-winning language app that can help you master languages in record time.
@@ -207,3 +219,58 @@ _With you, my heart will forever blend._
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-transform-your-brand-with-powerful-fb-video-messaging/"><u>[New] In 2024, Transform Your Brand with Powerful FB Video Messaging</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-childhood-wings-5-best-drone-companions/"><u>[Updated] Childhood Wings  5 Best Drone Companions</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-critical-analysis-vidmas-contribution-to-screen-recording/"><u>[Updated] Critical Analysis  Vidma's Contribution to Screen Recording</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-virtual-veracity-versus-physical-prowess-in-live-links/"><u>[Updated] Virtual Veracity Versus Physical Prowess in Live Links</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-gradual-sound-reduction-for-computers-mac-and-windows/"><u>2024 Approved  Gradual Sound Reduction for Computers (Mac & Windows)</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-mastering-mobile-easy-steps-for-launching-personalbusiness-youtube-channels/"><u>2024 Approved  Mastering Mobile  Easy Steps for Launching Personal/Business YouTube Channels</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-unveiling-the-finest-free-online-recorders-top-picks/"><u>2024 Approved  Unveiling the Finest Free Online Recorders – Top Picks</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/enhance-pdf-and-doc-interaction-top-chatgpt-applications/"><u>Enhance PDF & Doc Interaction: Top ChatGPT Applications</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ring-youtubes-payment-mechanisms-for-content-makers-for-2024/"><u>Exploring YouTube's Payment Mechanisms for Content Makers for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/guide-de-la-physiologie-composants-bodily-en-francais/"><u>Guide De La Physiologie: Composants Bodily en Français</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-cost-effective-cloud-strategies-unveiled/"><u>In 2024, Cost-Effective Cloud Strategies Unveiled</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-leaderboard-best-following-drone-technology/"><u>In 2024, Leaderboard  Best-Following Drone Technology</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/live-commerce-next-chapter-can-ai-unlock-its-true-potential-for-2024/"><u>Live Commerce Next Chapter Can AI Unlock Its True Potential for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lyric-learning-labyrinas-accelerated-speech-through-song/"><u>Lyric Learning Labyrinas: Accelerated Speech Through Song</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-the-art-of-saying-thank-you-in-german-culture/"><u>Master the Art of Saying 'Thank You' In German Culture</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/meet-your-innovative-ai-discussion-partner/"><u>Meet Your Innovative AI Discussion Partner</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mindfullinguist-cognitive-development-through-virtual-realms/"><u>MindfulLinguist: Cognitive Development Through Virtual Realms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-collaborates-with-pearson-academic-union/"><u>Mondly Collaborates With Pearson Academic Union</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-no-cost-language-learning-nationwide/"><u>Mondly: No-Cost Language Learning Nationwide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-the-collaborative-language-learning-experience-approved-by-google/"><u>Mondly: The Collaborative Language Learning Experience, Approved by Google</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-learning-revolution-the-gateway-to-knowledge-for-70-million/"><u>Mondly’s Learning Revolution – The Gateway to Knowledge for 70 Million</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-language-feature-on-oculus-quest-with-mondly-integration/"><u>New Language Feature on Oculus Quest with Mondly Integration</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-level-up-your-video-editing-with-20-free-adobe-premiere-intro-templates-for-2024/"><u>New Level Up Your Video Editing with 20 Free Adobe Premiere Intro Templates for 2024</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-voice-over-mastery-essential-fcp-recording-hacks-for-2024/"><u>New Voice Over Mastery Essential FCP Recording Hacks for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/number-1-10-in-everyday-spanish/"><u>Number 1-10 in Everyday Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/opening-doors-with-foreign-tongues-anytime/"><u>Opening Doors with Foreign Tongues Anytime</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/portuguese-diversity-a-study-of-south-and-north-dialects/"><u>Portuguese Diversity: A Study of South & North Dialects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pronunciation-pioneers-unveiling-scottish-irish-and-aussie-flair/"><u>Pronunciation Pioneers: Unveiling Scottish, Irish, and Aussie Flair</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/semana-hispana-descifrando-los-dias-en-espanol/"><u>Semana Hispana: Descifrando Los Días en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/setting-and-securing-your-2022-success/"><u>Setting & Securing Your 2022 Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-swede-smoothly-shortcuts-to-sounds/"><u>Speak Swede Smoothly: Shortcuts to Sounds</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speed-up-french-color-pronunciation/"><u>Speed Up French Color Pronunciation</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/switching-mac-screenshot-types-easily/"><u>Switching Mac Screenshot Types Easily</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/tap-into-endless-creativity-our-compilation-of-over-50-free-advertising-masterpieces-for-2024/"><u>Tap Into Endless Creativity – Our Compilation of over 50 FREE Advertising Masterpieces for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-echoing-languages-of-asias-elite-top-3/"><u>The Echoing Languages of Asia's Elite: Top 3</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-endless-enigma-of-earths-ultimate-term/"><u>The Endless Enigma of Earth's Ultimate Term</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-finest-3-online-schools-learn-languages-with-precision-and-passion/"><u>The Finest 3 Online Schools: Learn Languages with Precision & Passion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-journey-through-a-decade-with-mondly/"><u>The Journey Through a Decade with Mondly</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/the-ultimate-4k-experience-deep-dive-into-samsungs-ue590/"><u>The Ultimate 4K Experience - Deep Dive Into Samsung's UE590</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-screenplays-from-diverse-cultures-to-learn-languages/"><u>Top Screenplays From Diverse Cultures to Learn Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transforming-your-company-talk-into-strategic-dialogue/"><u>Transforming Your Company Talk Into Strategic Dialogue</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/troubleshooting-steps-resolve-plugin-service-connectivity-problems-with-chatgpt/"><u>Troubleshooting Steps: Resolve Plugin Service Connectivity Problems with ChatGPT</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tv-and-cinema-cultivating-communicative-skills/"><u>TV & Cinema: Cultivating Communicative Skills</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/two-ways-to-track-my-boyfriends-xiaomi-14-ultra-without-him-knowing-drfone-by-drfone-virtual-android/"><u>Two Ways to Track My Boyfriends Xiaomi 14 Ultra without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/uncovering-the-top-120-vital-vietnamese-words/"><u>Uncovering the Top 120 Vital Vietnamese Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/universal-introduction-strategies/"><u>Universal Introduction Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-your-potential-in-just-7-steps-learn-afrikaans-with-mondlys-support/"><u>Unlock Your Potential in Just 7 Steps - Learn Afrikaans with Mondly's Support</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vibrant-verses-of-venetian-verve/"><u>Vibrant Verses of Venetian Verve</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/where-is-thanksgiving-celebrated-globally/"><u>Where Is Thanksgiving Celebrated Globally?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/wordcraft-wisdom-how-shakespeare-shapes-our-speech/"><u>Wordcraft Wisdom: How Shakespeare Shapes Our Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/world-words-whirlwind-simplest-10-tongue-list/"><u>World Words Whirlwind: Simplest 10 Tongue List</u></a></li>
+</ul></div>

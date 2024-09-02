@@ -1,7 +1,7 @@
 ---
 title: "Navigating Italy in Fluency: The Traveler's Phrasebook"
-date: 2024-07-12T08:45:42.228Z
-updated: 2024-07-13T08:45:42.228Z
+date: 2024-09-01T00:18:37.714Z
+updated: 2024-09-02T00:18:37.714Z
 tags:
   - speak
   - english
@@ -82,6 +82,10 @@ thumbnail: https://thmb.techidaily.com/d568502deceace8c4ecf36ae07d16a3133e76d139
 * Please wait a moment. –_Aspetti un momento, per favore._
 * I’ll be back immediately. –_Ritorno subito._
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ## 3\. Italian phrases for food lovers
 
  Food is a crucial part of a trip to Italy. No one – and I mean not even a single soul, not even Arya Stark – leaves Italy without indulging on mountains of pizza, pasta and [gelato](https://en.wikipedia.org/wiki/Gelato) . So here’s**how to order drinks or food in Italian restaurants:**
@@ -104,6 +108,9 @@ thumbnail: https://thmb.techidaily.com/d568502deceace8c4ecf36ae07d16a3133e76d139
 * I would like a coffee. –_Vorrei un caffè._
 * Can I have some ice cream? –_Posso prendere il gelato?_
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 4\. Basic Italian for tourists who need a place to spend the night
 
  Looking for the perfect accommodation can be a real headache sometimes. Well, imagine you did find it, but the hosts only speak Italian. How will you deal with that? Some**basic Italian** would surely be useful in this situation.
@@ -123,6 +130,10 @@ thumbnail: https://thmb.techidaily.com/d568502deceace8c4ecf36ae07d16a3133e76d139
 
 ![common italian phases](https://edge.mondly.com/blog/wp-content/uploads/2019/07/common-italian-phrases-1024x682.jpg "100+ Essential Italian Travel Phrases For Your Trip 4")
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
  “Fontana di Trevi” by Ivan Bertona©
 
 * Is there a pub here? –_C’è un pub qui vicino?_
@@ -155,8 +166,14 @@ thumbnail: https://thmb.techidaily.com/d568502deceace8c4ecf36ae07d16a3133e76d139
 
 ![basic italian phrases](https://edge.mondly.com/blog/wp-content/uploads/2019/07/basic-italian-phrases-1024x575.jpg "100+ Essential Italian Travel Phrases For Your Trip 5")
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  “Vernazza, Italy” by Daniil Vnoutchkov
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 7\. Days of the week and numbers in Italian
 
  Wherever you go in the world, the days of the week and the numbers always fall into the category of**absolutely essential expressions.** It’s only a matter of time until you’ll make use of them. So seize the opportunity and memorize them now.
@@ -202,6 +219,9 @@ thumbnail: https://thmb.techidaily.com/d568502deceace8c4ecf36ae07d16a3133e76d139
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Speak Italian fluently in just 10 minutes a day
 
  Do you want to see these Italian phrases in action in real-life conversations? Get Mondly, the award-winning language learning app that will [help you speak Italian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) as if you were Tuscany-born.
@@ -230,3 +250,40 @@ thumbnail: https://thmb.techidaily.com/d568502deceace8c4ecf36ae07d16a3133e76d139
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-developing-dynamic-instagram-highlights-for-2024/"><u>[New] Developing Dynamic Instagram Highlights for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-crafting-star-stirred-stories-for-your-whatsapp-bio/"><u>2024 Approved  Crafting Star-Stirred Stories for Your WhatsApp Bio</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-mastering-minute-by-minute-srt-conversion-to-text-txt/"><u>2024 Approved  Mastering Minute-by-Minute SRT Conversion to Text (TXT)</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-soundsnatcher-free-guide-and-assessment/"><u>2024 Approved  SoundSnatcher Free Guide & Assessment</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-techniques-for-intense-online-visualization/"><u>2024 Approved  Techniques for Intense Online Visualization</u></a></li>
+<li><a href="https://win11.techidaily.com/dissecting-the-differences-of-windows-terminal-vs-powershell/"><u>Dissecting the Differences of Windows Terminal Vs. PowerShell</u></a></li>
+<li><a href="https://techtrends.techidaily.com/enhanced-efficiency-through-pipefy-and-abbyys-collaborative-document-processing-platform/"><u>Enhanced Efficiency Through Pipefy and ABBYY's Collaborative Document Processing Platform</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/google-advocates-mondly-your-comprehensive-learning-companion/"><u>Google Advocates: Mondly - Your Comprehensive Learning Companion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/holidays-of-thankfulness-in-different-nations/"><u>Holidays of Thankfulness in Different Nations</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-text-messages-from-samsung-galaxy-f15-5g-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Text Messages from Samsung Galaxy F15 5G to New Phone | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-icloud-lock-from-iphone-12-pro-max-by-drfone-ios/"><u>In 2024, How to Bypass iCloud Lock from iPhone 12 Pro Max</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/iniciar-tu-manual-de-botones-del-reloj-digital/"><u>Iniciar Tu Manual De Botones Del Reloj Digital</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/inspiring-lives-the-honterus-effect/"><u>Inspiring Lives: The Honterus Effect</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-a-10-point-guide-for-success/"><u>Language Learning: A 10-Point Guide for Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/love-around-the-globe-multilingual-expressions-for-valentines-day/"><u>Love Around The Globe: Multilingual Expressions for Valentine's Day</u></a></li>
+<li><a href="https://techtrends.techidaily.com/mastering-the-skype-screening-2024s-ultimate-career-guide/"><u>Mastering the Skype Screening: 2024'S Ultimate Career Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-powered-precision-pearsons-new-gsl-approach/"><u>Mondly-Powered Precision: Pearson's New GSL Approach</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-champion-of-language-learning-germany-resonates/"><u>Mondly: Champion of Language Learning - Germany Resonates!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multi-language-mental-merge/"><u>Multi-Language Mental Merge</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-vlogging-made-easy-best-video-editing-software-for-popular-sites/"><u>New Vlogging Made Easy Best Video Editing Software for Popular Sites</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-guide-to-french-pronunciation-how-to-speak-french-like-a-native/"><u>Quick Guide to French Pronunciation – How to Speak French Like a Native</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-speak-quick-learn-top-10-simple-language-list/"><u>Quick Speak, Quick Learn: Top 10 Simple Language List</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/reasons-to-dive-into-language-learning-post-forty-enhanced-cognition-and-global-connections/"><u>Reasons to Dive Into Language Learning Post-Forty – Enhanced Cognition & Global Connections</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sound-like-a-native-top-17-common-spanish-expressions/"><u>Sound Like a Native: Top 17 Common Spanish Expressions</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/step-by-step-tutorial-clearing-out-entire-inbox-using-the-gmail-mobile-app/"><u>Step-by-Step Tutorial: Clearing Out Entire Inbox Using the Gmail Mobile App</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/summit-of-synergy-for-vr-sensations/"><u>Summit of Synergy for VR Sensations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sweet-french-whisperings-for-love/"><u>Sweet French Whisperings for Love</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-epic-saga-of-global-words-longest-one/"><u>The Epic Saga of Global Words' Longest One</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-rise-of-mondly-languages-dreams-woven-over-2-years/"><u>The Rise of Mondly Languages - Dreams Woven Over 2 Years</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-unseen-aspects-of-drone-shopping-you-mustnt-ignore/"><u>The Unseen Aspects of Drone Shopping You Mustn’t Ignore</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-5-foreign-languages-dominating-american-classrooms/"><u>Top 5 Foreign Languages Dominating American Classrooms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-humanitys-earliest-conversations/"><u>Unlocking Humanity's Earliest Conversations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/viking-speech-deciphering-ancient-nordic-dialogue/"><u>Viking Speech: Deciphering Ancient Nordic Dialogue</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Saying 'I Love You' In Over 50 Countries Today!
-date: 2024-07-12T08:43:11.277Z
-updated: 2024-07-13T08:43:11.277Z
+date: 2024-09-01T00:20:04.061Z
+updated: 2024-09-02T00:20:04.061Z
 tags:
   - speak
   - english
@@ -113,14 +113,23 @@ Here are some more ways to say “I love you” in other languages:
 
 ![I love you in sign language](https://edge.mondly.com/blog/wp-content/uploads/2018/10/i-love-you-sign-language.jpg "Say It Like You Mean It: How To Say “I Love You” In 32 Different Languages 4")
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The perfect Valentine’s Day gift: 365 gifts for 365 days
 
  Now that you know how to say “I love you” in so many languages, here’s a sweet present idea you could use for your next anniversary or Valentine’s Day. All you need to buy is a big jar – big enough for all your love. The rest of it comes from the bottom of your heart. The first step is to prepare 365 pieces of paper of different colors and sizes and write “I love you” in different languages on the first 32 of them. Go wildly romantic with the rest of them: you could write love quotes for him or love quotes for her, poems or songs that you both like. Next step? Decorate the jar with tiny lights, pieces of lace or stickers.
 
 ![i love you in spanish by Diego PH©](https://edge.mondly.com/blog/wp-content/uploads/2018/10/i-love-you-in-spanish-scaled-480x600.jpg "Say It Like You Mean It: How To Say “I Love You” In 32 Different Languages 5")
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
  When it’s ready, tell your lover to read one piece of paper every day. Even when you are not around. That’s how they’ll smile and know that your heart always belongs to them.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ### A love poem for your loved one
 
  Look no further if you need a love poem or a love song for your jar. It doesn’t necessarily need to be original. It just has to come from the heart. Here’s**a love song for your love jar:**
@@ -173,6 +182,13 @@ _With you, my heart will forever blend._
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Yearly Membership</a>
+<!-- affiliate ads end -->
 ### From “I love you” to conversational fast
 
  Do you want to go the extra mile and learn a new language for someone you love? Try Mondly, the award-winning language app that can help you master languages in record time.
@@ -207,3 +223,43 @@ _With you, my heart will forever blend._
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-ultimate-shoppers-list-select-box-personalization-sites/"><u>[New] Ultimate Shopper's List  Select Box Personalization Sites</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-decoding-unlisted-videos-a-deep-dive-into-youtube-secrecy/"><u>[Updated] In 2024, Decoding Unlisted Videos  A Deep Dive Into YouTube Secrecy</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-harnessing-youtube-statistics-to-increase-subscribers/"><u>[Updated] In 2024, Harnessing YouTube Statistics to Increase Subscribers</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-mastering-the-marketplace-30-advanced-fb-techniques-explored-for-2024/"><u>[Updated] Mastering the Marketplace  30 Advanced FB Techniques Explored for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-ultimate-guide-to-professional-grade-mobile-screencasting-with-mobizen-for-2024/"><u>[Updated] Ultimate Guide to Professional-Grade Mobile Screencasting with Mobizen for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-crimson-update-kit/"><u>2024 Approved  Crimson Update Kit</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-leading-no-cost-screen-recorders-for-windows-top-5-list/"><u>2024 Approved  Leading No-Cost Screen Recorders For Windows – Top 5 List</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/6-methods-for-switching-from-apple-iphone-se-to-samsung-drfone-by-drfone-transfer-from-ios/"><u>6 Methods for Switching from Apple iPhone SE to Samsung | Dr.fone</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/cost-cutting-options-for-purchasing-gopros/"><u>Cost-Cutting Options for Purchasing GoPros</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ary-callings-innovative-naming-for-foodie-channels/"><u>Culinary Callings  Innovative Naming for Foodie Channels</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/expedient-techniques-to-spot-and-expel-deceptive-insta-connections-for-2024/"><u>Expedient Techniques to Spot and Expel Deceptive Insta Connections for 2024</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/expertly-curated-list-the-ultimate-top-10-iphone-data-recovery-tools-for-ios-17-users-2024-edition/"><u>Expertly Curated List: The Ultimate Top 10 iPhone Data Recovery Tools for iOS 17 Users - 2024 Edition</u></a></li>
+<li><a href="https://article-posts.techidaily.com/face-id-vs-snapchats-face-unlock-the-apple-vs-samsung-debate-for-2024/"><u>Face ID Vs. Snapchat's Face Unlock  The Apple Vs. Samsung Debate for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-apple-iphone-se-2022-without-itunes-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Reset Apple iPhone SE (2022) Without iTunes? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/inbordes-valkomma-sveriges-hjartefar/"><u>Inbördes Välkomma: Sverige's Hjärtefär</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-indulgence-saying-chocolate-in-languages/"><u>International Indulgence: Saying 'Chocolate' In Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-preference-this-apple-app/"><u>International Preference: This Apple App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-the-precision-of-the-global-scale-of-languages-by-pearson-to-mondly/"><u>Introducing the Precision of the Global Scale of Languages by Pearson to Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-seafarer-speak-pirate-vocabulary-guide/"><u>Mastering Seafarer Speak: Pirate Vocabulary Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/minute-math-learning-japanese-digits-now/"><u>Minute Math: Learning Japanese Digits Now</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingualism-an-investment-for-the-fifties-and-beyond/"><u>Multilingualism: An Investment for the Fifties and Beyond</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-discover-the-best-glitch-video-editors-for-windows-mac-and-online-use/"><u>New In 2024, Discover the Best Glitch Video Editors for Windows, Mac, and Online Use</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/precision-leap-in-education-pearsons-updated-gsl-with-mondly/"><u>Precision Leap in Education: Pearson's Updated GSL with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pronouncing-spaniard-sounds-with-accents-correctly/"><u>Pronouncing Spaniard Sounds with Accents Correctly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-path-to-latvian-proficiency-10-minutes-daily/"><u>Quick Path to Latvian Proficiency, 10 Minutes Daily</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/simplified-hangul-learning-your-guide-to-seamless-script-acquisition/"><u>Simplified Hangul Learning: Your Guide to Seamless Script Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-by-step-guide-to-quick-czech-mastery-online/"><u>Step-by-Step Guide to Quick Czech Mastery Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tailored-for-success-customizing-language-training-goals-to-fit-your-corporate-culture/"><u>Tailored for Success: Customizing Language Training Goals to Fit Your Corporate Culture</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/teachers-crossroads-bett-2022-connectivity/"><u>Teacher's Crossroads: BETT 2022 Connectivity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-premium-three-your-key-to-speedier-happier-learning/"><u>The Premium Three: Your Key to Speedier, Happier Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/turbocharged-introduction-to-turkish-letters-and-sounds/"><u>Turbocharged Introduction to Turkish Letters and Sounds</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-brit-slang-the-ultimate-guidebook/"><u>Unlocking Brit Slang: The Ultimate Guidebook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-santas-international-oratory-skills/"><u>Unveiling Santa's International Oratory Skills</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/unveiling-the-potential-of-dual-screen-broadcasting-in-facebook-lives-for-2024/"><u>Unveiling the Potential of Dual-Screen Broadcasting in Facebook Lives for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/what-languages-does-santa-claus-speak-find-out-now/"><u>What Languages Does Santa Claus Speak? Find Out Now</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-mondly-dominates-in-cutting-edge-learning-tech/"><u>Why Mondly Dominates in Cutting-Edge Learning Tech?</u></a></li>
+</ul></div>

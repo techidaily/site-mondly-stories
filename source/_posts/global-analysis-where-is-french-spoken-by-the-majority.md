@@ -1,7 +1,7 @@
 ---
 title: "Global Analysis: Where Is French Spoken by the Majority?"
-date: 2024-07-12T08:47:15.097Z
-updated: 2024-07-13T08:47:15.097Z
+date: 2024-09-01T00:16:00.345Z
+updated: 2024-09-02T00:16:00.345Z
 tags:
   - speak
   - english
@@ -46,6 +46,9 @@ thumbnail: https://thmb.techidaily.com/7802234057966a55c104bcf23729049f87338b2a1
 
 ![how many people speak french](https://edge.mondly.com/blog/wp-content/uploads/2022/10/how-many-people-speak-french-960x600.jpg "Top French-Speaking Countries | How Many People Speak French? 4")
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<!-- affiliate ads end -->
 ### French-speaking countries in Europe
 
  Since France is the parental home of the French language, we figured it’s best to start with Europe. Boasting a rough total of 80 million French speakers, Europe counts for around 40% of the total number of worldwide francophones. This makes French the 3rd most spoken native language in Europe.
@@ -59,6 +62,9 @@ thumbnail: https://thmb.techidaily.com/7802234057966a55c104bcf23729049f87338b2a1
 * Switzerland — 67%
 * Italy — 20% (French is the official language of the autonomous region of the Aosta Valley)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### French-speaking countries in Africa
 
  How many people in Africa speak French? Well, some of you will be surprised to find out that Africa has more French speakers than any other continent. Even though many speak it as a second language, there are regions where French even replaced the local languages. As a result, French is the fastest-growing language here.
@@ -99,6 +105,9 @@ Needless to say, the only French-speaking country in North America is:
 
 * Canada — 29% (percentage of the entire population speaking French).
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### French-speaking countries in the Caribbean
 
 We told you that French speakers could be found everywhere in the world!
@@ -109,6 +118,13 @@ We told you that French speakers could be found everywhere in the world!
 
 !['French speakers' by Claudia Altamimi©](https://edge.mondly.com/blog/wp-content/uploads/2022/10/french-speakers-960x720.jpg "Top French-Speaking Countries | How Many People Speak French? 5")
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ### French-speaking countries in Oceania
 
  Literally… everywhere. Yes, if you learn French, you’ll have a friend to talk to even in Australia. The only country here that adopted French as an official language is:
@@ -127,6 +143,10 @@ We told you that French speakers could be found everywhere in the world!
 
  Now we finally have the full picture and we can understand why French is spoken on five continents.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ## A short history of the French language
 
  So how did the [French language](https://www.britannica.com/topic/French-language) become so widespread? Let’s see what history says.
@@ -178,3 +198,59 @@ We told you that French speakers could be found everywhere in the world!
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-top-youtube-fonts-for-striking-shareable-thumbnails/"><u>[New] 2024 Approved  Top YouTube Fonts for Striking, Shareable Thumbnails</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-discreet-downloaders-ranked-2023s-best-8-selections-for-2024/"><u>[New] Discreet Downloaders Ranked  2023'S Best 8 Selections for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-elevate-your-storytelling-game-on-snapchat-top-15-ideas/"><u>[Updated] 2024 Approved  Elevate Your Storytelling Game on Snapchat (Top 15 Ideas)</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-electorate-engagement-enigma-top-simulator-series-for-2024/"><u>[Updated] Electorate Engagement Enigma  Top Simulator Series for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-scouting-top-7-innovative-mobile-streaming-tools-for-youtube-enthusiasts/"><u>[Updated] In 2024, Scouting  Top 7 Innovative Mobile Streaming Tools for YouTube Enthusiasts</u></a></li>
+<li><a href="https://blog-min.techidaily.com/4-ways-to-transfer-music-from-nokia-g42-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>4 Ways to Transfer Music from Nokia G42 5G to iPhone | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/chart-topping-content-youtubes-top-5-for-2024/"><u>Chart-Topping Content  YouTube's Top 5 for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-classroom-heroes-vocabulary-mosaic/"><u>Global Classroom Heroes: Vocabulary Mosaic</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-educonnect-forum-london-uk/"><u>Global Educonnect Forum - London, UK</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/honoring-time-mondlybacks-filter-evolution/"><u>Honoring Time: MondlyBack’s Filter Evolution</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-oppo-a79-5g-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your Oppo A79 5G | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-erase-an-apple-iphone-12-pro-max-without-apple-id-by-drfone-ios/"><u>How to Erase an Apple iPhone 12 Pro Max without Apple ID?</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-gain-extensive-engagement-master-the-view-multiplier/"><u>In 2024, Gain Extensive Engagement  Master the View Multiplier</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-nubia-red-magic-9-proplus-drfone-by-drfone-virtual/"><u>In 2024, How to Fake GPS on Android without Mock Location For your Nubia Red Magic 9 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-communication-standouts/"><u>International Communication Standouts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-language-in-a-playful-palette/"><u>Latin Language in a Playful Palette</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-growth-beyond-grammar-constraints/"><u>Linguistic Growth Beyond Grammar Constraints</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-love-letters-for-lifes-milestones/"><u>Linguistic Love Letters for Life's Milestones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/memorable-pick-up-lines-in-german-for-every-occasion/"><u>Memorable Pick-Up Lines in German for Every Occasion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/milestone-1500-days-of-priceless-education/"><u>Milestone: 1,500 Days of Priceless Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-announces-enhanced-customer-support-qanda/"><u>Mondly Announces Enhanced Customer Support Q&A</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-conjuncts-with-pearson-knowledge-hub/"><u>Mondly Conjuncts With Pearson Knowledge Hub</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-is-offering-free-mobile-language-courses-for-millions-of-ukrainian-refugees/"><u>Mondly Is Offering Free Mobile Language Courses for Millions of Ukrainian Refugees</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-kids-the-ultimate-guide-to-kid-friendly-snacks-2017s-best-app/"><u>Mondly Kids: The Ultimate Guide to Kid-Friendly Snacks, 2017'S Best App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-rejoices-7-years-of-worldwide-learning/"><u>Mondly Rejoices - 7 Years of Worldwide Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-magic-unleashed-mondly-and-oculus-quest/"><u>Multilingual Magic Unleashed: Mondly and Oculus Quest</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/passionate-phrases-the-heart-of-french-charm/"><u>Passionate Phrases: The Heart of French Charm</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pioneering-your-data-protection/"><u>Pioneering Your Data Protection</u></a></li>
+<li><a href="https://media-tips.techidaily.com/quick-and-simple-methods-how-to-change-mp4-video-format-to-3gp-using-a-reliable-conversion-tool/"><u>Quick & Simple Methods: How to Change MP4 Video Format to 3GP Using a Reliable Conversion Tool</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revel-in-advanced-usage-techniques-for-mondly/"><u>Revel in Advanced Usage Techniques for Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revolutionize-your-language-skills-using-mondlys-10-innovative-techniques/"><u>Revolutionize Your Language Skills Using Mondly's 10 Innovative Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saying-hello-and-goodbye-indonesias-communication-norms/"><u>Saying Hello & Goodbye: Indonesia's Communication Norms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seamless-connections-with-huawei-plus-mondly/"><u>Seamless Connections with Huawei + Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/semana-espanola-dias-y-horas-al-alcance/"><u>Semana Española: Días Y Horas Al Alcance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-a-local-the-most-useful-german-sayings-countdown/"><u>Speak Like a Local: The Most Useful German Sayings Countdown</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-a-native-in-latvia-the-ten-minute-method/"><u>Speak Like a Native in Latvia: The Ten-Minute Method</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/symphonic-syntax-rhythmic-techniques-for-language-acquisition/"><u>Symphonic Syntax: Rhythmic Techniques for Language Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-appreciation-multilingual-thank-you-expressions-156/"><u>The Art of Appreciation: Multilingual Thank You Expressions (156)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-french-romance-banter/"><u>The Art of French Romance Banter</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-curiosity-of-turkish-korean-language-exploration/"><u>The Curiosity of Turkish-Korean Language Exploration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-melting-pot-africas-linguistic-landscape/"><u>The Melting Pot: Africa’s Linguistic Landscape</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-must-know-16-phrases-for-gratitude-in-german-culture/"><u>The Must-Know 16 Phrases for Gratitude in German Culture</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-rich-tapestry-of-african-linguistics/"><u>The Rich Tapestry of African Linguistics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-synergy-of-speaking-two-discover-6-gains/"><u>The Synergy of Speaking Two: Discover 6 Gains</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/thrilling-techniques-for-latin-learning/"><u>Thrilling Techniques for Latin Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/uss-preferred-foreign-language-study-pathways/"><u>U.S.'s Preferred Foreign Language Study Pathways</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-belgian-language-etiquette/"><u>Understanding Belgian Language Etiquette</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unfolding-horizons-at-mondlylanguages-a-visionary-saga/"><u>Unfolding Horizons at MondlyLanguages - A Visionary Saga</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-your-minds-capabilities-with-7-reasons-to-study-afrikaans-on-mondly/"><u>Unlock Your Mind's Capabilities with 7 Reasons to Study Afrikaans on Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-speech-perfection-english-tongue-twister-workout/"><u>Unlocking Speech Perfection: English Tongue Twister Workout</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/vrecorder-unpacked-step-by-step-download-procedures/"><u>VRecorder Unpacked  Step-by-Step Download Procedures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/which-nations-prepare-for-thanksgiving/"><u>Which Nations Prepare for Thanksgiving?</u></a></li>
+</ul></div>

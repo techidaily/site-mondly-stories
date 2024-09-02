@@ -1,7 +1,7 @@
 ---
 title: "Contare in Italiano: Pianificazione Di Un Percorso Educativo"
-date: 2024-07-12T08:45:13.798Z
-updated: 2024-07-13T08:45:13.798Z
+date: 2024-09-01T00:18:04.349Z
+updated: 2024-09-02T00:18:04.349Z
 tags:
   - speak
   - english
@@ -88,6 +88,9 @@ Let’s see some examples:
 * to say “18 years”, you’ll say_diciotto anni_
 * to say “20 children”, you’ll say_venti bambini_
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Italian numbers to 30 and beyond
 
  Essentially, Italian numbers are very similar to English numbers. Once you get to 20, you just put together the tens with the single numbers (units). The best part is that Italian doesn’t even require spaces or hyphens. For example, if you want to say 22 (“twenty-two”), in Italian you say venti (20) + due (2) = _**venti** due_ (22).
@@ -100,6 +103,9 @@ Let’s see some examples:
 
  See how easy Italian numbers are? The only thing you have to remember is that the final vowel of the tens disappears when you add 1_(uno)_ or 8_(otto)_ . Thus, you’ll say _**vent** uno_ and not “ventiuno”. Additionally, number 3_(tre)_ gains an accent mark on the final vowel. For example, 33 will be_trentatré_ and 83 will be_ottantatré._
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Count tens in Italian
 
  Except for 10_(dieci)_ and 20_(venti)_ , all tens digits in Italian are based on their roots. Once you know all of them, you’ll know how to count to 100 – which is_cento_ – in Italian.
@@ -133,6 +139,9 @@ Let’s see some examples:
 * 84 – _ottanta**quattro**_
 * 98 – _novant**otto**_
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Italian numbers 100 to 1000 and beyond
 
  The same rules apply to bigger numbers as well. Add the suffix_cento_ to the multiplier digit and here are your hundreds:
@@ -161,6 +170,9 @@ Let’s see some examples:
 
 ![italian numbers pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2020/05/italian-numbers-pronunciation-960x640.jpg "Italian Numbers Made Easy - Count To 1000 And Beyond In Italian 3")
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
  “The Amalfi Coast” by Gregory Smirnov©
 
  Back to counting, from 100 and beyond, the bigger the number is, the longer its written form. Italian doesn’t isolate hundreds, tens and ones. They become one long word with no hyphens or spaces. For example:
@@ -235,3 +247,53 @@ Let’s see some examples:
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-instagram-acclaim-the-easy-guide-for-followers/"><u>[New] 2024 Approved  Instagram Acclaim  The Easy Guide for Followers</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-4-ways-to-watch-facebook-live-on-tv/"><u>[New] 4 Ways To Watch Facebook Live On TV</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-unveiling-the-best-video-grabber-listings/"><u>[New] In 2024, Unveiling the Best Video Grabber Listings</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-ustream-review-and-alternatives/"><u>[New] In 2024, Ustream Review and Alternatives</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-visualeye-assessment-tool/"><u>[New] VisualEye Assessment Tool</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-cutting-edge-tools-for-instagrams-most-trendy-reels/"><u>[Updated] Cutting-Edge Tools for Instagram's Most Trendy Reels</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-elevated-engagement-awards-on-video-realms/"><u>[Updated] In 2024, Elevated Engagement Awards on Video Realms</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-secrets-to-exposing-videos-in-the-news-feed/"><u>[Updated] Secrets to Exposing Videos in the News Feed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dell-xps-13-7390-review-a-breathtaking-adaptable-two-in-one-ultraportable-experience/"><u>Dell XPS 13 7390 Review: A Breathtaking, Adaptable Two-in-One Ultraportable Experience</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/elite-internet-recorder-choices-7-to-try/"><u>Elite Internet Recorder Choices - 7 to Try</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-leaderships-via-superior-language-learning-platforms/"><u>Global Leaderships via Superior Language Learning Platforms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/great-personalities-who-inspire-us-johannes-honterus/"><u>Great Personalities Who Inspire Us: Johannes Honterus</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/horas-y-minutos-guia-sencilla-en-espanol/"><u>Horas Y Minutos: Guía Sencilla en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-many-people-speak-french-a-look-at-the-top-french-speaking-countries/"><u>How Many People Speak French? A Look At The Top French-Speaking Countries</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-a-network-locked-oppo-a78-phone-by-drfone-android/"><u>How to Unlock a Network Locked Oppo A78 Phone?</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-gopro-vs-polaroid-cube-choosing-your-editing-companion/"><u>In 2024, GoPro Vs. Polaroid Cube  Choosing Your Editing Companion</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-oppo-reno-8t-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Oppo Reno 8T to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-check-distance-and-radius-on-google-maps-for-your-htc-u23-drfone-by-drfone-virtual-android/"><u>In 2024, How to Check Distance and Radius on Google Maps For your HTC U23 | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-search-of-the-ideal-soundtrack-for-your-boxings-for-2024/"><u>In Search of the Ideal Soundtrack for Your Boxings for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-choice-spotlight-apples-app/"><u>International Choice Spotlight: Apple's App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/la-vocabularia-animalista-en-espanol-continua/"><u>La Vocabularia Animalista en Español Continua</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-adoption-the-integration-of-foreign-words-into-english/"><u>Language Adoption: The Integration of Foreign Words Into English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-distribution-the-belgian-dialect-spectrum/"><u>Language Distribution: The Belgian Dialect Spectrum</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/loves-lexicon-french-cinematic-masterpieces/"><u>Love's Lexicon: French Cinematic Masterpieces</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-finnish-language-from-anywhere-better-way/"><u>Mastering Finnish Language From Anywhere, Better Way!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-salutation-strategies/"><u>Multilingual Salutation Strategies</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-2024-approved-from-chaos-to-control-how-to-effectively-save-and-manage-fcp-projects/"><u>New 2024 Approved From Chaos to Control How to Effectively Save and Manage FCP Projects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-beginnings-in-learning-arabic/"><u>New Beginnings in Learning Arabic</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/nombre-a-entender-60-animales-en-espanol/"><u>Nombre a Entender: 60 Animales en Español</u></a></li>
+<li><a href="https://extra-support.techidaily.com/radiant-contrast-synchronizer-for-2024/"><u>Radiant Contrast Synchronizer for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/resolutions-for-a-successful-new-year/"><u>Resolutions for a Successful New Year</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-catalan-fast-learn-in-under-an-hour-a-day/"><u>Speak Catalan Fast: Learn in Under An Hour a Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-a-romanian-with-our-app/"><u>Speak Like a Romanian with Our App</u></a></li>
+<li><a href="https://win-answers.techidaily.com/stop-halo-infinite-from-crashing-on-windows-discover-these-7-quick-and-effective-troubleshooting-steps/"><u>Stop Halo Infinite From Crashing on Windows: Discover These 7 Quick & Effective Troubleshooting Steps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-absorption-essential-tips-for-language-lovers/"><u>The Art of Absorption: Essential Tips for Language Lovers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-saying-hello-in-japenese/"><u>The Art of Saying 'Hello' In Japenese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ceos-guide-to-mastering-company-language/"><u>The CEO's Guide to Mastering Company Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essential-guide-to-spanish-counting/"><u>The Essential Guide to Spanish Counting</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-european-melody-a-century-of-languages-unveiled-today/"><u>The European Melody: A Century Of Languages Unveiled Today</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/toms-tech-reviews-comprehensive-guides-on-hardware/"><u>Tom's Tech Reviews: Comprehensive Guides on Hardware</u></a></li>
+<li><a href="https://fox-that.techidaily.com/top-7-causes-of-unresponsive-iphone-touch-screens/"><u>Top 7 Causes of Unresponsive iPhone Touch Screens</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-resources-and-routines-for-self-learning-french/"><u>Top Resources & Routines for Self-Learning French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-into-a-korean-speaker-in-no-time-these-tools-will-help/"><u>Transform Into a Korean Speaker in No Time - These Tools Will Help</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/triad-of-asias-favorite-speeches-prioritize-and-archive/"><u>Triad of Asia's Favorite Speeches: Prioritize & Archive</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-spoken-mastery-with-these-17-everyday-spanish-phrases/"><u>Unlock Spoken Mastery with These 17 Everyday Spanish Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/wordsmith-chronicles-modern-usage-of-bygone-verbiage/"><u>Wordsmith Chronicles: Modern Usage of Bygone Verbiage</u></a></li>
+</ul></div>

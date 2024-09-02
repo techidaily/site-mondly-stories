@@ -1,0 +1,467 @@
+---
+title: Unveiling 27 Authentic French Phrases for Fluency
+date: 2024-09-01T00:24:14.169Z
+updated: 2024-09-02T00:24:14.169Z
+tags:
+  - speak
+  - english
+  - learning
+categories:
+  - languages
+description: This Article Describes Unveiling 27 Authentic French Phrases for Fluency
+excerpt: This Article Describes Unveiling 27 Authentic French Phrases for Fluency
+keywords: Authentic French Phrases,Fluency in French,Learn French Phrases,French Language Learning,Cultural French Expressions,Practical Fluency in French,Daily Use French Phrases
+thumbnail: https://thmb.techidaily.com/b1dca77248729ae79ab1361747a38e85586597f7f453dbe6b343c97f8212615b.jpg
+---
+
+## Unveiling 27 Authentic French Phrases for Fluency
+
+ A French accent is not everything. Sure, the correct [pronunciation of the notorious French “r”](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) can make you sound more like a native. But what use is that if you can’t actually [speak French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) fluently? This is why you should always work on expanding your vocabulary with practical notions such as [French phrases and expressions](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . These can add substance and even humor to your discourse and can make you sound like you have been living in France your whole life. Add a bit of_joie de vivre_ to that and people will think you were born and raised in Paris.
+
+ Additionally, French sayings will provide insight into French history and culture and they will also make you sound more natural, more authentic. After all, this is your main goal when [learning French](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5378&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5378?mother%5Flang=en%5Fus?target%5Flang=fr&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5378?mother%5Flang=en%5Fus?target%5Flang=fr) , isn’t it? So let’s dive in and see what French sayings, expressions, and idioms you can use to sound as if you were French-born.
+
+## General French sayings
+
+ So what is a French saying? A saying is a short, pithy, and commonly known expression that offers wisdom or a piece of advice. You probably heard the English expression “the apple doesn’t fall far from the tree” meaning that a child has similar qualities to his parents. Well, this is the perfect example of what we could call a saying.
+
+ And French, like any other language, is full of such witty insights. Let’s look at some of the most common them.
+
+### _1\. Battre le fer pendant qu’il est chaud._
+
+**Literal translation:** “Strike the iron while it is hot.”
+
+**Actual meaning:** Since we have the same saying in English, this one’s easy. When the blacksmith is forging the iron, the metal must be red-hot so its shape can be changed. This means you have to take advantage of favorable situations.
+
+**How to use it**
+
+ – _J’ai trouvé une très bonne application pour pratiquer mon français. Ça s’appelle Mondly et son prix pour une année est très raisonable._ (“I found a very good app to practice my French. It’s called Mondly and its price for one year is very good.”)
+
+ – _Qu’est-ce que tu attends ? Il faut battre le fer pendant qu’il est chaud !_ (“What are you waiting for? Strike the iron while it’s hot!”)
+
+### _2\. Ce n’est pas la mer à boire._
+
+**Literal translation:** “It’s not as if you have to drink the sea.”
+
+**Actual meaning:** “It’s not that difficult” or “it’s not a big deal”. You can use it when someone complains about doing something.
+
+**How to use it**
+
+ –_Je dois faire quatre rapports cette semaine._ (“I have to do four reports this week.”)
+
+ –_Oh là là, ce n’est pas la mer à boire !_ (“Come on, it’s not the end of the world!”)
+
+![french expressions](https://edge.mondly.com/blog/wp-content/uploads/2020/07/french-expressions-1-960x539.jpg "27 French Sayings And Idioms That Will Make You Sound French-Born 2")
+
+ “The French way” by Alex D’Alessio©
+
+### _3\. La nuit porte conseil._
+
+**Literal translation:** “The night brings advice.”
+
+**Actual meaning:** This is the equivalent of “sleep on it”. Or, in other words, take your time before making a decision.
+
+**How to use it**
+
+_– Je ne sais pas si je dois accepter ou pas._ (“I don’t know if I should accept or not.”)
+
+ –_La nuit porte conseil._ (“Sleep on it.”)
+
+### _4\. Comme on fait son lit, on se couche._
+
+**Literal translation:** “You’ve made your bed, now lie on it.”
+
+**Actual meaning:**
+
+ There’s a very funny [Italian expression](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) that says_Hai voluto la bicicletta? E adesso pedala!_ (“Did you want the bicycle? Now ride it.”) and it has the exact same meaning as_Comme on fait son lit, on se couche_ . Isn’t fascinating how different cultures approach a similar situation?
+
+ The same as the biblical version “you reap what you sow”, this French saying warns that you suffer the consequences of your actions or that you must accept the unpleasant results of something you’ve done. On the other hand, the opposite is also possible! Make a nice bed and you shall sleep soundly.
+
+**How to use it**
+
+ –_Je me suis endormi et j’ai brûlé les côtelettes de porc._ (“I fell asleep and burned the pork chops.”)
+
+ –_Comme on fait son lit, on se couche._ (“You’ve made your bed, now lie on it.”)
+
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### _5\. Vouloir, c’est pouvoir._
+
+**Literal translation:** “To want to is to be able to.”
+
+**Actual meaning:** “Where there’s a will, there’s a way.” You can use this saying to encourage someone who doubts themselves.
+
+**How to use it**
+
+ –_Je pense que je_ _n_   _e parviendrai jamais à parler français comme un natif._ (“I don’t think I will ever manage to speak French like a native.”)
+
+ –_Vouloir, c’est pouvoir._ (“Where there’s a will, there’s a way.”)
+
+### _6\. Impossible n’est pas français._
+
+**Literal translation:** “Impossible isn’t French.”
+
+**Actual meaning:** Famously attributed to Napoleon Bonaparte,_impossible n’est pas français_ is the French equivalent of “nothing is impossible”. While it may seem very patriotic,_français_ here doesn’t refer to the French people, but rather to the French language. As in “impossible is not a [French word](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ”.
+
+**How to use it**
+
+_– Je ne peux pas le faire, c’est impossible !_ (“I can’t do it, it’s impossible!)_– Impossible n’est pas français._ (”Nothing is impossible.“)
+
+### _7\. Il ne faut rien laisser au hasard._
+
+**Literal translation:** “Nothing should be left to chance.”
+
+**Actual meaning:** “Leave nothing to chance” or, in other words, plan ahead.
+
+**How to use it**
+
+ _– Je pense que je vais passer ce chapitre. Ce ne ressemble pas à quelque chose que monsieur Dubois inclura dans l’examen final._ (“I think I’m gonna skip this chapter. It doesn’t look like something mister Dubois will include in the final exam.”)
+
+_– Comme vous voulez. Mais il ne faut rien laisser au hasard._ (“Suit yourself. But nothing should be left to chance.”)
+
+### _8\. L’habit ne fait pas le moine._
+
+**Literal translation:** “The outfit doesn’t make the monk.”
+
+**Actual meaning:** “Don’t judge a book by its cover” or “don’t judge a person by their appearance”. This saying is also very popular in English so you probably already know in what contexts you can safely include it. Just don’t forget that you can use it for both positive and negative comments.
+
+**How to use it**
+
+_– Notre nouveau collègue semble être une personne très calme._ (“Our new colleague seems like a very quiet person.”)
+
+_– L’habit ne fait pas le moine._ (“Don’t judge a book by its cover.”)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
+### _9\. Mieux vaut tard que jamais._
+
+**Literal translation:** “Late is worth more than never.”
+
+**Actual meaning:** “Better late than never.” This is another French saying that is also very common in English. You can use it to tell someone that is better to do something late than not to do it at all.
+
+**How to use it**
+
+ – _J’ai 20 minutes de retard au gymnase. Mais mieux vaut tard que jamais._  (“I’m 20 minutes late to the gym. But it’s better to be there late than never.”)
+
+![french idioms](https://edge.mondly.com/blog/wp-content/uploads/2020/07/french-idioms-960x639.jpg "27 French Sayings And Idioms That Will Make You Sound French-Born 3")
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+ France, Paris
+
+### _10\. Aux innocents les mains pleines._
+
+**Literal translation:** “Full hands for the innocents.”
+
+**Actual meaning:** “Beginner’s luck” or “fortune favors fools”. You’ll love this one! Every time you go out with your new French friends and try a new activity like bowling or karting, you can use this French expression to invoke “beginner’s luck”.
+
+**How to use it**
+
+_– Comment est-ce possible? Sadie a gagné encore une fois !_ (“How is this possible? Sadie won again!”)
+
+_– Aux innocents les mains pleines._ (“Beginner’s luck”)
+
+### _11\. Mieux vaut être seul que mal accompagné._
+
+**Literal translation:** “Better alone than in a bad company.”
+
+**Actual meaning:** It’s better to be alone than to be accompanied badly or by someone who isn’t good company. This can apply to all kinds of relationships and even to other unfortunate situations in someone’s life.
+
+**How to use it**
+
+_– La copine de Jacques vient de le quitter._ (“Jacques’s girlfriend just left him.”)
+
+_– Mieux vaut être seul que mal accompagné._ (“Better alone than in a bad company.”)
+
+### _12\. Après la pluie, le beau temps._
+
+**Literal translation:** “After the rain, good weather.”
+
+**Actual meaning:** This is a way of encouraging someone to “hang in there”. Even if things are bad now, everything will eventually get better.
+
+**How to use it**
+
+_– Je viens de perdre mon emploi mais je ne vais pas perdre l’espoir._ _Après la pluie, le beau temps._ (“I’ve just lost my job but I won’t lose hope. After all, after the rain, good weather evetually comes.”)
+
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
+### _13\. Les murs ont des oreilles._
+
+**Literal translation:** “The walls have ears.”
+
+**Actual meaning:** Pay attention to what you say because there’s a chance you could be overheard.
+
+**How to use it**
+
+_– Voulez-vous savoir ce que j’ai acheté pour l’anniversaire de maman?_ (“Do you want to know what I bought for mom’s birthday?”)
+
+_– Shhh ! Les murs ont des oreilles._ (“Shhh! The walls have ears.)
+
+### _14\. Tout est bien qui finit bien._
+
+**Literal translation:** “All’s well that ends well.”
+
+**Actual meaning:** The same as its English counterpart,_Tout est bien qui finit bien_ is suitable after a period in which one experiences hardship and struggle.
+
+**How to use it**
+
+_–_   _Je suis tellement content que nous soyons arrivés en France en toute sécurité ! Tout est bien qui finit bien._ (“I’m so glad we got to France safely! All’s well that ends well.”)
+
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<!-- affiliate ads end -->
+## French sayings about food and wine
+
+ The French are famous for their love for exquisite food and wine. French cuisine is probably one of the most notorious cuisines in the world. So it’s only natural for some of this love to find its way into everyday French sayings.
+
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### _1\. L’appétit vient en mangeant._
+
+**Literal translation:**  “Appetite comes with eating.”
+
+**Actual meaning:** This expression can be used both literally and figuratively and it refers to how the desire increases as an activity proceeds (to eat, to own, etc.).
+
+**How to use it**
+
+ –_Je n’avais pas faim mais cette ratatouille est incroyable !_ (“I was not hungry but this ratatouille is amazing!”)
+
+ –_L’appétit vient en mangeant._ (“Appetite comes with eating.”)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### _2\. Mangez bien, riez souvent, aimez beaucoup._
+
+**Literal translation:** “Eat well, laugh often, love a lot.”
+
+**Actual meaning:** “Live life to the fullest” or_carpe diem_ (“seize the day”). Use this positive French saying to console a friend that is having a hard time.
+
+![french proverbs](https://edge.mondly.com/blog/wp-content/uploads/2020/07/french-proverbs-960x540.jpg "27 French Sayings And Idioms That Will Make You Sound French-Born 4")
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
+ “Take care of your own onions” by MILKOVÍ©
+
+### _3\. S’occuper de ses oignons._
+
+**Literal translation:** “To take care of your own onions.”
+
+**Actual meaning:** This is a funny way of saying “mind your own business”.
+
+**How to use it**
+
+ _– Sa façon de gérer cela ne vous concerne pas. Occupe-toi de tes oignons._ (“His way of dealing with this isn’t your problem. Mind your own business.”)
+
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### _4\. Raconter des salades._
+
+**Literal translation:** “To tell salads.”
+
+**Actual meaning:** “To tell lies”. This is another funny French saying that can also be used when you want to tell someone that everything they think they know is false.
+
+**How to use it**
+
+_– Ça suffit! Tu racontes des salades !_ (“Enough with that. What you are saying is false!”)
+
+### _5\. Courir sur le haricot._
+
+**Literal translation:** “To run on the bean.”
+
+**Actual meaning:** “To get on someone’s nerves”. Another saying you gotta love that is connected to the story “Jack and the Beanstalk”.
+
+**How to use it**
+
+_– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Stop annoying me! You are not winning this bet.”)
+
+### _6\. La vie est trop courte pour boire du mauvais vin._
+
+**Literal translation:** “Life is too short to drink bad wine.”
+
+**Actual meaning:** This saying can be used both literally and figuratively. The idea is that life’s too short to do things that you don’t like.
+
+![funny french expressions](https://edge.mondly.com/blog/wp-content/uploads/2020/07/funny-french-expressions-960x540.jpg "27 French Sayings And Idioms That Will Make You Sound French-Born 5")
+
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+ “Tigger looking for rats online” by Catherine Heath©
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
+## French sayings about animals
+
+ Sayings about animals are common in any language. After all, they are our co-residents on this planet and we have quite a lot to learn from them. Here are some of the most common French sayings about animals.
+
+### _1\. À bon chat, bon rat._
+
+**Literal translation:** “To a good cat, a good rat.”
+
+**Actual meaning:** Equally matched, tit for tat. To better understand the meaning behind this, think about how cats are experts at catching rats and rats are experts in avoiding being caught. You can use this saying to describe two competitors that improve as they fight against one another or to describe someone meeting an adversary worth his mettle.
+
+**How to use it**
+
+ –_Oh là là, Finalement, Andrew a du mal à gagner le match._ (“Wow! Andrew is finally having trouble winning the match.”)
+
+ –_Oui, Xavier est vraiment un adversaire de taille. À bon chat, bon rat._ (“Yes, Xavier is a really good match for him. They are equally matched.”)
+
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<!-- affiliate ads end -->
+### _2\. Les chiens ne font pas des chats._
+
+**Literal translation:** “Dogs don’t make cats.”
+
+**Actual meaning:** This is another way of saying “the apple doesn’t fall far from the tree” or “you inherit the qualities and faults of your parents”.
+
+**How to use it**
+
+ –_La petite Eva est tellement créative!_ (“Little Eva is so creative!”)
+
+ – _Oui, les chiens ne font pas des chats. Elle a hérité du talent de sa mère._ (“Yes, dogs don’t make cats. She inherits her mother’s talent.”)
+
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### _3\. Il n’y a pas de quoi fouetter un chat._
+
+**Literal translation:** “There’s no reason to whip the cat.”
+
+**Actual meaning:** “It’s no big deal” or “it doesn’t matter”. Obviously, once you know this expression, you’ll want to use it all the time.
+
+![french saying](https://edge.mondly.com/blog/wp-content/uploads/2020/07/french-saying-960x720.jpg "27 French Sayings And Idioms That Will Make You Sound French-Born 6")
+
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+ “Bonjour!” by Waranya Mooldee©
+
+### _4\. Poser un lapin._
+
+**Literal translation:** “To place a rabbit.”
+
+**Actual meaning:** “To stand someone up”. If the person you were supposed to meet doesn’t show up, you can say_il m’a posé un lapin_ (“he stood me up”).
+
+### _5\. Avoir une araignée au plafond._
+
+**Literal translation:** “To have a spider on the ceiling.”
+
+**Actual meaning:** If you know someone that “has screw loose” or is a bit crazy, weird, or odd, in French, you can say_il a une araignée au plafond_ (“he is a bit crazy”).
+
+### _6\. Ce n’est pas la vache qui crie le plus fort qui fait le plus de lait._
+
+**Literal translation:** “It’s not the cow that moos the loudest who gives the most milk.”
+
+**Actual meaning:** Talkers are not always doers. The one who talks the most is not always the smartest or the most resourceful.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
+### _7\. Peigner la girafe._
+
+**Literal translation:** “To comb the giraffe.”
+
+![french phrases](https://edge.mondly.com/blog/wp-content/uploads/2020/07/french-phrases-960x638.jpg "27 French Sayings And Idioms That Will Make You Sound French-Born 7")
+
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+ “La girafe” by Dan Dennis©
+
+**Actual meaning:** “To do unnecessary and very long work, to do nothing effective”. Because why on Earth would you comb a giraffe?
+
+**How to use it**
+
+ _– J’ai peigné la girafe aujourd’hui au travail. J’ai fait de très longs rapports que personne n’utilisera._ (“I combed the giraffe today at work. I did some very long reports that no one will use.”)
+
+* [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Ffrench-sayings-idioms-sound-french-born%2F&t=27+French+Sayings+and+Idioms+That+Will+Make+You+Sound+French-Born "Share on Facebook")
+* [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
+
+---
+
+#### Speak French fluently in just 10 minutes a day
+
+ Do you want to speak French fluently? Get [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5378&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5378?mother%5Flang=en%5Fus?target%5Flang=fr&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5378?mother%5Flang=en%5Fus?target%5Flang=fr) , the award-winning language learning app that will help you speak French as if you were Paris-born.
+
+ It can be tricky to master French pronunciation if you don’t actively live in France. But with Mondly, you’ll have access to a unique, fast and highly efficient [learning method](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) that allows you to learn French naturally with practical topics, authentic conversations and bite-sized Daily Lessons.
+
+ Start using Mondly for free on your computer or download the app and [learn French](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5378&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5378?mother%5Flang=en%5Fus?target%5Flang=fr&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5378?mother%5Flang=en%5Fus?target%5Flang=fr) fast anytime, anywhere.
+
+[Learn French now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-5378&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-5378%26utm%5Fsource%3Dblog-post-id-5378&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-5378%26utm%5Fsource%3Dblog-post-id-5378&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-5378%26utm%5Fsource%3Dblog-post-id-5378&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-5378%26mt%3D8 "Learn French now")
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-tips.techidaily.com/insiders-guide-overcome-iphone-video-dullness-using-4-adobe-solutions/"><u>[Insider's Guide] Overcome iPhone Video Dullness Using 4 Adobe Solutions</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-mastering-the-art-of-screen-recording-best-software-guide-for-2024/"><u>[New] Mastering the Art of Screen Recording  Best Software Guide for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-enthralling-your-eyes-six-ingenious-methods-for-capturing-netflix-vids-on-a-mac/"><u>[Updated] 2024 Approved  Enthralling Your Eyes  Six Ingenious Methods for Capturing Netflix Vids on a Mac</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-infuse-illustration-with-life-techniques-for-motion-in-ai-images/"><u>[Updated] 2024 Approved  Infuse Illustration with Life  Techniques for Motion in AI Images</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-unlock-efficiency-screen-recording-on-mac-via-keyboard-shortcuts/"><u>[Updated] In 2024, Unlock Efficiency  Screen Recording on Mac via Keyboard Shortcuts</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-stream-switch-and-succeed-the-complete-guide-to-using-float-on-netflix/"><u>[Updated] Stream, Switch and Succeed  The Complete Guide to Using Float on Netflix</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-mastering-voice-modification-on-tiktok-a-step-by-step-guide/"><u>2024 Approved  Mastering Voice Modification on TikTok  A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-swiftness-at-a-click-managing-youtubes-video-speed-settings/"><u>2024 Approved  Swiftness at a Click  Managing YouTube's Video Speed Settings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579565357-black-friday-96-off-on-worldwide-language-learning/"><u>Black Friday: 96%% Off on Worldwide Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-communication-gaps-across-africa/"><u>Bridging Communication Gaps Across Africa</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/device-based-access-commence-google-meet-chat-for-2024/"><u>Device-Based Access  Commence Google Meet Chat for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-the-least-complex-latin-course-online/"><u>Discover the Least Complex Latin Course Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-romanian-with-local-insight/"><u>Dive Into Romanian with Local Insight</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-passion-italys-romantic-flirtations/"><u>Embrace Passion: Italy's Romantic Flirtations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-authentic-german-idioms-the-best-25/"><u>Exploring Authentic German Idioms: The Best 25</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressing-appreciation-learning-key-chinese-thank-you-phrases/"><u>Expressing Appreciation: Learning Key Chinese Thank You Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-conquerors-to-citizens-the-linguistic-journey-of-spanish-vs-portuguese/"><u>From Conquerors to Citizens: The Linguistic Journey of Spanish Vs. Portuguese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-speak-like-a-pro-the-top-25-essential-idioms-list/"><u>German Speak Like a Pro: The Top 25 Essential Idioms List</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-best-gopro-helmet-mounts-and-how-to-use-them/"><u>In 2024, Best GoPro Helmet Mounts and How to Use Them</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-cut-through-the-chaos-advanced-strategies-for-editing-tiktok-saves/"><u>In 2024, Cut Through the Chaos  Advanced Strategies for Editing TikTok Saves</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-hidefake-snapchat-location-on-your-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to Hide/Fake Snapchat Location on Your Oppo Find X7 Ultra | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-after-switching-from-poco-x5-pro-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data After Switching From Poco X5 Pro to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/jabra-talk-45-insight-enhanced-clarity-prolonged-energy/"><u>Jabra Talk 45 Insight: Enhanced Clarity, Prolonged Energy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-diversitys-perks-unraveled-top-6/"><u>Linguistic Diversity's Perks Unraveled: Top 6</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-limits-whats-the-ultimate-word/"><u>Linguistic Limits: What’s The Ultimate Word?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-updates-support-with-a-fresh-faq-section/"><u>Mondly Updates Support with a Fresh FAQ Section</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-your-ultimate-companion-for-learning-a-new-tongue/"><u>Mondly: Your Ultimate Companion for Learning a New Tongue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-the-peak-of-language-assessments/"><u>Navigating the Peak of Language Assessments</u></a></li>
+<li><a href="https://win-blog.techidaily.com/overcoming-helldivers-2s-initialization-blackout-essential-fixes-and-tips/"><u>Overcoming Helldivers 2'S Initialization Blackout: Essential Fixes and Tips</u></a></li>
+<li><a href="https://win-answers.techidaily.com/resolving-superpeople-collisions-in-your-windows-computer/"><u>Resolving 'SuperPeople' Collisions in Your Windows Computer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-sprouts-early-education-series/"><u>Spanish Sprouts: Early Education Series</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-anywhere-easily-top-multilingual-applications-for-mastery/"><u>Speak Anywhere, Easily: Top Multilingual Applications for Mastery</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/swift-recording-pro-with-voice-commentary-feature/"><u>Swift Recording Pro with Voice Commentary Feature</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/televisual-methods-for-effective-language-acquisition/"><u>Televisual Methods for Effective Language Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-swashbuckling-lexicon-unveiled/"><u>The Swashbuckling Lexicon Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-trio-of-asias-communication-hubs/"><u>The Trio of Asia's Communication Hubs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-your-dialogue-game-top-9-language-skills-hacks/"><u>Transform Your Dialogue Game: Top 9 Language Skills Hacks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unearthing-millennia-old-linguistic-foundations/"><u>Unearthing Millennia-Old Linguistic Foundations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-usage-shift-por-que-vs-por-que/"><u>Unveiling the Usage Shift: Por Que vs Por Qué</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vocal-variety-via-verse-harmonizing-education-with-hymns/"><u>Vocal Variety Via Verse: Harmonizing Education with Hymns</u></a></li>
+</ul></div>

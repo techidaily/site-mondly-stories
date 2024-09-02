@@ -1,7 +1,7 @@
 ---
 title: The Essentials of Pinyin Alphabet
-date: 2024-07-12T08:46:48.914Z
-updated: 2024-07-13T08:46:48.914Z
+date: 2024-09-01T00:17:44.018Z
+updated: 2024-09-02T00:17:44.018Z
 tags:
   - speak
   - english
@@ -38,6 +38,9 @@ thumbnail: https://thmb.techidaily.com/c773b247e1e0895c35ac3965c0957524900af663f
 
  Out of these 13 groups of dialects, there are 7 that are considered major: Mandarin, Yue (Cantonese), Xiang, Min, Gan, Wu and Hakka.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### The history of the Chinese language and its alphabet
 
  Chinese is not what we’d call a new language. Chinese is a language with a long tradition that has touched the lips of many great emperors from many great dynasties before becoming the language we all know (or wished we’d known) today. If we also count in [Old Chinese](https://en.wikipedia.org/wiki/Old%5FChinese) , which is the oldest attested stage of Chinese and the ancestor of all modern varieties of Chinese, we could say that Chinese is around 3200 years old. No less than three millennia of tradition!
@@ -48,10 +51,16 @@ thumbnail: https://thmb.techidaily.com/c773b247e1e0895c35ac3965c0957524900af663f
 
 ![chinese characters](https://edge.mondly.com/blog/wp-content/uploads/2020/06/chinese-characters-600x402.jpg "Quick Introduction To The Chinese Alphabet, Chinese Characters And Pinyin 2")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Chinese antique calligraphic text
 
  Then, in the early 20th century, written vernacular Chinese based on the Beijing dialect was introduced as the new official written language instead of Classical Chinese. People often refer to this standard language as Mandarin because it is based on the Mandarin dialect of Beijing. Thus, Standard Chinese or Mandarin now fulfills the role that Classical Chinese used to fulfill as the official written language that’s used by speakers of all varieties of Chinese.
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The Chinese writing system and the Chinese alphabet – an overview
 
  The Chinese language is written using [Chinese characters](https://en.wikipedia.org/wiki/Chinese%5Fcharacters) or 漢字_(hànzì) _ . As already mentioned, there is no such thing as a Chinese alphabet, so we’ll continue by talking about the Chinse characters. These are logograms or single characters that represent entire syllables, entire words or entire units of meaning. For example, **漢_(hàn) _**  means**“China”** and **字_(zì) _**  means**“character”** . Together they translate to**“Chinese character” (** _**hànzì)** ._
@@ -78,6 +87,9 @@ thumbnail: https://thmb.techidaily.com/c773b247e1e0895c35ac3965c0957524900af663f
 
  Do we see why it is so crucial for you to pay attention to tones and pronunciation from your very first [Chinese lesson](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ?
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ## How many Chinese Characters does the Chinese alphabet have?
 
  Many people ask this question because they want an overview of how much will they have to study or simply out of curiosity. However, since there is no Chinese alphabet, there is no definite answer. But there are some statistics that will probably give you an idea.
@@ -112,12 +124,22 @@ thumbnail: https://thmb.techidaily.com/c773b247e1e0895c35ac3965c0957524900af663f
 
 ![chinese writing system](https://edge.mondly.com/blog/wp-content/uploads/2020/06/chinese-writing-system-600x400.jpg "Quick Introduction To The Chinese Alphabet, Chinese Characters And Pinyin 4")
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
  “Wusheng Temple, Taiwan” by Henry & Co.©
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<!-- affiliate ads end -->
 ## 10 Chinese characters you can learn right now
 
  Now that you know what to expect if you do decide to learn Chinese, let’s move from theory to practice with a quick Chinese lesson. Here are ten of the most commonly used Chinese characters:
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ### 的 de – used to indicate possession
 
  这是我**的** 朋友。- _Zhè shì wǒ**de** péngyou_ – This is**my** friend.
@@ -140,10 +162,16 @@ thumbnail: https://thmb.techidaily.com/c773b247e1e0895c35ac3965c0957524900af663f
 
  现在太晚**了** 。- _Xiànzài tài wǎn**le** ._ – Now it’s not too late.
 
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 人 rén – man, person, people
 
  我们的客人是友好的**人** 。- _Wǒmen de kèrén shì yǒuhǎo de**rén** ._ – Our neighbors are nice**people** .
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 我 wǒ – I, myself or me
 
 **我** 准备好要点菜了。- _**Wǒ** zhǔnbèi hǎo yàodiǎn càile._ –**I** am ready to order.
@@ -156,6 +184,9 @@ thumbnail: https://thmb.techidaily.com/c773b247e1e0895c35ac3965c0957524900af663f
 
  你**有** 一张城市地图吗？- _Nǐ**yǒu** yī zhāng chéngshì dìtú ma?_ – Do you**have** a city map?
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 他 tā – he, him, his
 
 **他** 将庆祝**他** 的生日。- _**Tā** jiāng qìngzhù**tā** de shēngrì._ –**He** will celebrate his birthday.
@@ -193,3 +224,42 @@ thumbnail: https://thmb.techidaily.com/c773b247e1e0895c35ac3965c0957524900af663f
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-support.techidaily.com/new-pro-level-prowess-the-best-video-editors-for-your-drone-footage/"><u>[New] Pro-Level Prowess  The Best Video Editors for Your Drone Footage</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-streamline-access-6-leading-free-and-on-demand-youtube-short-downloader-tools/"><u>[New] Streamline Access  6 Leading Free & On-Demand YouTube Short Downloader Tools</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-classic-stop-motion-animations-ranking-the-best-15/"><u>[Updated] Classic Stop-Motion Animations  Ranking the Best 15</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-mastering-large-scale-tiktok-video-downloads/"><u>[Updated] Mastering Large-Scale TikTok Video Downloads</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/affordable-luxury-in-display-technology-reviewing-the-sony-xbr65x850fs-performance-and-pricing/"><u>Affordable Luxury in Display Technology: Reviewing the Sony XBR65X850F's Performance & Pricing</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/from-social-media-to-monetary-success-the-roadmap-for-instagram-sponsorship-for-2024/"><u>From Social Media to Monetary Success  The Roadmap for Instagram Sponsorship for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-sorgfaltig-formales-bedauern-sagen/"><u>German: Sorgfältig Formales Bedauern Sagen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/germanys-heartbeat-top-25-authentic-phrases-for-immersion/"><u>Germany's Heartbeat: Top 25 Authentic Phrases for Immersion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/get-to-grips-with-the-korean-of-squid-game/"><u>Get to Grips with the Korean of Squid Game</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gsl-redefined-the-pearson-mondly-collaboration-revealed/"><u>GSL Redefined - The Pearson-Mondly Collaboration Revealed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/guia-diaria-para-dias-de-la-semana-en-espanol/"><u>Guía Diaria Para Días De La Semana en Español</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-realme-v30t-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on Realme V30T | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-reset-iphone-se-to-factory-settings-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Reset iPhone SE to Factory Settings? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-realme-c51-phone-without-any-data-loss-by-drfone-android/"><u>How to Unlock Realme C51 Phone without Any Data Loss</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-samsung-galaxy-a14-4g-phone-by-drfone-android/"><u>In 2024, How to Use Google Assistant on Your Lock Screen Of Samsung Galaxy A14 4G Phone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-a-next-level-faq-experience-with-mondly/"><u>Introducing a Next-Level FAQ Experience with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-you-to-basic-numbers-in-spanish/"><u>Introducing You to Basic Numbers in Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-lifeline-mondly-enhances-learning-with-augmented-reality/"><u>Language Lifeline: Mondly Enhances Learning with Augmented Reality</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/le-temps-de-la-france/"><u>Le Temps De La France</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lerne-deutsche-wochentage-inklusive-namen/"><u>Lerne Deutsche Wochentage Inklusive Namen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-journey-discovering-why-you-should-learn-a-foreign-language/"><u>Linguistic Journey: Discovering Why You Should Learn a Foreign Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-lightning-strike-fast-track-language-guide/"><u>Linguistic Lightning Strike: Fast-Track Language Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-brazilian-and-european-pt-buttons-effectively/"><u>Navigating Brazilian & European PT Buttons Effectively</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-stance-on-privacy-and-use-agreements/"><u>New Stance on Privacy and Use Agreements</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/optimize-your-finnish-learning-through-digital-platforms/"><u>Optimize Your Finnish Learning Through Digital Platforms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/phonetic-finesse-navigating-complex-lexical-forms/"><u>Phonetic Finesse: Navigating Complex Lexical Forms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-tagalog-progress-daily-practice-weekly-successes/"><u>Quick Tagalog Progress: Daily Practice, Weekly Successes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/resolve-to-speak-diverse-tongues-in-24/"><u>Resolve to Speak Diverse Tongues in '24</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-your-mind-embrace-free-language-with-mondly/"><u>Speak Your Mind: Embrace FREE Language with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-volumes-how-mondly-became-the-leading-app/"><u>Speaking Volumes: How Mondly Became the Leading App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essence-of-romantic-language-families/"><u>The Essence of Romantic Language Families</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transcending-language-gaps-for-lasting-bonds/"><u>Transcending Language Gaps for Lasting Bonds</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-romance-speaking-cultures/"><u>Understanding Romance-Speaking Cultures</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/unparalleled-20-anime-series-themes/"><u>Unparalleled 20 Anime Series Themes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unraveling-the-tongues-of-christmas-keeper/"><u>Unraveling the Tongues of Christmas Keeper</u></a></li>
+</ul></div>
