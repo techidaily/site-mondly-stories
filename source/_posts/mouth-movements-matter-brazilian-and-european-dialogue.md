@@ -1,7 +1,7 @@
 ---
 title: "Mouth Movements Matter: Brazilian and European Dialogue"
-date: 2024-07-12T08:39:01.321Z
-updated: 2024-07-13T08:39:01.321Z
+date: 2024-09-05T04:37:53.369Z
+updated: 2024-09-06T04:37:53.369Z
 tags:
   - speak
   - english
@@ -20,6 +20,12 @@ thumbnail: https://thmb.techidaily.com/da9934bcfc52017f09c9dd8ece522ceaa1a0b2552
 
  In general, those who speak either language can understand the other, but it may be difficult in some situations. That’s because there are so many nuances between the two. American linguist Albert Marckwardt coined the term “Colonial Lag” as a hypothesis that original varieties of a language (i.e., Brazilian Portuguese) change less than the variety spoken in the mother country (Portugal).
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## History
 
  Countries tend to follow the linguistic developments of the mother country with a bit of delay due to the geographical distance. Portuguese was not deemed the official language in Brazil until 1758, whereas the colonization really began in the 16th century. Over time, changes occurred in the language because of increasing contact with European and [Asian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) immigrants.
@@ -32,10 +38,28 @@ thumbnail: https://thmb.techidaily.com/da9934bcfc52017f09c9dd8ece522ceaa1a0b2552
 
  The pronunciation of some consonants is also different, particularly the S at the end of a word. In Brazilian Portuguese, an S at the end of a word is pronounced as SS; in Portugal, it is pronounced as SH.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Accents
 
  Brazilian Portuguese is thought to be more phonetically pleasing to the ear thanks to its open vowels, while European Portuguese can sound somewhat garbled. Brazilian accents have a strong cadence and lift to them, making it easier to learn and understand.
 
+<!-- affiliate ads begin -->
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Grammar and Spelling
 
  Some words are spelled differently. For instance, reception in European Portuguese is “receção”, but in Brazilian Portuguese, there is an audible p to the spelling of “recepção.” In other words, the letter p is audible in Brazilian Portuguese and silent in European Portuguese.
@@ -44,6 +68,12 @@ thumbnail: https://thmb.techidaily.com/da9934bcfc52017f09c9dd8ece522ceaa1a0b2552
 
  Sometimes, Brazilian Portuguese takes words from American English, ignoring its Latin roots. European Portuguese usually adopts words from Latin roots, keeping the original spelling. Overall, European Portuguese is more resistant to change and assimilation of foreign words.
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
+  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Formal and Informal Speech
 
  European Portuguese is the more formal of the two versions. In Brazilian Portuguese, the word**você** is used for “you” in informal settings; in European Portuguese,**tu** is utilized in the same context. In Portugal, they view the você as crude and thus remove the second-person pronoun in less casual situations and instead use the verb in the third-person singular.  
@@ -55,6 +85,12 @@ thumbnail: https://thmb.techidaily.com/da9934bcfc52017f09c9dd8ece522ceaa1a0b2552
 
  The availability of resources will also influence your decision. _“Brazil has a larger population than Portugal with many native speakers, impacting_ availability _of content. In other words, it’s simpler to locate resources for Brazilian Portuguese learners than it is for those who study the European kind”_ says Ryan McMunn of BRIC Language Systems. Finding a professional resource that offers instruction in Brazilian Portuguese with access to native speakers will greatly improve your chances of being successful and learning both at your pace and in a way that will last.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Future Goals
 
  What are your future plans? The answer will help you determine which Portuguese variety would be best for you. If you would like to work for the United Nations someday, you should learn Continental Portuguese because its operations are based in Europe. If you want a job in a North American enterprise, Brazilian Portuguese will be best because that country has a bigger economic and trading base.
@@ -87,6 +123,12 @@ thumbnail: https://thmb.techidaily.com/da9934bcfc52017f09c9dd8ece522ceaa1a0b2552
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Speak Portuguese fluently in just 10 minutes a day
 
  Do you want to speak Portuguese fluently fast? Get Mondly, the award-winning language learning app that will help you speak Portuguese as if it were your first language.
@@ -115,3 +157,62 @@ thumbnail: https://thmb.techidaily.com/da9934bcfc52017f09c9dd8ece522ceaa1a0b2552
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-how-to-confirm-your-youtube-account-securely-in-2024/"><u>[New] How to Confirm Your YouTube Account Securely, In 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-obs-broadcasting-your-skype-voice-capture-methods/"><u>[New] In 2024, OBS Broadcasting  Your Skype Voice Capture Methods</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-rapid-rhythm-revelations-audio-and-actors-dance/"><u>[Updated] In 2024, Rapid Rhythm Revelations  Audio and Actors' Dance</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-merriment-joining-and-leaving-rituals/"><u>[Updated] Merriment  Joining & Leaving Rituals</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-navigating-the-world-of-instagram-reel-downloads/"><u>[Updated] Navigating the World of Instagram Reel Downloads</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-elite-seventeen-innovative-4k-filmmaking-tools/"><u>2024 Approved  Elite Seventeen  Innovative 4K Filmmaking Tools</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-instantly-hide-faces-with-picscanner-tricks/"><u>2024 Approved  Instantly Hide Faces with PicScanner Tricks</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-mastering-telegram-strategies-for-enhanced-promotions/"><u>2024 Approved  Mastering Telegram  Strategies for Enhanced Promotions</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723202193273-bypass-and-resolve-unity-graphics-error-during-launch-successfully-now/"><u>Bypass and Resolve Unity Graphics Error During Launch Successfully Now!</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/comprehensive-business-partnership-contract-with-abbyy-timeline-secure-your-enterprise-collaboration/"><u>Comprehensive Business Partnership Contract with ABBYY Timeline: Secure Your Enterprise Collaboration</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/discovering-the-unmatched-quality-of-benq-sw320s-4k-screen-for-2024/"><u>Discovering the Unmatched Quality of BenQ SW320's 4K Screen for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/ideal-webcams-to-elevate-your-zoom-video-conferencing-for-2024/"><u>Ideal Webcams to Elevate Your Zoom Video Conferencing for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/impressive-book-trails-presented-for-2024/"><u>Impressive Book Trails Presented for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-edit-and-send-fake-location-on-telegram-for-your-apple-iphone-6-in-3-ways-drfone-by-drfone-virtual-ios/"><u>In 2024, Edit and Send Fake Location on Telegram For your Apple iPhone 6 in 3 Ways | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-leave-a-life360-group-on-samsung-galaxy-m54-5g-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How To Leave a Life360 Group On Samsung Galaxy M54 5G Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-anything-from-realme-narzo-n53-to-apple-tv-drfone-by-drfone-android/"><u>In 2024, How To Stream Anything From Realme Narzo N53 to Apple TV | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-maximizing-zoom-meeting-insight-through-grid-view-settings/"><u>In 2024, Maximizing Zoom Meeting Insight Through Grid View Settings</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-the-most-effective-ways-to-bypass-apple-iphone-8-activation-lock-by-drfone-ios/"><u>In 2024, The Most Effective Ways to Bypass Apple iPhone 8 Activation Lock</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/israel-expedition-checklist-practical-advice-and-useful-language/"><u>Israel Expedition Checklist: Practical Advice & Useful Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/johannes-honterus-driving-change/"><u>Johannes Honterus: Driving Change</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/key-russian-language-elements-your-journey-starter-kit/"><u>Key Russian Language Elements: Your Journey Starter Kit</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leading-asian-languages-quick-filter-last-access/"><u>Leading Asian Languages: Quick Filter, Last Access</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/leading-windows-vpns-enhancing-your-gaming-experience-securely-and-stealthily/"><u>Leading Windows VPNs: Enhancing Your Gaming Experience Securely and Stealthily</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lexical-differences-a-tale-of-two-englishes/"><u>Lexical Differences: A Tale of Two Englishes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-ladder-top-reasons-to-climb-another-language-level/"><u>Linguistic Ladder: Top Reasons to Climb Another Language Level</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/majorly-studied-foreign-languages-by-americans/"><u>Majorly Studied Foreign Languages by Americans</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/mastering-automatic-subtitles-for-instagram-stories-and-reels-for-2024/"><u>Mastering Automatic Subtitles for Instagram Stories & Reels for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/merry-christmas-or-merry-xmas-in-different-languages/"><u>Merry Christmas Or Merry Xmas In Different Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/most-popular-immigrant-languages-educated-in-us/"><u>Most Popular Immigrant Languages Educated In U.S</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/must-know-french-jargon-to-master-on-parisian-escapades/"><u>Must-Know French Jargon to Master on Parisian Escapades</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-through-basic-german-letters-and-sounds/"><u>Navigating Through Basic German Letters & Sounds</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/perfect-your-pronunciation-with-these-100-english-tongue-twisters/"><u>Perfect Your Pronunciation With These 100 English Tongue Twisters</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/phone-number-not-available-heres-how-you-can-still-join-chatgpt-telegram-and-whatsapp-communities/"><u>Phone Number Not Available? Here's How You Can Still Join ChatGPT, Telegram & WhatsApp Communities</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polish-your-portuguese-skills-utilize-these-6-study-methods/"><u>Polish Your Portuguese Skills: Utilize These 6 Study Methods</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/resolving-the-issue-missing-msvcr80dll-a-step-by-step-guide/"><u>Resolving the Issue: Missing msvcr80.dll - A Step-by-Step Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revamped-policies-and-tandu-your-guide/"><u>Revamped Policies & T&U: Your Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/risk-free-strategies-for-youtube-to-mp4-file-conversion-for-2024/"><u>Risk-Free Strategies for YouTube to MP4 File Conversion for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722977378894-safe-and-fast-installation-of-sadeheadset-drivers-for-windows-enhance-your-listening-experience-now/"><u>Safe and Fast Installation of SadeHeadset Drivers for Windows: Enhance Your Listening Experience Now</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/say-it-smart-uk-expressions-and-idioms/"><u>Say It Smart: UK Expressions and Idioms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/soviet-speech-patterns-in-uk-and-rus-languages/"><u>Soviet Speech Patterns in Uk & Rus Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speed-up-your-understanding-of-numerical-japan/"><u>Speed-Up Your Understanding of Numerical Japan</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/teaching-world-unity-through-diversity-of-speeches/"><u>Teaching World Unity Through Diversity of Speeches</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-dos-and-donts-in-spanish-accented-writing/"><u>The Do's & Don'ts in Spanish Accented Writing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-francophiles-treasure-chest-of-104plus-travel-phrases/"><u>The Francophile's Treasure Chest of 104+ Travel Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ideal-online-approach-to-learn-finnish-effectively/"><u>The Ideal Online Approach to Learn Finnish Effectively</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-next-leap-in-ai-four-critical-enhancements-desired-for-gpt-5/"><u>The Next Leap in AI: Four Critical Enhancements Desired for GPT-5</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-voyagers-handbook-deciphering-vietnams-language/"><u>The Voyager’s Handbook: Deciphering Vietnam's Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-language-trends-globally/"><u>Top Language Trends Globally</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/1722893021027-troubleshoot-verification-errors-on-your-mac-easy-solutions-inside/"><u>Troubleshoot Verification Errors on Your Mac – Easy Solutions Inside!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tune-into-new-language-skills-using-scientific-musical-approaches/"><u>Tune Into New Language Skills - Using Scientific, Musical Approaches</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/uncover-the-secret-to-quick-latin-proficiency/"><u>Uncover the Secret to Quick Latin Proficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-fluency-a-guide-to-self-taught-french/"><u>Unlocking Fluency: A Guide to Self-Taught French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/valkomma-i-sverige-ditt-avstand/"><u>Välkomma I Sverige: Ditt Avstånd</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/which-language-benefits-you-more-in-global-settings-german-or-french/"><u>Which Language Benefits You More in Global Settings, German or French?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/timwtores-eygnwmwn-gkreman/"><u>Τιμωτόρες Ευγνώμων Γκρεμάν</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "Tales of Transformation: Two Years, Mondly Languages Dream Realized"
-date: 2024-09-01T00:35:04.139Z
-updated: 2024-09-02T00:35:04.139Z
+date: 2024-09-05T04:37:58.209Z
+updated: 2024-09-06T04:37:58.209Z
 tags:
   - speak
   - english
@@ -14,12 +14,30 @@ keywords: Tales of Transformation,Language Learning Journey,Cultural Shifts via 
 thumbnail: https://thmb.techidaily.com/ee549b864de6102ff48675fa7bf1a7613a21bc32bbc71908950ecf0a34fbb345.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Tales of Transformation: Two Years, Mondly Languages Dream Realized
 
  We had a dream. A great dream. We wanted to create something that will positively impact the lives of millions of people around the world. Our passion for technology, design and education inspired us to start working on a language project that was so ambitious, it seemed almost impossible to complete in the beginning.
 
  Two years ago we made that dream come true. We built a great language learning app and we made it our mission to offer everyone lessons in as many languages as possible.
 
+<!-- affiliate ads begin -->
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## On May 28 2014, Mondly
 
  We started small, but kept thinking big at every step of the way. Our developers, designers, language experts and translators all worked together to build a language learning app that’s easy to use, fun to learn with, and effective in real life situations.
@@ -32,6 +50,12 @@ thumbnail: https://thmb.techidaily.com/ee549b864de6102ff48675fa7bf1a7613a21bc32b
 
 Thank you for being a part of our journey ![Mondly - 2 Years Infografic](https://edge.mondly.com/blog/wp-content/uploads/2016/05/2years-Infographic-v3-scaled.png "2 Years Of Mondly Languages 2") ](https://edge.mondly.com/blog/wp-content/uploads/2016/05/2years-Infographic-v3.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fhappy-2nd-birthday%2F&t=2+Years+of+Mondly+Languages "Share on Facebook")
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
@@ -118,7 +142,3 @@ Thank you for being a part of our journey ![Mondly - 2 Years Infografic](https:/
 <li><a href="https://mondly-stories.techidaily.com/what-is-the-longest-word-in-the-world/"><u>What Is the Longest Word in the World?</u></a></li>
 <li><a href="https://mondly-stories.techidaily.com/why-young-minds-excel-at-multilingual-mastery/"><u>Why Young Minds Excel at Multilingual Mastery</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

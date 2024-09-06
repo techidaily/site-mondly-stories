@@ -1,7 +1,7 @@
 ---
 title: Global Communication Gets a Boost with Oculus Quest & Mondly
-date: 2024-09-01T00:35:59.008Z
-updated: 2024-09-02T00:35:59.008Z
+date: 2024-09-05T04:37:57.348Z
+updated: 2024-09-06T04:37:57.348Z
 tags:
   - speak
   - english
@@ -14,6 +14,12 @@ keywords: Virtual Reality Technology (VR),Augmented Reality Communication,Oculus
 thumbnail: https://thmb.techidaily.com/c367633b9f9ef727c06fd08d3dd4d78a496570d920b7ae31f5d249d448106c6d.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Global Communication Gets a Boost with Oculus Quest & Mondly
 
 **BRASOV, Romania, October 26, 2021**  – Mondly, one of the world’s leading online language learning platforms, recently launched the first language app in the Oculus Quest store. [_Mondly: Practice Languages in VR_](https://www.oculus.com/experiences/quest/4214902388537196/)  brings language immersion into people’s homes and enables them to acquire valuable skills with practical application. Within a week of its official launch, Mondly VR became the Top Selling Educational App in the store, currently ranking as the #1 solution in VR Education.
@@ -24,6 +30,12 @@ thumbnail: https://thmb.techidaily.com/c367633b9f9ef727c06fd08d3dd4d78a496570d92
 
  With Mondly VR, users can practice 29 languages: English, Spanish, German, French, Italian, and more.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
+  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **VR is ready to disrupt education**
 
  The VR industry has historically been dedicated to gaming experiences, however, **with Oculus Quest, educational apps are ready to steal the spotlight**  and become part of global learning and development initiatives in organizations worldwide. [PwC recently conducted a study](https://www.pwc.com/us/en/tech-effect/emerging-tech/virtual-reality-study.html)  showcasing the spectacular benefits of workplace training in VR. The research followed the outcomes of a soft skills training in a US-based organization, involving three learning modalities: classroom, e-learning, and VR. The outcomes were staggering, VR learners being up to **4 times faster to train** than in the classroom setting, and **275% more confident**  to apply the learned skills at their workplace. In addition to this, the VR learners were **3.75 times more emotionally connected** to the content and **4 times more focused** than their peers.
@@ -39,6 +51,18 @@ thumbnail: https://thmb.techidaily.com/c367633b9f9ef727c06fd08d3dd4d78a496570d92
 
 ---
 
+<!-- affiliate ads begin -->
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **About Mondly**
 
  Being named “App of the Year” by Facebook, “Best New App” by Apple, and “Editors’ Choice” by Google Play, Mondly is a leading language learning platform with 80 million learners worldwide. Launched in 2014, it quickly became a leading app in the mobile space, reaching the #1 position in Education in most European countries, LATAM and Asia.   **According to [Statista](https://www.statista.com/statistics/1239522/top-language-learning-apps-downloads/) , Mondly is currently in the Top 5 language learning apps worldwide by number of downloads.**
@@ -121,7 +145,3 @@ thumbnail: https://thmb.techidaily.com/c367633b9f9ef727c06fd08d3dd4d78a496570d92
 <li><a href="https://mondly-stories.techidaily.com/voices-in-multitude-the-african-languages-guidebook/"><u>Voices in Multitude: The African Languages Guidebook</u></a></li>
 <li><a href="https://mondly-stories.techidaily.com/worlds-thank-you-lexicon-a-comprehensible-guide-155-trimmed-to-fit/"><u>World's Thank-You Lexicon: A Comprehensible Guide (155) [Trimmed to Fit]</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "World's Thank-You Lexicon: A Comprehensible Guide (155) [Trimmed to Fit]"
-date: 2024-07-12T08:42:12.981Z
-updated: 2024-07-13T08:42:12.981Z
+date: 2024-09-05T04:34:58.509Z
+updated: 2024-09-06T04:34:58.509Z
 tags:
   - speak
   - english
@@ -14,12 +14,30 @@ keywords: World's Best Phrases of Gratitude,Comprehensive Guide to Expressing Th
 thumbnail: https://thmb.techidaily.com/ec6b1f1d7d998ce573dd315cc18c0246f2fda616f5f88137d905e138146bac2b.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## World's Thank-You Lexicon: A Comprehensible Guide (155) [Trimmed to Fit]
 
  Have you ever thought about how important it is to be polite? This is not a matter of culture, but rather a matter of international common sense. It doesn’t matter if you are a French man in Romania or an American woman in Sweden. Common sense translates the same in all languages. How to say “thank you” in different languages should probably be included in students’ curricula at school. Expressing your gratitude is as important as expressing your love.
 
  Besides, this has everything to do with first impressions. As Will Rogers (American stage and motion picture actor) once said: “You never get a second chance to make a first impression”. So you have to make it count from the first try. We are people. We tend to automatically judge. We only need 30 seconds to make a full semiotic analysis of someone we’ve just met. That’s it! 30 seconds for an impression that may last a lifetime. If you travel to a foreign country, making that good first impression may mean to say**“thank you” in Spanish** (“gracias”). That doesn’t sound that hard to do, isn’t it?
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
+  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to say “thank you” in 30 languages
 
 * **Thank you in Afrikaans:** _Dankie_
@@ -56,8 +74,20 @@ thumbnail: https://thmb.techidaily.com/ec6b1f1d7d998ce573dd315cc18c0246f2fda616f
 
 ![how to say thank you](https://edge.mondly.com/blog/wp-content/uploads/2018/11/how-to-say-thank-you.jpg "How To Say Thank You In 30 Different Languages 2")
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
+  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  “Thanks” by Hanny Naibaho©
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The origin of saying “thank you”
 
  The mere act of expressing gratitude sits at the core of human interaction, so it should be interesting to analyze it a bit more. As the [Oxford Dictionaries](https://en.oxforddictionaries.com/definition/thank%5Fyou) explain, “thank you” is “a polite expression used when acknowledging a gift, service, or compliment, or accepting or refusing an offer”. “Thank you” is basically the general expression of gratitude or politeness to someone for an act of kindness that he or she has done.
@@ -81,6 +111,12 @@ thumbnail: https://thmb.techidaily.com/ec6b1f1d7d998ce573dd315cc18c0246f2fda616f
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
+  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## From 0 to conversational in over 40 languages
 
  Do you want to speak Spanish fluently fast? Or maybe French? Get [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6274&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6274&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6274) , the award-winning language learning app that will help you speak up to 41 languages.
@@ -114,3 +150,53 @@ thumbnail: https://thmb.techidaily.com/ec6b1f1d7d998ce573dd315cc18c0246f2fda616f
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-bidding-on-shadows-the-2023-virtual-vault-showdown/"><u>[New] Bidding on Shadows  The 2023 Virtual Vault Showdown</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-mobile-magic-no-cost-image-transformation-tool/"><u>[New] In 2024, Mobile Magic  No-Cost Image Transformation Tool</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-effortless-youtube-video-to-text-conversion-at-no-cost/"><u>[Updated] Effortless YouTube Video to Text Conversion at No Cost!</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-understanding-igtv-from-basics-to-boosting-your-presence/"><u>[Updated] Understanding IGTV  From Basics, to Boosting Your Presence</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/6-proven-ways-to-unlock-infinix-phone-when-you-forget-the-password-by-drfone-android/"><u>6 Proven Ways to Unlock Infinix Phone When You Forget the Password</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/drone-racing-things-you-need-to-know-and-top-5-best-fpv-racing-drones-for-2024/"><u>Drone Racing  Things You Need to Know and Top 5 Best FPV Racing Drones for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/harnessing-the-power-of-multilingual-potential-in-english/"><u>Harnessing the Power of Multilingual Potential in English</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-tecno-spark-10c-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to Tecno Spark 10C Phones? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ignite-inspiration-with-over-20-italian-idioms-and-phrases/"><u>Ignite Inspiration with Over 20 Italian Idioms & Phrases</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-motorola-moto-e13-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Motorola Moto E13 to New Android? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-c53-bootloader-easily-by-drfone-android/"><u>In 2024, How to Unlock Realme C53 Bootloader Easily</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-tutorial-to-change-vivo-v27e-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>In 2024, Tutorial to Change Vivo V27e IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-may-let-you-receive-2fa-codes-via-whatsapp/"><u>Instagram May Let You Receive 2FA Codes via WhatsApp</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-greetings-for-a-happy-day/"><u>International Greetings for a Happy Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jours-francais-de-lannee/"><u>Jours Français De L'Année</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jours-francais-traditionnel/"><u>Jours Français Traditionnel</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-fluency-vs-grammatical-correctness/"><u>Language Fluency Vs. Grammatical Correctness</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-leaders-pioneers-of-21st-century-education/"><u>Language Learning Leaders: Pioneers of 21St Century Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-the-ultimate-all-in-one-language-solution/"><u>Mondly: The Ultimate, All-in-One Language Solution</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-uniting-force-fostering-knowledge-for-70-million-learners/"><u>Mondly's Uniting Force - Fostering Knowledge for 70 Million Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oldest-languages-a-journey-through-time-and-sound/"><u>Oldest Languages: A Journey Through Time and Sound</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/online-linguistic-landscape-mondlys-triumph-in-germany/"><u>Online Linguistic Landscape: Mondly’s Triumph in Germany</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/policy-updates-for-better-privacy/"><u>Policy Updates for Better Privacy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-glance-mastering-french-colorful-speech/"><u>Quick Glance: Mastering French Colorful Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rapidly-learn-french-for-visual-vibrancy/"><u>Rapidly Learn French for Visual Vibrancy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/salutation-strategies-around-the-globe/"><u>Salutation Strategies Around the Globe</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saying-thanks-right-learning-chinese-formalities/"><u>Saying Thanks Right: Learning Chinese Formalities</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/serene-sentiments-on-silver-screen/"><u>Serene Sentiments on Silver Screen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seven-years-gone-millions-learned-with-mondly/"><u>Seven Years Gone, Millions Learned with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-bulgarian-flawlessly-minutes-only/"><u>Speak Bulgarian Flawlessly - Minutes Only</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-an-aussie-top-100-slang-guide/"><u>Speak Like an Aussie: Top 100 Slang Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/startende-deutsche-nummerierung-von-eins-bis-hundert-schrittweise-lernen/"><u>Startende Deutsche Nummerierung: Von Eins Bis Hundert Schrittweise Lernen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-up-your-english-game-with-mondly-insights/"><u>Step Up Your English Game with Mondly Insights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/supercharge-your-finnish-knowledge-through-e-learning/"><u>Supercharge Your Finnish Knowledge Through E-Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tales-of-transformation-two-years-mondly-languages-dream-realized/"><u>Tales of Transformation: Two Years, Mondly Languages Dream Realized</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-conversing-naturally-with-french-expressions/"><u>The Art of Conversing Naturally with French Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-forces-vocabulary-a-compreayer-into-star-war-language/"><u>The Force's Vocabulary: A Compreayer Into Star War Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-5-nations-exhibiting-highest-number-of-french-users/"><u>Top 5 Nations Exhibiting Highest Number of French Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-your-communication-skills-with-mondlyvr-experience/"><u>Transform Your Communication Skills with MondlyVR Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/true-insights-on-languages-beyond-the-popular-myths/"><u>True Insights on Languages: Beyond the Popular Myths</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukrainian-voices-elevated-through-mondlys-free-language-program/"><u>Ukrainian Voices Elevated Through Mondly’s Free Language Program</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukranian-skills-amp-up-with-daily-10-min-sessions-103-chars/"><u>Ukranian Skills: Amp up with Daily 10-Min Sessions (103 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unwrapping-the-gift-of-daily-education/"><u>Unwrapping the Gift of Daily Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/using-films-as-a-framework-for-language-learning/"><u>Using Films as a Framework for Language Learning</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-motorola-moto-g24-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Motorola Moto G24? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/world-minded-dialogue-techniques-for-global-interaction-mastery/"><u>World-Minded Dialogue: Techniques for Global Interaction Mastery</u></a></li>
+</ul></div>

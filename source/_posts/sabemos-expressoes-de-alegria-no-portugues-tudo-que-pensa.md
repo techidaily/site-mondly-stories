@@ -1,7 +1,7 @@
 ---
 title: Sabemos Expressões De Alegria No Português - Tudo Que Pensa
-date: 2024-07-12T08:41:55.317Z
-updated: 2024-07-13T08:41:55.317Z
+date: 2024-09-05T04:34:38.073Z
+updated: 2024-09-06T04:34:38.073Z
 tags:
   - speak
   - english
@@ -20,22 +20,64 @@ thumbnail: https://thmb.techidaily.com/14a22e63716263e4dbf21490561e8b1d60bb16b34
 
  So next time you go on an adventure to one of the 7 countries where Portuguese is the only official language (Portugal, Brazil, Mozambique, Angola, Cape Verde, Guinea-Bissau, São Tomé and Príncipe), try the following**Portuguese greetings** and see how easy it is to connect with someone even if you don’t speak the same language.
 
+<!-- affiliate ads begin -->
+<span id="1484963">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 1\. How to say “hello” in Portuguese
 
  “Hello” is a [powerful word](https://www.merriam-webster.com/words-at-play/the-origin-of-hello) . It opens doors. It makes people smile. And said the right way and at the right time, “hello” can impact someone’s day and you wouldn’t even know it. So here are the right ways to say “hello” in Portuguese and open doors everywhere you go.
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="864" height="1296" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### “Hello” in Portuguese – Olá
 
 _Olá_ is the best choice for most social situations regardless of the person you are addressing. It’s somehow formal, but also friendly.
 
  Be careful with your Portuguese pronunciation though! A lot of people accidentally mistake Portuguese for Spanish. You don’t want to do that. Just say “OH-lah” and everybody from Brazil to Mozambique will understand that you are saying “hello” in Portuguese.
 
+<!-- affiliate ads begin -->
+<span id="1975503">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### “Hi” in Portuguese – Oi
 
  Friendly and very informal,_Oi!_ is one of the most common ways to greet your friends in Brazil (people from Portugal use it as well, but not as much as_olá)_ . This is how you could greet your mates and close colleagues, but never the people you don’t really know. Don’t stress it tough! When the time comes, you will feel and just know what’s the required Portuguese greeting for that particular situation.
 
 ![hi in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-portuguese-1024x658.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 2")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2024326/7443" target="_top" id="2024326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2024326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  “Lisbon, Portugal” by Diego García©
 
 ### “How are you” in Portuguese – Tudo bem?
@@ -53,6 +95,12 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 * **_Quanto tempo!_ – Long time no see!** – Used the same as in English.
 * **_Como foi o seu dia?_ – How’s your day?** – Used the same as in English.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 2\. “Bom dia!” and other Portuguese greetings for certain moments of the day
 
 ![good morning in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/good-morning-in-portuguese-1024x642.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 3")
@@ -83,6 +131,12 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
  “Ruínas da Fortaleza de Arrifana, Aljezur, Portugal” by Ferhat Deniz Fors©
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Bonus: other basic Portuguese phrases that you should know
 
  Now that you know how to greet in Portuguese, shouldn’t you also master basic words like “yes”, “no” or “thank you” in Portuguese? Let’s kill two birds with one stone and see how a basic conversation in Portuguese should sound like:
@@ -148,3 +202,36 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-unleashing-instagrams-filter-power-free-searches-revealed/"><u>[Updated] 2024 Approved  Unleashing Instagram's Filter Power – Free Searches Revealed</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-androids-video-reversion-secrets-unveiled/"><u>[Updated] In 2024, Android's Video Reversion Secrets Unveiled</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-open-srt-soundtrack-on-windowsmacos/"><u>[Updated] In 2024, Open SRT Soundtrack on Windows/macOS</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-smilescape-turn-daily-life-into-hilarious-stories/"><u>[Updated] SmileScape  Turn Daily Life Into Hilarious Stories</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-move-contacts-from-samsung-galaxy-f14-5g-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Move Contacts From Samsung Galaxy F14 5G to iPhone (13/14/15) | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/behringers-top-rated-usb-driver-software-download-today-for-optimal-performance/"><u>Behringer's Top-Rated USB Driver Software - Download Today for Optimal Performance</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/comprehensive-review-of-google-nest-wi-fi-quick-connectivity-in-a-seamless-network/"><u>Comprehensive Review of Google Nest Wi-Fi: Quick Connectivity in a Seamless Network</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-testing-of-hewlett-packards-economical-notebook-does-the-amd-chip-deliver-value/"><u>Comprehensive Testing of Hewlett-Packard’s Economical Notebook – Does the AMD Chip Deliver Value?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-spring-festivities-translated-for-unity/"><u>Global Spring Festivities Translated for Unity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-bulgarian-online-in-just-10-minutes-a-day/"><u>Learn Bulgarian Online in Just 10 Minutes a Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learnings-new-era-mondly-at-seven-years/"><u>Learning's New Era: Mondly at Seven Years</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-diversity-as-a-relationship-booster/"><u>Linguistic Diversity as a Relationship Booster</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-global-reach-touches-70-million-lifelong-learners/"><u>Mondly's Global Reach Touches 70 Million Lifelong Learners</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/nikon-d500-and-its-stance-on-high-quality-imaging-for-2024/"><u>Nikon D500 and Its Stance on High-Quality Imaging for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/perfect-your-german-etiquette-with-these-top-16-thank-yous/"><u>Perfect Your German Etiquette with These Top 16 Thank Yous</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/persian-language-heritage-unveiled-learn-today/"><u>Persian Language Heritage Unveiled: Learn Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/presenting-mondlys-advanced-interactive-qanda-features/"><u>Presenting Mondly’s Advanced Interactive Q&A Features</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-language-acquisition-with-oxford-3000-mondly-style/"><u>Quick Language Acquisition with Oxford 3000, Mondly Style</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-anywhere-everytime-meet-mondlyar/"><u>Speak Anywhere, Everytime - Meet MondlyAR!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-smart-succeed-premier-communication-courses/"><u>Speak Smart, Succeed: Premier Communication Courses</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-spanish-with-peers-in-virtually-shared-realities/"><u>Speaking Spanish with Peers in Virtually Shared Realities</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-stars-decoding-the-language-mysteries-in-star-wars/"><u>Speaking Stars: Decoding the Language Mysteries in Star Wars</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sprachreichtum-uber-10-grelle-in-deutsch-verbreitete-ausdrucke/"><u>Sprachreichtum: Über 10 Grelle in Deutsch Verbreitete Ausdrücke</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-first-vocal-command-center-for-ar-worlds/"><u>The First Vocal Command Center for AR Worlds</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-truth-behind-the-lies-debunking-language-learning-myths/"><u>The Truth Behind the Lies: Debunking Language Learning Myths</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/thriving-in-a-globalized-economy-multilingual-advantages/"><u>Thriving in a Globalized Economy: Multilingual Advantages</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/top-rated-phone-shops-find-your-perfect-device-today/"><u>Top-Rated Phone Shops: Find Your Perfect Device Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/wanderlust-words-must-know-expressions-for-french-journeys/"><u>Wanderlust Words: Must-Know Expressions for French Journeys</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/whispered-words-conversational-confessions-in-deutsch/"><u>Whispered Words: Conversational Confessions in Deutsch</u></a></li>
+</ul></div>

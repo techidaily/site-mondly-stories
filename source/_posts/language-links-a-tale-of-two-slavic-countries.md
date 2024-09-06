@@ -1,7 +1,7 @@
 ---
 title: "Language Links: A Tale of Two Slavic Countries"
-date: 2024-07-12T08:42:45.389Z
-updated: 2024-07-13T08:42:45.389Z
+date: 2024-09-05T04:33:23.953Z
+updated: 2024-09-06T04:33:23.953Z
 tags:
   - speak
   - english
@@ -51,6 +51,18 @@ thumbnail: https://thmb.techidaily.com/4eda12f29d27dc48951952fd718d2893baf3c477f
 
  As a result of Ukraine’s centuries-long political subordination, Ukrainian had almost no literary expression until de 18th century when the modern literary Ukrainian language was born.
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The Russian language – a short history
 
  Russian, known as Русский язык (romanized:_Russkiy yazyk_) to Russians, is the official language of Russia, Belarus, Kazakhstan, and Kyrgyzstan and it is also used as a second language in other former Soviet countries. Additionally, Russian is one of the six official United Nations languages and the 8th most spoken language in the world with a total of 260 million speakers.
@@ -63,6 +75,12 @@ thumbnail: https://thmb.techidaily.com/4eda12f29d27dc48951952fd718d2893baf3c477f
 
  Later, the Soviet period brought Russian worldwide prestige which declined after the 1991 collapse. Despite each USSR constituent republic having its own official language, Russian had a unified role and superior status. This is why there are so many people speaking Russian outside Russia.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How similar are Ukrainian and Russian?
 
  The misconception that Russian and Ukrainian are the same sometimes stems from the fact that Russian is widely spoken in Ukraine. The numbers can differ slightly according to various sources, but it’s generally agreed that 60% of Ukrainians consider Ukrainian their native language, while 15% consider Russian to be their native language. Moreover, 22% consider both to be their native languages.
@@ -77,10 +95,34 @@ thumbnail: https://thmb.techidaily.com/4eda12f29d27dc48951952fd718d2893baf3c477f
 
  However, all three languages – Ukrainian, Russian and Belarusian – are in part mutually intelligible, and already knowing one can help a lot if you want to learn one of the others.
 
+<!-- affiliate ads begin -->
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How different are Ukrainian and Russian?
 
  Now that we’ve explained the history behind Ukrainian and Russian, it’s time to look at some more practical examples. A 62% lexical similarity may sound like a lot, but these two languages are not as similar as many might think. Here are some of the most important differences between Russian and Ukrainian.
 
+<!-- affiliate ads begin -->
+<span id="1982508">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Alphabet
 
  Both Ukrainian and Russian use the 33-letter [Cyrillic alphabet](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , but there are four letters in Ukrainian missing from Russian (ґ, є, і, ї), and four letters in Russian missing from Ukrainian (ё, ъ, ы, э).
@@ -116,6 +158,12 @@ thumbnail: https://thmb.techidaily.com/4eda12f29d27dc48951952fd718d2893baf3c477f
 * Ukrainian uses more soft consonants compared to Russian;
 * Russian \[ы\] is deeper than Ukrainian \[и\] and Russian \[э\] is more open than Ukrainian \[е\].
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2024338/7443" target="_top" id="2024338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2024338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024338/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Grammar
 
  When it comes to grammar, Russian and Ukrainian have similar principles and categories:
@@ -137,6 +185,12 @@ thumbnail: https://thmb.techidaily.com/4eda12f29d27dc48951952fd718d2893baf3c477f
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Learn Ukrainian, Russian and more in just 10 minutes a day
 
  Do you want to learn languages fast? Get Mondly, the award-winning language app that will help you speak Ukrainian, Russian and more from day 1.
@@ -169,3 +223,45 @@ thumbnail: https://thmb.techidaily.com/4eda12f29d27dc48951952fd718d2893baf3c477f
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-ice-dance-showcase-olympic-winter-2022/"><u>[Updated] In 2024, Ice Dance Showcase  Olympic Winter 2022</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-masterful-method-smart-watch-to-access-mac/"><u>2024 Approved  Masterful Method  Smart Watch to Access Mac</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/exploring-ai-interactions-my-snapchat-vs-bing-in-skype/"><u>Exploring AI Interactions: My Snapchat vs Bing in Skype</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/growing-older-doesnt-stop-learning-4-strong-reasons-to-learn-a-language-after-40/"><u>Growing Older Doesn't Stop Learning – 4 Strong Reasons to Learn a Language After 40</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/identifying-israels-official-speech/"><u>Identifying Israel's Official Speech</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-itel-p40plus-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Itel P40+ Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-the-platform-face-off-going-live-with-obstwitch/"><u>In 2024, The Platform Face-Off  Going Live with OBS/Twitch</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-oppo-k11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Oppo K11 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/italys-language-of-hospitality-100plus-useful-expressions/"><u>Italy's Language of Hospitality: 100+ Useful Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-legends-the-most-prestigious-50-phrases-to-use/"><u>Latin Legends: The Most Prestigious 50 Phrases to Use</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-languages-from-tv-shows-and-movies/"><u>Learn Languages From TV Shows and Movies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-expedition-unraveling-ks-in-squid-game/"><u>Linguistic Expedition - Unraveling KS in Squid Game</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-korean-faster-uncovering-best-online-platforms-and-tips/"><u>Master Korean Faster: Uncovering Best Online Platforms & Tips</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-urdu-with-a-minimum-time-investment/"><u>Master Urdu with a Minimum Time Investment</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/miglioramento-della-comunicazione-con-i-numeri-italiani/"><u>Miglioramento Della Comunicazione Con I Numeri Italiani</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-pedagogical-strategies-revealed/"><u>Mondly’s Pedagogical Strategies Revealed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multi-language-voice-commands-now-available-on-oculus-quest-via-mondly/"><u>Multi-Language Voice Commands Now Available on Oculus Quest via Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-basic-german-speech-phonetics-and-letters-uncovered/"><u>Navigating Basic German Speech: Phonetics and Letters Uncovered</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-best-top-android-video-editing-apps-for-free-and-paid-users-for-2024/"><u>New Best Top Android Video Editing Apps for Free and Paid Users for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-huawei-nova-y91-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Huawei Nova Y91 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/romance-in-rhetoric-selecting-the-best-flirting-lines/"><u>Romance in Rhetoric: Selecting the Best Flirting Lines</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sound-easy-essential-17-relatable-spanish-sayings/"><u>Sound Easy: Essential 17 Relatable Spanish Sayings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sound-science-for-language-success-music-and-effective-strategies/"><u>Sound Science for Language Success - Music & Effective Strategies</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-final-word-on-powerdirector-a-complete-review-for-2024/"><u>The Final Word on PowerDirector  A Complete Review for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-polyglot-saint-nick-language-exploration/"><u>The Polyglot Saint Nick: Language Exploration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-timeless-quest-for-language-mastery/"><u>The Timeless Quest for Language Mastery</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-10-password-cracking-tools-for-oppo-a18-by-drfone-android/"><u>Top 10 Password Cracking Tools For Oppo A18</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transcend-boundaries-with-multilingual-mastery/"><u>Transcend Boundaries with Multilingual Mastery</u></a></li>
+<li><a href="https://blog-min.techidaily.com/transform-your-itunes-m4v-files-into-editable-mp4-videos-without-drm/"><u>Transform Your ITunes M4V Files Into Editable MP4 Videos Without DRM</u></a></li>
+<li><a href="https://discover-helper.techidaily.com/ultimate-guide-transforming-your-dvds-into-mp4-files-across-windows-mac-and-more-discover-10-effective-methods/"><u>Ultimate Guide: Transforming Your DVDs Into MP4 Files Across Windows, Mac & More - Discover 10 Effective Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-spanish-verbal-mood-variation/"><u>Understanding Spanish Verbal Mood Variation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-the-roots-of-us-and-uk-vernaculars/"><u>Understanding the Roots of US and UK Vernaculars</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/verbal-victory-triumphing-over-difficult-word-enunciation/"><u>Verbal Victory: Triumphing Over Difficult Word Enunciation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vocalizing-veracity-approaches-to-hurdling-harsh-words/"><u>Vocalizing Veracity: Approaches to Hurdling Harsh Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/voyage-with-confidence-top-93-indispensable-spanish-phrases/"><u>Voyage with Confidence: Top 93 Indispensable Spanish Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/waking-up-the-world-good-morning-in-10-multilingual-forms/"><u>Waking Up the World: Good Morning In 10 Multilingual Forms</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/watching-hulu-with-ease-tutorial-for-setup-on-lg-smart-tvs/"><u>Watching Hulu with Ease: Tutorial for Setup on LG Smart TVs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/yearly-commitments-successful-realization-techniques/"><u>Yearly Commitments: Successful Realization Techniques</u></a></li>
+</ul></div>

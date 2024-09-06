@@ -1,7 +1,7 @@
 ---
 title: "Next-Gen Learning: Mondly’s Tech Upgrade for Education"
-date: 2024-09-01T00:36:56.409Z
-updated: 2024-09-02T00:36:56.409Z
+date: 2024-09-05T04:37:56.435Z
+updated: 2024-09-06T04:37:56.435Z
 tags:
   - speak
   - english
@@ -14,6 +14,12 @@ keywords: Next-Generation E-Learning Platforms,Innovative EdTech Tools for Stude
 thumbnail: https://thmb.techidaily.com/be861d402be1baaf3140ac6faae85bc70a45ab620b0dde812294a010c625a831.png
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Next-Gen Learning: Mondly’s Tech Upgrade for Education
 
  We are proud to announce that we’ve just inaugurated a second Mondly iMac lab at Transilvania University of Brașov. In the last 11 months, we have sponsored the university with a total of**30 brand new iMacs** . These are **the first Apple computers the university trains its students on.** But there’s a whole story to it.
@@ -24,18 +30,36 @@ thumbnail: https://thmb.techidaily.com/be861d402be1baaf3140ac6faae85bc70a45ab620
 
 ![alexandru iliescu tudor iliescu mondly](https://edge.mondly.com/blog/wp-content/uploads/2019/03/alexandru-iliescu-tudor-iliescu-mondly-1024x683.jpg "Mondly Supports Education By Investing In State-Of-The-Art Apple Technology For Students 2")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  The founders of Mondly after they were awarded the “Emerging Entrepreneur of the Year: Technology & Innovation” prize by Ernst & Young
 
  Both Alexandru and Tudor are alumni of the university, so giving something back to the school that contributed to their training and development was the natural thing to do. Thus, in April 2018, **Mondly sponsored The Faculty of Mathematics and Computer Science with 10 brand new iMacs.**
 
 ![Mondly iMac lab inauguration](https://edge.mondly.com/blog/wp-content/uploads/2019/03/Mondly-iMac-lab-inauguration-1024x488.jpg "Mondly Supports Education By Investing In State-Of-The-Art Apple Technology For Students 3")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  The inauguration of the first Mondly iMac lab
 
  _iOS app development can only be done on Apple computers, but since the university was equipped with Windows computers only, students didn’t yet have the tools to learn to develop apps for an app store that generated [93% more revenue](https://techcrunch.com/2018/10/11/app-store-generated-93-more-revenue-than-google-play-in-q3/) than its closest competitor in the third quarter of 2018\. We wanted to give them the opportunity to build the future in a state-of-the-art iMac lab_ , says Alexandru Iliescu, CEO of Mondly.
 
 ![Alexandru Iliescu, CEO of Mondly](https://edge.mondly.com/blog/wp-content/uploads/2019/03/alexandru-iliescu-ceo-mondly-820x1024.jpg "Mondly Supports Education By Investing In State-Of-The-Art Apple Technology For Students 4")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Alexandru Iliescu, CEO of Mondly
 
  We, at Mondly, believe that the key to positive change is investing in education. This is why we didn’t want to stop at only one iMac lab. The next step was to put together an**iOS app development course** for the undergraduates of**The Faculty of Mathematics and Computer Science** . Thus, every Thursday for 3 months, they attended the Mondly iOS course held by one of our top specialists.
@@ -46,6 +70,12 @@ thumbnail: https://thmb.techidaily.com/be861d402be1baaf3140ac6faae85bc70a45ab620
 
 ![second mondly iMac lab inauguration](https://edge.mondly.com/blog/wp-content/uploads/2019/03/second-mondly-iMac-lab-inauguration-1024x684.jpg "Mondly Supports Education By Investing In State-Of-The-Art Apple Technology For Students 5")
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
+  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  The inauguration of the second Mondly iMac lab
 
  Needless to say, the second Mondly iOS app development course has already kicked off at The Faculty of Electrical Engineering and Computer Science. Enthusiasts are gathering every week to learn the basics and share their own accomplishments.
@@ -54,6 +84,12 @@ thumbnail: https://thmb.techidaily.com/be861d402be1baaf3140ac6faae85bc70a45ab620
 
 ![mondly team](https://edge.mondly.com/blog/wp-content/uploads/2019/03/mondly-team-scaled-960x623.jpg "Mondly Supports Education By Investing In State-Of-The-Art Apple Technology For Students 6")
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  The Mondly team
 
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fmondly-supports-education-investing-apple-technology-for-students%2F&t=Mondly+Supports+Education+by+Investing+in+State-Of-The-Art+Apple+Technology+for+Students "Share on Facebook")
@@ -119,7 +155,3 @@ thumbnail: https://thmb.techidaily.com/be861d402be1baaf3140ac6faae85bc70a45ab620
 <li><a href="https://fox-that.techidaily.com/troubleshooting-guide-why-visual-look-up-fails-on-iphones/"><u>Troubleshooting Guide: Why Visual Look Up Fails on iPhones</u></a></li>
 <li><a href="https://extra-information.techidaily.com/unlock-efficiency-the-editors-guide-to-speed-control/"><u>Unlock Efficiency  The Editor's Guide to Speed Control</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->

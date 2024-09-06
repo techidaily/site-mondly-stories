@@ -1,7 +1,7 @@
 ---
 title: The Do's & Don'ts in Spanish Accented Writing
-date: 2024-09-01T00:34:24.768Z
-updated: 2024-09-02T00:34:24.768Z
+date: 2024-09-05T04:37:58.847Z
+updated: 2024-09-06T04:37:58.847Z
 tags:
   - speak
   - english
@@ -22,6 +22,12 @@ thumbnail: https://thmb.techidaily.com/13632811731c559bc127701456401507af159186a
 
 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Spanish Accent Marks
 
  Spanish accent marks or Spanish accents can also be referred to as diacritics, diacritical marks or diacritical signs. These represent an extra symbol or glyph added to a letter.
@@ -32,23 +38,50 @@ The Spanish language has three types of accent marks:
 * **Acute accents**
 * **Diaeresis**
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Tilde
 
  The tilde is only applied to the letter “n”, creating the character “ñ”, which is considered a separate letter in the Spanish alphabet and appears as such in dictionaries. Also known as_la tilde de la eñe_ or_la virgulilla_ , “ñ” appears in words such as_niño_ (“child”),_mañana_ (“tomorrow”),_señor_ (“mister, sir”),_año_ (“year”) and even_español_ (“Spanish” – the language).
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Diaeresis
 
  The diaeresis is only found on the letter “u”, marked by two dots above it_(ü)_ . It indicates that the “u” should be pronounced independently, as a separate vowel, not as part of a digraph or diphthong. Although rare, the diaeresis in Spanish is typically placed immediately after “g” or immediately before “e” or “i” in a word. In case you were wondering, yes, it is distinct from an umlaut, which denotes a sound shift.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ### Acute Accent
 
  The acute accent, represented by a short diagonal line above vowels, is the most common accent mark in Spanish. Acute accents occur only once per word and their purpose is to stress words, distinguish between otherwise identical words and indicate questions.
 
 ![Spanish accent marks](https://edge.mondly.com/blog/wp-content/uploads/2019/03/spanish-accent-marks-960x640.png "How To Type And Pronounce Spanish Accents: Complete Guide 5")
 
+<!-- affiliate ads begin -->
+<span id="1983475">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## All Spanish Accents Letters
 
 * **á**
@@ -66,7 +99,10 @@ The Spanish language has three types of accent marks:
 * **_ü_ uses the diaeresis.**
 
 <!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Spanish Pronunciation Without Accent Marks
 
@@ -82,9 +118,6 @@ The Spanish language has three types of accent marks:
 * _fe-**LIZ**_  (“happy” in English)
 * _pro-fe-**SOR**_  (“professor” in English)
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Spanish Pronunciation With Accents Marks
 
  If your Spanish word has an acute accent, ignore the previously mentioned rules and**stress the syllable that contains the accent.** You’ll quickly become accustomed to pronouncing and writing these words. A helpful option for practice is to use the Mondly Chatbot, where you can both SEE and HEAR the words.
@@ -110,7 +143,10 @@ The Spanish language has three types of accent marks:
 [Start Now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-2792&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2792&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2792&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2792&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-2792%26mt%3D8)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Spanish Accents Rules
 
@@ -121,14 +157,16 @@ The Spanish language has three types of accent marks:
 3. When the stress falls on the antepenultimate syllable (the syllable before the second to last). Example: _político_ (politician)
 4. When the stress is on the syllable before the antepenultimate, especially with Spanish pronouns in gerunds, imperatives, or Spanish infinitives. Example: _cómpramelo_ (buy it for me)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ### Exception
 
  Words ending in -mente have two stressed syllables, complicating Spanish accent placement. What you can do is remove the ending (-mente), follow the above rules, then add the ending back on and stress both the accented Spanish letter and MEN-te.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Question Words
 
  All Spanish question words require an acute accent, even if they don’t have one in declarative sentences. That’s basically how you differentiate between interrogative words: when they are used in a question, they have an accent; when used to answer a question or make a statement, they don’t.
@@ -149,9 +187,6 @@ Coming Soon
 
  Diaeresis  Diaeresis1 (7.69 %)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Typing Spanish Accents on a Keyboard
 
  Whether you use a PC or a Mac, the best route is to change the keyboard settings to “US – International”.
@@ -170,14 +205,8 @@ Coming Soon
 
 ![Typing Spanish accents](https://edge.mondly.com/blog/wp-content/uploads/2019/03/typing-spanish-accents-960x636.jpeg "How To Type And Pronounce Spanish Accents: Complete Guide 7")
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
  If that doesn’t work for you, you can try typing the Spanish accents you need using cryptic codes.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
-<!-- affiliate ads end -->
 ## How to Write Spanish Accents on a Laptop
 
 | Spanish accent letter | Keyboard combination |
@@ -192,6 +221,18 @@ Coming Soon
 | ¿                     | Alt + 0191           |
 | ¡                     | Alt + 0161           |
 
+<!-- affiliate ads begin -->
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Write Spanish Accents on a Mac
 
 | Spanish accent letter | Keyboard combination                                                    |

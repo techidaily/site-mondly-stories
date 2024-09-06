@@ -1,7 +1,7 @@
 ---
 title: Contare in Italiano per Novizianti - Vol. 1 (1-1000)
-date: 2024-07-12T08:40:28.726Z
-updated: 2024-07-13T08:40:28.726Z
+date: 2024-09-05T04:35:08.502Z
+updated: 2024-09-06T04:35:08.502Z
 tags:
   - speak
   - english
@@ -14,12 +14,24 @@ keywords: Contare in Italiano,Novizianti,Italiano per Novizianti,Vol. 1,Catechis
 thumbnail: https://thmb.techidaily.com/849f56ab1426764bff20d4db63fa0a5cb770114051bf7d548d3853a87e8edbdb.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Contare in Italiano per Novizianti - Vol. 1 (1-1000)
 
  Lucky for us, language learners, most languages use Arabic numerals (0, 1, 2, 3, 4, 5, 6, 7, 8, 9) in writing. The challenging parts are pronunciation and spelling. When you start [learning Italian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , you will, of course, need to learn numbers. Italian numbers are easy to remember and pronounce because they follow a simple and predictable pattern. Once you know the Italian numbers to 10, counting to 100 and even 1000 is easy.
 
  There’s hardly a day that passes without using [numbers](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . They’re essential to our day-to-day lives. From shopping to giving people your phone number and setting up a meeting at a certain time, numbers are probably one of the first lessons you should take in any language. So, let’s see how easy it is to count from_zero_ to_cento_ in_Italiano_ .
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Count to 10 in Italian
 
  To master the Italian numbers quickly, it’s essential to first learn how to count to 10\. The numbers from 1 to 10 are important for two reasons: you will probably use them the most and they lay the foundations for any Italian number you can think of.
@@ -88,6 +100,12 @@ Let’s see some examples:
 * to say “18 years”, you’ll say_diciotto anni_
 * to say “20 children”, you’ll say_venti bambini_
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Italian numbers to 30 and beyond
 
  Essentially, Italian numbers are very similar to English numbers. Once you get to 20, you just put together the tens with the single numbers (units). The best part is that Italian doesn’t even require spaces or hyphens. For example, if you want to say 22 (“twenty-two”), in Italian you say venti (20) + due (2) = _**venti** due_ (22).
@@ -100,6 +118,18 @@ Let’s see some examples:
 
  See how easy Italian numbers are? The only thing you have to remember is that the final vowel of the tens disappears when you add 1_(uno)_ or 8_(otto)_ . Thus, you’ll say _**vent** uno_ and not “ventiuno”. Additionally, number 3_(tre)_ gains an accent mark on the final vowel. For example, 33 will be_trentatré_ and 83 will be_ottantatré._
 
+<!-- affiliate ads begin -->
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Count tens in Italian
 
  Except for 10_(dieci)_ and 20_(venti)_ , all tens digits in Italian are based on their roots. Once you know all of them, you’ll know how to count to 100 – which is_cento_ – in Italian.
@@ -133,6 +163,12 @@ Let’s see some examples:
 * 84 – _ottanta**quattro**_
 * 98 – _novant**otto**_
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Italian numbers 100 to 1000 and beyond
 
  The same rules apply to bigger numbers as well. Add the suffix_cento_ to the multiplier digit and here are your hundreds:
@@ -161,6 +197,12 @@ Let’s see some examples:
 
 ![italian numbers pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2020/05/italian-numbers-pronunciation-960x640.jpg "Italian Numbers Made Easy - Count To 1000 And Beyond In Italian 3")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  “The Amalfi Coast” by Gregory Smirnov©
 
  Back to counting, from 100 and beyond, the bigger the number is, the longer its written form. Italian doesn’t isolate hundreds, tens and ones. They become one long word with no hyphens or spaces. For example:
@@ -235,3 +277,40 @@ Let’s see some examples:
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-resources.techidaily.com/new-a-new-dimension-understanding-the-innovations-in-hp-envy-27-monitor/"><u>[New] A New Dimension  Understanding the Innovations in HP Envy 27 Monitor</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-best-practices-procuring-stock-visuals-for-projects/"><u>[New] Best Practices  Procuring Stock Visuals for Projects</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-clash-of-shadows-and-lightning-black-vs-silver/"><u>[New] Clash of Shadows and Lightning  BLACK vs SILVER</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-mastering-xbox-screencast-capture-techniques/"><u>[New] In 2024, Mastering Xbox Screencast Capture Techniques</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-innovative-approaches-to-keeping-your-snaps-connected/"><u>[Updated] 2024 Approved  Innovative Approaches to Keeping Your Snaps Connected</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-comprehensive-guide-to-recording-and-embedding-audio-powerpoint/"><u>[Updated] Comprehensive Guide to Recording & Embedding Audio (PowerPoint)</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-rhythm-and-reels-for-music-masters-on-ig/"><u>[Updated] In 2024, Rhythm & Reels for Music Masters on IG</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-list-of-10-invisible-stories-watchers/"><u>[Updated] List of 10 Invisible Stories Watchers</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-scoping-out-superior-cloud-platforms-for-secure-storing/"><u>2024 Approved  Scoping Out Superior Cloud Platforms for Secure Storing</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-transform-videos-into-stories-discover-the-top-10-reactions/"><u>2024 Approved  Transform Videos Into Stories  Discover the Top 10 Reactions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/guia-inicial-a-la-comprehension-del-tiempo-en-espanol/"><u>Guía Inicial a La Comprehensión Del Tiempo en Español</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-guide-to-the-best-free-video-conferencing-software-for-corporate-and-educational-sectors/"><u>In 2024, Guide to the Best Free Video Conferencing Software for Corporate and Educational Sectors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/johannes-honterus-inspiration-and-leadership-icon/"><u>Johannes Honterus: Inspiration & Leadership Icon</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-tagalog-in-under-an-hour-join-today/"><u>Master Tagalog in Under an Hour - Join Today!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-more-minds-through-multilingualism/"><u>Mastering More Minds Through Multilingualism</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-unrivaled-language-mastery/"><u>Mondly: Unrivaled Language Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multi-language-voice-commands-now-available-on-oculus-quest-via-mondly/"><u>Multi-Language Voice Commands Now Available on Oculus Quest via Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/phrase-perfection-a-complete-guide-to-uk-speech/"><u>Phrase Perfection: A Complete Guide to UK Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rapid-immersion-learn-a-new-language-fast/"><u>Rapid Immersion: Learn a New Language Fast</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/refined-retakes-how-to-crop-and-perfect-iphone-shots/"><u>Refined Retakes  How to Crop and Perfect iPhone Shots</u></a></li>
+<li><a href="https://win-forum.techidaily.com/revup-your-pc-performance-with-easy-driver-updates-for-windows-10-users/"><u>RevUp Your PC Performance with Easy Driver Updates for Windows 10 Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/romance-in-rhetoric-selecting-the-best-flirting-lines/"><u>Romance in Rhetoric: Selecting the Best Flirting Lines</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/romance-languages-and-their-cultural-significance/"><u>Romance Languages and Their Cultural Significance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sound-easy-essential-17-relatable-spanish-sayings/"><u>Sound Easy: Essential 17 Relatable Spanish Sayings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-the-heart-of-transylvania-our-app-guide/"><u>Speak the Heart of Transylvania: Our App Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-intersection-of-language-and-technology-in-pt-button-usage/"><u>The Intersection of Language and Technology in PT Button Usage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-timeless-quest-for-language-mastery/"><u>The Timeless Quest for Language Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-francophone-countries-and-their-concentrated-language-user-base/"><u>Top Francophone Countries & Their Concentrated Language User Base</u></a></li>
+<li><a href="https://win-dash.techidaily.com/update-your-windows-pc-step-by-step-guide-to-downloading-the-latest-bluetooth-usb-driver/"><u>Update Your Windows PC: Step-by-Step Guide to Downloading the Latest Bluetooth USB Driver</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/what-languages-does-santa-claus-speak-christmas-around-the-world/"><u>What Languages Does Santa Claus Speak? Christmas Around the World</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/when-do-other-countries-commemorate-thanksgiving/"><u>When Do Other Countries Commemorate Thanksgiving?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/whimsical-words-bilingual-romantic-expressions/"><u>Whimsical Words: Bilingual Romantic Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/yearly-commitments-successful-realization-techniques/"><u>Yearly Commitments: Successful Realization Techniques</u></a></li>
+</ul></div>

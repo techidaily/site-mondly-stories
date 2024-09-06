@@ -1,7 +1,7 @@
 ---
 title: Essential Croatian Speaking Skills for Effortless International Expeditioning
-date: 2024-07-12T08:40:36.207Z
-updated: 2024-07-13T08:40:36.207Z
+date: 2024-09-05T04:35:18.007Z
+updated: 2024-09-06T04:35:18.007Z
 tags:
   - speak
   - english
@@ -29,6 +29,12 @@ thumbnail: https://thmb.techidaily.com/e246634d5da34f177363476939043c1e6f3469bbe
 7. [Learn Croatian for your shopping sprees](#croatian-shopping)
 8. [Days of the week and numbers in Croatian](#numbers-in-croatian)
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
+  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 1\. Hello in Croatian and other useful greetings
 
  Greetings are crucial in any social context. Often regarded as a window to what someone is really like, greetings have the power to strike up conversations everywhere. It’s an excellent way to joyously open many doors in your path through the world. And now that you want to discover [Croatia](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) in all its beauty,**Croatian greetings** are your safe ticket toward the best_Game of Thrones_ “behind the scenes” stories from the locals. So here’s**how to say “hello” in Croatian:**
@@ -62,6 +68,12 @@ thumbnail: https://thmb.techidaily.com/e246634d5da34f177363476939043c1e6f3469bbe
 
 ![croatian phrasebook](https://edge.mondly.com/blog/wp-content/uploads/2019/07/croatian-phrasebook-1024x683.jpg "100+ Essential Croatian Phrases You'Ll Need Before Traveling To Croatia 2")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  “Plitvice Lakes National Park” by Jonatan Pie©
 
 ## 2\. Basic Croatian phrases for travelers that need help
@@ -117,12 +129,30 @@ thumbnail: https://thmb.techidaily.com/e246634d5da34f177363476939043c1e6f3469bbe
 * Very pleasant, thank you. –_Vrlo ugodan, hvala Vam._
 * Here is your bill, please look it over. –_Izvolite Vas Racun, molimo pregledajte ga._
 
+<!-- affiliate ads begin -->
+<span id="1983552">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 5\. Croatian to English for tourists who want to have fun
 
  You’ll have to admit that parties connect people. Phones used to do that, but not anymore. Now going to a party is the best way to connect with people and get to know a new culture. Thus, if you have already planned your trip to Croatia, also squeeze in a night out to party and enjoy the Old Town from another perspective. It may reveal itself differently.
 
 ![croatian to english](https://edge.mondly.com/blog/wp-content/uploads/2019/07/croatian-to-english-960x766.jpg "100+ Essential Croatian Phrases You'Ll Need Before Traveling To Croatia 4")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2024326/7443" target="_top" id="2024326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2024326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  “Cavtat, Croatia” by Conor Rees©
 
 * Is there a pub here? –_Ima li ovdje pub?_
@@ -155,8 +185,20 @@ thumbnail: https://thmb.techidaily.com/e246634d5da34f177363476939043c1e6f3469bbe
 
 ![croatian words](https://edge.mondly.com/blog/wp-content/uploads/2019/07/croatian-words-1024x682.jpg "100+ Essential Croatian Phrases You'Ll Need Before Traveling To Croatia 5")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  “Primošten, Croatia” by Hrvoje Klaric©
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 7\. Learn Croatian for your shopping sprees
 
  Choosing souvenirs for the entire family is the most atrocious punishment the humanity has ever seen. The stress of shopping for souvenirs often gets to ruin our sleep until very last evening of our vacation. But there’s a solution! Plan your shopping spree for the first day of the trip and just get it over with.
@@ -239,3 +281,57 @@ thumbnail: https://thmb.techidaily.com/e246634d5da34f177363476939043c1e6f3469bbe
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-navigating-copyright-laws-when-turning-social-media-videos-into-gifs-for-educational-purposes/"><u>[New] 2024 Approved  Navigating Copyright Laws When Turning Social Media Videos Into GIFS for Educational Purposes</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-professional-meeting-aesthetics-blur-backgrounds-tips/"><u>[New] In 2024, Professional Meeting Aesthetics  Blur Backgrounds Tips</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-pro-video-editing-made-simple-the-best-online-video-length-reducers/"><u>[New] Pro Video Editing Made Simple  The Best Online Video Length Reducers</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-unseen-features-in-depth-look-at-instagrams-ask-emoji-for-2024/"><u>[New] Unseen Features  In-Depth Look at Instagram’s Ask Emoji for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-fb-hd-stream-to-local-storage/"><u>[Updated] 2024 Approved  FB HD Stream to Local Storage</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-secure-growth-of-your-tiktok-fanbase-for-2024/"><u>[Updated] Secure Growth of Your TikTok Fanbase for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-navigating-your-sierra-cloud-storage-effortlessly/"><u>2024 Approved  Navigating Your Sierra Cloud Storage Effortlessly</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/a-beginners-pathway-to-running-a-product-evaluation-podcast/"><u>A Beginner's Pathway to Running a Product Evaluation Podcast</u></a></li>
+<li><a href="https://techtrends.techidaily.com/comprehensive-tips-for-dealing-with-steam-disk-writing-complications/"><u>Comprehensive Tips for Dealing with Steam Disk Writing Complications</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/easy-methods-to-refresh-microsoft-mouse-drivers-in-windows-operating-system/"><u>Easy Methods to Refresh Microsoft Mouse Drivers in Windows Operating System</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/exchange-your-way-to-greatness-fabio-goncalves-video-technique/"><u>Exchange Your Way to Greatness: Fabio Goncalves’ Video Technique</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/explore-these-top-15-freely-available-apps-for-easy-program-deletion/"><u>Explore These Top 15 Freely Available Apps for Easy Program Deletion</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/generative-ai-influence-on-the-labor-market-unveiling-seven-pivotal-changes/"><u>Generative AI Influence on the Labor Market – Unveiling Seven Pivotal Changes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-screen-the-ultimate-movie-list-for-speakers/"><u>Global Screen: The Ultimate Movie List For Speakers</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-change-xiaomi-redmi-note-12-4g-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change Xiaomi Redmi Note 12 4G Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-say-good-morning-in-10-different-languages/"><u>How To Say Good Morning In 10 Different Languages</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>How to use Snapchat Location Spoofer to Protect Your Privacy On Apple iPhone XS? | Dr.fone</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-securing-your-scene-minimize-camera-jostle/"><u>In 2024, Securing Your Scene  Minimize Camera Jostle</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-vivo-y27-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Vivo Y27 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/indonesian-greetings-decoded-for-travelers-and-locals-alike/"><u>Indonesian Greetings Decoded for Travelers and Locals Alike</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/iniciar-tu-primer-viaje-a-la-hora-en-espanol/"><u>Iniciar Tu Primer Viaje a La Hora en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/interactive-language-lessons-with-mondlys-ar-features/"><u>Interactive Language Lessons with Mondly's AR Features</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/is-german-hard-to-study/"><u>Is German Hard to Study?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jolly-roger-jargon-decoding-20-piratical-terms/"><u>Jolly Roger Jargon: Decoding 20 Piratical Terms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-liberation-pronouncing-tricky-terminology-with-ease/"><u>Language Liberation: Pronouncing Tricky Terminology with Ease</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-rhythms-an-energetic-learning-approach/"><u>Latin Rhythms: An Energetic Learning Approach</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-languages-commitment-of-2024/"><u>Learn Languages - Commitment of 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lingua-franca-croatia/"><u>Lingua Franca: Croatia</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lingual-distinctions-brazilian-and-eu-portuguese-contrasted/"><u>Lingual Distinctions: Brazilian & EU Portuguese Contrasted</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-latvian-fast-ten-minute-online-lessons-each-day/"><u>Master Latvian Fast: Ten-Minute Online Lessons Each Day</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/mastering-meme-magic-for-laughter/"><u>Mastering Meme Magic for Laughter</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-triumphs-engaging-70-million-learners-globally/"><u>Mondly Triumphs – Engaging 70 Million Learners Globally</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-the-updated-tandu-with-ease/"><u>Navigating the Updated T&U with Ease</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/prepare-to-engage-with-the-ultimate-ai-friend/"><u>Prepare to Engage with the Ultimate AI Friend</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/samsung-unveils-enhanced-odyssey-and-viewflex-series-revolutionary-ai-powered-display-technology/"><u>Samsung Unveils Enhanced Odyssey & ViewFlex Series: Revolutionary AI-Powered Display Technology</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/shakespeares-words-36-words-shakespeare-invented-that-we-still-use-today/"><u>Shakespeare’s Words: 36 Words Shakespeare Invented That We Still Use Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spandex-a-global-community-connected/"><u>Spandex: A Global Community Connected</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-filmmakers-guide-to-distorting-space-and-time-for-2024/"><u>The Filmmaker's Guide to Distorting Space & Time for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-top-francophone-countries-and-their-linguistic-statistics/"><u>The Top Francophone Countries and Their Linguistic Statistics</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-ultimate-tale-of-htc-vive-and-total-immersion-for-2024/"><u>The Ultimate Tale of HTC Vive and Total Immersion for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-weekday-wheel-of-life-in-korea/"><u>The Weekday Wheel of Life in Korea</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-9-linguistic-quandaries-and-strategies-for-success/"><u>Top 9 Linguistic Quandaries & Strategies for Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transcultural-exchange-in-eng-language/"><u>Transcultural Exchange in ENG Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-the-art-of-russian-greeting-essentials-and-beyond/"><u>Unlocking the Art of Russian Greeting: Essentials and Beyond</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-the-secrets-to-correct-spaniard-diacritics/"><u>Unlocking the Secrets to Correct Spaniard Diacritics</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/updated-2024-approved-9-best-french-video-translators-online-and-download-options/"><u>Updated 2024 Approved 9 Best French Video Translators Online and Download Options</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/updating-your-netgear-wi-fi-cards-drivers-how-and-where-to-get-them/"><u>Updating Your NETGEAR Wi-Fi Card's Drivers: How and Where to Get Them</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/verbal-legacy-modern-speech-from-shakespeares-quill/"><u>Verbal Legacy: Modern Speech From Shakespeare’s Quill</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/virtual-reality-the-future-of-multilingual-education-with-mondlys-new-app/"><u>Virtual Reality: The Future of Multilingual Education with Mondly's New App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/voicing-love-languages-in-the-hungarian-context/"><u>Voicing Love Languages in the Hungarian Context</u></a></li>
+</ul></div>

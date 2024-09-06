@@ -1,7 +1,7 @@
 ---
 title: Uncover the Secret to Quick Latin Proficiency
-date: 2024-09-01T00:34:23.023Z
-updated: 2024-09-02T00:34:23.023Z
+date: 2024-09-05T04:37:58.867Z
+updated: 2024-09-06T04:37:58.867Z
 tags:
   - speak
   - english
@@ -22,10 +22,22 @@ _Ergo_ (“therefore”), the easiest way to learn Latin online is now literally
 
 ![latin courses](https://edge.mondly.com/blog/wp-content/uploads/2020/02/latin-courses-277x600.jpg "This Is The Easiest Way To Learn Latin Online 2")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Learn Latin with Mondly
 
  If you are wondering why Latin, a dead language, was added to Mondly’s language portfolio and – most importantly – what are the reasons to learn Latin, continue reading the following paragraphs and your questions shall be answered._Mihi crede‌_ (“trust me”).
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The Latin language, the core of Romance languages
 
  Originally spoken in Rome, the Latin language has then spread together with the increase of the Roman empire and later developed into the Romance languages we all know today: Italian, French, Portuguese, Romanian, Catalan and Spanish.
@@ -36,10 +48,28 @@ _Ergo_ (“therefore”), the easiest way to learn Latin online is now literally
 
 ![latin language](https://edge.mondly.com/blog/wp-content/uploads/2020/02/latin-language-600x450.jpg "This Is The Easiest Way To Learn Latin Online 3")
 
+<!-- affiliate ads begin -->
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  “Hercules furens” by Seneca.
 
 _Ergo_ , history makes Latin the backbone of many present-day languages and studying it could help you gain valuable insight into the infrastructure of many other languages.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Latin grammar and the Latin alphabet
 
  The Latin alphabet that many languages use today evolved from the visually similar Etruscan alphabet, which – in turn – evolved from the Cumaean Greek version of the Greek alphabet, which was itself descended from the Phoenician alphabet that derived from Egyptian hieroglyphics. As a result of Etruscans ruling early Rome, over time, their alphabet developed into the Latin alphabet that many centuries later became the writing system we all know today.
@@ -48,9 +78,6 @@ A fascinating origin story, isn’t it?
 
  With three distinct genders, up to seven noun cases, five declensions, four verb conjugations, six tenses, three persons, three moods, two voices, two or three aspects and two numbers, Latin grammar may seem complicated. But once you start your Latin classes with Mondly and learn to read Latin, you’ll be surprised how fast you can actually master this language due to the knowledge you already possess.
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Common Latin phrases and expressions we still use today
 
  **Far from being a dead language, Latin is very much alive in our day-to-day conversations.** _Carpe diem_ ,_et cetera_ ,_et alii_ ,_habemus papam_ ,_in vitro_ ,_magna cum laude_ ,_curriculum vitae_ and_mea culpa_ are just a few of the [Latin phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) we still use today.
@@ -78,7 +105,10 @@ A fascinating origin story, isn’t it?
 * _amor vincit omnia_ – love conquers all (is also the name of a painting by the Italian Baroque artist Caravaggio)
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Reasons to learn Latin
 
@@ -98,7 +128,10 @@ A fascinating origin story, isn’t it?
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<a href="https://appsumo.8odi.net/c/5597632/2030381/7443" target="_top" id="2030381">
+  <img src="//a.impactradius-go.com/display-ad/7443-2030381" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030381/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Start learning Latin today
 

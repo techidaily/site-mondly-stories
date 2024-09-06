@@ -1,7 +1,7 @@
 ---
 title: Uniting Colombia Through Danny's Assistance Network
-date: 2024-09-01T00:38:40.248Z
-updated: 2024-09-02T00:38:40.248Z
+date: 2024-09-05T04:37:54.769Z
+updated: 2024-09-06T04:37:54.769Z
 tags:
   - speak
   - english
@@ -14,6 +14,12 @@ keywords: Colombia Reconciliation Efforts,Danny's Assistance Network Impact,Peac
 thumbnail: https://thmb.techidaily.com/bdc516c407f1c047ce69fce10934901af5b77e56306af6bf8cabd1b35043cc3e.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Uniting Colombia Through Danny's Assistance Network
 
  We, at Mondly, strongly believe that education can change the world for the better. This is why we pledged ourselves to give those who need it most the opportunity to learn languages with Mondly Premium for free.
@@ -22,6 +28,12 @@ thumbnail: https://thmb.techidaily.com/bdc516c407f1c047ce69fce10934901af5b77e563
 
 ![fundacion danny mondly](https://edge.mondly.com/blog/wp-content/uploads/2020/03/fundacion-danny-mondly-600x450.jpg "Helping Those Who Need It Most: Fundación Danny From Colombia 2")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Colombian children attending the Danny Foundation courses.
 
  Fundación Danny or Danny Foundation has been active since 2011 and its goal is to help children and young people from different places in Colombia to develop skills that can ensure a better future for them and their families. The foundation provides multiple courses from language learning to programming and even playing an instrument.
@@ -30,12 +42,30 @@ thumbnail: https://thmb.techidaily.com/bdc516c407f1c047ce69fce10934901af5b77e563
 
  **DANNY stands for Developing Aptitudes for a New Nation and Youth.**
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Unlocking the power of social good
 
  When Andrés Rodríguez, the director of Danny Foundation, first came for our help, we knew right away we had to do it. For the children and adolescents that attend the foundations’ courses, language learning is not just a hobby, but the key to success. This is why we wanted to give them the opportunity to experience the transformational power of learning English with Mondly.
 
 ![danny foundation mondly](https://edge.mondly.com/blog/wp-content/uploads/2020/03/danny-foundation-mondly-468x600.jpg "Helping Those Who Need It Most: Fundación Danny From Colombia 3")
 
+<!-- affiliate ads begin -->
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Graduation at the Danny Foundation.
 
 > _Learning English in Colombia is not an easy task. Schools do teach English but just once or twice per week and sometimes the teachers themselves are not as competent as they should be. So Mondly is a great opportunity for our students to practice English every day._
@@ -51,6 +81,12 @@ thumbnail: https://thmb.techidaily.com/bdc516c407f1c047ce69fce10934901af5b77e563
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Learn a new language in just 10 minutes a day
 
  If the story of the Colombian children from the Danny Foundation inspired you to invest in yourself, you can start learning a new language right now with Mondly.
@@ -114,7 +150,3 @@ thumbnail: https://thmb.techidaily.com/bdc516c407f1c047ce69fce10934901af5b77e563
 <li><a href="https://mondly-stories.techidaily.com/why-it-matters-distinguishing-por-que-from-por-que/"><u>Why It Matters: Distinguishing Por Que From Por Qué</u></a></li>
 <li><a href="https://mondly-stories.techidaily.com/molofia-eygnwmwn-glwttoprwteyoyntes/"><u>Μολόφια Ευγνώμων Γλωττοπρωτεύουντες</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->

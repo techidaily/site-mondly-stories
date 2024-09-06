@@ -1,7 +1,7 @@
 ---
 title: "Bonnes Entrées en Français: Merci Pour L’Arrivée"
-date: 2024-07-12T08:41:29.082Z
-updated: 2024-07-13T08:41:29.082Z
+date: 2024-09-05T04:34:06.894Z
+updated: 2024-09-06T04:34:06.894Z
 tags:
   - speak
   - english
@@ -24,6 +24,18 @@ thumbnail: https://thmb.techidaily.com/6169c8a9aeeb67674aa07a2a9dad06d0ae5fef5e1
 
  In this quick French lesson, we’ll take you through the four most popular examples – the only ones you actually need in real life. As a result, you’ll be familiar with what they mean, when to use them and what the key differences between them actually are.
 
+<!-- affiliate ads begin -->
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 1\. The most common “you’re welcome”:_de rien_
 
  We’ll start with the most common way to say you’re welcome in French: ‘_de rien’._
@@ -46,8 +58,20 @@ thumbnail: https://thmb.techidaily.com/6169c8a9aeeb67674aa07a2a9dad06d0ae5fef5e1
 
 ![de rien](https://edge.mondly.com/blog/wp-content/uploads/2021/05/de-rien-960x540.jpg "4 Popular Ways To Say You’re Welcome In French 2")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  “Strasbourg, France” by Patrick Robert Doyle©
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 2\. The informal “you’re welcome”:_je t’en prie_
 
  Like_‘de rien’_ , which is certainly the most casual way to say you’re welcome in French, ‘_je t’en prie’_ is another informal way to respond to someone who expressed their gratitude towards you.
@@ -70,6 +94,12 @@ thumbnail: https://thmb.techidaily.com/6169c8a9aeeb67674aa07a2a9dad06d0ae5fef5e1
 
  This should make_‘je vous en prie’_ nice and easy to remember. Just be careful not to use it with close friends. Using_‘vous’_ will sound unnatural if you are in close company. Likewise, always use this version of you’re welcome in French if you are speaking with somebody you do not know, no matter their level of seniority.
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
+  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### The literal translation of_‘je vous en prie’_
 
  Again, the literal translation of ‘je vous en prie’ is ‘I pray you it’. The important thing to remember here is not the literal translation, but when exactly you should use_‘vous’_ instead of_‘tu’_ .
@@ -88,10 +118,22 @@ thumbnail: https://thmb.techidaily.com/6169c8a9aeeb67674aa07a2a9dad06d0ae5fef5e1
 
  “Southern France, Toulouse” by DAT VO©
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 4\. The easiest to remember:_pas de problème_
 
  When you’re in the early stages of [learning French](https://travel-lingual.com/how-long-take-to-learn-french/) , sometimes the most sensible thing to do is use what you can remember. The word_‘problème’_ in this particular French expression resembles the English word ‘problem’ and should not be too difficult for you to learn. Be cautious of the [French grave accent](https://travel-lingual.com/french-accent-marks/) on the_‘e’_ as this alters the pronunciation of the word.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### The literal translation of_‘pas de problème’_
 
  We’re cheating a little here. Whilst this version is not a direct translation of “you’re welcome” in French, it is still very common in France when responding to somebody who has expressed gratitude. The literal translation (as you may have guessed) is “no problem”.
@@ -106,6 +148,12 @@ Example:
 
  A:_Pas de problème. Merci._ (“No problem. Thanks.”)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Bonus: Less common ways to say “you’re welcome” in French
 
  If you want to mix things up a bit, another informal and very casual way of saying you’re welcome in French is_‘il n’y a pas de quoi’_ . This literally means “there is no what”, but an adapted translation would be “there is no reason (to thank me)”. Being a casual expression, it can be used safely in the same contexts as_‘de rien’_ .
@@ -163,3 +211,50 @@ _Th_ _is post is delivered to you by James A. Smith._
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-epic-escapades-in-playtime-paradise/"><u>[New] In 2024, Epic Escapades in Playtime Paradise</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-blurring-out-the-unwanted-in-your-photos/"><u>[Updated] Blurring Out the Unwanted in Your Photos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-elevate-your-contents-visibility-with-these-gadgets-for-2024/"><u>[Updated] Elevate Your Content's Visibility with These Gadgets for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-top-rated-complimentary-premiere-pro-blueprints/"><u>2024 Approved  Top-Rated, Complimentary Premiere Pro Blueprints</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-techniques-to-transfer-data-from-vivo-y02t-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Techniques to Transfer Data from Vivo Y02T to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/capture-clarity-high-end-gyroscopic-tripod-gear-for-2024/"><u>Capture Clarity  High-End Gyroscopic Tripod Gear for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/frosty-flourishes-at-the-winter-games-for-2024/"><u>Frosty Flourishes at the Winter Games for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/fundamentals-of-managing-volume-increase-in-projects-for-2024/"><u>Fundamentals of Managing Volume Increase in Projects for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/gigglegraphs-designing-delightful-memes-for-2024/"><u>GiggleGraphs  Designing Delightful Memes for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-screen-the-ultimate-movie-list-for-speakers/"><u>Global Screen: The Ultimate Movie List For Speakers</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-phone-number-from-your-apple-id-on-your-apple-iphone-6s-by-drfone-ios/"><u>How To Remove Phone Number From Your Apple ID on Your Apple iPhone 6s?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-say-good-morning-in-10-different-languages/"><u>How To Say Good Morning In 10 Different Languages</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-teach-you-to-transfer-files-from-xiaomi-mix-fold-3-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways To Teach You To Transfer Files from Xiaomi Mix Fold 3 to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-capturing-clarity-powerpoint-and-webcam-synergy/"><u>In 2024, Capturing Clarity  PowerPoint and Webcam Synergy</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-forgot-pattern-lock-heres-how-you-can-unlock-zte-pattern-lock-screen-by-drfone-android/"><u>In 2024, Forgot Pattern Lock? Heres How You Can Unlock ZTE Pattern Lock Screen</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-an-airtag-from-your-apple-id-account-from-iphone-8-plus-by-drfone-ios/"><u>In 2024, How to Remove an AirTag from Your Apple ID Account From iPhone 8 Plus?</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/in-2024-preeminent-platforms-twitter-like-experiences/"><u>In 2024, Preeminent Platforms  Twitter-Like Experiences</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/indonesian-greetings-decoded-for-travelers-and-locals-alike/"><u>Indonesian Greetings Decoded for Travelers and Locals Alike</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/iniciar-tu-primer-viaje-a-la-hora-en-espanol/"><u>Iniciar Tu Primer Viaje a La Hora en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/interactive-language-lessons-with-mondlys-ar-features/"><u>Interactive Language Lessons with Mondly's AR Features</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/is-german-hard-to-study/"><u>Is German Hard to Study?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-liberation-pronouncing-tricky-terminology-with-ease/"><u>Language Liberation: Pronouncing Tricky Terminology with Ease</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-rhythms-an-energetic-learning-approach/"><u>Latin Rhythms: An Energetic Learning Approach</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-languages-commitment-of-2024/"><u>Learn Languages - Commitment of 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lingua-franca-croatia/"><u>Lingua Franca: Croatia</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lingual-distinctions-brazilian-and-eu-portuguese-contrasted/"><u>Lingual Distinctions: Brazilian & EU Portuguese Contrasted</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-latvian-fast-ten-minute-online-lessons-each-day/"><u>Master Latvian Fast: Ten-Minute Online Lessons Each Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-triumphs-engaging-70-million-learners-globally/"><u>Mondly Triumphs – Engaging 70 Million Learners Globally</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-the-updated-tandu-with-ease/"><u>Navigating the Updated T&U with Ease</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/prepare-to-engage-with-the-ultimate-ai-friend/"><u>Prepare to Engage with the Ultimate AI Friend</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-new-heights-boosting-youtube-viewership/"><u>Reach New Heights  Boosting YouTube Viewership</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spandex-a-global-community-connected/"><u>Spandex: A Global Community Connected</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sparking-interest-fun-in-learning-latin/"><u>Sparking Interest: Fun in Learning Latin</u></a></li>
+<li><a href="https://win11.techidaily.com/switching-windows-default-pdf-viewer/"><u>Switching Windows' Default PDF Viewer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-top-francophone-countries-and-their-linguistic-statistics/"><u>The Top Francophone Countries and Their Linguistic Statistics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-weekday-wheel-of-life-in-korea/"><u>The Weekday Wheel of Life in Korea</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-9-linguistic-quandaries-and-strategies-for-success/"><u>Top 9 Linguistic Quandaries & Strategies for Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transcultural-exchange-in-eng-language/"><u>Transcultural Exchange in ENG Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-the-art-of-russian-greeting-essentials-and-beyond/"><u>Unlocking the Art of Russian Greeting: Essentials and Beyond</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/verbal-legacy-modern-speech-from-shakespeares-quill/"><u>Verbal Legacy: Modern Speech From Shakespeare’s Quill</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/virtual-reality-the-future-of-multilingual-education-with-mondlys-new-app/"><u>Virtual Reality: The Future of Multilingual Education with Mondly's New App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/voice-command-enhancements-for-oculus-quest-with-mondly/"><u>Voice Command Enhancements for Oculus Quest with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/voicing-love-languages-in-the-hungarian-context/"><u>Voicing Love Languages in the Hungarian Context</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Teaching World Unity Through Diversity of Speeches
-date: 2024-09-01T00:34:28.717Z
-updated: 2024-09-02T00:34:28.717Z
+date: 2024-09-05T04:37:58.772Z
+updated: 2024-09-06T04:37:58.772Z
 tags:
   - speak
   - english
@@ -14,18 +14,42 @@ keywords: World Unity,Diversity of Speeches,Global Unity,Unity Initiatives Speec
 thumbnail: https://thmb.techidaily.com/f96105d1405f7c845f75622429456df69e9791ebea6985dfc0c6d939ebdaa395.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Teaching World Unity Through Diversity of Speeches
 
  Every year, on October 5, we are honoring teachers and their role in providing quality education for students everywhere. Also known as International Teachers Day, World Teachers’ Day was established in 1994 and it observes the anniversary of the adoption of the 1966 ILO/UNESCO Recommendation concerning the Status of Teachers. This [Recommendation](https://unesdoc.unesco.org/ark:/48223/pf0000160495) set the standard regarding the rights and the responsibilities of the teachers concerning their education, employment, recruitment, and teaching conditions.
 
 ![teachers day](https://edge.mondly.com/blog/wp-content/uploads/2019/10/teachers-day-1024x682.jpg "World Teachers’ Day | How To Say “Teacher” In Different Languages 2")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  “The teacher” by neonbrand©
 
 [Teachers are the best people](https://www.myenglishteacher.eu/) in the world. They always go above and beyond to support their students. They change lives. And one day is not enough to thank them for all their dedication to education.
 
  Our [World in Data](https://ourworldindata.org/teachers-and-professors) shows that, in 2014, there were almost 90 million teachers in the world. On Teachers’ Day, thank at least one of them and let’s make this world a better place.
 
+<!-- affiliate ads begin -->
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Empowering teachers through technology
 
  **We, at Mondly, strongly believe that education is the foundation of our society.** That is why we work tirelessly to make the joy of learning languages possible in every corner of the world.
@@ -34,12 +58,24 @@ thumbnail: https://thmb.techidaily.com/f96105d1405f7c845f75622429456df69e9791ebe
 
 ![mondlyWORKS](https://edge.mondly.com/blog/wp-content/uploads/2019/10/mondly-works-for-teachers-1024x521.png "World Teachers’ Day | How To Say “Teacher” In Different Languages 3")
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
+  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  MondlyWORKS
 
  But MondlyWORKS is not just for language teachers that want to change the way they teach their students. MondlyWORKS is also for schools that want to help their foreign teachers learn the language of the country they are in. So if you want to show the foreign teachers from your school how much you appreciate them,[get MondlyWORKS‌](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and help them accommodate.
 
  Teachers change the world one student at a time. Let’s make sure they have the best tools to do their job right. Here are [5 amazing tools you can give teachers](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) to celebrate World Teacher’s Day.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2024338/7443" target="_top" id="2024338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2024338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024338/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to say “teacher” in different languages
 
  World Teachers’ Day is a global celebration. Let’s treat it accordingly and discover the beauty of the word “teacher” in more than 30 languages. From teacher in Spanish_(_ _profesor)_ to teacher in German_(_ _Lehrer)_ or French_(professeur)_ .
@@ -94,7 +130,10 @@ thumbnail: https://thmb.techidaily.com/f96105d1405f7c845f75622429456df69e9791ebe
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Learn a new language in just 10 minutes a day
 

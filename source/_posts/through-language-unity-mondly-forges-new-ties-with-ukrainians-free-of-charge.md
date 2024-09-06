@@ -1,7 +1,7 @@
 ---
 title: Through Language, Unity – Mondly Forges New Ties with Ukrainians Free of Charge
-date: 2024-09-01T00:38:33.789Z
-updated: 2024-09-02T00:38:33.789Z
+date: 2024-09-05T04:37:54.873Z
+updated: 2024-09-06T04:37:54.873Z
 tags:
   - speak
   - english
@@ -14,8 +14,20 @@ keywords: Mondly Connects Ukraine,Language Learning for Unity,Free Language Exch
 thumbnail: https://thmb.techidaily.com/9b3d4059cce82d617824aff75bbe2c1cfb1dda056b7a7373daee332b511aa58b.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
+  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Through Language, Unity – Mondly Forges New Ties with Ukrainians Free of Charge
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Language Courses for Ukrainian Refugees Program Updates – Mondly
 
  _Over half a million Ukrainian refugees learned languages with Mondly between March 2022 and May 2024\. During this period, they collectively completed over 14.5 million language lessons, helping them connect with their host communities and navigate their new environments more confidently._
@@ -49,6 +61,12 @@ _BRASOV, Romania, March 21, 2022_ **_–_ Mondly, one of the world’s leading l
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **About Mondly**
 
 Being named “ App of the Year” by Facebook, “ Best New App” by Apple, and “  Editors’ Choice” by Google Play, Mondly is a leading language learning platform with 100 million learners worldwide. Launched in 2014, it quickly became a leading app in the mobile space, reaching the #1 position in Education in most European countries, LATAM and Asia. According to Statista, Mondly is currently in the Top 5 language learning apps worldwide by number of downloads.
@@ -116,7 +134,3 @@ Being named “ App of the Year” by Facebook, “ Best New App” by Apple, an
 <li><a href="https://mondly-stories.techidaily.com/why-learn-croatian-discover-these-7-reasons-to-start-your-journey-today/"><u>Why Learn Croatian? - Discover These 7 Reasons to Start Your Journey Today</u></a></li>
 <li><a href="https://mondly-stories.techidaily.com/worldwide-accolades-for-vocational-wordsmiths/"><u>Worldwide Accolades for Vocational Wordsmiths</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

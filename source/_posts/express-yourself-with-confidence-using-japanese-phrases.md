@@ -1,7 +1,7 @@
 ---
 title: Express Yourself with Confidence Using Japanese Phrases
-date: 2024-07-12T08:40:37.782Z
-updated: 2024-07-13T08:40:37.782Z
+date: 2024-09-05T04:35:19.325Z
+updated: 2024-09-06T04:35:19.325Z
 tags:
   - speak
   - english
@@ -35,6 +35,18 @@ thumbnail: https://thmb.techidaily.com/13a1f9ec7eefb2f2d2c19f961783b576aae349686
 
 ![honnichiwa](https://edge.mondly.com/blog/wp-content/uploads/2019/08/honnichiwa-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 2")
 
+<!-- affiliate ads begin -->
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  “Kyoto, Japan” by Sorasak©
 
  If you have to write**“hello” in Japanese,** there are two ways to do it (three if you also count in Romaji – the romanization of the [Japanese writing](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) system):
@@ -45,6 +57,12 @@ thumbnail: https://thmb.techidaily.com/13a1f9ec7eefb2f2d2c19f961783b576aae349686
 
  Curious about why there are multiple types of characters in Japanese? Here’s everything there is to know about the [Japanese writing system](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **How to say “hello” on the phone in Japanese: moshi moshi (もしもし)**
 
  Unlike English, which uses the same “hello” for a lot of different social contexts, the Japanese language has a dedicated “hello” for answering the phone:**moshi moshi (もしもし).** Doesn’t that sound cute?
@@ -65,6 +83,12 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![hi in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-japanese-960x639.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 3")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2024351/7443" target="_top" id="2024351">
+  <img src="//a.impactradius-go.com/display-ad/7443-2024351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024351/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  “Meguro River, Matsuno, Japan” by Sora Sagano©
 
 ## 3.“Goodbye” in Japanese
@@ -110,8 +134,26 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![arigato](https://edge.mondly.com/blog/wp-content/uploads/2019/08/arigato-1024x706.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 5")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  “Kyoto, Japan” by Andre Benz©
 
+<!-- affiliate ads begin -->
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Don’t forget about the Japanese bow
 
  Every**“hello” in Japanese** is usually accompanied by a bow, the Western world equivalent of a handshake. Our advice would be to not skip the bow if you really want to feel like you belong.
@@ -128,6 +170,12 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
  – 45-degree bows are used for greetings only if you meet a very important person like the Emperor or the Prime Minister.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Bonus: basic conversation in Japanese
 
  If you don’t want to stop at just**“thank you” or “hello” in Japanese,** here are a few more**Japanese phrases** that are fairly easy to remember and will definitely make all the difference for your trip to Japan:
@@ -184,3 +232,51 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-the-tapestry-translator-looms-screen-recording-guide/"><u>[New] 2024 Approved  The Tapestry Translator  Loom’s Screen Recording Guide</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-a-comprehensive-list-of-frames-to-upgrade-your-photos-on-instagram/"><u>[New] In 2024, A Comprehensive List of Frames to Upgrade Your Photos on Instagram</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-the-complete-guide-to-zooms-top-free-and-paid-transcribers-for-virtual-meetings-for-2024/"><u>[New] The Complete Guide to Zoom's Top Free & Paid Transcribers for Virtual Meetings for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-elevate-your-videos-with-these-proven-seo-tools-for-more-clicks/"><u>[Updated] 2024 Approved  Elevate Your Videos with These Proven SEO Tools for More Clicks</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-cinema-kings-and-queens-iphones-leading-8-freepluspaid-watching-options/"><u>[Updated] Cinema Kings & Queens  IPhone's Leading 8 FREE+Paid Watching Options</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-tactics-for-effective-whatsapp-broadcast-with-facebook-videos-for-2024/"><u>[Updated] Tactics for Effective WhatsApp Broadcast with Facebook Videos for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/elevating-digital-sketching-with-microsoft-paint-updates/"><u>Elevating Digital Sketching with Microsoft Paint Updates</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/get-your-hands-on-the-best-quality-2013-world-cup-games-for-pc-no-cost/"><u>Get Your Hands on the Best Quality 2013 World Cup Games for PC - No Cost!</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-reset-gmail-password-on-oppo-find-n3-devices-by-drfone-android/"><u>How to Reset Gmail Password on Oppo Find N3 Devices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-swiftly-learn-a-new-language-via-the-internet/"><u>How to Swiftly Learn a New Language via the Internet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/immersive-learning-conquer-new-languages-in-vr-worlds/"><u>Immersive Learning: Conquer New Languages in VR Worlds</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/innovative-management-solutions-for-multilingualism/"><u>Innovative Management Solutions for Multilingualism</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/italian-journey-speak-mastering-local-dialects/"><u>Italian Journey Speak: Mastering Local Dialects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-language-gems-the-most-prestigious-50-phrases/"><u>Latin Language Gems: The Most Prestigious 50 Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-urdu-online-a-breeze/"><u>Learn Urdu Online – A Breeze!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leveraging-mondly-for-enhanced-linguistic-skills-top-10-ways/"><u>Leveraging Mondly for Enhanced Linguistic Skills - Top 10 Ways</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-bulgarian-daily-quick-10-minute-routine/"><u>Mastering Bulgarian Daily: Quick 10-Minute Routine</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/mastering-tiktok-essential-factors-for-mac-users-for-2024/"><u>Mastering TikTok  Essential Factors for Mac Users for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mind-expansion-elders-and-emerging-languages/"><u>Mind Expansion: Elders and Emerging Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-new-immersion-language-learning-experience-with-vr-technology/"><u>Mondly's New Immersion Language-Learning Experience with VR Technology</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-minds-cognitive-upsides/"><u>Multilingual Minds: Cognitive Upsides</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-learners-guide-to-french-literature-20-favorite-books/"><u>New Learners' Guide to French Literature: 20 Favorite Books</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-tandc-for-better-privacy-control/"><u>New T&C for Better Privacy Control</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/passionate-prose-crafting-compelling-spanish-compliments/"><u>Passionate Prose: Crafting Compelling Spanish Compliments</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/pilot-comparison-basic-vs-advanced-is-an-upgrade-worth-it/"><u>Pilot Comparison: Basic Vs. Advanced - Is an Upgrade Worth It?</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/play-store-not-working-on-tecno-camon-20-8-solutions-inside-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Not Working On Tecno Camon 20? 8 Solutions Inside | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polyglotism-a-trek-towards-enhanced-brainpower/"><u>Polyglotism: A Trek Towards Enhanced Brainpower</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/prosperous-relationships-start-with-japanese-greetings/"><u>Prosperous Relationships Start With Japanese Greetings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rapid-latvian-learning-one-minute-a-day-a-year-gained/"><u>Rapid Latvian Learning: One Minute a Day, a Year Gained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revolutionizing-schooling-mondlys-tech-for-education/"><u>Revolutionizing Schooling: Mondly’s Tech for Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/start-speaking-tagalog-short-lessons-every-day/"><u>Start Speaking Tagalog: Short Lessons Every Day</u></a></li>
+<li><a href="https://win11.techidaily.com/step-by-step-guide-to-create-extract-and-manage-files-via-cli/"><u>Step-by-Step Guide to Create, Extract and Manage Files via CLI</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-online-lithuanian-education/"><u>The Ultimate Guide to Online Lithuanian Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-word-lengthiest-language-entity/"><u>The Ultimate Word: Lengthiest Language Entity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/thriving-socially-and-cognitively-embracing-new-languages-post-fifty/"><u>Thriving Socially and Cognitively: Embracing New Languages Post-Fifty</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-100-most-misspelled-words-in-english/"><u>Top 100 Most Misspelled Words in English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/trennungsformeln-fur-die-deutsche-sprache/"><u>Trennungsformeln Für Die Deutsche Sprache</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubled-by-bluestacks-crashes-fix-them-all-within-5-minutes/"><u>Troubled by BlueStacks Crashes? Fix Them All Within 5 Minutes!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-english-grammars-secrets-insights-from-a-seasoned-esl-artist/"><u>Unlocking English Grammar's Secrets: Insights From a Seasoned ESL Artist</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-the-secret-to-fluent-french-speech/"><u>Unlocking the Secret to Fluent French Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vr-language-labyrinths-navigating-new-worlds-of-speech/"><u>VR Language Labyrinths: Navigating New Worlds of Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/yearly-goals-the-path-to-fruition/"><u>Yearly Goals: The Path to Fruition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/young-scholars-spanish-adventure-from-playtime-to-classroom/"><u>Young Scholars' Spanish Adventure: From Playtime To Classroom</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/your-gateway-to-fluency-embrace-mondlys-magic/"><u>Your Gateway to Fluency: Embrace Mondly's Magic</u></a></li>
+</ul></div>

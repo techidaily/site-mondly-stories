@@ -1,7 +1,7 @@
 ---
 title: "Comprender Y Leer La Hora: El Primer Paso en Español"
-date: 2024-07-12T08:40:27.671Z
-updated: 2024-07-13T08:40:27.671Z
+date: 2024-09-05T04:35:07.261Z
+updated: 2024-09-06T04:35:07.261Z
 tags:
   - speak
   - english
@@ -14,6 +14,12 @@ keywords: Comprender La Hora en Español (Understanding Time in Spanish),Paso In
 thumbnail: https://thmb.techidaily.com/b5066dad0b601fca3256158753d40238cd5a1c7754394d186d31755e512b1e70.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Comprender Y Leer La Hora: El Primer Paso en Español
 
 _¿Que hora es?_ demands an answer! And no, we’re not talking about the Mexican soap opera for people who only had 3 weeks of Spanish in the 4th grade_(wink wink)_ . In all seriousness, how do you reply to the question that has been on everybody’s lips at one point? How do you tell the time in Spanish? Well, it’s time_(wink wink)_ to find out.
@@ -26,12 +32,30 @@ But first things first.
 
 ![Spanish time](https://media.giphy.com/media/cAEm5rSuuBEGY/giphy.gif "How To Tell Time In Spanish - A Complete Guide For Beginners 2")
 
+<!-- affiliate ads begin -->
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ¿Que hora es? – how to ask for the time in Spanish
 
  In order to tell the time in Spanish, you’ll first have to learn how to properly ask for the time in Spanish. You can never be too cautious. I’m just making sure you’re not missing that_fiesta española_ you spent weeks thinking about!
 
  In addition to the now well-known_**¿que hora es?**_ which literally translates to “what hour is it?”, you can also ask_**¿tiene hora?**_ which is literally “do you have the hour?”. Easy enough!
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The basics of Spanish time
 
  To_decir la hora_ (“tell the time”) in Spanish, there are a few simple rules you’ll have to know.
@@ -86,6 +110,12 @@ Here are some examples:
 * _Son las ocho y cuarto._ (“it’s a quarter past eight”)
 * _Son las ocho y quince._ (“it’s eight and fifteen minutes”)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Different ways of telling time in Spanish
 
  There are three formulas of telling time in Spanish. Here are different ways of telling it’s 3:10:
@@ -96,6 +126,12 @@ Here are some examples:
 
  Which one do you prefer? Additionally, if we also count it_cuarto_ and_media_ , there are no less than four different ways to tell the time in Spanish. And you’ve just mastered them all!
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to indicate the time of day in Spanish
 
  If you are using the 12-hour clock, you sometimes might want to also point out the time of day. For instance, “it’s two in the afternoon” translates to_**son las dos de la tarde**_ in Spanish. Not too complicated, is it? Here are some more times of day that might come in handy:
@@ -145,6 +181,12 @@ Here are some examples:
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Speak Spanish fluently in just 10 minutes a day
 
  Do you want to [speak Spanish fluently](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) fast? Get Mondly, the award-winning language learning app that will help you speak Spanish as if you were Spanish-born.
@@ -173,3 +215,48 @@ Here are some examples:
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-exclusive-hats-review-best-action-cameras-on-two-wheels/"><u>[New] Exclusive Hats Review  Best Action Cameras on Two Wheels</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-gratitude-freepaid-outro-template-selections-for-2024/"><u>[New] Gratitude  Free/Paid Outro Template Selections for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-hidden-layers-of-personal-information-for-2024/"><u>[Updated] Hidden Layers of Personal Information for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-lgs-leap-into-limitless-vision-the-4k-spectacle-of-the-31mu97-b/"><u>[Updated] In 2024, LG's Leap Into Limitless Vision - The 4K Spectacle of the 31MU97-B</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-personalized-ringtone-crafting-from-tiktok-beats-to-cellphone-alerts/"><u>[Updated] In 2024, Personalized Ringtone Crafting  From TikTok Beats to Cellphone Alerts</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-the-complete-users-manual-on-durecorder-for-2024/"><u>[Updated] The Complete User’s Manual on DuRecorder for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-unleashing-potential-from-standard-sdr-to-high-end-hdr/"><u>[Updated] Unleashing Potential  From Standard SDR to High-End HDR</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-expert-asmrists-praised-by-insomniacs/"><u>2024 Approved  Expert ASMRists Praised by Insomniacs</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/debating-the-ethical-use-of-ai-for-security-risks/"><u>Debating the Ethical Use of AI for Security Risks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grecian-lexicon-historical-journey-and-modern-day-importance/"><u>Grecian Lexicon: Historical Journey & Modern Day Importance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/honoring-ten-years-at-mondlys-milestone/"><u>Honoring Ten Years at Mondly's Milestone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-error-495-while-downloadupdating-android-apps-on-lava-yuva-3-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Error 495 While Download/Updating Android Apps On Lava Yuva 3 | Dr.fone</u></a></li>
+<li><a href="https://win-dash.techidaily.com/how-to-quickly-upgrade-and-download-updated-vga-driver-software/"><u>How to Quickly Upgrade and Download Updated VGA Driver Software</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-restore-a-bricked-oppo-f25-pro-5g-back-to-operation-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Restore a Bricked Oppo F25 Pro 5G Back to Operation | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/identifying-the-more-beneficial-european-language-german-vs-french/"><u>Identifying The More Beneficial European Language: German vs French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ignite-cultural-curiosity-with-hindi-experience-7-exciting-mondly-benefits/"><u>Ignite Cultural Curiosity with Hindi - Experience 7 Exciting Mondly Benefits!</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-xiaomi-redmi-note-12-5g-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Xiaomi Redmi Note 12 5G online without jailbreak</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-swedish-letters-and-accents-swiftly/"><u>Learn Swedish Letters & Accents Swiftly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lingualeap-at-dubai-2020-the-next-language-era/"><u>LinguaLeap at Dubai 2020: The Next Language Era</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-lineage-the-genesis-of-the-dutch-language/"><u>Linguistic Lineage: The Genesis of the Dutch Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/major-focus-most-popular-foreign-languages-us/"><u>Major Focus: Most Popular Foreign Languages U.S</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-elite-unbeatable-ever-lasting-pricing/"><u>Mondly Elite: Unbeatable, Ever-Lasting Pricing!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-vision-realized-educating-the-next-70-million-learners/"><u>Mondly's Vision Realized – Educating the Next 70 Million Learners</u></a></li>
+<li><a href="https://article-tips.techidaily.com/optimal-equipment-for-doll-miniaturization-films-for-2024/"><u>Optimal Equipment for Doll Miniaturization Films for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/prime-stabilizing-gimbals-ranked-1-10-for-smartphones-and-dslrs-for-2024/"><u>Prime Stabilizing Gimbals Ranked #1-10 for Smartphones & DSLRs for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-articulation-guide-french-vibrance/"><u>Quick Articulation Guide: French Vibrance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-a-native-in-just-minutes-each-day/"><u>Speak Like a Native in Just Minutes Each Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swiftly-learn-urdu-online-every-day/"><u>Swiftly Learn Urdu Online, Every Day!</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/sync-your-views-iphones-looping-feature-for-2024/"><u>Sync Your Views  IPhone's Looping Feature for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tender-tongues-the-lore-of-love-in-french/"><u>Tender Tongues: The Lore of Love in French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-majority-of-french-users-top-five-francophone-states-analyzed/"><u>The Majority of French Users: Top Five Francophone States Analyzed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-rogues-repertoire-diving-into-sea-slang-lexicon/"><u>The Rogue's Repertoire: Diving Into Sea Slang Lexicon</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transcending-borders-through-africas-languages/"><u>Transcending Borders Through Africa’s Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/trick-or-treating-through-global-lenses/"><u>Trick-or-Treating Through Global Lenses</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-the-logitech-g-pro-x-microphone-expert-tips-to-get-you-back-online/"><u>Troubleshooting the Logitech G Pro X Microphone - Expert Tips to Get You Back Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukrainian-fluency-mastering-phrases-in-minutes-92-chars/"><u>Ukrainian Fluency: Mastering Phrases in Minutes (92 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-better-spelling-the-most-commonly-misspelled-vocabulary/"><u>Unlocking Better Spelling: The Most Commonly Misspelled Vocabulary</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiled-dialogues-the-complete-guide-to-african-linguistics/"><u>Unveiled Dialogues: The Complete Guide to African Linguistics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vocabulary-volleyball-international-words-serving-english/"><u>Vocabulary Volleyball: International Words Serving English</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-when-xiaomi-redmi-note-12-pro-4g-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Xiaomi Redmi Note 12 Pro 4G Has Black Screen of Death? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/kalwn-morfwn-eygnwmwn-gia-ta-eyxes-gkreman/"><u>Καλών Μορφών Ευγνώμων Για Τα Ευχές Γκρεμάν</u></a></li>
+</ul></div>

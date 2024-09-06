@@ -1,7 +1,7 @@
 ---
 title: Top 9 Insights on English Grammar by a Pro ESL Speaker
-date: 2024-07-12T08:42:06.025Z
-updated: 2024-07-13T08:42:06.025Z
+date: 2024-09-05T04:34:50.788Z
+updated: 2024-09-06T04:34:50.788Z
 tags:
   - speak
   - english
@@ -14,6 +14,12 @@ keywords: English Grammar Tips,Pro ESL Speaker Insights,English Language Learnin
 thumbnail: https://thmb.techidaily.com/af9a165cf92f635605999a01d9db00bb83502e778fa19e3b821f0bbc6f19d054.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Top 9 Insights on English Grammar by a Pro ESL Speaker
 
  You always hear about how [English grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) is easy compared to German, Finnish, or Icelandic grammar (there are even memes on the matter). And that’s true. English grammar can be super fun and easy to learn if you want it to be. Think about it: most probably, English wouldn’t be a_lingua franca_ if it were very difficult to learn. However almost 900 million people mastered it as a second language. And you can, too.
@@ -36,6 +42,18 @@ thumbnail: https://thmb.techidaily.com/af9a165cf92f635605999a01d9db00bb83502e778
 
  And the list can and should continue (check the English grammar courses from Oxford for more). But in today’s lesson we’re focussing more on curriculum and tips, so let’s move on to your next step.
 
+<!-- affiliate ads begin -->
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 2\. Continue with verbs and verb tenses
 
  Verbs and verb tenses are important because they can make your whole language sound off if you don’t use the correct form. And what better way to understand verb tenses than examples?
@@ -95,14 +113,32 @@ thumbnail: https://thmb.techidaily.com/af9a165cf92f635605999a01d9db00bb83502e778
 
 ![english grammar lessons](https://edge.mondly.com/blog/wp-content/uploads/2020/04/english-grammar-lessons-600x555.jpg "9 English Grammar Tips From An Esl Speaker 2")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  “Find your favorite book” by 🇸🇮 Janko Ferlič©
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 7\. Don’t overthink it
 
  Go with the flow and let the inductive method work. Trust your instinct. In time, once you get used to the language, you’ll be able to speak English as easily as you speak your native language.
 
  Don’t calculate your next ten moves. Instead, think directly in English and just speak. If you overthink a phrase now, you’ll overthink it forever.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 8\. Read your favorite books in English
 
  What better way is there to get used to English grammar in context than reading your favorite books in English? I, for one, started with Harry Potter because it is easy to read and it does not use complex vocabulary.
@@ -111,6 +147,12 @@ thumbnail: https://thmb.techidaily.com/af9a165cf92f635605999a01d9db00bb83502e778
 
  Seeing the English grammar in context will help you assimilate the information faster and learn to use it successfully yourself.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 9\. Make English grammar your friend
 
  After reading, it’s time to practice what you’ve learned with a nice English writing session. Write about your passions, your hobbies, or just about anything you want. The idea is to practice expressing yourself in English in regard to the things you are more likely to talk about in a future conversation with an English speaker.
@@ -148,3 +190,52 @@ thumbnail: https://thmb.techidaily.com/af9a165cf92f635605999a01d9db00bb83502e778
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-the-roadmap-to-your-own-instagram-corporate-identity-for-2024/"><u>[New] The Roadmap to Your Own Instagram Corporate Identity for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-psp-emulator-ios-top-5-picks/"><u>[Updated] 2024 Approved  PSP Emulator iOS  Top 5 Picks</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-snagit-screen-recording-a-guide/"><u>[Updated] In 2024, Snagit Screen Recording  A Guide</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-unwinding-utopia-premier-idle-games-for-2024/"><u>[Updated] Unwinding Utopia  Premier Idle Games for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/3-ways-of-how-to-get-someones-apple-id-off-iphone-xs-without-password-by-drfone-ios/"><u>3 Ways of How to Get Someones Apple ID Off iPhone XS without Password</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-data-from-iphone-13-pro-to-other-iphone-13-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 13 Pro To Other iPhone 13 devices? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/huawei-enhances-networking-with-mondly/"><u>Huawei Enhances Networking - With Mondly</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-change-your-apple-id-on-iphone-15-pro-with-or-without-password-by-drfone-ios/"><u>In 2024, How To Change Your Apple ID on iPhone 15 Pro With or Without Password</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-vivo-y36i-to-mac-drfone-by-drfone-android/"><u>In 2024, How to Mirror Vivo Y36i to Mac? | Dr.fone</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-ultimate-playbook-cutting-edge-methods-for-remarkable-mobizen-recordings/"><u>In 2024, Ultimate Playbook  Cutting-Edge Methods for Remarkable Mobizen Recordings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/indonesian-salutations-simplified-a-beginners-companion/"><u>Indonesian Salutations Simplified: A Beginner's Companion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/innovative-language-apps-the-definitive-educators-guide/"><u>Innovative Language Apps: The Definitive Educator's Guide</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/integrating-past-videos-into-current-live-feeds-on-fb-for-2024/"><u>Integrating Past Videos Into Current Live Feeds on FB for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/japanese-phrases-to-make-a-good-first-impression/"><u>Japanese Phrases to Make a Good First Impression</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jornada-completa-al-cuerpo-de-la-boca-a-los-rinones-en-espanol/"><u>Jornada Completa Al Cuerpo: De La Boca A Los Riñones En Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-labyrinth-navigate-to-fluency-via-vr/"><u>Language Labyrinth: Navigate to Fluency via VR</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-landscapes-evolved-mondlylanguages-bold-journey/"><u>Language Landscapes Evolved: MondlyLanguages' Bold Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-lessons-in-long-term-relationships/"><u>Language Lessons in Long-Term Relationships</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-small-talk-and-big-talks-in-english/"><u>Mastering Small Talk and Big Talks in English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-the-turkish-script-your-fast-track-guide-to-reading-and-speaking/"><u>Mastering the Turkish Script: Your Fast-Track Guide to Reading and Speaking</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-emerging-plan-the-battle-to-unsettle-european-tech-titans/"><u>Meta's Emerging Plan: The Battle to Unsettle European Tech Titans</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-and-pearsons-buttonfiltrate-innovation-merge/"><u>Mondly & Pearson's ButtonFiltrate Innovation Merge</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-brings-the-future-of-language-learning-at-expo-2020-dubai/"><u>Mondly Brings the Future of Language Learning at Expo 2020 Dubai</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-kids-a-google-play-2017-best-app-honoree/"><u>Mondly Kids - A Google Play 2017 Best App Honoree</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-the-premier-choice-for-language-enthusiasts-2022-edition/"><u>Mondly: The Premier Choice for Language Enthusiasts, 2022 Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-mastery-6-core-advantages-listed/"><u>Multilingual Mastery: 6 Core Advantages Listed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pearsons-digital-eslefl-experience/"><u>Pearson's Digital ESL/EFL Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pronunciation-pairings-brazilian-vs-european-portuguese/"><u>Pronunciation Pairings: Brazilian Vs. European Portuguese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revamped-learning-pearsons-gsl-with-mondly-precision/"><u>Revamped Learning: Pearson's GSL with Mondly Precision</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/se-engineering-a-youtube-ban/"><u>Reverse Engineering a YouTube Ban</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/say-it-like-a-brit-express-yourself-correctly/"><u>Say It Like a Brit: Express Yourself Correctly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/simultaneous-syntax-study/"><u>Simultaneous Syntax Study</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-numbers-how-to-count-numbers-in-spanish/"><u>Spanish Numbers: How to Count Numbers in Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-smoothly-learn-swiftly-easy-language-guidebook/"><u>Speak Smoothly, Learn Swiftly: Easy Language Guidebook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speech-spectrum-contrasting-irish-scottish-and-australian-accents/"><u>Speech Spectrum: Contrasting Irish, Scottish & Australian Accents</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/start-with-these-top-20-francophone-novels-today/"><u>Start With These Top 20 Francophone Novels Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/stay-synced-stay-secure-with-huaweiplusmondly-services/"><u>Stay Synced, Stay Secure with Huawei+Mondly Services</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/stepwise-arabic-the-laymans-roadmap/"><u>Stepwise Arabic: The Layman's Roadmap</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-rhythmic-route-to-fluency-science-tips-and-language-songs/"><u>The Rhythmic Route to Fluency: Science, Tips & Language Songs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-101-croatian-phrases-your-travel-guides-essential-toolkit/"><u>Top 101 Croatian Phrases: Your Travel Guide's Essential Toolkit</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/trendy-5-tech-based-aids-for-language-schools/"><u>Trendy 5 Tech-Based Aids for Language Schools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tv-and-films-as-language-tools-effective-techniques/"><u>TV and Films as Language Tools: Effective Techniques</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-photos-from-tecno-spark-20c-by-fonelab-android-recover-photos/"><u>Undelete lost photos from Tecno Spark 20C.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/what-voices-resound-in-belgian-halls/"><u>What Voices Resound in Belgian Halls?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-who-are-the-major-francophones-analysis/"><u>Worldwide, Who Are The Major Francophones? Analysis</u></a></li>
+</ul></div>

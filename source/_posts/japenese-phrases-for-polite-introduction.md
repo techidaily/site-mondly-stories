@@ -1,7 +1,7 @@
 ---
 title: Japenese Phrases for Polite Introduction
-date: 2024-07-12T08:40:43.087Z
-updated: 2024-07-13T08:40:43.087Z
+date: 2024-09-05T04:35:25.559Z
+updated: 2024-09-06T04:35:25.559Z
 tags:
   - speak
   - english
@@ -14,6 +14,12 @@ keywords: Japanese Etiquette in Greetings,Essential Japanese Salutations,Cultura
 thumbnail: https://thmb.techidaily.com/aa15e346f7d15551b7e87cd1f2e88212dee28fcefc70e1397a53b37f683a84de.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Japenese Phrases for Polite Introduction
 
  Japanese culture is the culture of respect. You don’t have to visit Japan to know that. We all heard about the famously polite**Japanese bow** and about the big emphasis Japanese people place on the respect of hierarchy in the family and etiquette in general. It’s in their DNA. And the same as its culture, the**Japanese language** is one of the most polite languages in the world. It’s true that, as a tourist, you don’t have to [learn Japanese](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) to perfection, but you know what they say: when in Rome, do as the Romans do and you will certainly increase the enjoyment of your adventure.
@@ -45,10 +51,28 @@ thumbnail: https://thmb.techidaily.com/aa15e346f7d15551b7e87cd1f2e88212dee28fcef
 
  Curious about why there are multiple types of characters in Japanese? Here’s everything there is to know about the [Japanese writing system](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
+<!-- affiliate ads begin -->
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **How to say “hello” on the phone in Japanese: moshi moshi (もしもし)**
 
  Unlike English, which uses the same “hello” for a lot of different social contexts, the Japanese language has a dedicated “hello” for answering the phone:**moshi moshi (もしもし).** Doesn’t that sound cute?
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 2\. Good morning in Japanese and other relevant greetings
 
 **Good morning in Japanese**   **– O_hayō gozaimasu_**  (おはよう ございます) is the best choice for greeting someone in the early morning hours (before 10:00 a.m.). Unlike_Konnichiwa_ ,   **O_hayō gozaimasu_**  a little more formal, so it’s safe to use it with people you don’t know or when you are meeting people in a position of authority (such as your boss or your teacher).
@@ -84,6 +108,12 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![goodbye in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/goodbye-in-japanese-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 4")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  “See you soon, human” by Alain Pham©
 
 ## 4\. “Thank you” in Japanese and other polite phrases that you should know
@@ -110,8 +140,26 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![arigato](https://edge.mondly.com/blog/wp-content/uploads/2019/08/arigato-1024x706.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 5")
 
+<!-- affiliate ads begin -->
+<span id="1770526">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  “Kyoto, Japan” by Andre Benz©
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Don’t forget about the Japanese bow
 
  Every**“hello” in Japanese** is usually accompanied by a bow, the Western world equivalent of a handshake. Our advice would be to not skip the bow if you really want to feel like you belong.
@@ -184,3 +232,45 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/rafting-perfect-youtube-channel-names-a-comprehensive-guide-for-video-content-creators-maximum-length-156-characters/"><u>[New] Crafting Perfect Youtube Channel Names  A Comprehensive Guide for Video Content Creators (Maximum Length  156 Characters)</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-debut-video-capture-review-and-alternative/"><u>[New] In 2024, Debut Video Capture Review and Alternative</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-deciphering-social-media-copyright-laws-including-fb/"><u>[New] In 2024, Deciphering Social Media Copyright Laws, Including FB</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-quickly-setup-snapchat-app-on-your-mac-os-x/"><u>[Updated] Quickly Setup Snapchat App on Your Mac OS X</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-iconic-stock-pictures-from-ordinary-to-internet-fame/"><u>2024 Approved  Iconic Stock Pictures  From Ordinary to Internet Fame</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-step-by-step-breakdown-of-vivacuts-new-tools-and-features/"><u>2024 Approved  Step-by-Step Breakdown of VivaCut's New Tools and Features</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-techniques-to-mitigate-vr-disorientation/"><u>2024 Approved  Techniques to Mitigate VR Disorientation</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/detailed-review-of-doctorsim-unlock-service-for-iphone-8-plus-drfone-by-drfone-ios/"><u>Detailed Review of doctorSIM Unlock Service For iPhone 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/earning-money-on-android-leveraging-googles-pay-per-click-programs/"><u>Earning Money on Android: Leveraging Google's Pay-Per-Click Programs</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-apple-iphone-xs-to-mac-drfone-by-drfone-ios/"><u>How to Mirror Apple iPhone XS to Mac? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-music-from-oppo-a79-5g-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Music from Oppo A79 5G to iPod | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/indonesian-salutations-simplified-a-beginners-companion/"><u>Indonesian Salutations Simplified: A Beginner's Companion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/innovative-language-apps-the-definitive-educators-guide/"><u>Innovative Language Apps: The Definitive Educator's Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/japanese-phrases-to-make-a-good-first-impression/"><u>Japanese Phrases to Make a Good First Impression</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jornada-completa-al-cuerpo-de-la-boca-a-los-rinones-en-espanol/"><u>Jornada Completa Al Cuerpo: De La Boca A Los Riñones En Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-landscapes-evolved-mondlylanguages-bold-journey/"><u>Language Landscapes Evolved: MondlyLanguages' Bold Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-lessons-in-long-term-relationships/"><u>Language Lessons in Long-Term Relationships</u></a></li>
+<li><a href="https://network-issues.techidaily.com/laptop-display-off-but-not-really/"><u>Laptop Display: Off, But Not Really</u></a></li>
+<li><a href="https://program-issues.techidaily.com/ls-0013-error-fix-for-borderlands-3-effective-solutions-explored/"><u>LS-0013 Error Fix for Borderlands 3: Effective Solutions Explored</u></a></li>
+<li><a href="https://discover-bits.techidaily.com/mastering-cross-platform-reading-transition-from-nook-to-amazon-kindle/"><u>Mastering Cross-Platform Reading: Transition From Nook to Amazon Kindle</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-the-turkish-script-your-fast-track-guide-to-reading-and-speaking/"><u>Mastering the Turkish Script: Your Fast-Track Guide to Reading and Speaking</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-brings-the-future-of-language-learning-at-expo-2020-dubai/"><u>Mondly Brings the Future of Language Learning at Expo 2020 Dubai</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pearsons-digital-eslefl-experience/"><u>Pearson's Digital ESL/EFL Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pronunciation-pairings-brazilian-vs-european-portuguese/"><u>Pronunciation Pairings: Brazilian Vs. European Portuguese</u></a></li>
+<li><a href="https://techidaily.com/repair-damaged-unplayable-video-files-of-14-on-mac-by-stellar-video-repair-mobile-video-repair/"><u>Repair damaged, unplayable video files of 14 on Mac</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revamped-learning-pearsons-gsl-with-mondly-precision/"><u>Revamped Learning: Pearson's GSL with Mondly Precision</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/say-it-like-a-brit-express-yourself-correctly/"><u>Say It Like a Brit: Express Yourself Correctly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/simultaneous-syntax-study/"><u>Simultaneous Syntax Study</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-numbers-how-to-count-numbers-in-spanish/"><u>Spanish Numbers: How to Count Numbers in Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-smoothly-learn-swiftly-easy-language-guidebook/"><u>Speak Smoothly, Learn Swiftly: Easy Language Guidebook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/start-with-these-top-20-francophone-novels-today/"><u>Start With These Top 20 Francophone Novels Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-101-croatian-phrases-your-travel-guides-essential-toolkit/"><u>Top 101 Croatian Phrases: Your Travel Guide's Essential Toolkit</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/trendy-5-tech-based-aids-for-language-schools/"><u>Trendy 5 Tech-Based Aids for Language Schools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tv-and-films-as-language-tools-effective-techniques/"><u>TV and Films as Language Tools: Effective Techniques</u></a></li>
+<li><a href="https://video-capture.techidaily.com/universal-guide-to-capturing-cinema-pc-mac-and-mobile-edition/"><u>Universal Guide to Capturing Cinema  PC, Mac & Mobile Edition</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/unleash-the-power-of-pixels-expert-tips-on-live-tv-recording-with-windows-pc/"><u>Unleash the Power of Pixels  Expert Tips on Live TV Recording with Windows PC</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/what-voices-resound-in-belgian-halls/"><u>What Voices Resound in Belgian Halls?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-who-are-the-major-francophones-analysis/"><u>Worldwide, Who Are The Major Francophones? Analysis</u></a></li>
+</ul></div>

@@ -1,0 +1,168 @@
+---
+title: Global Languages Preferred by Americans
+date: 2024-09-05T04:40:23.155Z
+updated: 2024-09-06T04:40:23.155Z
+tags:
+  - speak
+  - english
+  - learning
+categories:
+  - languages
+description: This Article Describes Global Languages Preferred by Americans
+excerpt: This Article Describes Global Languages Preferred by Americans
+keywords: American Language Choices,Urban Languages Used in America,Popular Foreign Languages in the USA,English Proficiency Among American Residents,Bilingual Education in America,Multicultural Languages USA,International Language Programs for Americans
+thumbnail: https://thmb.techidaily.com/63dab56e4ce75698d2495662d618f28dc10e8ea5781384709b703dd0571829f2.jpg
+---
+
+## Global Languages Preferred by Americans
+
+ Most Americans tackle a second language during university studies. But what are their preferences when it comes to this topic? Counting more than 350 languages spoken on US soil, they are actually fifth in the worldwide statistics, as Papua New Guinea takes the prize for the most multilingual country.
+
+ So, what are the most studied languages in America, or the US, to be more precise? Read on and find out!
+
+## 1\. Spanish
+
+![spanish flag](https://edge.mondly.com/blog/wp-content/uploads/2021/12/spanish-flag-960x639.jpg "Which Are The Most Studied Foreign Languages In America? 2")
+
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
+  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+ “Spanish flag” by Mikhail Nilov©
+
+ It’s only natural that Spanish would come in at number one as Mexico is right next to the US. Again, unsurprising is the fact that over 50% of university students choose to study in Spanish in order to hone their language skills. Seeing as not everybody in the US is fluent in English, learning this language actually improves the chances of finding a better job in the competitive job market and allows communication with more members of one’s community.
+
+ As the official language of 21 nations, it would be a great idea for a traveler to [start learning Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  as soon as possible. Since we’re on the topic of learning on the internet, you must also know that Spanish is the third most utilized language online, after English and Chinese. English speakers usually pick Spanish as their secondary language because it’s easy to learn – with only approximately 600 hours of study time required. Want to sound like a fluent speaker? Here are [17 Spanish sayings](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) that will help you achieve that!
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
+  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## 2\. French
+
+![eiffel tower paris](https://edge.mondly.com/blog/wp-content/uploads/2021/12/eiffel-tower-paris-960x640.jpg "Which Are The Most Studied Foreign Languages In America? 3")
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+ “Paris, Eiffel Tower” by Eugene Dorosh©
+
+ Apparently, you’re not really a romantic if you don’t see French as the language of beauty and love. Americans seem to agree, also associating class and culture with French people. There’s no wonder then that Paris is still on top of the dream destinations for Americans traveling to Europe! Keep in mind that French is the only other language, apart from English, that is spoken on five continents. Wanna join in the fun? [Learn French online](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) !
+
+ Back home, French is mainly spoken in Louisiana and Maine, which has to do with the history of the states. If you thought about Cajuns, you’re on the right track! Americans usually prefer to learn French in order to increase employment opportunities and enjoy the rich culture and traditions. Cajun seasoning may have something to do with their decision, but we’re not sure. If you struggle with pronunciation, we can help you with this [quick guide](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) !
+
+## 3\. German
+
+![german flag](https://edge.mondly.com/blog/wp-content/uploads/2021/12/german-flag-960x587.jpg "Which Are The Most Studied Foreign Languages In America? 4")
+
+<!-- affiliate ads begin -->
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+ “German flag” by Ingo Joseph©
+
+[Why learn German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  ? Well, for starters, both English and German are West Germanic languages, which means the process will be easier than if you tried to learn Romanic languages. Americans picked up on that, as German is also the second most used language in the science community, after English, of course.
+
+ Taking into account that German is also an important business language, it’s no surprise that most of the students study German in order to work in Europe.
+
+ Word of caution, in terms of vocabulary, German might surprise you, to say the least. There are a couple of incredibly long words that are a nightmare to pronounce. Take for example “Rechtsschutzversicherungsgesellschaften”, a word that means insurance company that provides legal protection. If that didn’t discourage you, why not [start learning German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ?!
+
+## 4\. Italian
+
+![italian car](https://edge.mondly.com/blog/wp-content/uploads/2021/12/italian-car-960x644.jpg "Which Are The Most Studied Foreign Languages In America? 5")
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+ “Fiat” by Jonathan Bean©
+
+ Again, not really a shocker since there are large communities of Italians scattered in the US, most notably in San Francisco and Boston. American gangster movies are famous for their portrayal of Italian-Americans and Italian-American culture is basically a staple of American life. Not to mention the fact that many Americans are direct descendants of Italian immigrants, so they [learn Italian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) to communicate with nonna.
+
+ Italian is actually one of the top ten foreign languages spoken in the US today and if you are a culinary aficionado, you already know that pizza for Americans is as traditional as apple pie. Sure, it’s not the same pizza as in Naples, but some of the best Italian Restaurants are actually found in the US.
+
+* [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fmost-studied-languages-america%2F&t=Which+Are+the+Most+Studied+Foreign+Languages+in+America%3F "Share on Facebook")
+* [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
+
+---
+
+ If any of these languages piqued your interest, you should start using Mondly on your computer for free, or better yet, download the app and start learning on the go ![Learn with Mondly](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-6310&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-6310%26utm%5Fsource%3Dblog-post-id-6310&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-6310%26utm%5Fsource%3Dblog-post-id-6310&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-6310%26utm%5Fsource%3Dblog-post-id-6310&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-6310%26mt%3D8 "Learn with Mondly")
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-full-guide-to-facebook-algorithm-change-are-you-ready/"><u>[New] 2024 Approved  Full Guide to Facebook Algorithm Change   Are You Ready？</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-elevating-your-online-voice-detailed-steps-for-reddit-success/"><u>[New] In 2024, Elevating Your Online Voice  Detailed Steps for Reddit Success</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-secure-and-simple-photovideo-sharing-with-ios/"><u>[New] Secure and Simple Photo/Video Sharing with IOS</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-break-through-bot-barriers-rising-from-the-crowd/"><u>[Updated] 2024 Approved  Break Through Bot Barriers  Rising From the Crowd</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-curtail-unrequested-youtube-content-streams/"><u>[Updated] 2024 Approved  Curtail Unrequested YouTube Content Streams</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-navigating-music-licens-written-by-john-doe/"><u>[Updated] Navigating Music Licens Written by John Doe</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-pioneering-animated-film-series-the-top-15-list/"><u>2024 Approved  Pioneering Animated Film Series  The Top 15 List</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-communication-gets-a-boost-with-oculus-quest-and-mondly/"><u>Global Communication Gets a Boost with Oculus Quest & Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-harmony-a-salute-to-independence/"><u>Global Harmony: A Salute to Independence</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/harmonizing-linguistics-effective-learning-through-melodies/"><u>Harmonizing Linguistics: Effective Learning Through Melodies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/heartbeats-in-haute-couture-dialogues/"><u>Heartbeats in Haute Couture Dialogues</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-samsung-galaxy-f34-5g-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>How to Cast Samsung Galaxy F34 5G Screen to PC Using WiFi | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/keyboard-shortcut-dilemmnas-a-cross-english-comparison/"><u>Keyboard Shortcut Dilemmnas: A Cross-English Comparison</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-breakthroughs-with-mondly-identifying-top-10-key-advantages/"><u>Linguistic Breakthroughs with Mondly - Identifying Top 10 Key Advantages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/locals-speak-romanian-app-edition/"><u>Locals Speak Romanian: App Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-languages-made-simple-by-mondly-2022-edition/"><u>Mastering Languages Made Simple by Mondly, 2022 Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/maximize-your-portuguese-learning-potential-top-6-strategies-revealed/"><u>Maximize Your Portuguese Learning Potential: Top 6 Strategies Revealed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-where-engaging-language-apps-converge-into-one-powerhouse/"><u>Mondly: Where Engaging Language Apps Converge Into One Powerhouse</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-exclusive-language-learning-edge-2022/"><u>Mondly's Exclusive Language Learning Edge, 2022</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-path-to-global-communication-1-2022-edition/"><u>Mondly’s Path to Global Communication - #1 2022 Edition</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/mpeg-a-mp3-que-es-la-conversion-en-linea-y-de-desktop/"><u>MPEG a MP3: ¿Qué Es La Conversión en Línea Y De Desktop?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/my-transformative-language-journey-powered-by-mondly-the-essential-10-techniques/"><u>My Transformative Language Journey Powered by Mondly - The Essential 10 Techniques</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-unleash-the-power-of-final-cut-pro-creating-engaging-video-slideshows/"><u>New Unleash the Power of Final Cut Pro Creating Engaging Video Slideshows</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-confidently-in-korean-choosing-the-top-6-learning-websites/"><u>Speak Confidently in Korean: Choosing the Top 6 Learning Websites</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spinning-yarns-in-a-buccaneer-written-form/"><u>Spinning Yarns in a Buccaneer’ Written Form</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sunrise-etiquette-good-morning-expressions-in-various-languages/"><u>Sunrise Etiquette: 'Good Morning' Expressions in Various Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-first-step-in-learning-spanish-counting/"><u>The First Step In Learning Spanish Counting</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-croatian-vernacular-for-international-adventurers/"><u>The Ultimate Guide to Croatian Vernacular for International Adventurers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transforming-communication-in-the-boardroom/"><u>Transforming Communication in the Boardroom</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transnational-words-threading-into-eng-dictionary/"><u>Transnational Words Threading Into ENG Dictionary</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-and-articulating-ru-alphabets/"><u>Understanding and Articulating RU Alphabets</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-finnish-top-tips-for-e-learning-success/"><u>Unlock Finnish: Top Tips for E-Learning Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-your-potential-with-mondly-top-app-for-language-learning-2022/"><u>Unlock Your Potential with Mondly, Top App for Language Learning, 2022</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-brain-power-with-second-language-acquisition-at-50plus/"><u>Unlocking Brain Power with Second Language Acquisition at 50+</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/young-voices-younger-vocabularies-learning-spanish/"><u>Young Voices, Younger Vocabularies: Learning Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sygkentrwsh-eyxhs-kalwn-piatoys-gkreman/"><u>Συγκέντρωση Ευχής Καλών Πιατούς Γκρεμάν</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/syna3ia-eyxhs-gkreman/"><u>Συναξία Ευχής Γκρεμάν</u></a></li>
+</ul></div>
