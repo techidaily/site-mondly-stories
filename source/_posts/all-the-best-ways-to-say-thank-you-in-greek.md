@@ -1,7 +1,7 @@
 ---
 title: All the Best Ways to Say Thank You in Greek
-date: 2024-07-12T08:35:42.808Z
-updated: 2024-07-13T08:35:42.808Z
+date: 2024-09-10T13:26:38.832Z
+updated: 2024-09-11T13:26:38.832Z
 tags:
   - speak
   - english
@@ -24,6 +24,20 @@ thumbnail: https://thmb.techidaily.com/6e2f3010b64553c858c441b2aa0463f3e8a124b61
 
  In this quick Greek lesson, we’ll show you only the practical ways to say thank you in Greek. The thanks you’ll actually need and use in real life. Additionally, we’ll also go over how to say ‘please’ or ‘you’re welcome’ in Greek. As a result, you’ll know exactly what to say and when to say it.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## What does efcharistó mean in Greek?
 
  **(Ευχαριστώ)_Efcharistó_ is the most popular way to say ‘thank you’ in Greek.** More similar to ‘thanks’ than ‘thank you’,[_efcharistó_](https://greekerthanthegreeks.com/2015/12/lost-in-translationword-of-day.html) is an informal way of expressing gratitude. Generally, it is most commonly used as a response to a small act of kindness or a basic courtesy from a friend, family member or colleague.
@@ -32,6 +46,26 @@ thumbnail: https://thmb.techidaily.com/6e2f3010b64553c858c441b2aa0463f3e8a124b61
 
  A funny but very good mnemonic for remembering how to say_efcharistó_ is to think of it as ‘ef-harry’s-toe’.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## The informal ‘thank you’ in Greek
 
  It’s true that ευχαριστώ (_efcharistó_ – ‘thanks’) is more than enough to ‘survive’ in [Greece](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . It’s not a Greek tragedy if your Greek vocabulary is not on point. Most Greek people speak English and won’t expect you to be fluent in Greek.
@@ -39,6 +73,20 @@ thumbnail: https://thmb.techidaily.com/6e2f3010b64553c858c441b2aa0463f3e8a124b61
  However, if you want to say more than just ‘thanks’, **you can say σ’ ευχαριστώ_(s’ efcharistó)_ which is ‘thank you’ in Greek.** Although informal_, s’ efcharistó_ is more similar to ‘thank you’ and can be used safely when giving thanks to friends or colleagues.
 
  If you are especially thankful to them, you can also say ευχαριστώ πολύ_(efcharistó poli)_ which means ‘thanks a lot’. Or even ευχαριστώ πάρα πολύ_(efcharistó para poli)_ meaning ‘thank you very much’.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## The formal ‘thank you’ in Greek
 
@@ -50,7 +98,41 @@ thumbnail: https://thmb.techidaily.com/6e2f3010b64553c858c441b2aa0463f3e8a124b61
 
 ![taverna in Greece](https://edge.mondly.com/blog/wp-content/uploads/2021/10/thanks-in-greek-960x720.jpg "All The Best Ways To Say Thank You In Greek 3")
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
  “Mýkonos, Greece” by Johnny Chen©
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135473/26400" target="_top" id="2135473">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135473/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Examples of Greek thanks
 
@@ -79,6 +161,20 @@ thumbnail: https://thmb.techidaily.com/6e2f3010b64553c858c441b2aa0463f3e8a124b61
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## From 0 to conversational in Greek
 
@@ -109,6 +205,61 @@ thumbnail: https://thmb.techidaily.com/6e2f3010b64553c858c441b2aa0463f3e8a124b61
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://mondly-stories.techidaily.com/mondly-the-key-to-unlocking-linguistic-adventures-on-oculus-quest/"><u>'Mondly': The Key to Unlocking Linguistic Adventures on Oculus Quest</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-pixels-musical-ensemble-unveiled-online/"><u>[Updated] 2024 Approved Pixel's Musical Ensemble Unveiled Online</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-utilize-srt-playback-across-operating-systems/"><u>[Updated] Utilize SRT Playback Across Operating Systems</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-six-simple-ways-to-ease-vr-headset-nausea/"><u>2024 Approved Six Simple Ways to Ease VR Headset Nausea</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/effective-solutions-for-call-of-duty-vanguard-error-n-code-0x00001eb-pc-troubleshooting/"><u>Effective Solutions for Call of Duty Vanguard Error N (Code: 0X00001eb) – PC Troubleshooting</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/fb-live-integration-with-cable-tv-for-2024/"><u>FB Live Integration with Cable TV for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-tongues-touching-english-lexical-diversification/"><u>Global Tongues Touching English: Lexical Diversification</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fixing-foneazy-mockgo-not-working-on-oneplus-11r-drfone-by-drfone-virtual-android/"><u>In 2024, Fixing Foneazy MockGo Not Working On OnePlus 11R | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-step-by-step-windows-10-audio-capture/"><u>In 2024, Step-by-Step Windows 10 Audio Capture</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-greetings-101/"><u>International Greetings 101</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-the-first-augmented-reality-language-app-with-speech-recognition/"><u>Introducing the First Augmented Reality Language App with Speech Recognition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/kinder-to-grade-school-in-spanish-a-kids-journey/"><u>Kinder to Grade School in Spanish: A Kid's Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/korean-calendar-decoded-a-weekly-overview/"><u>Korean Calendar Decoded: A Weekly Overview</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-bridge-by-locals-learn-romanian/"><u>Language Bridge by Locals, Learn Romanian</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-liberation-mondlys-no-cost-offering-awaits-ukraines-learners/"><u>Language Learning Liberation: Mondly's No-Cost Offering Awaits Ukraine's Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-landscape-exploring-uk-us-and-aussie-accent-differences/"><u>Linguistic Landscape: Exploring UK, U.S., and Aussie Accent Differences</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-french-salutations-the-ultimate-guide-to-bonjour/"><u>Mastering French Salutations: The Ultimate Guide to 'Bonjour'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-expand-your-speech-free-of-charge/"><u>Mondly: Expand Your Speech - Free of Charge</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlyar-vr-bridging-linguistic-gaps-in-virtual-space/"><u>MondlyAR VR: Bridging Linguistic Gaps in Virtual Space</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlyvr-experience-language-learning-beyond-boundaries/"><u>MondlyVR: Experience Language Learning Beyond Boundaries</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-buggy-fcpx-learn-how-to-reset-and-reboot-for-2024/"><u>New Buggy FCPX? Learn How to Reset and Reboot for 2024</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-the-ultimate-guide-to-disabling-sound-in-windows-10-movies-and-tutorials-no-software-needed/"><u>New The Ultimate Guide to Disabling Sound in Windows 10 Movies & Tutorials (No Software Needed)</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/quick-fixes-for-why-is-my-itel-p40plus-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Itel P40+ Black and White | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-language-learning-for-norge-proficiency/"><u>Quick Language Learning for Norge Proficiency!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rhythmic-refinement-practice-english-twisters-daily/"><u>Rhythmic Refinement: Practice English Twisters Daily</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seize-language-power-6-ways-to-learn-arabic-via-mondly-online/"><u>Seize Language Power: 6 Ways to Learn Arabic via Mondly Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/semaine-francaise-du-mercredi/"><u>Semaine Française Du Mercredi</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/semaine-francaise-la-palette-des-jours/"><u>Semaine Française: La Palette Des Jours</u></a></li>
+<li><a href="https://driver-download.techidaily.com/1722974988482-the-21st-century-challenges-like-climate-change-pandemics-and-cyber-warfare-demand-new-solutions-that-extend-beyond-the-scope-of-liberal-capitalism/"><u>The 21St-Century Challenges Like Climate Change, Pandemics, and Cyber Warfare Demand New Solutions that Extend Beyond the Scope of Liberal Capitalism.</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-6-best-sim-unlock-services-that-actually-work-on-your-samsung-galaxy-s23-ultra-device-by-drfone-android/"><u>The 6 Best SIM Unlock Services That Actually Work On Your Samsung Galaxy S23 Ultra Device</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-interactive-pearson-global-learning-experience/"><u>The Interactive Pearson Global Learning Experience</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-metaverse-mirth-making-manual-top-funny-imagery-and-techniques/"><u>The Metaverse Mirth-Making Manual Top Funny Imagery & Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-most-in-demand-world-languages-in-us-education/"><u>The Most In-Demand World Languages in U.S. Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-roadmap-to-korean-mastery-selecting-your-best-resources/"><u>The Roadmap to Korean Mastery: Selecting Your Best Resources</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/thriving-in-british-conversation-a-reference-guide/"><u>Thriving in British Conversation: A Reference Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-9-challenging-tongues-overcoming-language-barriers/"><u>Top 9 Challenging Tongues: Overcoming Language Barriers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-your-linguistic-skills-through-dark-on-streaming/"><u>Transform Your Linguistic Skills Through Dark on Streaming</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/turkish-letter-system-simplified-easy-reference-for-novices/"><u>Turkish Letter System Simplified: Easy Reference for Novices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-simplified-han-characters/"><u>Understanding Simplified Han Characters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-the-charm-of-german-speech-essential-25-phrases/"><u>Unlocking the Charm of German Speech - Essential 25 Phrases</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/unwind-yourself-with-these-20-best-country-songs-on-tiktok/"><u>Unwind Yourself with These 20 Best Country Songs on TikTok</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1722973821562-upgrade-to-the-best-asus-audio-driver-pack-free-download/"><u>Upgrade to the Best ASUS Audio Driver Pack - Free Download!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/where-do-people-feast-on-thanksgiving/"><u>Where Do People Feast on Thanksgiving?</u></a></li>
+</ul></div>
 
 
 

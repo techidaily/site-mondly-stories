@@ -1,7 +1,7 @@
 ---
 title: "Ukranian for Beginners: Short Daily Dumps of Talk (94 Chars)"
-date: 2024-09-05T04:43:33.096Z
-updated: 2024-09-06T04:43:33.096Z
+date: 2024-09-10T13:30:56.056Z
+updated: 2024-09-11T13:30:56.056Z
 tags:
   - speak
   - english
@@ -14,22 +14,24 @@ keywords: Ukrainian Language Learning,Intro to Ukrainian Phrases,Easy Daily Ukra
 thumbnail: https://thmb.techidaily.com/26c79816e74e12a8f414621a79d8575a6f7513edd59ad13bbdba2af26e7005b7.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Ukranian for Beginners: Short Daily Dumps of Talk (94 Chars)
 
  Ukrainian is a fascinating language with a long history of foreign influences. Due to it being profoundly different from English, many people consider learning Ukrainian a personal triumph. And so should you. Here’s everything you need to know if you want to learn Ukrainian fast.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115911/19272" target="_top" id="2115911">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115911" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115911/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## The Ukrainian language in a nutshell
 
  Ukrainian, known as_украї́нська мо́ва_ (romanized:[_Ukraïns’ka mova_](https://www.britannica.com/topic/Ukrainian-language) ) to Ukrainians, is the official language of Ukraine and the descendant of the colloquial language used in Kievan Rus between the 10th and the 13th century. From there on, the language developed into what was called ‘the Ruthenian language’. As a result of Ukraine’s long political subordination, Ukrainian had almost no literary expression until the 18th century when the modern literary Ukrainian language was born.
@@ -38,30 +40,40 @@ thumbnail: https://thmb.techidaily.com/26c79816e74e12a8f414621a79d8575a6f7513edd
 
  Additionally, Ukrainian’s vocabulary also includes a large number of words borrowed from [Polish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) during the Polish rule from the 13th to the 17th centuries.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
-  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## Is Ukrainian hard to learn?
 
  Due to being a Slavic language, Ukrainian is one of the hardest languages to learn by native English speakers. In fact, according to [the FSI](https://www.state.gov/foreign-language-training/) (Foreign Service Institute) of the US government, an English speaker would need about 1100 class hours or 44 weeks of practice to become fluent in Ukrainian. This makes Ukrainian as hard to learn as Polish, Icelandic or Finnish. However, you don’t have to get discouraged. Japanese, Chinese and Korean are still much harder to learn than Ukrainian.
 
  Besides, choosing the right [Ukrainian course](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6604&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6604?mother%5Flang=en%5Fus?target%5Flang=ua&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6604?mother%5Flang=en%5Fus?target%5Flang=ua) can work wonders. Read on to discover what is the best way to learn Ukrainian fast.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115908/19272" target="_top" id="2115908">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115908" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115908/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## Start with the Ukrainian alphabet
 
  One of the reasons why Ukrainian is a little bit harder to learn is its alphabet. As you probably already know, the Ukrainian language uses the same alphabet as Russian – the Cyrillic alphabet.
@@ -72,12 +84,20 @@ thumbnail: https://thmb.techidaily.com/26c79816e74e12a8f414621a79d8575a6f7513edd
 
  And you know what’s the best thing about it? Almost all the words in Ukrainian can be pronounced the same way they are written. As soon as you will know how to pronounce each individual Ukrainian letter, you will also be able to read out loud in Ukrainian.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
-  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettiit.sjv.io/c/5597632/2114267/17093" target="_top" id="2114267">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114267" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114267/17093" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## 10 basic Ukrainian words and phrases you can learn right now
 
  Are you excited to learn Ukrainian? Let’s start small. Here are the top 10 basic Ukrainian words and phrases that everyone should know:
@@ -95,12 +115,20 @@ thumbnail: https://thmb.techidaily.com/26c79816e74e12a8f414621a79d8575a6f7513edd
 
  Here’s a glimpse of how some of these Ukrainian words sound when spoken by a fluent speaker:
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## How to learn Ukrainian fast with Mondly
 
  Now let’s discuss the real reason why you’re here: how to learn Ukrainian fast.

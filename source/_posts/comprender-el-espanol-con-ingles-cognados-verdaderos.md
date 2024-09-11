@@ -1,7 +1,7 @@
 ---
 title: Comprender El Español Con Inglés Cognados Verdaderos
-date: 2024-07-12T08:36:44.897Z
-updated: 2024-07-13T08:36:44.897Z
+date: 2024-09-10T13:25:36.417Z
+updated: 2024-09-11T13:25:36.417Z
 tags:
   - speak
   - english
@@ -42,6 +42,26 @@ thumbnail: https://thmb.techidaily.com/6d037ed02bb78c8d6ffd1b34444df7b04ee293185
 
  Some of the most popular examples are: _hospital, horrible, actor, artificial, agenda, animal, original, idea, flexible, vulnerable, superficial, reunion_ (_reunión_ in Spanish)_, melon, interminable, inevitable, tropical, experimental, excursion_ (_excursión_ in Spanish)_, capital, chocolate, probable, conclusion_ (_conclusión_ in Spanish) _, doctor, director, festival, general, individual, nostalgia, panorama, television_ (_televisión_ in Spanish)_, perfume, total, similar, terror_ and_verbal._
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Near-perfect English-Spanish cognates
 
  Did you know that about 90% of Spanish cognates have the same meaning in English? The rest of them are, obviously, false friends words. This means you have only a 10% chance of saying something embarrassing or awkward. That’s not too bad, isn’t it? Besides, after reading this article the percent will surely drop significantly. Even below 0 if you also start [learning Spanish with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4685&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4685?mother%5Flang=en%5Fus?target%5Flang=es&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4685?mother%5Flang=en%5Fus?target%5Flang=es) right now (wink wink).
@@ -61,6 +81,20 @@ thumbnail: https://thmb.techidaily.com/6d037ed02bb78c8d6ffd1b34444df7b04ee293185
 * erup**tion** and   _erup**ción**_
 * addi**tion** and   _adi**ción**_
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### Spanish Cognates that change “-nt” to “-nte”
 
 * abunda**nt** and   _abunda**nte**_
@@ -73,6 +107,26 @@ thumbnail: https://thmb.techidaily.com/6d037ed02bb78c8d6ffd1b34444df7b04ee293185
 * ignora**nt** and   _ignora**nte**_
 * evide**nt** and   _evide**nte**_
 * preside**nt** and   _preside**nte**_
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### Spanish cognates that change “-ate” to “ar”
 
@@ -88,6 +142,20 @@ thumbnail: https://thmb.techidaily.com/6d037ed02bb78c8d6ffd1b34444df7b04ee293185
 * activ**ate** and   _activ**ar**_
 
 ![english spanish cognates](https://edge.mondly.com/blog/wp-content/uploads/2020/04/english-spanigh-cognates-600x399.jpg "50+ Most Popular English-Spanish Cognates And False Cognates 3")
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
  “Mommy, what are cognates?” by Josh Applegate©
 
@@ -119,6 +187,20 @@ thumbnail: https://thmb.techidaily.com/6d037ed02bb78c8d6ffd1b34444df7b04ee293185
 * calm and   _calm**ar**_
 * control and   _control**ar**_
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### Spanish cognates that change “-ly” to “-mente”
 
 * absolute**ly** and   _absoluta**mente**_
@@ -131,6 +213,20 @@ thumbnail: https://thmb.techidaily.com/6d037ed02bb78c8d6ffd1b34444df7b04ee293185
 * especial**ly** and   _especial**mente**_
 * complete**ly** and   _completa**mente**_
 * exact**ly** and   _exacta**mente**_
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115911/19272" target="_top" id="2115911">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115911" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115911/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Spanish-English False Friend Words
 
@@ -193,6 +289,20 @@ _Realizar_ in Spanish means “to do” or “to perform” and not “to realiz
 
 ---
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Speak Spanish in just 10 minutes a day
 
  All these funny little examples convinced you it’s high time you learned Spanish, didn’t they? Lucky for you, we have the perfect tool for learning Spanish: Mondly, the award-winning language learning app that makes language learning fun, fast and easy.
@@ -219,6 +329,53 @@ _Realizar_ in Spanish means “to do” or “to perform” and not “to realiz
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-channel-branding-made-simple-and-free/"><u>[New] 2024 Approved Channel Branding Made Simple & Free</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-ignite-discussion-with-custom-creative-story-inquiries/"><u>[Updated] Ignite Discussion with Custom, Creative Story Inquiries</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-srt-essentials-decoded-for-easy-understanding/"><u>[Updated] SRT Essentials Decoded for Easy Understanding</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/androvid-video-editor-complete-review-for-2024/"><u>AndroVid Video Editor – Complete Review for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/becoming-a-pro-at-game-enhancement-using-steam-workshop/"><u>Becoming a Pro at Game Enhancement Using Steam Workshop</u></a></li>
+<li><a href="https://games-able.techidaily.com/click-vs-draw-for-game-rhythm-control/"><u>Click Vs. Draw for Game Rhythm Control</u></a></li>
+<li><a href="https://win-able.techidaily.com/effective-solutions-to-stop-nioh-2-from-freezing-and-crashing/"><u>Effective Solutions to Stop Nioh 2 From Freezing and Crashing</u></a></li>
+<li><a href="https://techtrends.techidaily.com/expert-advice-on-creating-the-perfect-home-theater-setup-for-watching-the-super-bowl-live/"><u>Expert Advice on Creating the Perfect Home Theater Setup for Watching the Super Bowl Live</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-vernacular-meets-the-queens-speech/"><u>Global Vernacular Meets the Queen's Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/google-plays-top-kid-friendly-app-mondly-family-edition/"><u>Google Play's Top Kid-Friendly App: Mondly Family Edition</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-changeadd-location-filters-on-snapchat-for-your-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>How to Change/Add Location Filters on Snapchat For your Google Pixel Fold | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-music-from-oppo-a1-5g-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Music from Oppo A1 5G to iPod | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/immersive-dialogue-analysis-in-tv-and-cinema/"><u>Immersive Dialogue Analysis in TV & Cinema</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/innovative-language-learning-with-mondly-best-of-2022/"><u>Innovative Language Learning with Mondly - Best of 2022</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/israels-national-language-an-overview/"><u>Israel's National Language: An Overview?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/kommunikative-vergebung-in-deutsch/"><u>Kommunikative Vergebung in Deutsch</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-the-basics-of-urdu-with-key-terms-and-phrases/"><u>Learn the Basics of Urdu with Key Terms and Phrases.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lingua-antica-the-hellenic-languages-renaissance/"><u>Lingua Antica: The Hellenic Language's Renaissance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-multiple-languages-a-path-to-prosperity/"><u>Master Multiple Languages: A Path to Prosperity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-ukrainian-quickly-the-ten-minute-technique-97-chars/"><u>Mastering Ukrainian Quickly: The Ten-Minute Technique (97 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-is-best-online-language-learning-portal-in-germany/"><u>Mondly Is Best Online Language Learning Portal in Germany</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-rewrites-the-future-of-multilingual-education-with-ar/"><u>Mondly Rewrites the Future of Multilingual Education with AR</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlyar-revolutionizing-virtual-reality-for-language-learners/"><u>MondlyAR: Revolutionizing Virtual Reality for Language Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/online-language-evolution-mondly-leads-the-pack-in-germany/"><u>Online Language Evolution: Mondly Leads the Pack in Germany</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/socialize-and-speak-in-espanol-with-virtual-companions/"><u>Socialize & Speak In Español with Virtual Companions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/starting-your-journey-to-speaking-spanish/"><u>Starting Your Journey to Speaking Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-scoring-in-language-exams/"><u>The Art of Scoring in Language Exams</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-chinese-thank-you-phrases/"><u>The Ultimate Guide to Chinese Thank You Phrases</u></a></li>
+<li><a href="https://fox-links.techidaily.com/the-ultimate-list-best-trivia-shows-for-general-knowledge-24/"><u>The Ultimate List - Best Trivia Shows for General Knowledge, '24</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-romance-say-i-love-you-in-10plus-languages/"><u>Unlock Romance: Say I Love You In 10+ Languages!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/upgraded-policies-for-your-data-security/"><u>Upgraded Policies for Your Data Security</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/urdu-phrases-and-words-the-foundation-for-beginners/"><u>Urdu Phrases & Words: The Foundation for Beginners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/us-and-uk-english-discrepancies/"><u>US & UK English Discrepancies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/world-awaits-embrace-your-language-skills-with-mondly/"><u>World Awaits: Embrace Your Language Skills with Mondly</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/iphonejsbperfumeakb48dvd/"><u>プロの方法でiPhoneライブ再生可能化！嵐、三代目JSB、Perfume、AKB48DVDコピーテクニック</u></a></li>
+</ul></div>
 
 
 

@@ -1,7 +1,7 @@
 ---
 title: "East Coast vs West: US English Peculiarities"
-date: 2024-07-12T08:35:57.283Z
-updated: 2024-07-13T08:35:57.283Z
+date: 2024-09-10T13:26:55.774Z
+updated: 2024-09-11T13:26:55.774Z
 tags:
   - speak
   - english
@@ -23,6 +23,20 @@ thumbnail: https://thmb.techidaily.com/f242798f01f6eb6860b3f63a7fdce4b4bcb3c643f
  Before we go on… you’ve just realized, didn’t you? **The “sweater weather” is actually the “jumper weather” or the “pullover weather” in the UK.** Oh my God, this can’t be right, is it?
 
 ![British vs American](https://media.giphy.com/media/SqmkZ5IdwzTP2/giphy.gif "British English Vs American English Differences: Spelling, Pronunciation And More 2")
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## The English language in the Americas
 
@@ -95,6 +109,26 @@ thumbnail: https://thmb.techidaily.com/f242798f01f6eb6860b3f63a7fdce4b4bcb3c643f
 
  Although spelling, accent, and vocabulary differences are the most notorious distinctions, American English and British English are divergent in some [grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) matters as well.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### Collective nouns
 
  In American English, collective nouns such as “band”, “team”, “family” or “crew” are considered plural. In contrast, British English considers collective nouns either singular or plural, but more often plural as a way to emphasize the members of the group.
@@ -115,17 +149,71 @@ thumbnail: https://thmb.techidaily.com/f242798f01f6eb6860b3f63a7fdce4b4bcb3c643f
 
 **American English:** get – got – gotten
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### Tenses
 
  While Brits tend to use the present perfect tense to describe something that has recently occurred, Americans usually go with the past simple tense.
 
  Thus, in Britain, you’ll say**“I’ve been to the supermarket”** and in the US you’ll say**“I went to the supermarket”** .
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### Prepositions
 
  In British English, “at” is generally used in relation to time and place. In contrast, in American English, “on” is used in relation to time and “in” is used in relation to place.
 
 ![british american english](https://edge.mondly.com/blog/wp-content/uploads/2020/06/british-american-english-600x600.jpg "British English Vs American English Differences: Spelling, Pronunciation And More 3")
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
  British English vs American English
 
@@ -141,6 +229,20 @@ thumbnail: https://thmb.techidaily.com/f242798f01f6eb6860b3f63a7fdce4b4bcb3c643f
 
  American accent is rhotic and Americans pronounce their “R’s” loud and clear. On the other hand, the British accent is non-rhotic and Brits usually replace their “R’s” with “H’s”. Thus, words like “water” or “card” will be pronounced_wa-tuh_ or_caahd_ .
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## British vs American: which one should you learn and use?
 
  It doesn’t matter whether you learn British English or American English. There is no such thing as “the best English”. Learn whichever you feel and like. Of course, if you intend to move to the United States, it is best to study and get used to the American accent.
@@ -155,6 +257,20 @@ thumbnail: https://thmb.techidaily.com/f242798f01f6eb6860b3f63a7fdce4b4bcb3c643f
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115908/19272" target="_top" id="2115908">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115908" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115908/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### Brush up your English in just 10 minutes a day
 
@@ -180,6 +296,53 @@ thumbnail: https://thmb.techidaily.com/f242798f01f6eb6860b3f63a7fdce4b4bcb3c643f
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-support.techidaily.com/new-seamless-integration-of-skype-meetings-into-zoom-platform/"><u>[New] Seamless Integration of Skype Meetings Into Zoom Platform</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-configure-measure-and-optimize-the-ultimate-guide-to-fb-instream-ads/"><u>[Updated] Configure, Measure & Optimize The Ultimate Guide to FB Instream Ads</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-pioneering-video-player-apps-for-tiktok-and-vimeo/"><u>[Updated] Pioneering Video Player Apps for TikTok & Vimeo</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-recording-success-the-ultimate-guide-for-facetime-conversations-for-2024/"><u>[Updated] Recording Success The Ultimate Guide for FaceTime Conversations for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-ultimate-sound-bank-vintage-voice-choices/"><u>[Updated] Ultimate Sound Bank Vintage Voice Choices</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-find-your-perfect-editor-top-15-budget-friendly-online-solutions/"><u>2024 Approved Find Your Perfect Editor Top 15 Budget-Friendly Online Solutions</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/energy-conservation/"><u>Energy Conservation</u></a></li>
+<li><a href="https://fox-that.techidaily.com/fixing-whatsapp-cloud-issues-a-guide-to-enable-icloud-integration-for-complete-chat-backup/"><u>Fixing WhatsApp Cloud Issues: A Guide to Enable iCloud Integration for Complete Chat Backup</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-vivo-v27e-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Vivo V27e | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-pattern-locks-are-unsafe-secure-your-vivo-x90s-phone-now-with-these-tips-by-drfone-android/"><u>In 2024, Pattern Locks Are Unsafe Secure Your Vivo X90S Phone Now with These Tips</u></a></li>
+<li><a href="https://driver-install.techidaily.com/install-ax19-ac-wifi-driver-on-surface-pro-x/"><u>Install AX19 Ac WiFi Driver on Surface Pro X</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-mondlys-enriched-customer-service-qanda/"><u>Introducing Mondly's Enriched Customer Service Q&A</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-to-a-new-world-start-learning-croatian-today-for-these-7-reasons/"><u>Journey to a New World – Start Learning Croatian Today for These 7 Reasons!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/key-croatian-expressions-for-an-unforgettable-journey-to-croatia/"><u>Key Croatian Expressions for an Unforgettable Journey to Croatia</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-consequences-picking-between-german-and-french/"><u>Learning Consequences: Picking Between German and French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-growth-through-dark-shows-on-streaming-platforms/"><u>Linguistic Growth Through Dark Shows on Streaming Platforms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-presents-modern-language-learning-tools/"><u>Mondly Presents Modern Language Learning Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-unites-with-pearson-knowledge-alliance/"><u>Mondly Unites With Pearson Knowledge Alliance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-boundless-learning-network-a-community-of-70plus-million/"><u>Mondly’s Boundless Learning Network: A Community of 70+ Million</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-unparalleled-contribution-to-my-language-learning-progress-top-10-insights/"><u>Mondly’s Unparalleled Contribution to My Language Learning Progress – Top 10 Insights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/neurolingual-vr-enhancing-cognitive-skills-through-language/"><u>NeuroLingual VR: Enhancing Cognitive Skills Through Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pearsons-diverse-linguistic-programming/"><u>Pearson's Diverse Linguistic Programming</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polyglot-proficiency-program/"><u>Polyglot Proficiency Program</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/practical-language-use-analyzing-german-and-french-merits/"><u>Practical Language Use: Analyzing German & French Merits</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sunday-through-saturday-in-korea-made-simple/"><u>Sunday Through Saturday in Korea Made Simple</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-pathway-to-linguistic-proficiency-mondlys-top-10-innovations-for-learning/"><u>The Pathway to Linguistic Proficiency – Mondly's Top 10 Innovations for Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-pearson-way-to-mastering-languages/"><u>The Pearson Way to Mastering Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-wise-choice-embracing-multilingualism-in-your-golden-years/"><u>The Wise Choice: Embracing Multilingualism in Your Golden Years</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-three-asian-verbal-forms-prioritize-and-archive-access/"><u>Top Three Asian Verbal Forms: Prioritize & Archive Access</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transcend-limits-by-learning-languages/"><u>Transcend Limits by Learning Languages</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/transforming-interactions-with-chatgpt-plus-learn-about-its-9-key-improvements/"><u>Transforming Interactions with ChatGPT Plus: Learn About Its 9 Key Improvements</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/veritable-verses-of-vintage-verite/"><u>Veritable Verses of Vintage Vérité</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/vivo-y36-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>Vivo Y36 ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-learn-croatian-unveil-the-top-7-compelling-benefits/"><u>Why Learn Croatian? Unveil the Top 7 Compelling Benefits!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/poiothta-eygnwmwn-gkreman-ths-dyshs/"><u>Ποιότητα Ευγνωμών Γκρεμάν Της Δύσης</u></a></li>
+</ul></div>
 
 
 

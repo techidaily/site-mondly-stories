@@ -1,7 +1,7 @@
 ---
 title: Journey Through the Apex of English with Mondly
-date: 2024-09-05T04:41:04.910Z
-updated: 2024-09-06T04:41:04.910Z
+date: 2024-09-10T13:30:58.213Z
+updated: 2024-09-11T13:30:58.213Z
 tags:
   - speak
   - english
@@ -32,12 +32,20 @@ So how do we excel at connection? By becoming a lifelong learner of a language, 
 
 Anyone can become a lifelong learner, whether you’re in school or not, as long as you take learning seriously. Here are 5 powerful habits that all lifelong language learners should possess.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## 1\. Study Body Language
 
 > “Research indicates the pitch, volume, and pace of your voice affect what people think you said about FIVE TIMES as much as the actual words you used.” – Deborah Gruenfeld
@@ -50,20 +58,22 @@ In personal or professional interactions, advanced students focus on the literal
 
 ![giphy](https://media0.giphy.com/media/DaNwD0SPavhF6/giphy.gif?cid=3640f6095c08f4ca7130495a6fa7153a "How To Take Your English To The Next Level 2")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 > “A conversation is so much more than words, a conversation is eyes, smiles, the silences between the words.” – Annika Thor
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
-  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## 2\. Learn to Enjoy Wordplay
 
 How completely, and how rapidly, do you get jokes, spot puns, and catch lyrical or cultural references? How well do you understand wordplay while reading, conversing, or listening to music?
@@ -92,24 +102,46 @@ Steal lessons on stretching your comfort zone from these masters of language:
 * _ [Yes, And: How Improvisation Reverses “No, But” Thinking and Improves Creativity and Collaboration–Lessons from The Second City](https://www.amazon.com/Yes-Improvisation-Reverses-Creativity-Collaboration-Lessons/dp/0062248545) _
 * [The Excellence Dividend: Meeting the Tech Tide with Work That Wows and Jobs That Last](https://www.amazon.com/Excellence-Dividend-Meeting-Tech-Tide-ebook/dp/B074DHM8LH/ref=sr%5F1%5F1?s=books&ie=UTF8&qid=1533936817&sr=1-1&keywords=excellence+dividend)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982457">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## 4\. Embrace Old English
 
 People love quoting [Shakespeare](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875), ancient philosophers, and religious texts, but how many of us actually read entire chapters, verses, and books? Let’s be honest, most of us never actually read the entire Shakespeare plays or classic novels that were mandatory for passing English Literature.
 
 ![giphy](https://i.giphy.com/media/LYmPfp8dWUxnG/giphy.webp "How To Take Your English To The Next Level 3")
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 It’s not that we were degenerate high school students; it’s because no matter how timeless and important the writing, we don’t appreciate Old English. It’s boring. It’s impossible to make sense of. It’s not how anyone talks any more, so it feels irrelevant. We can’t justify the time and frustration.
 
 But where ordinary English users stop is where advanced learners get started. What we see as pointless, they see as opportunity – an opportunity to understand how our ancestors expressed thoughts and emotions, and viewed the world. An opportunity to understand the roots of language in human history. An opportunity to deeply appreciate older forms of art.
@@ -117,6 +149,20 @@ But where ordinary English users stop is where advanced learners get started. Wh
 They identify the obstacles that make reading Old English so challenging, and come up with solutions, in order to get better. They stay calm and keep on reading until patterns start forming, one painful sentence after another, until literal and symbolic meanings become clear.
 
 Want to take your language skills to the next level? Become a student of Old English and start reading Beowulf, and keep on reading until it starts to make sense.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## 5\. Learn Basic Sign Language
 
@@ -128,12 +174,6 @@ More than two million people use sign language as their primary means of communi
 
 ![giphy](https://i.giphy.com/media/l0MYzjlxBWJn24Wbe/giphy.webp "How To Take Your English To The Next Level 4")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 It sounds silly, even crazy, to associate sign language ability with spoken language ability. Lifelong learners, however, realize that all forms of primary language – visual, verbal, and written – have equal importance and benefits.
 
 Throughout history and even today, communication and connection have been lopsided between hearing people and deaf people. Deaf people have to learn to read and write in English. They have to learn to read lips, on top of learning sign language. The more hearing people learn [basic sign language](https://www.youtube.com/watch?v=u3HoC9%5Fir3s&feature=youtu.be), the better we’ll all be able to understand one another.
@@ -155,6 +195,20 @@ Want more? With Mondly, you’ll get more every day! Quick Daily Lessons. 5 minu
 Start using Mondly for free on your computer or tablet or, better yet, download the Mondly app on your iOS or Android device and learn Spanish, French, German and more anytime, anywhere.
 
 Get Mondly now and speak any language like you never dreamed you would ![Learn a new language](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-2428&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-2428%26utm%5Fsource%3Dblog-post-id-2428&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-2428%26utm%5Fsource%3Dblog-post-id-2428&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-2428%26utm%5Fsource%3Dblog-post-id-2428&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-2428%26mt%3D8 "<a class=")">[Learn a new language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 <ins class="adsbygoogle"
      style="display:block"

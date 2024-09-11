@@ -1,7 +1,7 @@
 ---
 title: "Manejo De Horas: Un Principio De Lectura En Español"
-date: 2024-07-12T08:35:13.444Z
-updated: 2024-07-13T08:35:13.444Z
+date: 2024-09-10T13:28:17.601Z
+updated: 2024-09-11T13:28:17.601Z
 tags:
   - speak
   - english
@@ -26,11 +26,39 @@ But first things first.
 
 ![Spanish time](https://media.giphy.com/media/cAEm5rSuuBEGY/giphy.gif "How To Tell Time In Spanish - A Complete Guide For Beginners 2")
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## ¿Que hora es? – how to ask for the time in Spanish
 
  In order to tell the time in Spanish, you’ll first have to learn how to properly ask for the time in Spanish. You can never be too cautious. I’m just making sure you’re not missing that_fiesta española_ you spent weeks thinking about!
 
  In addition to the now well-known_**¿que hora es?**_ which literally translates to “what hour is it?”, you can also ask_**¿tiene hora?**_ which is literally “do you have the hour?”. Easy enough!
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## The basics of Spanish time
 
@@ -73,7 +101,41 @@ Here are some examples:
 
 ![telling time in spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/06/telling-time-in-spanish-600x600.jpg "How To Tell Time In Spanish - A Complete Guide For Beginners 3")
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
  Telling time in Spanish – a visual guide
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### Hour + minutes in Spanish time
 
@@ -86,6 +148,26 @@ Here are some examples:
 * _Son las ocho y cuarto._ (“it’s a quarter past eight”)
 * _Son las ocho y quince._ (“it’s eight and fifteen minutes”)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### Different ways of telling time in Spanish
 
  There are three formulas of telling time in Spanish. Here are different ways of telling it’s 3:10:
@@ -95,6 +177,26 @@ Here are some examples:
 * _es/son_ +_las_ \+ hour + con + number of minutes –**_Son las tres con diez_**
 
  Which one do you prefer? Additionally, if we also count it_cuarto_ and_media_ , there are no less than four different ways to tell the time in Spanish. And you’ve just mastered them all!
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## How to indicate the time of day in Spanish
 
@@ -169,6 +271,72 @@ Here are some examples:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://mondly-stories.techidaily.com/mondly-the-key-to-unlocking-linguistic-adventures-on-oculus-quest/"><u>'Mondly': The Key to Unlocking Linguistic Adventures on Oculus Quest</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-how-to-add-filters-and-music-on-windows-10-photos-app/"><u>[New] How to Add Filters and Music on Windows 10 Photos App</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-ultimate-plan-to-grow-your-subscriber-base/"><u>[New] The Ultimate Plan to Grow Your Subscriber Base</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ltimate-list-of-16-key-youtube-videos-for-higher-engagement/"><u>[New] Ultimate List of 16 Key YouTube Videos for Higher Engagement</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-capturing-coziness-ideal-winter-scenes-for-yt-video/"><u>[Updated] 2024 Approved Capturing Coziness Ideal Winter Scenes for YT Video</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-incorporating-obs-setting-up-a-countdown-scheduler/"><u>[Updated] In 2024, Incorporating OBS Setting Up A Countdown Scheduler</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-in-2024-secrets-to-successful-twitpicingvideo-edition/"><u>[Updated] In 2024, Secrets to Successful Twitpicing—Video Edition</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-how-much-video-can-64gb128gb-hold/"><u>2024 Approved How Much Video Can 64GB/128GB Hold?</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-making-mp3-from-instagram-visual-content/"><u>2024 Approved Making MP3 From Instagram Visual Content</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/boost-podcast-visibility-through-strategic-seo-tactics-for-2024/"><u>Boost Podcast Visibility Through Strategic SEO Tactics for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/elevate-your-igtv-presence-secrets-to-skyrocketing-subscribers/"><u>Elevate Your IGTV Presence Secrets to Skyrocketing Subscribers</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/elevating-your-workflow-with-audio-content-consumption/"><u>Elevating Your Workflow with Audio Content Consumption</u></a></li>
+<li><a href="https://win-answers.techidaily.com/fix-kernelbasedll-crash-problems-fast-and-simple/"><u>Fix KernelBase.dll Crash Problems Fast and Simple!</u></a></li>
+<li><a href="https://extra-information.techidaily.com/1722986899268-fortnite-login-woes-bypass-the-frustration-with-our-quick-fix-tips/"><u>Fortnite Login Woes? Bypass the Frustration with Our Quick Fix Tips</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-tongues-touching-english-lexical-diversification/"><u>Global Tongues Touching English: Lexical Diversification</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-vernacular-meets-the-queens-speech/"><u>Global Vernacular Meets the Queen's Speech</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/go-digital-go-social-send-snaps-instantly/"><u>Go Digital, Go Social Send Snaps Instantly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/harmonizing-diversity-a-journey-through-african-languages/"><u>Harmonizing Diversity: A Journey Through African Languages</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-lock-apps-on-vivo-y100i-to-protect-your-individual-information-by-drfone-android/"><u>How to Lock Apps on Vivo Y100i to Protect Your Individual Information</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-tecno-spark-10-pro-to-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Tecno Spark 10 Pro To Phone | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-7-ways-to-unlock-a-locked-meizu-21-pro-phone-by-drfone-android/"><u>In 2024, 7 Ways to Unlock a Locked Meizu 21 Pro Phone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-a-detailed-vpna-fake-gps-location-free-review-on-tecno-spark-20c-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed VPNa Fake GPS Location Free Review On Tecno Spark 20C | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-getting-started-with-iphone-speech-recordings/"><u>In 2024, Getting Started with iPhone Speech Recordings</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-t-mobile-iphone-12-pro-max-online-without-sim-card-by-drfone-ios/"><u>In 2024, How to Unlock T-Mobile iPhone 12 Pro Max online without SIM Card?</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlock-your-samsung-galaxy-a15-5g-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>In 2024, Unlock Your Samsung Galaxy A15 5G Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/korean-calendar-decoded-a-weekly-overview/"><u>Korean Calendar Decoded: A Weekly Overview</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-puzzle-dissecting-por-que-and-por-que/"><u>Language Puzzle: Dissecting Por Que and Por Qué</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/le-systeme-ouvert-explique-parts-of-the-body-en-francais/"><u>Le Système Ouvert Expliqué : Parts of the Body en Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguagem-verde-saudacoes-a-toda-hora-no-brasil/"><u>Linguagem Verde - Saudações a Toda Hora No Brasil</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/melodic-motion-in-imovie-editing-mastery/"><u>Melodic Motion in iMovie Editing Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-rewrites-the-future-of-multilingual-education-with-ar/"><u>Mondly Rewrites the Future of Multilingual Education with AR</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlyar-revolutionizing-virtual-reality-for-language-learners/"><u>MondlyAR: Revolutionizing Virtual Reality for Language Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/most-widely-learned-foreign-languages-for-americans/"><u>Most Widely Learned Foreign Languages for Americans</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-privacy-statement-available/"><u>New Privacy Statement Available</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/online-language-evolution-mondly-leads-the-pack-in-germany/"><u>Online Language Evolution: Mondly Leads the Pack in Germany</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/optimizing-income-through-youtube-short-tutorials/"><u>Optimizing Income Through YouTube Short Tutorials</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-language-learning-for-norge-proficiency/"><u>Quick Language Learning for Norge Proficiency!</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-oppo-find-n3-flip-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For Oppo Find N3 Flip</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/semaine-francaise-du-mercredi/"><u>Semaine Française Du Mercredi</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/skyward-elite-unified-ultra-hd-multi-touch-panels/"><u>Skyward Elite Unified, Ultra HD Multi-Touch Panels</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speedy-bengali-language-bootcamp/"><u>Speedy Bengali Language Bootcamp</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-fundamentals-of-pronouncing-french-words-rightly/"><u>The Fundamentals of Pronouncing French Words Rightly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-interactive-pearson-global-learning-experience/"><u>The Interactive Pearson Global Learning Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-sweetest-syntax-how-to-say-chocolate-everywhere/"><u>The Sweetest Syntax: How To Say 'Chocolate' Everywhere</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-chinese-thank-you-phrases/"><u>The Ultimate Guide to Chinese Thank You Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/thriving-in-your-fifties-by-embracing-language-skills/"><u>Thriving in Your Fifties by Embracing Language Skills</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-6-appsservices-to-trace-any-xiaomi-redmi-note-13-5g-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>Top 6 Apps/Services to Trace Any Xiaomi Redmi Note 13 5G Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-guide-bluetooth-appears-invisible-on-pcs-device-list/"><u>Troubleshooting Guide: Bluetooth Appears Invisible on PC's Device List</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/turkish-letter-system-simplified-easy-reference-for-novices/"><u>Turkish Letter System Simplified: Easy Reference for Novices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/um-compendio-do-portugues-saudacoes-a-todas-as-hora/"><u>Um Compêndio Do Português: Saudações a Todas as Hora</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-romance-say-i-love-you-in-10plus-languages/"><u>Unlock Romance: Say I Love You In 10+ Languages!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-the-charm-of-german-speech-essential-25-phrases/"><u>Unlocking the Charm of German Speech - Essential 25 Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/us-and-uk-english-discrepancies/"><u>US & UK English Discrepancies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-choice-todays-top-ios-app/"><u>Worldwide Choice: Today's Top iOS App</u></a></li>
+</ul></div>
 
 
 

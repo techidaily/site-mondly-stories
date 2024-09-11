@@ -1,7 +1,7 @@
 ---
 title: "Orthographic Odyssey: Comparing Brazilian and European"
-date: 2024-07-12T08:34:08.866Z
-updated: 2024-07-13T08:34:08.866Z
+date: 2024-09-10T13:29:45.276Z
+updated: 2024-09-11T13:29:45.276Z
 tags:
   - speak
   - english
@@ -20,11 +20,51 @@ thumbnail: https://thmb.techidaily.com/d35a9f55c38e62a416cd2700848e1170978470691
 
  In general, those who speak either language can understand the other, but it may be difficult in some situations. That’s because there are so many nuances between the two. American linguist Albert Marckwardt coined the term “Colonial Lag” as a hypothesis that original varieties of a language (i.e., Brazilian Portuguese) change less than the variety spoken in the mother country (Portugal).
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## History
 
  Countries tend to follow the linguistic developments of the mother country with a bit of delay due to the geographical distance. Portuguese was not deemed the official language in Brazil until 1758, whereas the colonization really began in the 16th century. Over time, changes occurred in the language because of increasing contact with European and [Asian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) immigrants.
 
  The other countries colonized by Portugal speak a Portuguese more akin to the [mother language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Why? Many of them are [African](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) countries, so they don’t have external contact from other cultures that could have impacted their way of speaking. Secondly, compared to Brazil, those countries gained their independence much later and had more contact with Portugal during their early development.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Differences in the Pronunciation
 
@@ -32,9 +72,37 @@ thumbnail: https://thmb.techidaily.com/d35a9f55c38e62a416cd2700848e1170978470691
 
  The pronunciation of some consonants is also different, particularly the S at the end of a word. In Brazilian Portuguese, an S at the end of a word is pronounced as SS; in Portugal, it is pronounced as SH.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115943/19272" target="_top" id="2115943">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115943" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Accents
 
  Brazilian Portuguese is thought to be more phonetically pleasing to the ear thanks to its open vowels, while European Portuguese can sound somewhat garbled. Brazilian accents have a strong cadence and lift to them, making it easier to learn and understand.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Grammar and Spelling
 
@@ -48,6 +116,20 @@ thumbnail: https://thmb.techidaily.com/d35a9f55c38e62a416cd2700848e1170978470691
 
  European Portuguese is the more formal of the two versions. In Brazilian Portuguese, the word**você** is used for “you” in informal settings; in European Portuguese,**tu** is utilized in the same context. In Portugal, they view the você as crude and thus remove the second-person pronoun in less casual situations and instead use the verb in the third-person singular.  
  When describing actions, Brazilians use “estou fazendo” to mean “I am doing,” and the European Portuguese use the infinitive form, “estou a fazer.” The latter is less direct and translates to “I am taken to doing.”
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135474/26400" target="_top" id="2135474">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135474" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135474/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Should You Learn Brazilian or European Portuguese?
 
@@ -87,6 +169,26 @@ thumbnail: https://thmb.techidaily.com/d35a9f55c38e62a416cd2700848e1170978470691
 
 ---
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### Speak Portuguese fluently in just 10 minutes a day
 
  Do you want to speak Portuguese fluently fast? Get Mondly, the award-winning language learning app that will help you speak Portuguese as if it were your first language.
@@ -111,6 +213,66 @@ thumbnail: https://thmb.techidaily.com/d35a9f55c38e62a416cd2700848e1170978470691
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-top-10-epic-adventures-game-editions-greatest-hits/"><u>[New] 2024 Approved Top 10 Epic Adventures Game Edition's Greatest Hits</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-leading-pictorial-storage-hubs/"><u>[New] Leading Pictorial Storage Hubs</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-superior-gameplay-androids-leading-gba-emulators/"><u>[New] Superior Gameplay Android's Leading GBA Emulators</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-elevate-your-game-on-instagram-5-key-tactics-for-top-tier-influencers/"><u>[Updated] In 2024, Elevate Your Game on Instagram 5 Key Tactics for Top-Tier Influencers</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-seamless-slidecasts-combining-webcam-and-ppt-for-2024/"><u>[Updated] Seamless Slidecasts Combining Webcam and PPT for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-soaring-in-high-definition-an-in-depth-xiaomi-analysis/"><u>[Updated] Soaring in High Definition An In-Depth Xiaomi Analysis</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-insiders-list-google-pixel-tone-sources/"><u>2024 Approved Insider's List Google Pixel Tone Sources</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/breach-overcome-restoring-your-facebook-access-for-2024/"><u>Breach Overcome Restoring Your Facebook Access for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/demystifying-av1-a-first-time-guide-for-2024/"><u>Demystifying AV1 A First-Time Guide for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/expert-techniques-for-enhanced-minecraft-zooms-for-2024/"><u>Expert Techniques for Enhanced Minecraft Zooms for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/exploring-windows-data-source-configuration-interface/"><u>Exploring Windows Data Source Configuration Interface</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hablar-en-espanol-el-ciclo-de-los-dias-del-mes/"><u>Hablar en Español: El Ciclo De Los Días Del Mes</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-can-sony-xperia-10-vmirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Sony Xperia 10 VMirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-free-up-iphone-xr-space-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>How To Free Up iPhone XR Space | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/1722882983348-how-to-quickly-capture-your-screen-on-windows-11-four-steps-inside/"><u>How to Quickly Capture Your Screen on Windows 11 - Four Steps Inside!</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-vivo-v29e-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Vivo V29e to Outlook | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-14-pro-without-passcode-by-drfone-ios/"><u>How to Unlock iPhone 14 Pro Without Passcode?</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Reasons why Pokémon GPS does not Work On Apple iPhone 6s Plus? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/israel-expedition-essentials-practical-advice-and-useful-dialogue/"><u>Israel Expedition Essentials: Practical Advice & Useful Dialogue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/japanese-dialogues-for-first-impressions/"><u>Japanese Dialogues for First Impressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/la-structure-corporelle-revelee-parts-in-french/"><u>La Structure Corporelle Révélée: Parts in French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leap-into-latin-top-online-educational-platforms/"><u>Leap Into Latin: Top Online Educational Platforms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/los-dias-del-mundo-en-espanol-descubriendo-cada-jornada/"><u>Los Días Del Mundo en Español: Descubriendo Cada Jornada</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lovely-lexicon-romes-heartfelt-expressions/"><u>Lovely Lexicon: Rome’s Heartfelt Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-french-social-dynamics-a-guide-to-intricate-greetings/"><u>Mastering French Social Dynamics: A Guide to Intricate Greetings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastery-in-mouthage-elite-linguistic-training-plans/"><u>Mastery in Mouthage: Elite Linguistic Training Plans</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/optimal-language-learning-platforms-for-success/"><u>Optimal Language Learning Platforms for Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/origins-of-the-germanic-dialektaal-voortgang/"><u>Origins of the Germanic Dialektaal Voortgang</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/outstanding-5-educational-platforms-for-language-instruction/"><u>Outstanding 5 Educational Platforms for Language Instruction</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-samsung-galaxy-z-flip-5-drfone-by-drfone-virtual-android/"><u>Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Samsung Galaxy Z Flip 5 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/principios-del-entendimiento-del-tiempo-en-espanol/"><u>Principios Del Entendimiento Del Tiempo en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/santas-verbal-virtuosity-global-dialects/"><u>Santa’s Verbal Virtuosity - Global Dialects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saying-hi-in-indonesia-key-greeting-phrases/"><u>Saying Hi in Indonesia: Key Greeting Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-by-step-mondly-optimization-techniques/"><u>Step-by-Step Mondly Optimization Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sverige-mojligen-allt-i-gorelse/"><u>Sverige Möjligen: Allt I Görelse</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-dawn-of-verbalized-augmented-experiences/"><u>The Dawn of Verbalized Augmented Experiences</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-essential-powerdirector-handbook-24-for-2024/"><u>The Essential PowerDirector Handbook '24 for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-fundamentals-of-fluent-russian-communication/"><u>The Fundamentals of Fluent Russian Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-worldwide-hispanic-voice-network/"><u>The Worldwide Hispanic Voice Network</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/understanding-googles-gemini-an-overview-of-its-artificial-intelligence-pursuits/"><u>Understanding Google's Gemini: An Overview of Its Artificial Intelligence Pursuits</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/unlocking-the-power-of-visual-content-share-vids-on-facebook-for-2024/"><u>Unlocking the Power of Visual Content Share Vids on Facebook for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-the-secrets-of-spanish-accent-typography/"><u>Unlocking the Secrets of Spanish Accent Typography</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/unveiling-the-best-chromebook-voice-alteration-tools-a-top-6-list-for-auditory-playfulness-visualeditpro-for-2024/"><u>Unveiling the Best Chromebook Voice Alteration Tools A Top 6 List for Auditory Playfulness - VisualEditPro for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/valkommen-till-sverige-svensk-valkomman/"><u>Välkommen Till Sverige: Svensk Välkomman</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vr-language-app-mondly-enhances-global-oculus-experience/"><u>VR Language App 'Mondly' Enhances Global Oculus Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/wochenabschnitte-deutscher-sprache-nachlesen/"><u>Wochenabschnitte Deutscher Sprache Nachlesen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/wochenstruktur-in-deutsch-verstehen/"><u>Wochenstruktur in Deutsch Verstehen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/wow-venetians-with-unique-expressions-and-vocabulary/"><u>Wow Venetians with Unique Expressions and Vocabulary</u></a></li>
+</ul></div>
 
 
 

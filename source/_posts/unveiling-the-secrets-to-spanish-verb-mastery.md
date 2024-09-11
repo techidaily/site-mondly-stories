@@ -1,7 +1,7 @@
 ---
 title: Unveiling the Secrets to Spanish Verb Mastery
-date: 2024-07-12T08:39:18.915Z
-updated: 2024-07-13T08:39:18.915Z
+date: 2024-09-10T13:24:07.405Z
+updated: 2024-09-11T13:24:07.405Z
 tags:
   - speak
   - english
@@ -17,6 +17,20 @@ thumbnail: https://thmb.techidaily.com/c2e36ccbc985ffa8060cba8099c01adb9e0bc2274
 ## Unveiling the Secrets to Spanish Verb Mastery
 
  ¡Hola, Spanish language aficionado! Welcome to another essential Spanish lesson you’ll have to learn if you want to boost your Spanish conversation skills. Today, we are talking about**Spanish verbs** , their conjugations, and some [**Spanish grammar rules**](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) that will naturally join the party. Are you ready? Let’s start with the basics.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Spanish verbs: rules for regular Spanish verbs
 
@@ -59,6 +73,20 @@ Spanish verbs conjugations make sense now, don’t they?
  If you want to go even further and achieve Spanish fluency, Mondly can help you**learn Spanish fast** in 5 minutes a day with compact and very entertaining lessons. And don’t worry about the conjugations! In Mondly, you can quickly see a verb’s conjugation by simply tapping on it.
 
 ![Mondly app screenshot verb conjugation](https://edge.mondly.com/blog/wp-content/uploads/2019/06/verb-conjugation-353x600.png "Spanish Verb Conjugation: Regular And Irregular Verbs 2")
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
  In Mondly, you can quickly see a verb’s conjugation by simply tapping on it
 
@@ -107,6 +135,26 @@ And the conjugation of comer will look like this:
 
  Keep in mind the fact that the first person singular (_yo_), third person singular (_él, ella_), and second person formal singular (_usted_) forms use tildes on the final letters of the verb endings. And one little tilde can make all the difference in the world! If you don’t know yet how accents work, take a look at our article on **[Spanish accents and how to master them all](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .**
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Spanish Simple Future Tense – Regular Simple Future Verb Endings
 
  In Spanish, there are two ways to form the future tense:**the informal future tense** (the verb_ir_ \+ a + infinitive ->_voy a comer_) and**the simple future tense,** which we will illustrate in this article.
@@ -139,11 +187,51 @@ And the conjugation of comer will look like this:
 * _Vosotros / Vosotras escrib**iréis**_
 * _Ellos / Ellas / Ustedes escrib**irán**_
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1982461">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Spanish verbs: how to master irregular Spanish verbs
 
  Remember how you managed to learn**irregular English verbs** ? Well, there are tricks that you can use, but the truth is that, in time,**irregular Spanish verbs** will just… come to you. No joke. Once you get used to the language and use it all the time, your brain will start making connections.
 
  As you already know,**irregular verbs** are “rebel” verbs that follow no regular set of rules. Statistically, in Spanish, almost all verbs ending in_\-ar_ are regular, almost all verbs ending in_\-er_ are irregular and less than half of all verbs ending in_\-ir_ are irregular. So, let’s disentangle this complicated situation of**irregular Spanish verbs** and look for some patterns to help us learn faster.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### 1\. Stem-Changing Verbs in Spanish
 
@@ -222,6 +310,20 @@ _Adquirir_ (to acquire) and_inquirir_ (to inquire) are just as rebellious becaus
  –_salir_ (to exit) –_Yo salgo_ ,_Tú sales_
  –_dar_ (to give) –_Yo doy_ ,_Tú das_
  –_ver_ (to see) –_Yo veo_ ,_Tú ves_
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Spanish verbs conjugation examples –_ser, estar, ir_
 
@@ -313,6 +415,55 @@ Well… this is it! This is our full lesson on**Spanish verbs.**
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-snapstreak-savvy-guidance-to-prevent-interruptions/"><u>[New] 2024 Approved Snapstreak Savvy Guidance to Prevent Interruptions</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-pioneering-photography-insight-with-complementary-works/"><u>[New] In 2024, Pioneering Photography Insight with Complementary Works</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-spectacular-racing-thrills-the-quintet-for-2024/"><u>[New] Spectacular Racing Thrills The Quintet for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-full-spectrum-screen-recording-az-analyses-and-backups/"><u>[Updated] 2024 Approved Full Spectrum Screen Recording - AZ Analyses & Backups</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-step-by-step-to-faster-tiktok-videos/"><u>[Updated] In 2024, Step-by-Step to Faster TikTok Videos</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-selecting-your-perfect-monitor-and-recorder-duo-for-2024/"><u>[Updated] Selecting Your Perfect Monitor & Recorder Duo for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-the-essential-lenovo-display-recording-hacks-for-2024/"><u>[Updated] The Essential Lenovo Display Recording Hacks for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-transformational-techniques-bold-borders-on-instagram-photos/"><u>[Updated] Transformational Techniques Bold Borders on Instagram Photos</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-av1-essentials-for-the-uninitiated/"><u>2024 Approved AV1 Essentials For the Uninitiated</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-5-best-route-generator-apps-you-should-try-on-motorola-moto-e13-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Best Route Generator Apps You Should Try On Motorola Moto E13 | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-forgot-pattern-lock-heres-how-you-can-unlock-samsung-galaxy-a34-5g-pattern-lock-screen-by-drfone-android/"><u>In 2024, Forgot Pattern Lock? Heres How You Can Unlock Samsung Galaxy A34 5G Pattern Lock Screen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-mondlys-enriched-customer-service-qanda/"><u>Introducing Mondly's Enriched Customer Service Q&A</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-to-a-new-world-start-learning-croatian-today-for-these-7-reasons/"><u>Journey to a New World – Start Learning Croatian Today for These 7 Reasons!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/key-croatian-expressions-for-an-unforgettable-journey-to-croatia/"><u>Key Croatian Expressions for an Unforgettable Journey to Croatia</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-to-converse-tagalog-today-with-focused-short-sessions/"><u>Learn to Converse Tagalog Today with Focused Short Sessions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-consequences-picking-between-german-and-french/"><u>Learning Consequences: Picking Between German and French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-growth-through-dark-shows-on-streaming-platforms/"><u>Linguistic Growth Through Dark Shows on Streaming Platforms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-presents-modern-language-learning-tools/"><u>Mondly Presents Modern Language Learning Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-unites-with-pearson-knowledge-alliance/"><u>Mondly Unites With Pearson Knowledge Alliance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-boundless-learning-network-a-community-of-70plus-million/"><u>Mondly’s Boundless Learning Network: A Community of 70+ Million</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-unparalleled-contribution-to-my-language-learning-progress-top-10-insights/"><u>Mondly’s Unparalleled Contribution to My Language Learning Progress – Top 10 Insights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/neurolingual-vr-enhancing-cognitive-skills-through-language/"><u>NeuroLingual VR: Enhancing Cognitive Skills Through Language</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/play-store-not-working-on-honor-x9b-8-solutions-inside-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Not Working On Honor X9b? 8 Solutions Inside | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polyglot-proficiency-program/"><u>Polyglot Proficiency Program</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/practical-language-use-analyzing-german-and-french-merits/"><u>Practical Language Use: Analyzing German & French Merits</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sunday-through-saturday-in-korea-made-simple/"><u>Sunday Through Saturday in Korea Made Simple</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-global-gift-giver-santa-claus-multilingual-magic/"><u>The Global Gift-Giver: Santa Claus’ Multilingual Magic</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-pathway-to-linguistic-proficiency-mondlys-top-10-innovations-for-learning/"><u>The Pathway to Linguistic Proficiency – Mondly's Top 10 Innovations for Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-pearson-way-to-mastering-languages/"><u>The Pearson Way to Mastering Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-wise-choice-embracing-multilingualism-in-your-golden-years/"><u>The Wise Choice: Embracing Multilingualism in Your Golden Years</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-three-asian-verbal-forms-prioritize-and-archive-access/"><u>Top Three Asian Verbal Forms: Prioritize & Archive Access</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transcend-limits-by-learning-languages/"><u>Transcend Limits by Learning Languages</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/troubleshooting-windows-11-solutions-for-non-responsive-search-function/"><u>Troubleshooting Windows 11: Solutions for Non-Responsive Search Function</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/veritable-verses-of-vintage-verite/"><u>Veritable Verses of Vintage Vérité</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/virtuachatter-engaging-with-new-languages-in-vr/"><u>VirtuaChatter: Engaging with New Languages in VR</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-learn-croatian-unveil-the-top-7-compelling-benefits/"><u>Why Learn Croatian? Unveil the Top 7 Compelling Benefits!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/poiothta-eygnwmwn-gkreman-ths-dyshs/"><u>Ποιότητα Ευγνωμών Γκρεμάν Της Δύσης</u></a></li>
+</ul></div>
 
 
 

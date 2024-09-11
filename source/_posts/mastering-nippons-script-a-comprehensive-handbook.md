@@ -1,7 +1,7 @@
 ---
 title: "Mastering Nippon's Script: A Comprehensive Handbook"
-date: 2024-07-12T08:35:14.540Z
-updated: 2024-07-13T08:35:14.540Z
+date: 2024-09-10T13:28:18.827Z
+updated: 2024-09-11T13:28:18.827Z
 tags:
   - speak
   - english
@@ -31,6 +31,26 @@ The main subjects we’re going to cover next are:
 * Kanji characters originated from China and are used for content-heavy words;
 * Why is Japanese writing so fascinating and complex.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## The Japanese Writing System: an overview
 
  There’s a good reason why learning Japanese should be considered a personal triumph. While English uses only one script (the Latin script),**Japanese uses three scripts: hiragana, katakana, and kanji.** Yes, you read that right. If you want to learn to write in Japanese, you’ll have to learn three scripts. And if we also count in rōmaji (the Romanization of the Japanese language) – we could say Japanese has a total of four writing systems.
@@ -55,6 +75,20 @@ In rōmaji, that’s “Kon’nichiwa, watashi no namae wa Mondly desu.”
 
 ![How to read Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/05/how-to-read-japanese-900x960.png "Unlock The Secrets Of The Japanese Writing System And Alphabet: Your Ultimate Guide 12")
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
  Learn Japanese with Mondly easily.
 
  On the bright side, if you want to get further than just speaking and writing using rōmaji, **kana characters (hiragana + katakana) can be mastered in 2-5 days** – depending on your level of commitment and capacity to learn. My advice would be to not settle for rōmaji. It doesn’t help. On the contrary! Besides, once you know katakana, you’ll know how to read thousands of Japanese words.
@@ -62,6 +96,26 @@ In rōmaji, that’s “Kon’nichiwa, watashi no namae wa Mondly desu.”
  On the other hand, if you want to move to Japan and maybe get a job there, this won’t be_japaneasy_ at all. You’ll really have to learn kanji. As you may have heard, **the kanji Japanese symbols are the ones that were “loaned” from China.** In total, there are around 50,000 of them. Don’t worry, though! Only 3,000 characters are in common use in Japan today.
 
  Before we move on to more details about each writing system, it’s important to also point out that **the Japanese language uses no spaces, no cases, no grammatical genders, and no articles.** It does sound tricky, but I promise that’s actually good news!
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Kanji in a nutshell
 
@@ -120,6 +174,20 @@ In rōmaji, that’s “Kon’nichiwa, watashi no namae wa Mondly desu.”
 
  Somehow related to kanji, kana evolved from_man’yōgana_ (万葉仮名) – an ancient writing system that uses Chinese characters to represent the Japanese language phonetically. The hiragana and katakana characters we use today are simplified versions of_man’yōgana_ .
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### **When are Kana characters used?**
 
  The usage difference between hiragana and katakana is stylistic. Usually, **hiragana is used for particles, postpositions, adverbs, auxiliary verbs, function words,** or as a replacement for kanji when there’s a word with no kanji representation or whose kanji is thought to be too difficult for others to understand.
@@ -144,6 +212,20 @@ In rōmaji, that’s “Kon’nichiwa, watashi no namae wa Mondly desu.”
 
  As you can see, using only five vowels and nine consonants (k, s, t, n, h, m, y, r, w) you can identify all the kana sounds you’ll need to speak Japanese. Generally, consonants are pronounced the same as in English (except for “g” that is pronounced as in “get”). In addition to these syllable sounds, the Japanese language uses a single consonant – the letter “n”.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Rōmaji: the Romanization of the Japanese language
 
  **Rōmaji, or the Romanization of the Japanese language, means writing [Japanese words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) or Japanese phrases using the Latin alphabet.** In other words, this is what we call transliteration (the process of converting a text from one script to another).
@@ -156,19 +238,75 @@ In rōmaji, that’s “Kon’nichiwa, watashi no namae wa Mondly desu.”
 
  Let’s be honest: Japanese writing is not easy to master. If you want to do it right, it’s essential to keep your focus and avoid the following mistakes. 👇
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### Mixing up Hiragana, Katakana, and Kanji
 
  It’s easy to confuse these three scripts when you’re a beginner. Make sure you start by learning their differences and uses. Mixing them up can lead to misunderstandings and errors in your writing.
 
 If you need a refresher, you can always come back to this article.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### Using the wrong stroke order
 
  Each character in Japanese writing has a specific stroke order that you should follow to write it correctly. Using the wrong stroke order can make your writing messy and hard to read.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### Misusing particles
 
  Particles are small words that indicate the relationship between words in a sentence in Japanese. Misusing them can change the meaning of the sentence and make it difficult to understand. Some Japanese particle examples are は (wa), が (ga) and を (o/wo).
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### Using incorrect verb tenses
 
@@ -176,15 +314,57 @@ If you need a refresher, you can always come back to this article.
 
  Not quite that different from other languages, is it? Verb tenses rule time – quite literally.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### Forgetting to use honorific language
 
  Honorific language is essential in Japanese to show respect to others. Forgetting to use it can come across as rude or disrespectful.
 
  Many of us are familiar with the well-known Japanese custom of the polite bow, as well as the strong emphasis that Japanese culture places on hierarchy and etiquette, especially within the family. These values seem to be deeply ingrained in Japanese society and it’s important to respect them. It all depends on the social context!
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### Not practicing enough
 
  Like any skill, learning Japanese writing takes practice. Not practicing enough can lead to slow progress and difficulties mastering the language. Don’t forget that practice makes perfect.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## What makes the Japanese writing system so complex?
 
@@ -207,6 +387,20 @@ If you need a refresher, you can always come back to this article.
 
  Although there’s no “Japanese alphabet” per se, we can safely talk about the three writing systems coexisting harmoniously together. As much as you already think you know about the Japanese alphabet, there are a few interesting facts that will catch your eye and even help you understand the language better.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### 1\. There is a system for foreign words in the Japanese alphabet
 
  Since Japan is a big economic power, international trade increased rapidly, and with it, words from different languages. The Japanese alphabet katakana adopted words and transformed them to be easier for Japanese people to articulate them and communicate. Foreign names and pronouns are changed and “Japanized”.
@@ -214,6 +408,20 @@ If you need a refresher, you can always come back to this article.
 ### 2\. There is no plural in Japanese
 
 The Japanese alphabet  has no plurals, which means there is no difference between talking about one person or a group of people. This can be easy if you want to [learn a new language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and you are afraid of the difficulty level one might have.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115945/19272" target="_top" id="2115945">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115945/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### 3\. Intonation is essential
 
@@ -224,6 +432,26 @@ The Japanese alphabet  has no plurals, which means there is no difference betwee
 ![japanese city](https://edge.mondly.com/blog/wp-content/uploads/2019/05/japanese-city-960x641.jpg "Unlock The Secrets Of The Japanese Writing System And Alphabet: Your Ultimate Guide 18")
 
  Japanese city center
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### 4\. Many sounds can be represented by the same Kanji symbol
 
@@ -288,6 +516,52 @@ The Japanese alphabet  has no plurals, which means there is no difference betwee
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://iphone-unlock.techidaily.com/3-easy-ways-to-factory-reset-a-locked-apple-iphone-15-without-itunes-drfone-by-drfone-ios/"><u>3 Easy Ways to Factory Reset a Locked Apple iPhone 15 Without iTunes | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/demystifying-color-grading-with-powerful-luts-for-2024/"><u>Demystifying Color Grading with Powerful LUTs for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/easy-guide-to-tecno-pop-7-pro-frp-bypass-with-best-methods-by-drfone-android/"><u>Easy Guide to Tecno Pop 7 Pro FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://blog-min.techidaily.com/free-guide-transform-avchd-videos-into-mp4-format-with-these-5-tips-for-windows-11-users/"><u>Free Guide: Transform AVCHD Videos Into MP4 Format with These 5 Tips for Windows 11 Users</u></a></li>
+<li><a href="https://techidaily.com/hard-reset-tecno-spark-20c-in-3-efficient-ways-drfone-by-drfone-reset-android-reset-android/"><u>Hard Reset Tecno Spark 20C in 3 Efficient Ways | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-insta-to-tik-integration-masterclass/"><u>In 2024, Insta-to-Tik Integration Masterclass</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-virtual-verbal-excellence-proven-methods-for-effective-zoom-interactions/"><u>In 2024, Virtual Verbal Excellence Proven Methods for Effective Zoom Interactions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-greetings-101/"><u>International Greetings 101</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-the-first-augmented-reality-language-app-with-speech-recognition/"><u>Introducing the First Augmented Reality Language App with Speech Recognition</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/introducing-the-latest-upgrade-amazons-new-fire-hd-8-with-innovative-wireless-charge-feature/"><u>Introducing the Latest Upgrade: Amazon's New Fire HD 8 with Innovative Wireless Charge Feature</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/kinder-to-grade-school-in-spanish-a-kids-journey/"><u>Kinder to Grade School in Spanish: A Kid's Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-bridge-by-locals-learn-romanian/"><u>Language Bridge by Locals, Learn Romanian</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-liberation-mondlys-no-cost-offering-awaits-ukraines-learners/"><u>Language Learning Liberation: Mondly's No-Cost Offering Awaits Ukraine's Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/les-jours-de-la-semaine-en-francais/"><u>Les Jours De La Semaine en Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-landscape-exploring-uk-us-and-aussie-accent-differences/"><u>Linguistic Landscape: Exploring UK, U.S., and Aussie Accent Differences</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-french-salutations-the-ultimate-guide-to-bonjour/"><u>Mastering French Salutations: The Ultimate Guide to 'Bonjour'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-hindi-made-easy-top-8-reasons-why-choose-mondlys-online-platform/"><u>Mastering Hindi Made Easy: Top 8 Reasons Why Choose Mondly's Online Platform</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-expand-your-speech-free-of-charge/"><u>Mondly: Expand Your Speech - Free of Charge</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlyar-vr-bridging-linguistic-gaps-in-virtual-space/"><u>MondlyAR VR: Bridging Linguistic Gaps in Virtual Space</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlyvr-experience-language-learning-beyond-boundaries/"><u>MondlyVR: Experience Language Learning Beyond Boundaries</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/premier-apps-fueling-fluency-journey/"><u>Premier Apps Fueling Fluency Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rhythmic-refinement-practice-english-twisters-daily/"><u>Rhythmic Refinement: Practice English Twisters Daily</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seize-language-power-6-ways-to-learn-arabic-via-mondly-online/"><u>Seize Language Power: 6 Ways to Learn Arabic via Mondly Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/semaine-francaise-la-palette-des-jours/"><u>Semaine Française: La Palette Des Jours</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-most-in-demand-world-languages-in-us-education/"><u>The Most In-Demand World Languages in U.S. Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-roadmap-to-korean-mastery-selecting-your-best-resources/"><u>The Roadmap to Korean Mastery: Selecting Your Best Resources</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/thriving-in-british-conversation-a-reference-guide/"><u>Thriving in British Conversation: A Reference Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-9-challenging-tongues-overcoming-language-barriers/"><u>Top 9 Challenging Tongues: Overcoming Language Barriers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-your-linguistic-skills-through-dark-on-streaming/"><u>Transform Your Linguistic Skills Through Dark on Streaming</u></a></li>
+<li><a href="https://techtrends.techidaily.com/troubleshooting-coredll-errors-in-windows-computers-effective-strategies/"><u>Troubleshooting Core.dll Errors in Windows Computers – Effective Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-simplified-han-characters/"><u>Understanding Simplified Han Characters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-multilingualism-integrating-sound-science-and-effective-learning-techniques/"><u>Unlocking Multilingualism: Integrating Sound, Science & Effective Learning Techniques</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-in-2024-the-art-of-transitions-3-expert-tips-for-final-cut-pro-users/"><u>Updated In 2024, The Art of Transitions 3 Expert Tips for Final Cut Pro Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/where-do-people-feast-on-thanksgiving/"><u>Where Do People Feast on Thanksgiving?</u></a></li>
+</ul></div>
 
 
 

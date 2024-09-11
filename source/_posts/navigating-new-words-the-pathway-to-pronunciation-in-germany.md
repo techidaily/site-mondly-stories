@@ -1,7 +1,7 @@
 ---
 title: "Navigating New Words: The Pathway to Pronunciation in Germany"
-date: 2024-07-12T08:37:14.532Z
-updated: 2024-07-13T08:37:14.532Z
+date: 2024-09-10T13:26:11.730Z
+updated: 2024-09-11T13:26:11.730Z
 tags:
   - speak
   - english
@@ -26,6 +26,20 @@ thumbnail: https://thmb.techidaily.com/05fdd1e1f79925f7174d27adc0ae3abbe1009fc92
 
  Considering you’re already familiar with all the other letters, let’s continue by taking a closer look at these four special letters: ß, ä, ö and ü.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### ß also known as ‘sharp S’, ‘eszett’ or ‘scharfes S’
 
  Although it looks different from everything you’ve ever seen in English, ß shouldn’t intimidate you. Vaguely resembling a capital ‘B’,**the letter ß is pronounced like a sharp S** (like the ‘s’ in ‘see’) – hence its name ‘eszett’ or ‘scharfes S’.
@@ -33,6 +47,20 @@ thumbnail: https://thmb.techidaily.com/05fdd1e1f79925f7174d27adc0ae3abbe1009fc92
  German is the only language that uses ß and if the character is unavailable, it can be replaced with ⟨ss⟩. In fact, in Swiss Standard German (used in Switzerland and Liechtenstein), the letter was completed replaced by ⟨ss⟩ sometime in the 20th century.
 
  Eszett not having a capitalized version sparked debates for a long time, so the Council for German Orthography [officially adopted](https://www.sueddeutsche.de/bildung/rechtschreibung-das-alphabet-bekommt-einen-neuen-buchstaben-1.3566309) a capital in 2017\. The capital of ß is ẞ.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### German umlauts: ä, ö, ü
 
@@ -50,6 +78,34 @@ Now round off your lips and start practicing!
 
 ![german alphabet](https://edge.mondly.com/blog/wp-content/uploads/2022/04/german-alphabet-960x640.jpg "A Beginner’s Guide To The German Pronunciation &Amp; Alphabet 2")
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123479/16836" target="_top" id="2123479">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123479" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123479/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## German pronunciation guide for single letters
 
  Now that we’ve settled the matters with ß, ä, ö and ü, it’s time to move on to more familiar letters and see how their pronunciation differs from English.
@@ -63,6 +119,20 @@ Now round off your lips and start practicing!
 3. **V** – Sounds like the English ‘f’. This is why _Vater_ sounds a lot like ‘father’.
 4. **J** – _Oh ja,_ you already know this one! The German _j_ is pronounced like the English ‘y’.
 5. **E** – If you see an _e_ at the end of a German word, make sure to pronounce it like this: ‘eh’. Come on! Loud and clear: _Katze_ (‘cat’)!
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## German pronunciation guide for letter combinations
 
@@ -80,6 +150,20 @@ Now round off your lips and start practicing!
 10. **Z** – Don’t pronounce this like the English ‘z’. Go instead for the ‘ts’ sound in ‘cats’. Try it: _Zeitung_ (‘newspaper’).
 
  Did you recognize_ze rules_ in this example?
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## How to pronounce long German words
 
@@ -126,6 +210,71 @@ _Tschüss!_
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-cutting-edge-tools-for-seamless-vimeo-video-download/"><u>[Updated] 2024 Approved Cutting-Edge Tools for Seamless Vimeo Video Download</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-effortless-snapchat-setup-for-mac-enthusiasts/"><u>[Updated] 2024 Approved Effortless Snapchat Setup for Mac Enthusiasts</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-mastering-youtube-frames-top-5-cost-free-techniques/"><u>[Updated] 2024 Approved Mastering YouTube Frames Top 5 Cost-Free Techniques</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-tips-and-tricks-for-effective-google-meet-capture/"><u>[Updated] 2024 Approved Tips and Tricks for Effective Google Meet Capture</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-how-to-screen-record-on-hp-laptop/"><u>[Updated] How to Screen Record on Hp Laptop</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-optimizing-control-switch-pro-for-steam-gaming/"><u>[Updated] In 2024, Optimizing Control Switch Pro for Steam Gaming</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-mac-gif-mastery-find-the-best-10-recorders-for-2024/"><u>[Updated] Mac GIF Mastery Find the Best 10 Recorders for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-navigating-video-editing-with-apples-latest-m1-macbook-air/"><u>2024 Approved Navigating Video Editing with Apple’s Latest M1 MacBook Air</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/elevate-your-remote-communication-with-manycam-advanced-features-for-professional-live-video-software-and-digital-camera-alternatives/"><u>Elevate Your Remote Communication with ManyCam: Advanced Features for Professional Live Video Software and Digital Camera Alternatives</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-by-checkra1n-even-from-iphone-se-if-youve-tried-everything-by-drfone-ios/"><u>How To Bypass iCloud By Checkra1n Even From iPhone SE If Youve Tried Everything</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-contacts-from-poco-m6-pro-5g-by-fonelab-android-recover-contacts/"><u>How to recover deleted contacts from Poco M6 Pro 5G.</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-huawei-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Huawei online without jailbreak</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-ideal-history-streams-the-10-premier-channels-for-students-study/"><u>In 2024, Ideal History Streams The 10 Premier Channels for Students' Study</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-no-cost-upgrade-excellent-online-beat-detection-for-music-producers/"><u>In 2024, No Cost Upgrade Excellent Online Beat Detection for Music Producers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/interactive-latino-education-made-easy/"><u>Interactive Latino Education Made Easy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-global-accessibility-features-on-oculus-quest/"><u>Introducing Global Accessibility Features on Oculus Quest</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-enhancement-top-international-films/"><u>Language Enhancement: Top International Films</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-as-a-tool-for-social-inclusion/"><u>Language Learning as a Tool for Social Inclusion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-leapfrog-top-easy-global-languages/"><u>Language Learning Leapfrog: Top Easy Global Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-leaps-with-educational-fun-facts/"><u>Latin Leaps with Educational Fun Facts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-the-language-of-respectful-communication-in-japan/"><u>Learn the Language of Respectful Communication in Japan</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-the-language-of-love-expressing-warmth-with-salut-and-bonjour/"><u>Learning the Language of Love: Expressing Warmth with 'Salut' & 'Bonjour'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lifelong-education-top-four-reasons-to-learn-languages-at-age-40plus-for-enriched-life-experiences/"><u>Lifelong Education: Top Four Reasons to Learn Languages at Age 40+ for Enriched Life Experiences</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-business-communication-top-rated-language-tools/"><u>Mastering Business Communication: Top-Rated Language Tools</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/mastering-electronics-wisdom-from-toms-hardware-hub/"><u>Mastering Electronics: Wisdom From Tom's Hardware Hub</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-at-bett-2022-connecting-with-the-global-community-of-educators/"><u>Mondly At BETT 2022: Connecting With The Global Community Of Educators</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-excellence-recognized-germanys-top-linguistic-haven/"><u>Mondly’s Excellence Recognized - Germany’s Top Linguistic Haven</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mouthwatering-multilingualism-30-linguistic-treats-for-chocolate/"><u>Mouthwatering Multilingualism: 30 Linguistic Treats for Chocolate</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigate-your-journey-in-acquiring-finnish-efficiently/"><u>Navigate Your Journey in Acquiring Finnish Efficiently</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/no-budget-no-problem-top-online-solo-journey-to-japan-proficiency/"><u>No Budget? No Problem! Top Online, Solo Journey to Japan Proficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/overcoming-the-silence-speaking-each-others-languages/"><u>Overcoming the Silence: Speaking Each Other's Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/propel-team-development-selecting-top-language-apps/"><u>Propel Team Development: Selecting Top Language Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ready-to-connect-the-next-gen-ai-conversationalist/"><u>Ready to Connect: The Next-Gen AI Conversationalist</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/salutations-francaises-pour-accueillir/"><u>Salutations Françaises Pour Accueillir</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saudacoes-basicas-em-portugues-para-ficar-de-olho/"><u>Saudações Básicas Em Português Para Ficar De Olho</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/savor-the-sounds-of-cocoa-chocolate-in-diverse-dialects/"><u>Savor the Sounds of Cocoa: Chocolate in Diverse Dialects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seeking-the-best-next-linguistic-endeavor/"><u>Seeking the Best Next Linguistic Endeavor</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-up-the-initial-ar-language-companion/"><u>Speaking Up: The Initial AR Language Companion</u></a></li>
+<li><a href="https://program-issues.techidaily.com/step-by-step-solution-for-smoothing-out-freezes-in-grand-theft-auto-v/"><u>Step-by-Step Solution for Smoothing Out Freezes in Grand Theft Auto V</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swift-techniques-for-efficient-language-learning/"><u>Swift Techniques for Efficient Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/taking-flight-in-russian-numeral-recognition/"><u>Taking Flight in Russian Numeral Recognition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-emergence-of-neerlandish-language/"><u>The Emergence of Neerlandish Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-intersection-of-ai-and-educational-language-development/"><u>The Intersection Of AI & Educational Language Development</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/the-rationale-behind-preserving-original-game-challenge-levels-from-start-to-finish/"><u>The Rationale Behind Preserving Original Game Challenge Levels From Start to Finish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/time-optimization-for-numerical-japanese/"><u>Time Optimization for Numerical Japanese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-3-most-popular-asian-languages/"><u>Top 3 Most Popular Asian Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transforming-pedagogy-through-ai-intervention/"><u>Transforming Pedagogy Through AI Intervention</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-the-world-through-new-languages-anytime/"><u>Unlocking the World Through New Languages Anytime</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unravel-the-power-of-multilingual-tools-in-business/"><u>Unravel the Power of Multilingual Tools in Business</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/virtual-lithuanian-journey-top-tutorial-recommendations/"><u>Virtual Lithuanian Journey: Top Tutorial Recommendations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vocal-victory-demystifying-difficult-phonetics-and-lexicon/"><u>Vocal Victory: Demystifying Difficult Phonetics and Lexicon</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-realme-12plus-5g-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Realme 12+ 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/zero-cost-endless-enjoyment-of-mondly/"><u>Zero Cost, Endless Enjoyment of Mondly</u></a></li>
+</ul></div>
 
 
 

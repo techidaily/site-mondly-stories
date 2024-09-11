@@ -1,7 +1,7 @@
 ---
 title: Immerse in Languages, Unite Cultures with Mondly's Revolutionary VR Experience
-date: 2024-09-05T04:40:24.478Z
-updated: 2024-09-06T04:40:24.478Z
+date: 2024-09-10T13:30:58.796Z
+updated: 2024-09-11T13:30:58.796Z
 tags:
   - speak
   - english
@@ -14,12 +14,6 @@ keywords: Virtual Reality Language Learning,Cultural Immersion Through VR,Mondly
 thumbnail: https://thmb.techidaily.com/63d0193e0fa009273c448c859b93e6725b6f99b3ee60a88ba18b85321387d187.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Immerse in Languages, Unite Cultures with Mondly's Revolutionary VR Experience
 
  **BRASOV,Romania ,** **Feb. 17, 2017** – ATi Studios, creators of [Mondly](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-514&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-514%26utm%5Fsource%3Dblog-post-id-514&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-514%26utm%5Fsource%3Dblog-post-id-514&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-514%26utm%5Fsource%3Dblog-post-id-514&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-514%26mt%3D8) , has today released the first virtual reality app for language education to combine the artificial intelligence technology behind chatbots with speech recognition in virtual reality.[Learn Languages VR by Mondly](https://www.oculus.com/experiences/gear-vr/1272636489423125/?locale=en%5FUS) allows people to experience lifelike conversations with virtual characters, in 28 different languages, from the comfort of home.
@@ -30,18 +24,20 @@ thumbnail: https://thmb.techidaily.com/63d0193e0fa009273c448c859b93e6725b6f99b3e
 
 ![Mondly VR - learn English, Spanish, German, French and more in Virtual Reality](https://edge.mondly.com/blog/wp-content/uploads/2017/02/Mondly-VR-learn-English-Spanish-German-French-and-more-in-Virtual-Reality.png "Mondly Launches Virtual Reality For Learning Languages, Powered By Chatbots 2")
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2030373/7443" target="_top" id="2030373">
-  <img src="//a.impactradius-go.com/display-ad/7443-2030373" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2128844/7443" target="_top" id="2128844">
+  <img src="//a.impactradius-go.com/display-ad/7443-2128844" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030373/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128844/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
+
+
+
 ## Bridging the Technologies Behind Chatbots and Speech Recognition with VR
 
  Mondly’s conversational voice chatbot for language learning was first released by the company inAugust 2016 . The technology uses advanced speech recognition that understands millions of phrases and words in 28 different languages. Since its release, it has been used by millions of Mondly users and has learned millions of new phrases and responses, thanks to the chatbot’s self-learning technology.
@@ -54,34 +50,38 @@ thumbnail: https://thmb.techidaily.com/63d0193e0fa009273c448c859b93e6725b6f99b3e
 >
 > _So we developed our own automatic voice detection system. It calibrates to the room’s background noise, and it ignores unintentional sounds. The result is amazing, the conversations with the virtual characters happen as naturally as real-life conversations – they just flow.”_
 
+
+
+
+
 <!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## Virtual Reality Language Training in 28 Different Languages
 
 ![Mondly VR - learn 30 languages in Virtual Reality](https://edge.mondly.com/blog/wp-content/uploads/2017/02/Mondly-VR-learn-30-languages-in-Virtual-Reality.png "Mondly Launches Virtual Reality For Learning Languages, Powered By Chatbots 3")
 
+
+
+
+
 <!-- affiliate ads begin -->
-<span id="2127886">
-					<video width="576" height="1024" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 [Learn Languages VR by Mondly](https://www.oculus.com/experiences/gear-vr/1272636489423125/?locale=en%5FUS) allows users to practice conversing in a new language with virtual characters; all within realistic situations that teach language fundamentals and help build their confidence.
 
 The first version offers three scenes and 28 languages to explore:
@@ -105,18 +105,20 @@ The first version offers three scenes and 28 languages to explore:
 
 ---
 
+
+
+
+
 <!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### About Mondly
 
  Mondly Languages is a leading language learning platform with more than 15,000,000 downloads worldwide. Available on iPhone, iPad, Android and PC, it’s the first to launch a VR experience for learning languages featuring speech recognition and chatbot technology. The mobile apps have a 4.7 star rating in the App Store and Google Play from more than 400,000 customer ratings.

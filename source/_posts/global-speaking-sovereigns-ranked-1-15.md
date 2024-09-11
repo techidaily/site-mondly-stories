@@ -1,7 +1,7 @@
 ---
 title: "Global Speaking Sovereigns: Ranked 1-15"
-date: 2024-09-05T04:45:33.128Z
-updated: 2024-09-06T04:45:33.128Z
+date: 2024-09-10T13:30:54.560Z
+updated: 2024-09-11T13:30:54.560Z
 tags:
   - speak
   - english
@@ -20,12 +20,6 @@ thumbnail: https://thmb.techidaily.com/0a337b8d498c7856f1553f3aec6dd0a0ba10469da
 
 ![languages with the most speakers](https://edge.mondly.com/blog/wp-content/uploads/2018/12/languages_with_the_most_speakers-e1619628689172.jpg "Top 15 Most Spoken Languages In The World 2")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Top 10 most spoken languages according to Ethnologue
 
  Aliens speaking English in all the Hollywood movies doesn’t seem so far-fetched now, does it? Nevertheless, those aliens should better get Mondly and learn Chinese while they still can because English seems to lose ground pretty quickly.
@@ -38,12 +32,20 @@ thumbnail: https://thmb.techidaily.com/0a337b8d498c7856f1553f3aec6dd0a0ba10469da
 
  Here are the languages with the most native speakers in the world according to data from [Ethnologue](https://www.ethnologue.com/) .
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### **1\. Mandarin Chinese — 921 million native speakers**
 
  With a total of 1.3 billion native speakers and counting, **Chinese is the most spoken language in the world by number of native speakers.** But w  hat needs to be reminded is that [Chinese](https://www.ethnologue.com/language/zho) is in fact a macrolanguage consisting of 13 dialect groups –**Mandarin being the most widely spoken** – and hundreds of local varieties. Other well-known examples include Wu and Cantonese with over 80 million speakers each.
@@ -51,6 +53,20 @@ thumbnail: https://thmb.techidaily.com/0a337b8d498c7856f1553f3aec6dd0a0ba10469da
  All these languages are considered ‘Chinese’ due to a shared [writing system](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . However, many of them are not 100% mutually intelligible so they can’t be considered a single language.
 
 ![most spoken languages](https://edge.mondly.com/blog/wp-content/uploads/2018/12/most-spoken-languages-2-960x960.jpg "Top 15 Most Spoken Languages In The World 3")
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
  “Mutianyu Great Wall, China” by Robert Nyman©
 
@@ -82,22 +98,24 @@ thumbnail: https://thmb.techidaily.com/0a337b8d498c7856f1553f3aec6dd0a0ba10469da
 
 ![what is the most spoken language in the world](https://edge.mondly.com/blog/wp-content/uploads/2018/12/what-is-the-most-spoken-language-in-the-world-1-960x640.jpg "Top 15 Most Spoken Languages In The World 4")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  “Taj Mahal at sunrise” by Julian Yu©
 
  _**Do you want to learn Hindi?[Get Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-2471&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=hi&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=hi) and start speaking today.**_
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### **5\. Arabic — 315 million native speakers**
 
  The 21st edition of Ethnologue puts Arabic in fifth place with 315 million native speakers. Various online resources share this place between Arabic and Hindi, frequently putting Hindi first. But things are a little more complicated than that.
@@ -116,18 +134,6 @@ thumbnail: https://thmb.techidaily.com/0a337b8d498c7856f1553f3aec6dd0a0ba10469da
 
  _**Do you want to [learn Portuguese](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ?[Get Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-2471&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=br&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=br) and start speaking today.**_
 
-<!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **7\. Bengali —228 million native speakers**
 
  The Bengali language is an Indo-Aryan language primarily spoken by the Bengalis in the Indian subcontinent. It is the official and most commonly spoken language in Bangladesh.
@@ -136,22 +142,58 @@ thumbnail: https://thmb.techidaily.com/0a337b8d498c7856f1553f3aec6dd0a0ba10469da
 
  _**Do you want to learn Bengali?[Get Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-2471&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=bn&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=bn) and start speaking today.**_
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### **8\. Russian — 153 million native speakers**
 
  The language of tsars and tsarinas, of Tchaikovsky, Dostoevsky, and magical fairy tales occupies eighth place with 153 million native speakers. Russian is one of the six official UN languages and the official language of Russia, Belarus, Tajikistan, Kyrgyzstan, and Kazakhstan. It is also widely spoken as a second language and_lingua franca_ in some parts of Asia and Eastern Europe. If you want to learn Russian, you’ll have to get acquainted with the [Cyrillic alphabet](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) which consists of 33 letters – just 7 more than the Latin alphabet.
 
 ![most common languages](https://edge.mondly.com/blog/wp-content/uploads/2018/12/most-common-languages-960x757.jpg "Top 15 Most Spoken Languages In The World 5")
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
  “St. Basil’s Cathedral, Russia” by Anastasiya Romanova©
 
  _**Do you want to [learn Russian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ?[Get Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-2471&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=ru&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=ru) and start speaking today.**_
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
-  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### **9\. Japanese — 126 million native speakers**
 
  With 128 million native speakers, Japanese or (日本語) Nihongo (transliteration) is the ninth most widely spoken language in the world and [the hardest language to learn](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) by a native English speaker along with Arabic, Chinese and Korean. The FSI (Foreign Service Institute) of the US Government claims that an English speaker would need about 2200 hours of study to achieve Japanese fluency.
@@ -162,38 +204,74 @@ thumbnail: https://thmb.techidaily.com/0a337b8d498c7856f1553f3aec6dd0a0ba10469da
 
  _**Do you want to [learn Japanese](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ?[Get Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-2471&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=ja&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=ja) and start speaking today.**_
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
-  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **10\. Yue Chinese — 84 million native speakers**
 
  The name Cantonese is often used instead of [Yue Chinese](https://en.wikipedia.org/wiki/Yue%5FChinese) , but linguists prefer to reserve that name for a specific variety used in Guangzhou (Canton), Wuzhou (Ngchow), Hong Kong, and Macau.
 
  Yue Chinese is regarded as a separated language group because it is not mutually intelligible with other varieties of Chinese.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### **11\. Marathi — 83 million native speakers**
 
  Making a surprise appearance in our topmost spoken languages, the [Marathi language](https://en.wikipedia.org/wiki/Marathi%5Flanguage#Writing) is native to Maharashtra, India. It is the official language in the Maharashtra state of Western India and one of the 22 scheduled languages of India. Starting in 1950, it is being written in the Balbodh style of Devanagari.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### **12\. Telugu —** **82.5 million native speakers**
 
  Spoken by Telugu people living in the Indian states of Andhra Pradesh and Telangana (where it is also the official language), the [Telugu language](https://en.wikipedia.org/wiki/Telugu%5Flanguage) is a Dravidian language (family of languages spoken mainly in southern India and northern Sri Lanka). Telugu is one of six languages designated a classical language of India by the country’s government and ranks fourth among the languages with the highest number of native speakers in India.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983584">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### **13\. Turkish — 82.2** **million native speakers**
 
  Turkish is the most widely spoken of the Turkic languages, with native speakers in both Southeast Europe and Western Asia (mostly in Anatolia). Outside Turkey, there are smaller groups of speakers in Greece, Macedonia, Germany, Bulgaria, The Caucasus, and other parts of Europe and Central Asia.
@@ -202,28 +280,30 @@ thumbnail: https://thmb.techidaily.com/0a337b8d498c7856f1553f3aec6dd0a0ba10469da
 
 ![most spoken languages in the world](https://edge.mondly.com/blog/wp-content/uploads/2018/12/most-spoken-languages-in-the-world-960x643.jpg "Top 15 Most Spoken Languages In The World 6")
 
-<!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  “Cappadocia, Turkey” by Mar Cerdeira©
 
  _**Do you want to [learn Turkish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ?[Get Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-2471&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=tr&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=tr) and start speaking today.**_
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### **14\. Wu Chinese — 81 million native speakers**
 
 [Wu Chinese](https://en.wikipedia.org/wiki/Wu%5FChinese) is primarily spoken in Shanghai, Zhejiang Province, the southern half of Jiangsu Province, and surrounding areas.

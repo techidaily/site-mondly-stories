@@ -1,7 +1,7 @@
 ---
 title: "Learning Chinese Logograms: An Overview"
-date: 2024-07-12T08:37:06.909Z
-updated: 2024-07-13T08:37:06.909Z
+date: 2024-09-10T13:26:02.400Z
+updated: 2024-09-11T13:26:02.400Z
 tags:
   - speak
   - english
@@ -28,6 +28,20 @@ thumbnail: https://thmb.techidaily.com/2813317b01db0f7c4ae52564fdce492f88f001632
 
  As you probably already know,[Chinese](https://en.wikipedia.org/wiki/Chinese%5Flanguage) (汉语 or_Hànyǔ_) is not necessarily a single language – Mandarin, but more of a macrolanguage or a family of East Asian languages spoken by 1.3 billion people all around the world. Can you imagine? **Roughly 17% of the world’s population speak some variety of Chinese as their native language.**
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### Varieties of Chinese
 
  Before getting into a little history, you should know that the varieties of Chinese are united by a common written language or a common writing system. While some people consider these varieties of Chinese dialects, others regard them as distinct languages because more often than not they are unintelligible.
@@ -48,9 +62,37 @@ thumbnail: https://thmb.techidaily.com/2813317b01db0f7c4ae52564fdce492f88f001632
 
 ![chinese characters](https://edge.mondly.com/blog/wp-content/uploads/2020/06/chinese-characters-600x402.jpg "Quick Introduction To The Chinese Alphabet, Chinese Characters And Pinyin 2")
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
  Chinese antique calligraphic text
 
  Then, in the early 20th century, written vernacular Chinese based on the Beijing dialect was introduced as the new official written language instead of Classical Chinese. People often refer to this standard language as Mandarin because it is based on the Mandarin dialect of Beijing. Thus, Standard Chinese or Mandarin now fulfills the role that Classical Chinese used to fulfill as the official written language that’s used by speakers of all varieties of Chinese.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115939/19272" target="_top" id="2115939">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115939" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115939/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## The Chinese writing system and the Chinese alphabet – an overview
 
@@ -59,6 +101,26 @@ thumbnail: https://thmb.techidaily.com/2813317b01db0f7c4ae52564fdce492f88f001632
  Chinese characters need to be learned one by one because, unfortunately for us, western speakers, knowing the pronunciation of a word doesn’t give you any clue on how to write it.
 
  Don’t worry though. There is also good news for us, Chinese beginners! Speakers of all varieties of Chinese typically write in [Standard Chinese](https://en.wikipedia.org/wiki/Standard%5FChinese) even though their spoken language is different. Of course, they’ll pronounce each character in their local variety of Chinese but use the Standard Chinese characters. Nevertheless, you should also note that Chinese languages are often different in terms of grammar and vocabulary. So whatever variety of Chinese you choose to learn, it’s best to stick to it until the end so you won’t get confused.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### Two different systems for writing Chinese characters
 
@@ -98,6 +160,20 @@ thumbnail: https://thmb.techidaily.com/2813317b01db0f7c4ae52564fdce492f88f001632
 
  All you’ll need to do when working with Pinyin is get English out of your mind. As tempted as you’ll be to pronounce the sounds you already know in a way you are familiar with, don’t forget you are learning Chinese. And Chinese has little to nothing in common to English when it comes to pronunciation.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115941/19272" target="_top" id="2115941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115941" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115941/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## How do you learn the Chinese alphabet?
 
  If you do not wish to settle to Pinyin, how do you learn the Chinese alphabet or, better said, the Chinese characters? After all, we can all agree that there is a huge amount of information you need to remember. How do people learn Chinese?
@@ -118,6 +194,20 @@ thumbnail: https://thmb.techidaily.com/2813317b01db0f7c4ae52564fdce492f88f001632
 
  Now that you know what to expect if you do decide to learn Chinese, let’s move from theory to practice with a quick Chinese lesson. Here are ten of the most commonly used Chinese characters:
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### 的 de – used to indicate possession
 
  这是我**的** 朋友。- _Zhè shì wǒ**de** péngyou_ – This is**my** friend.
@@ -126,13 +216,61 @@ thumbnail: https://thmb.techidaily.com/2813317b01db0f7c4ae52564fdce492f88f001632
 
  再来**一** 轮酒！- _Zàilái**yī** lún jiǔ!_ –**One** more round!
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115924/19272" target="_top" id="2115924">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115924" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115924/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### 是 shì – to be (used to link two nouns together)
 
  你**是** 一名旅行者吗？- _Nǐ**shì** yī míng lǚ xíng zhě ma?_ – Are you a tourist?
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115915/19272" target="_top" id="2115915">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115915" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115915/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### 不 bù – not (negative prefix)
 
  今天我**不** 工作。- _Jīntiān wǒ**bù** gōngzuò._ – I am**not** working today.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### 了 le – modal verb particle
 
@@ -152,9 +290,37 @@ thumbnail: https://thmb.techidaily.com/2813317b01db0f7c4ae52564fdce492f88f001632
 
  你**在** 哪里生活？- _Nǐ**zài** nǎlǐ shēnghuó?_ – Where do you live?
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### 有 yǒu – to have, there is, there are, to exist
 
  你**有** 一张城市地图吗？- _Nǐ**yǒu** yī zhāng chéngshì dìtú ma?_ – Do you**have** a city map?
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### 他 tā – he, him, his
 
@@ -189,6 +355,65 @@ thumbnail: https://thmb.techidaily.com/2813317b01db0f7c4ae52564fdce492f88f001632
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-crafting-squares-for-viral-videos-in-a-social-media-world/"><u>[Updated] 2024 Approved Crafting Squares for Viral Videos in a Social Media World</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-sound-of-serenity-windowsmac-adjustments/"><u>[Updated] The Sound of Serenity Windows/Mac Adjustments</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-recording-to-reality-a-detailed-look-at-the-sj-cam-s6/"><u>2024 Approved From Recording to Reality A Detailed Look at the SJ-CAM S6</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/8-best-apps-for-screen-mirroring-xiaomi-redmi-k70-pc-drfone-by-drfone-android/"><u>8 Best Apps for Screen Mirroring Xiaomi Redmi K70 PC | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/basic-tips-for-windows-clown-phonetics-modification/"><u>Basic Tips for Windows Clown Phonetics Modification</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/fall-guys-gaming-optimization-techniques-for-better-fps-and-lower-lags-for-an-uninterrupted-experience/"><u>Fall Guys Gaming Optimization: Techniques for Better FPS and Lower Lags for an Uninterrupted Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-languages-preferred-by-americans/"><u>Global Languages Preferred by Americans</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grammars-presence-in-the-quest-for-fluency/"><u>Grammar's Presence in the Quest for Fluency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hello-in-japanese-all-the-japanese-greetings-you-need-to-knowback-buttonfilter-button/"><u>Hello In Japanese - All The Japanese Greetings You Need To KnowBack ButtonFilter Button</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-fix-part-of-the-touch-screen-not-working-on-xiaomi-14-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Part of the Touch Screen Not Working on Xiaomi 14 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/immerse-in-languages-unite-cultures-with-mondlys-revolutionary-vr-experience/"><u>Immerse in Languages, Unite Cultures with Mondly's Revolutionary VR Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/impact-of-grammar-on-linguistic-acquisition/"><u>Impact of Grammar on Linguistic Acquisition</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-3-simple-ways-to-color-grading-in-adobe-photoshop/"><u>In 2024, 3 Simple Ways to Color Grading in Adobe Photoshop</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-easter-wishes-translated/"><u>International Easter Wishes Translated</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/launchpad-arabic-for-new-learners/"><u>Launchpad: Arabic for New Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/les-systemes-du-corps-humain-introduction-et-explication-en-francais/"><u>Les Systèmes Du Corps Humain: Introduction Et Explication en Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lifelong-learners-never-too-late-to-expand-horizons/"><u>Lifelong Learners: Never Too Late to Expand Horizons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-labyrinths-exploring-australian-and-us-rhythmic-variations/"><u>Linguistic Labyrinths: Exploring Australian & U.S. Rhythmic Variations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-dominates-germanys-choice-for-language-mastery/"><u>Mondly Dominates: Germany's Choice for Language Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-named-app-of-the-day-by-apple-in-157-countries/"><u>Mondly Named App Of The Day By Apple In 157 Countries</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-redefines-language-acquisition-through-ar-technology/"><u>Mondly Redefines Language Acquisition Through AR Technology</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-a-language-learning-revolution-backed-by-googles-choice/"><u>Mondly: A Language Learning Revolution, Backed by Google's Choice</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/norwegian-mastery-unlocked-in-brief-bursts/"><u>Norwegian Mastery Unlocked in Brief Bursts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/original-vocal-augmented-reality-platform/"><u>Original Vocal Augmented Reality Platform</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/perfect-your-pronunciation-with-these-100-english-tongue-twistersback-buttonfilter-button/"><u>Perfect Your Pronunciation With These 100 English Tongue TwistersBack ButtonFilter Button</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/phi-beta-jove-from-classical-to-modern-greek/"><u>Phi Beta Jove: From Classical to Modern Greek</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/recording-made-simple-your-phone-cookbook-for-snapping-stories-for-2024/"><u>Recording Made Simple Your Phone' Cookbook for Snapping Stories for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/semaine-francaise-une-symphonie-en-langue/"><u>Semaine Française : Une Symphonie en Langue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-for-the-playful-and-curious-minds-of-kids/"><u>Spanish for the Playful and Curious Minds of Kids</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-latvian-fluently-with-ten-minute-practice/"><u>Speak Latvian Fluently with Ten-Minute Practice</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-a-pro-the-top-6-digital-tools-for-learning-korean/"><u>Speak Like a Pro: The Top 6 Digital Tools for Learning Korean</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/start-conversing-like-a-pro-your-language-lesson-at-5-off/"><u>Start Conversing Like a Pro – Your Language Lesson at 5% Off!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ten-minute-tidbits-learn-bengali-fast/"><u>Ten-Minute Tidbits: Learn Bengali Fast</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-benefits-of-learning-a-new-language-in-your-senior-years/"><u>The Benefits of Learning a New Language in Your Senior Years</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-dutch-languages-ancestral-journey/"><u>The Dutch Language's Ancestral Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ranking-of-studied-languages-outside-us-borders/"><u>The Ranking of Studied Languages Outside U.S. Borders</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-compendium-of-basic-russian-dialogues/"><u>The Ultimate Compendium of Basic Russian Dialogues</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-10-realme-c33-2023-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 Realme C33 2023 Android SIM Unlock APK</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-techniques-for-mastering-finnish-from-home/"><u>Top Techniques for Mastering Finnish From Home</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-three-asian-communication-methods-filter-and-preserve/"><u>Top Three Asian Communication Methods: Filter & Preserve</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-tools-elevating-linguistic-education-excellence/"><u>Top Tools Elevating Linguistic Education Excellence</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukrainian-and-russian-how-similar-are-these-two-slavic-languages/"><u>Ukrainian And Russian: How Similar Are These Two Slavic Languages?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-different-spanish-greeting-phrases-a-must-know-list-of-10/"><u>Understanding Different Spanish Greeting Phrases - A Must Know List Of 10</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unearthing-the-roots-of-human-verbal-expression/"><u>Unearthing the Roots of Human Verbal Expression</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-language-skills-buy-now-save-big/"><u>Unlock Language Skills - Buy Now, Save Big!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-the-power-of-polite-expressions-in-japan/"><u>Unlock the Power of Polite Expressions in Japan</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vital-russian-communication-tools-for-explorers/"><u>Vital Russian Communication Tools for Explorers</u></a></li>
+</ul></div>
 
 
 

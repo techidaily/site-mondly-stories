@@ -1,7 +1,7 @@
 ---
 title: Global Lexicon Leaders Fifteen-Fifteen
-date: 2024-07-12T08:34:26.691Z
-updated: 2024-07-13T08:34:26.691Z
+date: 2024-09-10T13:28:59.544Z
+updated: 2024-09-11T13:28:59.544Z
 tags:
   - speak
   - english
@@ -28,9 +28,37 @@ thumbnail: https://thmb.techidaily.com/a5bbe71d28db5297dd251335f2aaa3c6aeec5c7c6
 
  But it’s the most spoken languages you’re interested in, so let’s get back to that. First, we are going to explore the**top languages with the most native speakers.** And second, the**top most spoken languages by total number of speakers** (native and non-native).
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Most spoken languages in the world by number of native speakers
 
  Here are the languages with the most native speakers in the world according to data from [Ethnologue](https://www.ethnologue.com/) .
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### **1\. Mandarin Chinese — 921 million native speakers**
 
@@ -39,6 +67,26 @@ thumbnail: https://thmb.techidaily.com/a5bbe71d28db5297dd251335f2aaa3c6aeec5c7c6
  All these languages are considered ‘Chinese’ due to a shared [writing system](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . However, many of them are not 100% mutually intelligible so they can’t be considered a single language.
 
 ![most spoken languages](https://edge.mondly.com/blog/wp-content/uploads/2018/12/most-spoken-languages-2-960x960.jpg "Top 15 Most Spoken Languages In The World 3")
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1743243">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
  “Mutianyu Great Wall, China” by Robert Nyman©
 
@@ -51,6 +99,20 @@ thumbnail: https://thmb.techidaily.com/a5bbe71d28db5297dd251335f2aaa3c6aeec5c7c6
  Taking everything into account, if English is your native language and you want to add a second language under your belt, Spanish surely is one of the best choices.
 
  _**Do you want to [learn Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ?[Get Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-2471&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=es&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=es) and start speaking today.**_
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### **3\. English — 369 million native speakers**
 
@@ -70,9 +132,37 @@ thumbnail: https://thmb.techidaily.com/a5bbe71d28db5297dd251335f2aaa3c6aeec5c7c6
 
 ![what is the most spoken language in the world](https://edge.mondly.com/blog/wp-content/uploads/2018/12/what-is-the-most-spoken-language-in-the-world-1-960x640.jpg "Top 15 Most Spoken Languages In The World 4")
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
  “Taj Mahal at sunrise” by Julian Yu©
 
  _**Do you want to learn Hindi?[Get Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-2471&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=hi&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=hi) and start speaking today.**_
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### **5\. Arabic — 315 million native speakers**
 
@@ -126,6 +216,20 @@ thumbnail: https://thmb.techidaily.com/a5bbe71d28db5297dd251335f2aaa3c6aeec5c7c6
 
  Yue Chinese is regarded as a separated language group because it is not mutually intelligible with other varieties of Chinese.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### **11\. Marathi — 83 million native speakers**
 
  Making a surprise appearance in our topmost spoken languages, the [Marathi language](https://en.wikipedia.org/wiki/Marathi%5Flanguage#Writing) is native to Maharashtra, India. It is the official language in the Maharashtra state of Western India and one of the 22 scheduled languages of India. Starting in 1950, it is being written in the Balbodh style of Devanagari.
@@ -133,6 +237,20 @@ thumbnail: https://thmb.techidaily.com/a5bbe71d28db5297dd251335f2aaa3c6aeec5c7c6
 ### **12\. Telugu —** **82.5 million native speakers**
 
  Spoken by Telugu people living in the Indian states of Andhra Pradesh and Telangana (where it is also the official language), the [Telugu language](https://en.wikipedia.org/wiki/Telugu%5Flanguage) is a Dravidian language (family of languages spoken mainly in southern India and northern Sri Lanka). Telugu is one of six languages designated a classical language of India by the country’s government and ranks fourth among the languages with the highest number of native speakers in India.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### **13\. Turkish — 82.2** **million native speakers**
 
@@ -145,6 +263,20 @@ thumbnail: https://thmb.techidaily.com/a5bbe71d28db5297dd251335f2aaa3c6aeec5c7c6
  “Cappadocia, Turkey” by Mar Cerdeira©
 
  _**Do you want to [learn Turkish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ?[Get Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-2471&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=tr&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=tr) and start speaking today.**_
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### **14\. Wu Chinese — 81 million native speakers**
 
@@ -161,6 +293,20 @@ thumbnail: https://thmb.techidaily.com/a5bbe71d28db5297dd251335f2aaa3c6aeec5c7c6
  According to a [demographic projection](https://www.ledevoir.com/non-classe/69236/agora-la-francophonie-de-demain) led by the Université Laval and the Réseau Démographie de l’Agence universitaire de la Francophonie, the total number of French speakers will reach roughly 650 million by 2050\. For this reason,[learning French](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-2471&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=fr&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=fr) might be a good investment in yourself in the long run.
 
  _**Do you want to [learn French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ?[Get Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-2471&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=fr&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=fr) and start speaking today.**_
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Most spoken languages in the world by the total number of speakers
 
@@ -217,6 +363,65 @@ thumbnail: https://thmb.techidaily.com/a5bbe71d28db5297dd251335f2aaa3c6aeec5c7c6
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-learn-the-essential-steps-recording-youtube-live-with-ease-across-devices/"><u>[New] 2024 Approved Learn the Essential Steps Recording YouTube Live with Ease Across Devices</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-game-recording-made-easy-with-xbox-one-capture-techniques-for-2024/"><u>[New] Game Recording Made Easy with Xbox One Capture Techniques for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/9-solutions-to-fix-lava-blaze-2-5g-system-crash-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Lava Blaze 2 5G System Crash Issue | Dr.fone</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/architectural-marvels-best-6-mojave-homes-for-2024/"><u>Architectural Marvels Best 6 Mojave Homes for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/best-tales-for-youtube-triumph-top-3-strategies-for-2024/"><u>Best Tales for YouTube Triumph Top 3 Strategies for 2024</u></a></li>
+<li><a href="https://solve-help.techidaily.com/discover-the-best-free-tools-to-convert-videos-on-windows-11-hd-and-4k-top-picks-of-2020/"><u>Discover the Best Free Tools to Convert Videos on Windows 11 (HD & 4K) - Top Picks of 2020</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/evenings-reassessment-alternate-vision-for-2024/"><u>Evening's Reassessment Alternate Vision for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-google-chrome-from-tracking-your-location-on-itel-p55t-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Google Chrome from Tracking Your Location On Itel P55T? | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-fallout-the-wasteland-saga-2-directors-version-a-riveting-turn-based-adventure/"><u>In-Depth Analysis of Fallout: The Wasteland Saga 2 - Director’s Version: A Riveting Turn-Based Adventure</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/inspire-ischia-italians-mastering-over-20-local-expressions/"><u>Inspire Ischia Italians: Mastering Over 20 Local Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-days-of-gratitude-similar-to-us-thanksgiving/"><u>International Days of Gratitude Similar to US Thanksgiving</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-greetings-101/"><u>International Greetings 101</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-the-first-augmented-reality-language-app-with-speech-recognition/"><u>Introducing the First Augmented Reality Language App with Speech Recognition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/japenese-expressions-friendliness-and-respect-on-display/"><u>Japenese Expressions: Friendliness & Respect on Display</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-through-time-with-earths-oldest-language/"><u>Journey Through Time with Earth’s Oldest Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/kinder-to-grade-school-in-spanish-a-kids-journey/"><u>Kinder to Grade School in Spanish: A Kid's Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-bridge-by-locals-learn-romanian/"><u>Language Bridge by Locals, Learn Romanian</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-liberation-mondlys-no-cost-offering-awaits-ukraines-learners/"><u>Language Learning Liberation: Mondly's No-Cost Offering Awaits Ukraine's Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/les-jours-de-la-semaine-en-francais/"><u>Les Jours De La Semaine en Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-landscape-exploring-uk-us-and-aussie-accent-differences/"><u>Linguistic Landscape: Exploring UK, U.S., and Aussie Accent Differences</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-french-salutations-the-ultimate-guide-to-bonjour/"><u>Mastering French Salutations: The Ultimate Guide to 'Bonjour'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-hindi-made-easy-top-8-reasons-why-choose-mondlys-online-platform/"><u>Mastering Hindi Made Easy: Top 8 Reasons Why Choose Mondly's Online Platform</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-expand-your-speech-free-of-charge/"><u>Mondly: Expand Your Speech - Free of Charge</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlyar-vr-bridging-linguistic-gaps-in-virtual-space/"><u>MondlyAR VR: Bridging Linguistic Gaps in Virtual Space</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/premier-apps-fueling-fluency-journey/"><u>Premier Apps Fueling Fluency Journey</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/reviving-audio-output-successfully-mended-sound-problem-in-firefox/"><u>Reviving Audio Output: Successfully Mended Sound Problem in Firefox</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rhythmic-refinement-practice-english-twisters-daily/"><u>Rhythmic Refinement: Practice English Twisters Daily</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seize-language-power-6-ways-to-learn-arabic-via-mondly-online/"><u>Seize Language Power: 6 Ways to Learn Arabic via Mondly Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/semaine-francaise-la-palette-des-jours/"><u>Semaine Française: La Palette Des Jours</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/skys-palette-explored-top-websites-showcasing-hd-imagery/"><u>Sky's Palette Explored - Top Websites Showcasing HD Imagery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/temps-des-jours-francais/"><u>Temps Des Jours Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-formality-expressing-bonjour-in-french-culture/"><u>The Art of Formality: Expressing 'Bonjour' In French Culture</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-eerie-origins-of-halloween-customs/"><u>The Eerie Origins of Halloween Customs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-most-in-demand-world-languages-in-us-education/"><u>The Most In-Demand World Languages in U.S. Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-roadmap-to-korean-mastery-selecting-your-best-resources/"><u>The Roadmap to Korean Mastery: Selecting Your Best Resources</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/thrilling-twists-and-turns-short-track-22/"><u>Thrilling Twists & Turns - Short Track '22</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/thriving-in-british-conversation-a-reference-guide/"><u>Thriving in British Conversation: A Reference Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-9-challenging-tongues-overcoming-language-barriers/"><u>Top 9 Challenging Tongues: Overcoming Language Barriers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-your-linguistic-skills-through-dark-on-streaming/"><u>Transform Your Linguistic Skills Through Dark on Streaming</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-and-mastering-russian-alphabet-pronunciation/"><u>Understanding and Mastering Russian Alphabet Pronunciation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-simplified-han-characters/"><u>Understanding Simplified Han Characters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-multilingualism-integrating-sound-science-and-effective-learning-techniques/"><u>Unlocking Multilingualism: Integrating Sound, Science & Effective Learning Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vielfaltig-sein-eine-auswahl-deutscher-begrussungen-ohne-hallo/"><u>Vielfältig Sein: Eine Auswahl Deutscher Begrüßungen Ohne Hallo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/want-to-understand-the-squid-game-in-korean-learn-the-language/"><u>Want To Understand The Squid Game In Korean? Learn The Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/where-do-people-feast-on-thanksgiving/"><u>Where Do People Feast on Thanksgiving?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/words-weaving-worlds-mondlylanguages-2-years-of-ambition/"><u>Words Weaving Worlds - MondlyLanguages, 2 Years of Ambition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ta-sygkrismata-glwttothpeioy-ston-eyxhs/"><u>Τα Συγκρίσματα Γλωττοτηπειού Στον Ευχής</u></a></li>
+</ul></div>
 
 
 

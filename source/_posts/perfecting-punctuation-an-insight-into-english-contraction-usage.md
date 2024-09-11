@@ -1,7 +1,7 @@
 ---
 title: "Perfecting Punctuation: An Insight Into English Contraction Usage"
-date: 2024-07-12T08:37:16.673Z
-updated: 2024-07-13T08:37:16.673Z
+date: 2024-09-10T13:26:14.348Z
+updated: 2024-09-11T13:26:14.348Z
 tags:
   - speak
   - english
@@ -27,6 +27,26 @@ thumbnail: https://thmb.techidaily.com/e3cf30b4720656ba32f87d0a36d739d3e594003c9
  English contractions are the perfect way to sound more natural and save time when speaking. Essentially, contractions glue two or more words together and replace certain middle letters in the given union with an apostrophe. This is how phrases like_how did_ or_I would_ become shortened to_how’d_ and_I’d_ . Quite the letter economy, right?
 
  Contraction words are generally easy enough to sort out, but there are situations where they can get tricky. For all those situations, it’s necessary to keep an eye out for rules. That’s why**we are** – or let’s say_**we’re**_ – going to explain everything you need to know about the rules of contractions in English. And while we’re at it, we will also add a contraction word list to go perfectly with the explanations.
+
+
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1155462">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 
 
 
@@ -72,6 +92,34 @@ Coming Soon
 **Fun fact:** Did you know that_o’clock_ is the contraction word for_of the clock_ ? In this particular case, the contraction is more popular than the actual phrase and it’s considered fine to use even in formal writing.
 
 ![contractions in English](https://edge.mondly.com/blog/wp-content/uploads/2023/11/contractions-in-english-960x960.png "The Ultimate Guide To English Contractions 3")
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Grammar rules for English contractions
 
@@ -215,6 +263,20 @@ Coming Soon
 | you will                     | you’ll      |
 | you will; you shall          | you’ll      |
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123471/16836" target="_top" id="2123471">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123471" border="0" alt="https://techidaily.com" width="234" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123471/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Contractions in writing and their importance
 
  If you write in English on a daily basis, you probably use contractions quite a lot. And that’s perfectly fine if you talk to your family or friends. English contractions save time and space and make your daily communications sound friendlier.
@@ -224,6 +286,26 @@ Coming Soon
  Therefore, the rule of thumb for anything formal is to**limit the use of contractions in writing.** An ideal situation would involve you knowing the other person’s expectations. But if you do not, it is best to shy away from using contractions, just like I did with this sentence.
 
  However, if what you’re writing is semi-formal, you can use a couple of very popular contractions. The only condition is to not forget about the apostrophe, as the entire text will look unprofessional.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Examples of contractions in everyday language
 
@@ -258,6 +340,26 @@ Coming Soon
 
 ---
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1498635">
+					<video width="320" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### Improve your English fast
 
  Do you want to get better at speaking English? Try Mondly, the award-winning language app that is serious about making learning English fun.
@@ -288,6 +390,94 @@ Coming Soon
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-elevate-your-storytelling-with-instagram-and-youtube-vids/"><u>[New] 2024 Approved Elevate Your Storytelling with Instagram & YouTube Vids</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-seeking-optimal-video-player-vlc-meets-mx/"><u>[New] 2024 Approved Seeking Optimal Video Player VLC Meets MX</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-discover-14-inspiring-text-based-motion-masterpieces-for-2024/"><u>[New] Discover 14 Inspiring Text-Based Motion Masterpieces for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-crafting-a-pathway-to-instagram-affordability-through-partnerships/"><u>[New] In 2024, Crafting a Pathway to Instagram Affordability Through Partnerships</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-mastering-the-craft-of-powerpoint-transformation-into-videos/"><u>[New] In 2024, Mastering the Craft of PowerPoint Transformation Into Videos</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-laughter-labyr-writes-making-memorable-parodies/"><u>[New] Laughter Labyr Writes Making Memorable Parodies</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-navigating-the-nuances-of-spotify-advertising-for-2024/"><u>[New] Navigating the Nuances of Spotify Advertising for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-snapscreen-videorecorder-tool-for-2024/"><u>[New] SnapScreen Videorecorder Tool for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-spectacular-movie-sneak-insights/"><u>[New] Spectacular Movie Sneak Insights</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-effortless-crossposting-youtube-links-to-ig-stories/"><u>[Updated] 2024 Approved Effortless Crossposting YouTube Links to IG Stories</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-calm-cadences-non-intrusive-audio-softening-techniques/"><u>[Updated] Calm Cadences Non-Intrusive Audio Softening Techniques</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-crack-the-code-of-creativity-in-depth-snapchat-filters-exploration/"><u>[Updated] Crack the Code of Creativity In-Depth Snapchat Filters Exploration</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-cross-platform-synergy-creating-youtube-and-brand-alliances/"><u>[Updated] In 2024, Cross-Platform Synergy Creating YouTube and Brand Alliances</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-aviations-new-titans-dji-phantom-pro-and-gopro-k20-ii/"><u>2024 Approved Aviation's New Titans DJI Phantom Pro & GoPro K20 II</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-how-to-balance-youtube-with-a-full-time-job/"><u>2024 Approved How to Balance YouTube with a Full-Time Job</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-how-to-create-hit-facebook-song-vids-10-edition/"><u>2024 Approved How to Create Hit Facebook Song Vids - #10 Edition</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-mastering-the-art-of-uploading-youtube-videos-on-fb/"><u>2024 Approved Mastering the Art of Uploading YouTube Videos on FB</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-quickening-vimeo-video-watch-time/"><u>2024 Approved Quickening Vimeo Video Watch Time</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-transform-your-facebook-presence-with-dynamic-slideshows/"><u>2024 Approved Transform Your Facebook Presence with Dynamic Slideshows</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/citing-ai-tools-in-research-the-comprehensive-guide-to-referencing-chatgpt-outputs/"><u>Citing AI Tools in Research: The Comprehensive Guide to Referencing ChatGPT Outputs</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/complexity-of-projects-handled/"><u>Complexity of Projects Handled</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/effective-messaging-in-mozilla-thunderbird-unlocking-the-power-of-in-app-chatting-features/"><u>Effective Messaging in Mozilla Thunderbird: Unlocking the Power of In-App Chatting Features</u></a></li>
+<li><a href="https://win-answers.techidaily.com/expert-advice-on-preventing-crashes-during-gaming-on-modern-operating-systems/"><u>Expert Advice on Preventing Crashes During Gaming on Modern Operating Systems</u></a></li>
+<li><a href="https://games-able.techidaily.com/expert-insights-into-boosting-your-docked-steam-decks-functionality/"><u>Expert Insights Into Boosting Your Docked Steam Deck’s Functionality</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-perspective-on-countries-dominating-in-french-speaking/"><u>Global Perspective on Countries Dominating in French Speaking</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-without-jailbreak-on-samsung-galaxy-m54-5g-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location without Jailbreak On Samsung Galaxy M54 5G | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-remove-activation-lock-from-the-apple-iphone-x-without-previous-owner-by-drfone-ios/"><u>How to Remove Activation Lock From the Apple iPhone X Without Previous Owner?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-poco-m6-5g-drfone-by-drfone-android/"><u>How To Use Allshare Cast To Turn On Screen Mirroring On Poco M6 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-mondlys-enriched-customer-service-qanda/"><u>Introducing Mondly's Enriched Customer Service Q&A</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/italian-dialogues-key-phrases-to-enhance-your-visit/"><u>Italian Dialogues: Key Phrases to Enhance Your Visit</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-to-a-new-world-start-learning-croatian-today-for-these-7-reasons/"><u>Journey to a New World – Start Learning Croatian Today for These 7 Reasons!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/key-croatian-expressions-for-an-unforgettable-journey-to-croatia/"><u>Key Croatian Expressions for an Unforgettable Journey to Croatia</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-influence-in-asia-most-widespread-three/"><u>Language Influence in Asia: Most Widespread Three</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-to-converse-tagalog-today-with-focused-short-sessions/"><u>Learn to Converse Tagalog Today with Focused Short Sessions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-consequences-picking-between-german-and-french/"><u>Learning Consequences: Picking Between German and French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-growth-through-dark-shows-on-streaming-platforms/"><u>Linguistic Growth Through Dark Shows on Streaming Platforms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/maximize-your-experience-with-mondlys-guide/"><u>Maximize Your Experience with Mondly's Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-presents-modern-language-learning-tools/"><u>Mondly Presents Modern Language Learning Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-unites-with-pearson-knowledge-alliance/"><u>Mondly Unites With Pearson Knowledge Alliance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-boundless-learning-network-a-community-of-70plus-million/"><u>Mondly’s Boundless Learning Network: A Community of 70+ Million</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-unparalleled-contribution-to-my-language-learning-progress-top-10-insights/"><u>Mondly’s Unparalleled Contribution to My Language Learning Progress – Top 10 Insights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/neurolingual-vr-enhancing-cognitive-skills-through-language/"><u>NeuroLingual VR: Enhancing Cognitive Skills Through Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-year-new-linguistic-skills/"><u>New Year, New Linguistic Skills!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pearsons-diverse-linguistic-programming/"><u>Pearson's Diverse Linguistic Programming</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/pioneer-bdr-xs06-blu-ray-burner-review-portability-and-performance/"><u>Pioneer BDR-XS06 Blu-Ray Burner Review: Portability and Performance</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/pioneering-scripts-reflecting-diverse-genre-themes/"><u>Pioneering Scripts Reflecting Diverse Genre Themes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polyglot-proficiency-program/"><u>Polyglot Proficiency Program</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/practical-language-use-analyzing-german-and-french-merits/"><u>Practical Language Use: Analyzing German & French Merits</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/ps5-multiplayer-magic-a-step-by-step-guide-to-game-sharing/"><u>PS5 Multiplayer Magic: A Step-by-Step Guide to Game Sharing</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/quick-guide-installing-and-exploring-ifunnys-meme-app/"><u>Quick Guide Installing & Exploring iFunny's Meme App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/raccolta-di-numeri-italiani-da-1-a-1000/"><u>Raccolta Di Numeri Italiani (Da 1 a 1000)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/reinventing-yourself-through-linguistic-skills-at-50plus/"><u>Reinventing Yourself Through Linguistic Skills at 50+</u></a></li>
+<li><a href="https://windows11.techidaily.com/removing-geforce-graphical-overlay-feature/"><u>Removing GeForce Graphical Overlay Feature</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/seeking-a-true-witchs-tongue-are-vocal-changer-apps-legit-find-substitutes/"><u>Seeking a True Witch's Tongue Are Vocal Changer Apps Legit? Find Substitutes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/shakespeares-sonnet-scribbled-into-todays-vernacular/"><u>Shakespeare’s Sonnet Scribbled Into Today's Vernacular</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/smart-editing-combining-human-expertise-and-ai-insight/"><u>Smart Editing: Combining Human Expertise and AI Insight</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-without-words-cultivating-bilingual-intimacy/"><u>Speaking Without Words: Cultivating Bilingual Intimacy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sunday-through-saturday-in-korea-made-simple/"><u>Sunday Through Saturday in Korea Made Simple</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/thankful-talk-multilingual-manners-and-phrases-155/"><u>Thankful Talk: Multilingual Manners and Phrases (155)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-global-gift-giver-santa-claus-multilingual-magic/"><u>The Global Gift-Giver: Santa Claus’ Multilingual Magic</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-language-matrix-decoding-complex-verbal-systems-in-star-wars/"><u>The Language Matrix: Decoding Complex Verbal Systems in Star Wars</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-pathway-to-linguistic-proficiency-mondlys-top-10-innovations-for-learning/"><u>The Pathway to Linguistic Proficiency – Mondly's Top 10 Innovations for Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-pearson-way-to-mastering-languages/"><u>The Pearson Way to Mastering Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-wise-choice-embracing-multilingualism-in-your-golden-years/"><u>The Wise Choice: Embracing Multilingualism in Your Golden Years</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-three-asian-verbal-forms-prioritize-and-archive-access/"><u>Top Three Asian Verbal Forms: Prioritize & Archive Access</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transcend-limits-by-learning-languages/"><u>Transcend Limits by Learning Languages</u></a></li>
+<li><a href="https://fox-that.techidaily.com/troubleshooting-guide-restoring-vibration-functionality-for-iphones-on-silent-or-ring-mode/"><u>Troubleshooting Guide: Restoring Vibration Functionality for iPhones on Silent or Ring Mode</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/uniting-the-world-of-learning-betts-mission/"><u>Uniting the World of Learning - BETT's Mission</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-2024-approved-elevating-audio-excellence-adjusting-pitch-in-audacity-without-compromising-quality/"><u>Updated 2024 Approved Elevating Audio Excellence Adjusting Pitch in Audacity without Compromising Quality</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/veritable-verses-of-vintage-verite/"><u>Veritable Verses of Vintage Vérité</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vermeidung-von-falschen-deutschen-entschuldigungen/"><u>Vermeidung Von Falschen Deutschen Entschuldigungen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/virtuachatter-engaging-with-new-languages-in-vr/"><u>VirtuaChatter: Engaging with New Languages in VR</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-nokia-c12-pro-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Nokia C12 Pro? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-learn-croatian-unveil-the-top-7-compelling-benefits/"><u>Why Learn Croatian? Unveil the Top 7 Compelling Benefits!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-start-with-arabic-experience-the-adventure-with-mondly-online-6-reasons/"><u>Why Start with Arabic? Experience the Adventure with Mondly Online (6 Reasons)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/poiothta-eygnwmwn-gkreman-ths-dyshs/"><u>Ποιότητα Ευγνωμών Γκρεμάν Της Δύσης</u></a></li>
+</ul></div>
 
 
 

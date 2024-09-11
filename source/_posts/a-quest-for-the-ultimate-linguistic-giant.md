@@ -1,7 +1,7 @@
 ---
 title: A Quest for the Ultimate Linguistic Giant
-date: 2024-07-12T08:35:40.756Z
-updated: 2024-07-13T08:35:40.756Z
+date: 2024-09-10T13:26:35.474Z
+updated: 2024-09-11T13:26:35.474Z
 tags:
   - speak
   - english
@@ -48,6 +48,20 @@ thumbnail: https://thmb.techidaily.com/5d40c0bfb2b671dade97ca433b00bb587bba5a397
 
 ![screaming goose](https://edge.mondly.com/blog/wp-content/uploads/2018/10/screaming-goose-960x638.jpg "What Is The Longest Word In The World? 2")
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
  “WHAT?” by Hussain Badshah©
 
  Unfortunately for titin, its chemical name hasn’t made it into any of the major dictionaries. So that is why it’s “unofficial”. In fact, many argue that this isn’t even a word.
@@ -82,6 +96,26 @@ Anyway, here’s a glimpse of the little titan’s name:
 
 Good luck posting it on Twitter!
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## The longest word in English – fake version turned official
 
  This is getting more and more interesting. This next word wasn’t originally mentioned in any major dictionaries. In fact, it was originally invented by the president of the National Puzzlers’ League as a synonym for the disease known as silicosis with the sole purpose of becoming a candidate for the longest word in English.
@@ -101,6 +135,26 @@ Enough with the jokes already! This one is for real. Promise.
 **Pseudopseudohypoparathyroidism** is a**30-letter** word [defined by the Oxford Dictionaries](https://en.oxforddictionaries.com/definition/pseudopseudohypoparathyroidism) as “a genetic disorder in which the skeletal abnormalities of pseudohypoparathyroidism are present without the biochemical abnormalities common to hypoparathyroidism and pseudohypoparathyroidism” – in normal human language that roughly translates to “thyroid disorder”. Pseudopseudohypoparathyroidism is**the longest non-coined word to appear in a major dictionary.**
 
 ![long word in the dictionary](https://media.giphy.com/media/3oz8xQQP4ahKiyuxHy/giphy.gif "What Is The Longest Word In The World? 4")
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1975503">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
  Unfortunately, our top doesn’t include a non-technical word so far, so we should keep looking.
 
@@ -128,9 +182,37 @@ Enough with the jokes already! This one is for real. Promise.
 
  Now that you know all the arguments of this complicated debate, feel free to be the judge and decide which one is the longest word in the dictionary,**the longest word in the English language** or even the longest word in the galaxy!
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Bonus: supercalifragilisticexpialidocious (34 letters)
 
  This is your absolute favorite. You thought this was the longest word, haven’t you? But**supercalifragilisticexpialidocious** is, in fact, a coined word made popular by Marry Poppins. Because you tried to pronounce it countless times, here’s a little help:
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## The longest German word
 
@@ -154,6 +236,26 @@ Enough with the jokes already! This one is for real. Promise.
 
  **Tweedehandsemotorverkoopsmannevakbondstakingsvergaderingsameroeperstoespraakskrywerspersverklaringuitreikingsmediakonferensieaankondiging (136 letters)** – translates to “issuable media conference’s announcement at a press release regarding the convener’s speech at a secondhand car dealership union’s strike meeting”.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### The longest word in Danish
 
  Mother tongue of the talented actor Mads Mikkelsen, Danish is a language that allows its speakers to put nouns together always forming new and extremely long words.
@@ -162,9 +264,43 @@ Enough with the jokes already! This one is for real. Promise.
 
  For example, Danish author Hans Christian Andersen, King of Dreamy Fairy Tales and children’s favorite author, named one of his characters (from “The Shepherdess and the Chimney Sweep”) **Gedebukkebensoverogundergeneralkrigskommandersergenten (54 letters)** . That translates to “General-clothes-press-inspector-head-superintendent-Goat-legs” and in literal translation sounds even funnier than that: “the goaty-legged-above-and-under-general-war-commanding-sergeant”. The author’s intention was to make fun of the Danish military titles.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1983584">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### The longest word in Dutch
 
  Like many Germanic languages, Dutch is capable of forming compounds of potentially limitless length. However, **meervoudigepersoonlijkheidsstoornissen (38 letters)** is the longest word that was included in the Van Dale Dutch dictionary. The giant word means “multiple personality disorders”.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### The longest word in Finnish
 
@@ -176,6 +312,20 @@ Enough with the jokes already! This one is for real. Promise.
 
 **Anticonstitutionnellement (25 letters)** — translates to “contrary to the constitution”. Pretty straightforward, I’d say.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### The longest word in Icelandic
 
  **Vaðlaheiðarvegavinnuverkfærageymsluskúraútidyralyklakippuhringur (64 letters)** — whoa there, Icelandic. Take it easy. This absolute giant means “a keychain ring for the outdoor key of road workers shed in a moor called Vaðlaheið” in English.
@@ -186,17 +336,59 @@ Enough with the jokes already! This one is for real. Promise.
 
 ![italian](https://media.giphy.com/media/135E47VKw6TM6A/giphy.gif "What Is The Longest Word In The World? 8")
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
+  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### The longest word in Greek
 
  In his comedy,_Assemblywomen_ (written in 391 BC), Aristophanes invented a 173-letter word: **“ lopadotemachoselachogaleokranioleipsanodrimhypotrimmatosilphioparaomelitokatakechymenokichlepikossyphophattoperisteralektryonoptekephalliokigklopeleiolagoiosiraiobaphetraganopterygon “.** The monster word named a fictional food dish consisting of a combination of fish and other meat.
 
  Modern Greek words, on the other hand, are much shorter: **ηλεκτροεγκεφαλογράφημα (ilektroenkefalográfima), is a 22-letter word** that means “electroencephalogram”. Yes, you remember that correctly! It really is connected to the word we mentioned for English (electroencephalographically).
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### The longest word in**Polish**
 
  Polish allows the creation of gigantic adjectives from numerals and nouns. For example, **dziewięćsetdziewięćdziesiątdziewięćmiliardówdziewięćsetdziewięćdziesiątdziewięćmilionówdziewięćsetdziewięćdziesiątdziewięćtysięcydziewięćsetdziewięćdziesięciodziewięcioletniego**  is**176 letters long** and it means “of 999,999,999,999 years old”.
 
  But one of the longest common Polish words is**dziewięćdziesięciokilkuletniemu (31 letters)** — the dative singular form of “ninety-and-some years old one”.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### The longest word in**Turkish**
 
@@ -255,6 +447,59 @@ Suddenly “supercalifragilisticexpialidocious” seems waaay shorter and easier
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-5-best-apps-to-watch-instagram-stories-anonymously/"><u>[New] 2024 Approved 5 Best Apps to Watch Instagram Stories Anonymously</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-elite-gimbal-solutions-youtube-creators-stabilizing-allies/"><u>[New] 2024 Approved Elite Gimbal Solutions YouTube Creators' Stabilizing Allies</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-high-cash-content-creators/"><u>[Updated] 2024 Approved High-Cash Content Creators</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-become-a-youtube-gif-wizard-your-complete-online-transformation-tutorial/"><u>[Updated] Become a Youtube Gif Wizard Your Complete Online Transformation Tutorial</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-premier-gopro-hero5-black-batteries-with-certified-chargers/"><u>[Updated] In 2024, Premier GoPro Hero5 Black Batteries with Certified Chargers</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-ultimate-racing-game-anthology-the-top-five/"><u>[Updated] In 2024, Ultimate Racing Game Anthology The Top Five</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-sketch-humorous-images-with-adobe-for-2024/"><u>[Updated] Sketch Humorous Images with Adobe for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-durecorder-simplified-essential-guidelines-and-reviews/"><u>2024 Approved DuRecorder Simplified Essential Guidelines & Reviews</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-the-djs-guide-to-elevating-visual-narratives-with-soundtracks-fb/"><u>2024 Approved The DJ's Guide to Elevating Visual Narratives with Soundtracks (FB)</u></a></li>
+<li><a href="https://discover-community.techidaily.com/best-video-file-types-compared-why-pick-mkv-or-mp4/"><u>Best Video File Types Compared: Why Pick MKV or MP4?</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fix-black-ops-cold-war-missing-audio-issues-in-pc-version/"><u>Fix Black Ops: Cold War Missing Audio Issues in PC Version</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/google-plays-top-kid-friendly-app-mondly-family-edition/"><u>Google Play's Top Kid-Friendly App: Mondly Family Edition</u></a></li>
+<li><a href="https://windows11.techidaily.com/how-to-fix-words-read-aloud-feature-when-it-stops-working-in-windows/"><u>How to Fix Word’s Read Aloud Feature When It Stops Working in Windows</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-5-ways-to-transfer-music-from-apple-iphone-14-plus-to-android-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 5 Ways to Transfer Music from Apple iPhone 14 Plus to Android | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/innovative-language-learning-with-mondly-best-of-2022/"><u>Innovative Language Learning with Mondly - Best of 2022</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/israels-national-language-an-overview/"><u>Israel's National Language: An Overview?</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/jokester-jukebox-selecting-sources-for-funny-ringtones/"><u>Jokester Jukebox Selecting Sources for Funny Ringtones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/kommunikative-vergebung-in-deutsch/"><u>Kommunikative Vergebung in Deutsch</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-barrier-breakthroughs-with-an-epic-95-savings-opportunity/"><u>Language Barrier Breakthroughs with an Epic 95% Savings Opportunity!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-language-lore-best-quotations-and-proverbs-of-ancient-rome/"><u>Latin Language Lore: Best Quotations & Proverbs of Ancient Rome</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/launching-the-ultimate-guide-to-mondlys-questions-and-answers/"><u>Launching the Ultimate Guide to Mondly's Questions & Answers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-the-basics-of-urdu-with-key-terms-and-phrases/"><u>Learn the Basics of Urdu with Key Terms and Phrases.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-ukrainian-quickly-the-ten-minute-technique-97-chars/"><u>Mastering Ukrainian Quickly: The Ten-Minute Technique (97 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-is-best-online-language-learning-portal-in-germany/"><u>Mondly Is Best Online Language Learning Portal in Germany</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/politeness-profiles-the-art-of-saying-thanks-across-cultures-154/"><u>Politeness Profiles: The Art of Saying Thanks Across Cultures (154)</u></a></li>
+<li><a href="https://os-tips.techidaily.com/quick-and-easy-steps-restore-lost-iphone-video-footage-without-hesitation-comprehensive-tutorial/"><u>Quick & Easy Steps: Restore Lost iPhone Video Footage Without Hesitation - Comprehensive Tutorial</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/recognizing-excellence-apples-top-10-ed-tech-with-mondly/"><u>Recognizing Excellence: Apple's Top 10 Ed-Tech with Mondly</u></a></li>
+<li><a href="https://fox-that.techidaily.com/reviving-the-iphone-light-beam-top-12-fixes-for-a-malfunctioning-flashlight/"><u>Reviving the iPhone Light Beam: Top 12 Fixes for a Malfunctioning Flashlight</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speedy-mastery-a-beginners-guide-to-polish/"><u>Speedy Mastery: A Beginner's Guide to Polish</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/streamline-shipment-5-methods-of-transporting-files-for-2024/"><u>Streamline Shipment 5 Methods of Transporting Files for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tantalizing-talks-the-allure-of-spanish-dialogue/"><u>Tantalizing Talks: The Allure of Spanish Dialogue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-scoring-in-language-exams/"><u>The Art of Scoring in Language Exams</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essence-of-superior-performance-in-mondly-application/"><u>The Essence of Superior Performance in Mondly Application</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-italian-explorers-vocabulary-100plus-must-learn-phrases/"><u>The Italian Explorer’s Vocabulary: 100+ Must-Learn Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-pearson-linguistic-journey-begins-here/"><u>The Pearson Linguistic Journey Begins Here</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-triumvirate-of-asian-dialects-rising-three/"><u>The Triumvirate of Asian Dialects: Rising Three</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-oppo-reno-11-pro-5g-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Oppo Reno 11 Pro 5G Location | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-and-using-spanish-verb-endings/"><u>Understanding and Using Spanish Verb Endings</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/understanding-the-shutdown-insights-into-new-chatgpt-subscription-pauses-and-future-plans/"><u>Understanding the Shutdown: Insights Into New ChatGPT Subscription Pauses & Future Plans</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/urdu-phrases-and-words-the-foundation-for-beginners/"><u>Urdu Phrases & Words: The Foundation for Beginners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/world-awaits-embrace-your-language-skills-with-mondly/"><u>World Awaits: Embrace Your Language Skills with Mondly</u></a></li>
+</ul></div>
 
 
 

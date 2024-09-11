@@ -1,7 +1,7 @@
 ---
 title: "Get Into It: The Next-Level Conversation AI"
-date: 2024-09-05T04:45:15.557Z
-updated: 2024-09-06T04:45:15.557Z
+date: 2024-09-10T13:30:54.744Z
+updated: 2024-09-11T13:30:54.744Z
 tags:
   - speak
   - english
@@ -14,24 +14,12 @@ keywords: Advanced Artificial Intelligence (AI) in Conversations,Cutting-Edge Co
 thumbnail: https://thmb.techidaily.com/a6603b4c8e64882a75258ea91034b33184d3edc319264524a7b728bfe67ef7f7.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Get Into It: The Next-Level Conversation AI
 
  Ever wished for a tutor that’s available 24/7 and helps you build your confidence when speaking English? We’ve got good news for you. **Soon you’ll have the opportunity to practice your English language skills with your new AI Conversation Partner.** The waitlist is now open and you can register to be among the first learners to meet LUNA.
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Get Ready To Meet Your New Ai Conversation Partner 2")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Join the waitlist now
 
  Be among the first to meet LUNA, your new AI conversation partner.
@@ -48,12 +36,20 @@ thumbnail: https://thmb.techidaily.com/a6603b4c8e64882a75258ea91034b33184d3edc31
 
  Mondly by Pearson’s new AI conversation partner changes all of this. An innovative new way to take you one step closer to achieving your language goals. Say hello to LUNA.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115934/19272" target="_top" id="2115934">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115934" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115934/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## Why LUNA?
 
 * LUNA is powered by AI. So she will not judge you, speak over you, try to complete your sentence, or get bored. She will listen, respond, help you understand when you don’t get it 100% right, and she will do that as many times as you need to build your confidence.
@@ -68,12 +64,20 @@ thumbnail: https://thmb.techidaily.com/a6603b4c8e64882a75258ea91034b33184d3edc31
 
 ---
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### About Mondly by Pearson
 
  Mondly by Pearson is a leading online language learning platform that enables over 100 million learners from 190 countries to learn 41 languages. Launched in 2014, it quickly became a household name in the mobile space, reaching the #1 position in Education in most European countries, LATAM and Asia. Mondly is also a pioneer in VR Education, with its most recent launch on Meta Quest being in the top 10 VR apps worldwide.

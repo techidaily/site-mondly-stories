@@ -1,7 +1,7 @@
 ---
 title: "Compreender Saudações Em Portugal: Todas as Variedades"
-date: 2024-07-12T08:35:52.550Z
-updated: 2024-07-13T08:35:52.550Z
+date: 2024-09-10T13:26:50.519Z
+updated: 2024-09-11T13:26:50.519Z
 tags:
   - speak
   - english
@@ -20,6 +20,20 @@ thumbnail: https://thmb.techidaily.com/bef0ee80271c03bca8fa1ceeb9bd487dbcf95a1c3
 
  So next time you go on an adventure to one of the 7 countries where Portuguese is the only official language (Portugal, Brazil, Mozambique, Angola, Cape Verde, Guinea-Bissau, São Tomé and Príncipe), try the following**Portuguese greetings** and see how easy it is to connect with someone even if you don’t speak the same language.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## 1\. How to say “hello” in Portuguese
 
  “Hello” is a [powerful word](https://www.merriam-webster.com/words-at-play/the-origin-of-hello) . It opens doors. It makes people smile. And said the right way and at the right time, “hello” can impact someone’s day and you wouldn’t even know it. So here are the right ways to say “hello” in Portuguese and open doors everywhere you go.
@@ -30,11 +44,39 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
  Be careful with your Portuguese pronunciation though! A lot of people accidentally mistake Portuguese for Spanish. You don’t want to do that. Just say “OH-lah” and everybody from Brazil to Mozambique will understand that you are saying “hello” in Portuguese.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120865/26400?prodsku=mercury" target="_top" id="2120865">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120865/26400?prodsku=mercury" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### “Hi” in Portuguese – Oi
 
  Friendly and very informal,_Oi!_ is one of the most common ways to greet your friends in Brazil (people from Portugal use it as well, but not as much as_olá)_ . This is how you could greet your mates and close colleagues, but never the people you don’t really know. Don’t stress it tough! When the time comes, you will feel and just know what’s the required Portuguese greeting for that particular situation.
 
 ![hi in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-portuguese-1024x658.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 2")
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115918/19272" target="_top" id="2115918">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115918" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115918/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
  “Lisbon, Portugal” by Diego García©
 
@@ -53,6 +95,20 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 * **_Quanto tempo!_ – Long time no see!** – Used the same as in English.
 * **_Como foi o seu dia?_ – How’s your day?** – Used the same as in English.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115934/19272" target="_top" id="2115934">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115934" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115934/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## 2\. “Bom dia!” and other Portuguese greetings for certain moments of the day
 
 ![good morning in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/good-morning-in-portuguese-1024x642.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 3")
@@ -66,6 +122,26 @@ _Olá_ is the best choice for most social situations regardless of the person yo
  **Good night in Portuguese –_Boa noite!_**  – The Portuguese language does not make any difference between evening and night. Thus, “goodnight” and “good evening” have the same translation in Portuguese. While in Brazil you will say “boa NOEE-tsh”, in Portugal you will say “boa NOEE-t”.
 
  All three of these are safe to use in any kind of interaction (formal or informal).
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## 3.“Goodbye” in Portuguese – Adeus
 
@@ -114,6 +190,20 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ---
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### Here’s how to speak Portuguese in 10 minutes a day
 
  Do you want to practice what you’ve learned and maybe learn some more Portuguese? **Check Mondly, the revolutionary language learning platform that makes language learning fun, fast and easy!**
@@ -144,6 +234,88 @@ _Olá_ is the best choice for most social situations regardless of the person yo
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-decipher-the-best-video-tracker-tools-for-high-impact-results/"><u>[New] 2024 Approved Decipher the Best Video Tracker Tools for High-Impact Results</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-the-beginners-roadmap-to-choosing-a-camera/"><u>[New] 2024 Approved The Beginner's Roadmap to Choosing a Camera</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-auditory-logging-system-tones-and-voice-samples/"><u>[New] Auditory Logging System Tones & Voice Samples</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-reimagine-your-snapchat-chats-with-ease-voice-change-guides-here/"><u>[New] In 2024, Reimagine Your Snapchat Chats with Ease Voice Change Guides Here</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-top-tricks-to-document-league-of-legends-games-efficiently/"><u>[New] Top Tricks to Document League of Legends Games Efficiently</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-essential-steps-for-seamless-youtube-video-loops/"><u>[Updated] 2024 Approved Essential Steps for Seamless YouTube Video Loops</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-vividscreen-record-pro-win-10/"><u>[Updated] 2024 Approved VividScreen Record Pro (Win 10)</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-groundbreaking-first-episode-critique-for-2024/"><u>[Updated] Groundbreaking First-Episode Critique for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-how-to-reverse-color-saturation-quickly/"><u>[Updated] How to Reverse Color Saturation Quickly</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-humor-hierarchy-the-20-most-popular-memes-for-2024/"><u>[Updated] Humor Hierarchy The 20 Most Popular Memes for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-streaming-virtual-classrooms/"><u>[Updated] In 2024, Streaming Virtual Classrooms</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-mining-meaningful-conversations-on-youtube/"><u>[Updated] Mining Meaningful Conversations on YouTube</u></a></li>
+<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-oneplus-nord-ce-3-lite-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on OnePlus Nord CE 3 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/creating-unique-workout-plans-through-gpt/"><u>Creating Unique Workout Plans Through GPT</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/data-recovery-recover-lost-data-from-nubia-z60-ultra-by-fonelab-android-recover-data/"><u>Data Recovery – recover lost data from Nubia Z60 Ultra</u></a></li>
+<li><a href="https://extra-information.techidaily.com/dive-into-dynamic-editing-windows-xp-edition-guide/"><u>Dive Into Dynamic Editing Windows XP Edition Guide</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/dts-play-fi-unveiled-revolutionizing-wireless-music-sharing/"><u>DTS Play-Fi Unveiled: Revolutionizing Wireless Music Sharing</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-messages-from-motorola-edgeplus-2023-by-fonelab-android-recover-messages/"><u>Easy steps to recover deleted messages from Motorola Edge+ (2023)</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/1715701114937-essential-game-picks-ghost-of-tsushima-rival-edition/"><u>Essential Game Picks Ghost of Tsushima Rival Edition!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-vernacular-infusion-english-written-and-spoken-forms/"><u>Global Vernacular Infusion: English' Written and Spoken Forms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/high-performance-tools-in-multilingual-education/"><u>High-Performance Tools in Multilingual Education</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-do-i-stop-someone-from-tracking-my-oneplus-open-drfone-by-drfone-virtual-android/"><u>In 2024, How Do I Stop Someone From Tracking My OnePlus Open? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-oppo-f23-5g-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of Oppo F23 5G Without PUK Codes</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-verizon-iphone-12-by-drfone-ios/"><u>In 2024, How to Unlock Verizon iPhone 12</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-15-apps-to-hack-wifi-password-on-xiaomi-redmi-note-12-pro-4g-by-drfone-android/"><u>In 2024, Top 15 Apps To Hack WiFi Password On Xiaomi Redmi Note 12 Pro 4G</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-oppo-a2-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Oppo A2? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/inaugural-app-fusing-voice-and-augmented-reality/"><u>Inaugural App Fusing Voice & Augmented Reality</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-into-hangul-easy-steps-to-language-mastery/"><u>Journey Into Hangul: Easy Steps to Language Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-uninterrupted-dark-shows-on-netflix/"><u>Language Learning Uninterrupted: Dark Shows on Netflix</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-bengali-online-in-just-10-minutes-a-dayback-buttonfilter-button/"><u>Learn Bengali Online In Just 10 Minutes A DayBack ButtonFilter Button</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/les-courses-au-francophone/"><u>Les Courses Au Francophone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/aging-youtube-for-affiliate-earnings-for-2024/"><u>Leveraging YouTube for Affiliate Earnings for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lexicon-origins-shakespearean-words-in-modern-chatter/"><u>Lexicon Origins: Shakespearean Words in Modern Chatter</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-agility-6-benefits-for-a-multilingual-life/"><u>Linguistic Agility: #6 Benefits for a Multilingual Life</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/macau-language-diversity-cantonese-macanese-and-portuguese-unveiled/"><u>Macau Language Diversity: Cantonese, Macanese, And Portuguese Unveiled</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/mastery-in-broadcast-4-approaches-for-televised-facebook-lives/"><u>Mastery in Broadcast 4 Approaches for Televised Facebook Lives</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/milestones-achieved-mondlybacks-filters-in-the-decade/"><u>Milestones Achieved: MondlyBack's Filters in the Decade</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-joins-pearsonback-buttonfilter-button/"><u>Mondly Joins PearsonBack ButtonFilter Button</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-merges-with-pearson-academics-inc/"><u>Mondly Merges with Pearson Academics Inc</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-leading-linguistics-in-germanys-digital-realm/"><u>Mondly: Leading Linguistics in Germany's Digital Realm</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-principles-for-knowledge-acquisition/"><u>Mondly's Principles for Knowledge Acquisition</u></a></li>
+<li><a href="https://extra-support.techidaily.com/navigating-nearby-areas-for-an-immersive-roblox-experience-for-2024/"><u>Navigating Nearby Areas for an Immersive Roblox Experience for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-non-verbal-nuances-italian-gestures/"><u>Navigating Non-Verbal Nuances: Italian Gestures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/philosophical-phonology-from-classical-to-contemporary/"><u>Philosophical Phonology: From Classical to Contemporary</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pioneering-filters-the-mondly-pearson-collaboration/"><u>Pioneering Filters: The Mondly-Pearson Collaboration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polish-study-fast-track-to-proficiency/"><u>Polish Study: Fast Track to Proficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/precision-in-pronunciation-ultimate-speech-coaching/"><u>Precision in Pronunciation: Ultimate Speech Coaching</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/prevalent-global-languages-studied-by-americans/"><u>Prevalent Global Languages Studied by Americans</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/privacy-policy-just-updated/"><u>Privacy Policy Just Updated</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-catalan-mastery-daily-10-minute-routine/"><u>Quick Catalan Mastery: Daily 10-Minute Routine</u></a></li>
+<li><a href="https://network-issues.techidaily.com/quick-techniques-for-removing-windows-graphic-drivers/"><u>Quick Techniques for Removing Windows Graphic Drivers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rapid-czech-acquisition-strategies-web-based/"><u>Rapid Czech Acquisition Strategies, Web-Based</u></a></li>
+<li><a href="https://facebook.techidaily.com/rethinking-the-use-of-negative-digital-tools/"><u>Rethinking the Use of Negative Digital Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/romancing-in-french-irresistible-french-pick-up-lines/"><u>Romancing In French: Irresistible French Pick Up Lines</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/romanian-pros-language-lessons-by-locals/"><u>Romanian Pros: Language Lessons by Locals</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saudacoes-em-portugues-todas-as-avispasidades-da-bencao/"><u>Saudações Em Português: Todas as Avispasidades Da Bênção</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/secure-free-mpow-bluetooth-driver-software-for-windows-users-compatible-with-11-8-7/"><u>Secure Free MPOW Bluetooth Driver Software for Windows Users: Compatible with 11, 8, 7</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sultry-storytelling-in-silk-like-languages/"><u>Sultry Storytelling in Silk-Like Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/svenskarens-geni-allt-i-gorelse/"><u>Svenskarens Geni: Allt I Görelse</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-balance-between-accuracy-and-understanding/"><u>The Balance Between Accuracy and Understanding</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-evolutionary-milestone-of-mondlys-journey/"><u>The Evolutionary Milestone of Mondly's Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-triad-of-language-education-break-barriers-speak-new-tongues/"><u>Top Triad of Language Education: Break Barriers, Speak New Tongues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-swedish-phonetics-with-flair-and-speed/"><u>Unlock Swedish Phonetics with Flair & Speed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-linguistic-excellence-mondlys-2022-triumph/"><u>Unveiling Linguistic Excellence: Mondly's 2022 Triumph</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-exploring-the-best-text-to-speech-online-tools-to-use/"><u>Updated 2024 Approved Exploring The Best Text-to-Speech Online Tools To Use</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/virtualang-revolutionizing-interactive-language-education/"><u>VirtuaLang: Revolutionizing Interactive Language Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/watch-dark-and-learn-a-new-language-germans/"><u>Watch 'Dark' And Learn a New Language, Germans</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldly-connections-creating-bridges-across-cultures/"><u>Worldly Connections: Creating Bridges Across Cultures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-breakfast-banter-how-to-say-good-morning/"><u>Worldwide Breakfast Banter: How to Say 'Good Morning'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-words-shaping-english-identity/"><u>Worldwide Words Shaping English Identity</u></a></li>
+</ul></div>
 
 
 

@@ -1,7 +1,7 @@
 ---
 title: "Lettura Di Numeri Italiani: La Via Da 1 a 1000"
-date: 2024-07-12T08:37:08.045Z
-updated: 2024-07-13T08:37:08.045Z
+date: 2024-09-10T13:26:03.729Z
+updated: 2024-09-11T13:26:03.729Z
 tags:
   - speak
   - english
@@ -19,6 +19,26 @@ thumbnail: https://thmb.techidaily.com/7216cdd0db0d51b9ba6ea43c8d26dd6a0eb4cf5b2
  Lucky for us, language learners, most languages use Arabic numerals (0, 1, 2, 3, 4, 5, 6, 7, 8, 9) in writing. The challenging parts are pronunciation and spelling. When you start [learning Italian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , you will, of course, need to learn numbers. Italian numbers are easy to remember and pronounce because they follow a simple and predictable pattern. Once you know the Italian numbers to 10, counting to 100 and even 1000 is easy.
 
  There’s hardly a day that passes without using [numbers](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . They’re essential to our day-to-day lives. From shopping to giving people your phone number and setting up a meeting at a certain time, numbers are probably one of the first lessons you should take in any language. So, let’s see how easy it is to count from_zero_ to_cento_ in_Italiano_ .
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1770526">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Count to 10 in Italian
 
@@ -51,6 +71,20 @@ Here’s how to write and pronounce the Italian numbers 1-10:
  Not sure you understood how to pronounce the Italian numbers to 10? Here’s a short video with crystal-clear audios recorded by a fluent Italian speaker so you can learn from the best:
 
 **Good to know:**Italian cardinal numbers don’t change suffixes according to the gender of the noun they determine. The only exception is 1_(uno)_. Thus, when you talk about a feminine noun, you’ll say_una_instead of_uno_:_Ho comprato una casa_(“I bought a house.”)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115929/19272" target="_top" id="2115929">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115929" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115929/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Italian numbers 11-20
 
@@ -88,6 +122,20 @@ Let’s see some examples:
 * to say “18 years”, you’ll say_diciotto anni_
 * to say “20 children”, you’ll say_venti bambini_
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Italian numbers to 30 and beyond
 
  Essentially, Italian numbers are very similar to English numbers. Once you get to 20, you just put together the tens with the single numbers (units). The best part is that Italian doesn’t even require spaces or hyphens. For example, if you want to say 22 (“twenty-two”), in Italian you say venti (20) + due (2) = _**venti** due_ (22).
@@ -99,6 +147,20 @@ Let’s see some examples:
  Italian numbers to 30
 
  See how easy Italian numbers are? The only thing you have to remember is that the final vowel of the tens disappears when you add 1_(uno)_ or 8_(otto)_ . Thus, you’ll say _**vent** uno_ and not “ventiuno”. Additionally, number 3_(tre)_ gains an accent mark on the final vowel. For example, 33 will be_trentatré_ and 83 will be_ottantatré._
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### Count tens in Italian
 
@@ -133,6 +195,20 @@ Let’s see some examples:
 * 84 – _ottanta**quattro**_
 * 98 – _novant**otto**_
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Italian numbers 100 to 1000 and beyond
 
  The same rules apply to bigger numbers as well. Add the suffix_cento_ to the multiplier digit and here are your hundreds:
@@ -160,6 +236,20 @@ Let’s see some examples:
  And now you also understood where_grazie mille_ comes from. Literally meaning “a thousand thanks” or “a thousand thanks yous”,_grazie mille_ means “thank you very much” in Italian.
 
 ![italian numbers pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2020/05/italian-numbers-pronunciation-960x640.jpg "Italian Numbers Made Easy - Count To 1000 And Beyond In Italian 3")
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
  “The Amalfi Coast” by Gregory Smirnov©
 
@@ -231,6 +321,68 @@ Let’s see some examples:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-power-players-unleashed-youtubes-female-elite/"><u>[New] In 2024, Power Players Unleashed YouTube’s Female Elite</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-unlock-creative-storytelling-the-art-of-jump-cutting/"><u>[New] In 2024, Unlock Creative Storytelling The Art of Jump Cutting</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nspire-creativity-brainstorming-for-channels-names-for-2024/"><u>[New] Inspire Creativity Brainstorming for Channels' Names for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-uniting-fans-anime-opening-songs-showcase-for-2024/"><u>[Updated] Uniting Fans Anime Opening Songs Showcase for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-top-35-humorous-image-alterers-onlineiosandroid-edition/"><u>2024 Approved Top 35 Humorous Image Alterers Online/iOS/Android Edition</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/clean-soundscape-youtube-audio-enhancement-guide/"><u>Clean Soundscape YouTube Audio Enhancement Guide</u></a></li>
+<li><a href="https://techtrends.techidaily.com/decoding-chatgpthem-who-is-steering-this-ai-revolution/"><u>Decoding ChatGPT'hem: Who Is Steering This AI Revolution?</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/expert-analysis-of-fongos-canadian-ip-telephony-services/"><u>Expert Analysis of Fongo's Canadian IP Telephony Services</u></a></li>
+<li><a href="https://games-able.techidaily.com/explore-cryptic-crimes-with-ai-partners-in-games/"><u>Explore Cryptic Crimes with AI Partners in Games</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/happiness-transcends-language-on-74/"><u>Happiness Transcends Language on 7/4</u></a></li>
+<li><a href="https://techidaily.com/how-to-hard-reset-xiaomi-redmi-note-13-5g-without-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Hard Reset Xiaomi Redmi Note 13 5G Without Password | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-learn-ukrainian-fast-in-just-10-minutes-a-day/"><u>How to Learn Ukrainian Fast in Just 10 Minutes a Day</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-vivo-v29-pro-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Vivo V29 Pro online without jailbreak</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/immerse-in-cultures-and-conversations-powered-by-mondlyar/"><u>Immerse in Cultures and Conversations, Powered by MondlyAR</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/innovative-education-networking-event/"><u>Innovative Education Networking Event</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-through-the-apex-of-english-with-mondly/"><u>Journey Through the Apex of English with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-to-fluency-with-hindi-mondly-exposes-8-essential-learning-benefits/"><u>Journey to Fluency with Hindi: Mondly Exposes 8 Essential Learning Benefits!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/joy-in-1500-daily-educational-gifts/"><u>Joy in 1,500 Daily Educational Gifts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/kid-app-for-the-future-googles-2017-best-pick-mondly-kids-edition/"><u>Kid-App for the Future - Google's 2017 Best Pick: Mondly Kids Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/launching-the-all-new-faq-facility-for-mondly-users/"><u>Launching the All-New FAQ Facility for Mondly Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-german-made-easy-the-ultimate-25-idiom-collection-guide/"><u>Learning German Made Easy: The Ultimate 25 Idiom Collection Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lifelong-learning-top-4-benefits-for-multilingual-adults/"><u>Lifelong Learning: Top 4 Benefits for Multilingual Adults</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/los-diez-nombres-del-mundo-en-espanol-un-curso-semanal/"><u>Los Diez Nombres Del Mundo en Español: Un Curso Semanal</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/making-latin-learning-fun-and-engaging-for-students/"><u>Making Latin Learning Fun And Engaging For Students</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-french-books-best-novels-for-beginners-outlined/"><u>Mastering French Books: Best Novels For Beginners Outlined</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/maximizing-motherboard-compatibility-a-review-of-the-gskill-trident-z5-rgb-ddr5-640cu-c32-dual-channel-memory-solution/"><u>Maximizing Motherboard Compatibility: A Review of the G.SKILL Trident Z5 RGB DDR5-640cu C32 Dual-Channel Memory Solution</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/meet-italians-the-right-way-with-these-basic-greetings/"><u>Meet Italians the Right Way with These Basic Greetings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-secures-title-germanys-best-virtual-linguistic-hub/"><u>Mondly Secures Title: Germany's Best Virtual Linguistic Hub</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-british-slang-quick-and-effective-learning/"><u>Navigating British Slang: Quick & Effective Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/parallel-linguistic-proficiency/"><u>Parallel Linguistic Proficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/paso-a-paso-entender-la-hora-y-segundo-en-espanol/"><u>Paso a Paso: Entender La Hora Y Segundo en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rapid-bokmal-mastery-in-daily-sprints/"><u>Rapid Bokmål Mastery in Daily Sprints!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/reasons-to-dive-into-german-top-10-facts/"><u>Reasons to Dive Into German: Top 10 Facts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/romantic-language-lessons-hungarys-vernacular-of-love/"><u>Romantic Language Lessons: Hungary's Vernacular of Love</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/self-taught-french-strategies-unveiled/"><u>Self-Taught French Strategies Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/short-effective-daily-tagsawiin-language-goals-achieved/"><u>Short, Effective Daily Tagsawiin: Language Goals Achieved</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/slovak-in-a-flash-online-learning-for-busy-lives/"><u>Slovak in a Flash - Online Learning for Busy Lives</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speedy-study-strategies-for-polish/"><u>Speedy Study Strategies for Polish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/start-speaking-filipino-today-with-easy-10-minute-lessons/"><u>Start Speaking Filipino Today with Easy 10-Minute Lessons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/state-of-the-art-platforms-for-language-learning-efficiency/"><u>State-of-the-Art Platforms for Language Learning Efficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sweet-serenades-italys-loverly-charm/"><u>Sweet Serenades: Italy’s Loverly Charm</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/temps-de-la-semaine-en-france/"><u>Temps De La Semaine en France</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/terms-and-conditions-updated-clarity/"><u>Terms & Conditions: Updated Clarity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-eloquent-enthusiasts-handbook-to-french-greeting-expressions/"><u>The Eloquent Enthusiast's Handbook to French Greeting Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-path-to-essential-words-oxford-mondly-guide/"><u>The Path to Essential Words: Oxford-Mondly Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-travelers-linguistic-companion-to-vietnam/"><u>The Traveler’s Linguistic Companion to Vietnam</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-saying-hello-in-spanish-with-top-10-methods/"><u>The Ultimate Guide To Saying 'Hello' In Spanish With Top 10 Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-benefits-for-mastering-languages-post-fifty/"><u>Top Benefits for Mastering Languages Post-Fifty</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-benefits-with-these-10-german-lessons/"><u>Unlock Benefits with These 10 German Lessons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/world-languages-at-the-peak/"><u>World Languages at the Peak</u></a></li>
+</ul></div>
 
 
 

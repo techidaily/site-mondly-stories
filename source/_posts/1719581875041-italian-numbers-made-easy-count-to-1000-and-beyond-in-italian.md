@@ -1,7 +1,7 @@
 ---
 title: Italian Numbers Made Easy – Count to 1000 and Beyond in Italian
-date: 2024-07-12T08:35:39.717Z
-updated: 2024-07-13T08:35:39.717Z
+date: 2024-09-10T13:26:34.198Z
+updated: 2024-09-11T13:26:34.198Z
 tags:
   - speak
   - english
@@ -19,6 +19,26 @@ thumbnail: https://thmb.techidaily.com/3681ab3fb1278f9c5e283b2684cc0a6da110630db
  Lucky for us, language learners, most languages use Arabic numerals (0, 1, 2, 3, 4, 5, 6, 7, 8, 9) in writing. The challenging parts are pronunciation and spelling. When you start [learning Italian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , you will, of course, need to learn numbers. Italian numbers are easy to remember and pronounce because they follow a simple and predictable pattern. Once you know the Italian numbers to 10, counting to 100 and even 1000 is easy.
 
  There’s hardly a day that passes without using [numbers](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . They’re essential to our day-to-day lives. From shopping to giving people your phone number and setting up a meeting at a certain time, numbers are probably one of the first lessons you should take in any language. So, let’s see how easy it is to count from_zero_ to_cento_ in_Italiano_ .
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Count to 10 in Italian
 
@@ -51,6 +71,26 @@ Here’s how to write and pronounce the Italian numbers 1-10:
  Not sure you understood how to pronounce the Italian numbers to 10? Here’s a short video with crystal-clear audios recorded by a fluent Italian speaker so you can learn from the best:
 
 **Good to know:**Italian cardinal numbers don’t change suffixes according to the gender of the noun they determine. The only exception is 1_(uno)_. Thus, when you talk about a feminine noun, you’ll say_una_instead of_uno_:_Ho comprato una casa_(“I bought a house.”)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Italian numbers 11-20
 
@@ -88,6 +128,26 @@ Let’s see some examples:
 * to say “18 years”, you’ll say_diciotto anni_
 * to say “20 children”, you’ll say_venti bambini_
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Italian numbers to 30 and beyond
 
  Essentially, Italian numbers are very similar to English numbers. Once you get to 20, you just put together the tens with the single numbers (units). The best part is that Italian doesn’t even require spaces or hyphens. For example, if you want to say 22 (“twenty-two”), in Italian you say venti (20) + due (2) = _**venti** due_ (22).
@@ -99,6 +159,26 @@ Let’s see some examples:
  Italian numbers to 30
 
  See how easy Italian numbers are? The only thing you have to remember is that the final vowel of the tens disappears when you add 1_(uno)_ or 8_(otto)_ . Thus, you’ll say _**vent** uno_ and not “ventiuno”. Additionally, number 3_(tre)_ gains an accent mark on the final vowel. For example, 33 will be_trentatré_ and 83 will be_ottantatré._
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### Count tens in Italian
 
@@ -133,6 +213,20 @@ Let’s see some examples:
 * 84 – _ottanta**quattro**_
 * 98 – _novant**otto**_
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Italian numbers 100 to 1000 and beyond
 
  The same rules apply to bigger numbers as well. Add the suffix_cento_ to the multiplier digit and here are your hundreds:
@@ -160,6 +254,20 @@ Let’s see some examples:
  And now you also understood where_grazie mille_ comes from. Literally meaning “a thousand thanks” or “a thousand thanks yous”,_grazie mille_ means “thank you very much” in Italian.
 
 ![italian numbers pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2020/05/italian-numbers-pronunciation-960x640.jpg "Italian Numbers Made Easy - Count To 1000 And Beyond In Italian 3")
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
  “The Amalfi Coast” by Gregory Smirnov©
 
@@ -231,6 +339,54 @@ Let’s see some examples:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-breaking-the-mold-how-to-create-a-standout-youtube-channel-name-for-2024/"><u>[New] Breaking the Mold How to Create a Standout YouTube Channel Name for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-unseen-screencapture-mastering-discreet-snaptaking-methods/"><u>[New] In 2024, Unseen ScreenCapture Mastering Discreet SnapTaking Methods</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-voiceover-guide-for-engaging-videography/"><u>[New] Voiceover Guide for Engaging Videography</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-revealing-10-hidden-viewers-of-stories/"><u>[Updated] 2024 Approved Revealing 10 Hidden Viewers of Stories</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-mastering-zoom-audio-high-fidelity-and-unmuted-channels-for-2024/"><u>[Updated] Mastering Zoom Audio High Fidelity & Unmuted Channels for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-maximizing-memories-techniques-for-gameplay-recording-for-2024/"><u>[Updated] Maximizing Memories Techniques for Gameplay Recording for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-twitter-video-requirements-how-to-upload-a-video-on-twitter-for-2024/"><u>[Updated] Twitter Video Requirements | How to Upload a Video on Twitter for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-iphone-and-ipad-screen-recording-top-methods-of-2023/"><u>2024 Approved IPhone & iPad Screen Recording Top Methods of 2023</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/best-breaks-and-takes-from-snowspeedcross-games/"><u>Best Breaks & Takes From Snowspeedcross Games</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-perspective-on-countries-dominating-in-french-speaking/"><u>Global Perspective on Countries Dominating in French Speaking</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-lava-yuva-3-pro-get-deleted-photos-back-with-ease-and-safety-by-fonelab-android-recover-photos/"><u>How to Lava Yuva 3 Pro Get Deleted photos Back with Ease and Safety?</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-downloading-samfw-frp-tool-30-for-vivo-s17-pro-by-drfone-android/"><u>In 2024, Downloading SamFw FRP Tool 3.0 for Vivo S17 Pro</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-facebook-dating-for-your-samsung-galaxy-m54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location On Facebook Dating for your Samsung Galaxy M54 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/italian-dialogues-key-phrases-to-enhance-your-visit/"><u>Italian Dialogues: Key Phrases to Enhance Your Visit</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-to-a-new-world-start-learning-croatian-today-for-these-7-reasons/"><u>Journey to a New World – Start Learning Croatian Today for These 7 Reasons!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-unites-with-pearson-knowledge-alliance/"><u>Mondly Unites With Pearson Knowledge Alliance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-unparalleled-contribution-to-my-language-learning-progress-top-10-insights/"><u>Mondly’s Unparalleled Contribution to My Language Learning Progress – Top 10 Insights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/neurolingual-vr-enhancing-cognitive-skills-through-language/"><u>NeuroLingual VR: Enhancing Cognitive Skills Through Language</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-unlock-smooth-conversions-top-10-free-4k-video-converters-for-2024/"><u>New Unlock Smooth Conversions Top 10 Free 4K Video Converters for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-year-new-linguistic-skills/"><u>New Year, New Linguistic Skills!</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1722978844788-nvidia-rtx-2060-driver-update-fresh-drivers-released-for-all-windows-versions-download-now/"><u>NVIDIA RTX 2060 Driver Update: Fresh Drivers Released for All Windows Versions - Download Now!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pearsons-diverse-linguistic-programming/"><u>Pearson's Diverse Linguistic Programming</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polyglot-proficiency-program/"><u>Polyglot Proficiency Program</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/practical-language-use-analyzing-german-and-french-merits/"><u>Practical Language Use: Analyzing German & French Merits</u></a></li>
+<li><a href="https://howto.techidaily.com/quick-fixes-for-why-is-my-nokia-g22-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Nokia G22 Black and White | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-swede-sounds-a-linguistic-guide/"><u>Quick Swede Sounds: A Linguistic Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/reinventing-yourself-through-linguistic-skills-at-50plus/"><u>Reinventing Yourself Through Linguistic Skills at 50+</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-pearson-way-to-mastering-languages/"><u>The Pearson Way to Mastering Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-wise-choice-embracing-multilingualism-in-your-golden-years/"><u>The Wise Choice: Embracing Multilingualism in Your Golden Years</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transcend-limits-by-learning-languages/"><u>Transcend Limits by Learning Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/twin-tongue-transition-training/"><u>Twin-Tongue Transition Training</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/ultimate-ratings-top-long-distance-routers-to-enhance-your-internet-coverage/"><u>Ultimate Ratings: Top Long-Distance Routers to Enhance Your Internet Coverage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-the-world-with-a-linguistic-95-off-offer-this-year/"><u>Unlock the World with a Linguistic 95% Off Offer This Year!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-latin-mastery-digital-edition-guide/"><u>Unlocking Latin Mastery: Digital Edition Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/veritable-verses-of-vintage-verite/"><u>Veritable Verses of Vintage Vérité</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/poiothta-eygnwmwn-gkreman-ths-dyshs/"><u>Ποιότητα Ευγνωμών Γκρεμάν Της Δύσης</u></a></li>
+</ul></div>
 
 
 

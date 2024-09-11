@@ -1,7 +1,7 @@
 ---
 title: French Pronunciation Basics for First-Timers
-date: 2024-07-12T08:34:59.424Z
-updated: 2024-07-13T08:34:59.424Z
+date: 2024-09-10T13:28:00.189Z
+updated: 2024-09-11T13:28:00.189Z
 tags:
   - speak
   - english
@@ -40,9 +40,37 @@ To help you get started with the _magique_  French sounds, we put together this 
 
 ![french pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2020/05/french-pronunciation-600x600.jpg "Quick Guide To French Pronunciation - How To Speak French Like A Native 2")
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
  French pronunciation in a nutshell
 
  It’s not a 100% faithful transliteration of French sounds, but neither can it be. As you already saw, there are many French sounds that don’t exist in English, so we’ll have to improvise. Don’t worry, though. Read on and you’ll discover how to correctly pronounce some of the most difficult of them. Remember, we’re only focusing on pronunciation, not [F rench grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) here. We’ll tackle that in the next [French lessons](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## The most common French pronunciation challenges and how to overcome them
 
@@ -57,6 +85,20 @@ To help you get started with the _magique_  French sounds, we put together this 
  Depending on what is your native language, the key is to practice several times before you find the sound closest to what you dream to achieve. There’s no secret. Just keep “r”-ing until you get it. You’ll eventually get there.
 
 Repeat the phrase **_regardez mon frère_** and find out where right now.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### “u”, “eu” and “ue” in French
 
@@ -75,6 +117,20 @@ Repeat the phrase **_regardez mon frère_** and find out where right now.
  So how do you do it? For example, start saying the word “song”, but stop just before your throat closes to produce the “ng” sound. _Voilà !_ You’ve just pronounced the French word _cent_ (“hundred”).
 
  To practice the pronunciation of “in”, ”ain” or ”eint”, start saying the word “clang” and stop just before your throat closes into the “ng” sound. Now, try again without the “kl” sound in the beginning. It’s easy!
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### ë, è, é and ê
 
@@ -107,6 +163,26 @@ Well, not very different from each other, are they?
 
 ![french buildings](https://edge.mondly.com/blog/wp-content/uploads/2020/05/french-buildings-960x640.jpg "Quick Guide To French Pronunciation - How To Speak French Like A Native 3")
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
  “French buildings” by Orlova Maria©
 
 ## What are French liaisons and how to master them?
@@ -118,6 +194,20 @@ To put it simply, _French liaisons_  or French connecting sounds bind together t
  So, how do you actually pronounce letters in French _liaisons_  ? Well, it depends on the context. For example, _chez_  (as in “as someone’s home”) is pronounced “shay” (no “z” at the end) on its own. But if you want to say _chez Anne_  , you use the “z” to join the two words in a single, continuous pronunciation: “shay zanne”. It makes sense, doesn’t it?
 
 Now, some of these _liaisons_  are optional, others are required, and some are forbidden (or, if you liked the well-known novel [_Les liaisons dangereuses_](https://en.wikipedia.org/wiki/Les%5FLiaisons%5Fdangereuses)  , you can simply say they are dangerous to use). Let’s get into a little more detail.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120866/26400?prodsku=mars" target="_top" id="2120866">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120866/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### Required French liaisons
 
@@ -140,6 +230,20 @@ Now, some of these _liaisons_  are optional, others are required, and some are f
 
  \*_h aspiré_ is different from h muet (“mute h”). It’s true that in French “h” is always a silent letter. However, in Old and Middle French, on certain words, the “h” was pronounced. This is why, if you want to say_les hôpitaux_  (“hospitals”), there is a_liaison_  between the two words because the “h” is_muet_  and not_aspiré._
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### Optional French liaisons
 
  This time, it is up to you whether to use the_liaison_ or not. But you should know from the beginning that when the_liaison_ is optional, most people choose not to use it.
@@ -151,6 +255,20 @@ Now, some of these _liaisons_  are optional, others are required, and some are f
 ![interior versailles palace](https://edge.mondly.com/blog/wp-content/uploads/2020/05/interior-versailles-palace-1-960x640.jpg "Quick Guide To French Pronunciation - How To Speak French Like A Native 4")
 
  “Versailles Palace, France” by Louis Paulin©
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123479/16836" target="_top" id="2123479">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123479" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123479/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## How to perfect your French pronunciation
 
@@ -195,6 +313,55 @@ _Bonne chance!_
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-echoing-ethos-with-closing-credits/"><u>[New] 2024 Approved Echoing Ethos with Closing Credits</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-premier-fb-video-mp4-downloader-no-ads-no-wait/"><u>[New] Premier FB Video MP4 Downloader - No Ads, No Wait</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-unveiling-techniques-for-effective-display-saving-on-dell/"><u>[New] Unveiling Techniques for Effective Display Saving on Dell</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-interweaving-art-and-science-in-colors/"><u>2024 Approved Interweaving Art and Science in Colors</u></a></li>
+<li><a href="https://howto.techidaily.com/app-wont-open-on-your-xiaomi-redmi-note-12r-here-are-all-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>App Wont Open on Your Xiaomi Redmi Note 12R? Here Are All Fixes | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/boost-your-content-creation-with-these-8-essential-ai-tools/"><u>Boost Your Content Creation with These 8 Essential AI Tools</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/brainchild-of-bard-googles-answer-to-the-ai-world-leaders/"><u>Brainchild of Bard: Google's Answer to the AI World Leaders</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/chatgpt-plus-is-the-upgrade-justifiable-for-users/"><u>ChatGPT Plus: Is the Upgrade Justifiable for Users?</u></a></li>
+<li><a href="https://facebook.techidaily.com/customizing-profile-information-emailphone-switch/"><u>Customizing Profile Information: Email/Phone Switch</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/from-standard-definition-to-high-dynamic-range-a-comprehensive-tutorial-for-2024/"><u>From Standard Definition to High Dynamic Range - A Comprehensive Tutorial for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-vivo-y100-5g-in-5-easy-ways-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Vivo Y100 5G in 5 Easy Ways | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-tips-and-tricks-for-apple-id-locked-issue-on-apple-iphone-x-by-drfone-ios/"><u>In 2024, Tips and Tricks for Apple ID Locked Issue On Apple iPhone X</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/inspire-ischia-italians-mastering-over-20-local-expressions/"><u>Inspire Ischia Italians: Mastering Over 20 Local Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-days-of-gratitude-similar-to-us-thanksgiving/"><u>International Days of Gratitude Similar to US Thanksgiving</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-through-time-with-earths-oldest-language/"><u>Journey Through Time with Earth’s Oldest Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/kangaroo-talk-australian-lingo-made-simple/"><u>Kangaroo Talk: Australian Lingo Made Simple</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-kinship-to-spains-dialect/"><u>Linguistic Kinship to Spain’s Dialect</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-languages-with-mondly-discover-the-top-10-secrets/"><u>Mastering Languages with Mondly - Discover the Top 10 Secrets</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-achieves-milestone-in-apples-top-educational-app-ranks/"><u>Mondly Achieves Milestone in Apple's Top Educational App Ranks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-crafted-for-those-who-crave-language-mastery/"><u>Mondly Crafted for Those Who Crave Language Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-accuracy-meets-pearsons-high-quality-gsl/"><u>Mondly's Accuracy Meets Pearson’s High-Quality GSL</u></a></li>
+<li><a href="https://review-topics.techidaily.com/mov-playback-issues-on-huawei-by-aiseesoft-video-converter-play-mov-on-android/"><u>MOV playback issues on Huawei</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oratory-excellence-overcoming-the-hardest-pronunciations/"><u>Oratory Excellence: Overcoming the Hardest Pronunciations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/planifier-pour-la-vie-semaine-en-7-jours/"><u>Planifier Pour La Vie: Semaine en 7 Jours</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-and-convenient-online-latin-studies-hub/"><u>Quick and Convenient Online Latin Studies Hub</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seamless-korean-learning-the-premier-6-online-resources-guide/"><u>Seamless Korean Learning: The Premier 6 Online Resources Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/temps-des-jours-francais/"><u>Temps Des Jours Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-formality-expressing-bonjour-in-french-culture/"><u>The Art of Formality: Expressing 'Bonjour' In French Culture</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-eerie-origins-of-halloween-customs/"><u>The Eerie Origins of Halloween Customs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essential-guide-for-seamless-tours-master-the-93-key-expressions/"><u>The Essential Guide for Seamless Tours: Master the 93 Key Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-fastest-way-to-fluency-try-these-leading-language-learning-aids/"><u>The Fastest Way to Fluency? Try These Leading Language Learning Aids</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-language-of-hospitality-mastering-italys-most-common-greetings/"><u>The Language of Hospitality: Mastering Italy's Most Common Greetings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-and-mastering-russian-alphabet-pronunciation/"><u>Understanding and Mastering Russian Alphabet Pronunciation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vielfaltig-sein-eine-auswahl-deutscher-begrussungen-ohne-hallo/"><u>Vielfältig Sein: Eine Auswahl Deutscher Begrüßungen Ohne Hallo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/want-to-understand-the-squid-game-in-korean-learn-the-language/"><u>Want To Understand The Squid Game In Korean? Learn The Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/words-weaving-worlds-mondlylanguages-2-years-of-ambition/"><u>Words Weaving Worlds - MondlyLanguages, 2 Years of Ambition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/japanese/"><u>プレゼンターズの日 (Japanese)</u></a></li>
+</ul></div>
 
 
 

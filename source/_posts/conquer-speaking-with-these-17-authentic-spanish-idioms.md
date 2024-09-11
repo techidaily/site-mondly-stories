@@ -1,7 +1,7 @@
 ---
 title: Conquer Speaking with These 17 Authentic Spanish Idioms
-date: 2024-07-12T08:32:59.065Z
-updated: 2024-07-13T08:32:59.065Z
+date: 2024-09-10T13:30:04.135Z
+updated: 2024-09-11T13:30:04.135Z
 tags:
   - speak
   - english
@@ -40,6 +40,26 @@ thumbnail: https://thmb.techidaily.com/971161d0d4b1da3c5be518691bc7a9fd7e29d3fe8
 
  Absolutely the best Spanish saying you can use to encourage someone to be hopeful even when things are not great.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1424533">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### 3\. Más vale tarde que nunca
 
 **English equivalent:** “Better late than never.”
@@ -47,6 +67,20 @@ thumbnail: https://thmb.techidaily.com/971161d0d4b1da3c5be518691bc7a9fd7e29d3fe8
  This one is pretty straightforward as the literal translation is the same as the English equivalent.
 
 ![spanish expressions](https://edge.mondly.com/blog/wp-content/uploads/2021/05/spanish-expressions-960x638.jpg "17 Spanish Sayings That Will Make You Sound Like A Native 2")
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
  “Valldemossa, Spain” by Patrick Baum©
 
@@ -72,6 +106,20 @@ thumbnail: https://thmb.techidaily.com/971161d0d4b1da3c5be518691bc7a9fd7e29d3fe8
 
 Who wouldn’t prefer cakes over bread though?
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### 7\. El hábito no hace al monje
 
 **Literal translation:** The habit doesn’t make the monk.
@@ -90,6 +138,20 @@ Who wouldn’t prefer cakes over bread though?
 
  But it’s not entirely absurd though. Think about the moment you break in a nutshell. If it’s empty, it made a loud noise for literally nothing.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### 9\. El que no arriesga, no gana
 
 **Literal translation:** The person who does not risk cannot win.
@@ -102,6 +164,20 @@ Who wouldn’t prefer cakes over bread though?
 
  “Barcelona, Spain” by Toa Heftiba©
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2114263/17093" target="_top" id="2114263">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114263" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114263/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### 10\. En casa del herrero, cuchillo de palo
 
 **Literal translation:** In the blacksmith’s house, a wooden knife.
@@ -109,6 +185,20 @@ Who wouldn’t prefer cakes over bread though?
 **English equivalent:** “The shoemaker’s son always goes barefoot.”
 
  This saying illustrates the ironic absence of an object or virtue in a place where it should not be lacking.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## General Spanish sayings with no direct English equivalent
 
@@ -142,7 +232,35 @@ _–_   _Me preocupa no haberlo hecho bien en el examen de ayer. Estaba realment
 
 ![spanish phrases](https://edge.mondly.com/blog/wp-content/uploads/2021/05/spanish-phrases-1-960x640.jpg "17 Spanish Sayings That Will Make You Sound Like A Native 4")
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
  “Torrevieja, Spain” by Ralph (Ravi) Kayden©
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### 3\. A quien madruga, Dios le ayuda
 
@@ -157,6 +275,20 @@ _–_   _Me preocupa no haberlo hecho bien en el examen de ayer. Estaba realment
  _– Estoy un poco nervioso para mañana, pero espero que todo salga bien con el nuevo proyecto._ (“I’m a little nervous for tomorrow, but I hope all will be well with the new project.”)
 
 _– ¡Buena suerte! No olvides que a quien madruga, Dios le ayuda._ (“Good luck! Don’t forget that God helps those who are determined to get the work done.”)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### 4\. Como Pedro por su casa
 
@@ -178,6 +310,20 @@ _– Si, como Pedro por su casa._ (“Yes, like Peter in his house.”)
 
  Sayings about [animals are common in any language and Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) makes no exception. Here are some of the most common Spanish sayings about animals.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### 1\. A caballo regalado no se le mira el diente
 
 **Literal translation:** A gift horse does not look at the tooth.
@@ -190,6 +336,20 @@ _– Si, como Pedro por su casa._ (“Yes, like Peter in his house.”)
 
  “A man and his dog in San Sebastián, Spain” by Lucian Alexe©
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115950/19272" target="_top" id="2115950">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115950" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115950/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### 2\. Más vale pájaro en mano que ciento volando
 
 **Literal translation:** A bird in the hand is worth more than one hundred flying.
@@ -197,6 +357,26 @@ _– Si, como Pedro por su casa._ (“Yes, like Peter in his house.”)
 **English equivalent or meaning:** “A bird in the hand is worth two in the bush.”
 
 In other words, don’t risk losing everything by seeking to get more.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### 3\. En boca cerrada no entran moscas
 
@@ -239,6 +419,64 @@ _– No es asunto tuyo. En boca cerrada no entran moscas._ (“It’s none of yo
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://mondly-stories.techidaily.com/mondly-the-gateway-to-multilingual-gaming-on-oculus-quest/"><u>'Mondly': The Gateway to Multilingual Gaming on Oculus Quest</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-little-wheels-whirlwind-games/"><u>[Updated] 2024 Approved Little Wheels Whirlwind Games</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-from-video-to-verse-ranking-the-best-16-platforms-for-flawless-translation/"><u>[Updated] From Video to Verse Ranking the Best 16 Platforms for Flawless Translation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-language-mastery-how-tough-is-it/"><u>German Language Mastery: How Tough Is It?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/germany-embraces-mondly-the-ultimate-language-portal/"><u>Germany Embraces Mondly - The Ultimate Language Portal</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/heartfelt-hymns-in-hushed-harmonies/"><u>Heartfelt Hymns in Hushed Harmonies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/holotalk-interactive-immersive-language-experience/"><u>HoloTalk: Interactive, Immersive Language Experience</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-unbrick-a-dead-realme-11-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Unbrick a Dead Realme 11 5G | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-a-tecno-camon-20-premier-5g-easily-by-drfone-android/"><u>How To Unlock a Tecno Camon 20 Premier 5G Easily?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ideal-tools-optimizing-grammar-acquisition/"><u>Ideal Tools Optimizing Grammar Acquisition</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-expertly-recorded-hd-content-ultimate-screen-recorder-guide/"><u>In 2024, Expertly Recorded HD Content Ultimate Screen Recorder Guide</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-sun-salutations-and-beyond-youtubes-premier-yoga-pages/"><u>In 2024, Sun Salutations & Beyond – YouTube's Premier Yoga Pages</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-unlock-your-disabled-iphone-12-pro-max-without-itunes-in-5-ways-by-drfone-ios/"><u>In 2024, Unlock Your Disabled iPhone 12 Pro Max Without iTunes in 5 Ways</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/italian-greeting-guide-essential-expressions-for-friendly-encounters/"><u>Italian Greeting Guide: Essential Expressions for Friendly Encounters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/japanese-dialogues-for-first-impressions/"><u>Japanese Dialogues for First Impressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jingle-bells-around-the-world-santas-tongue/"><u>Jingle Bells Around the World - Santa's Tongue</u></a></li>
+<li><a href="https://extra-information.techidaily.com/keeping-it-secretive-watching-instagram-live-undetected/"><u>Keeping It Secretive Watching Instagram Live Undetected</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-mastery-made-easy-netflix-series-dark/"><u>Language Mastery Made Easy: Netflix Series 'Dark'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lovely-lexicon-romes-heartfelt-expressions/"><u>Lovely Lexicon: Rome’s Heartfelt Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/majority-language-in-a-nation-rooted-in-hebrew/"><u>Majority Language in a Nation Rooted in Hebrew</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-french-social-dynamics-a-guide-to-intricate-greetings/"><u>Mastering French Social Dynamics: A Guide to Intricate Greetings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-spanish-accents-techniques-for-precision-pronunciation/"><u>Mastering Spanish Accents: Techniques for Precision Pronunciation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-button-new-ways-mondly-enriches-oculus-quest-interactions/"><u>New Button, New Ways: Mondly Enriches Oculus Quest Interactions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/popularity-of-global-languages-in-american-academia/"><u>Popularity of Global Languages in American Academia</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/practice-your-spanish-and-socialize-in-mondly-vr-multiplayer/"><u>Practice Your Spanish And Socialize In Mondly VR Multiplayer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/premier-speech-driven-augmented-interface/"><u>Premier Speech-Driven Augmented Interface</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/primary-language-utilized-by-israelis/"><u>Primary Language Utilized by Israelis?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pronunciation-prowess-unlocking-the-secrets-of-tough-words/"><u>Pronunciation Prowess: Unlocking the Secrets of Tough Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revolutionize-your-language-journey-with-mondlys-immersive-vr-solutions/"><u>Revolutionize Your Language Journey with Mondly's Immersive VR Solutions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/santas-verbal-virtuosity-global-dialects/"><u>Santa’s Verbal Virtuosity - Global Dialects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/save-big-on-mondlys-ultimate-offering/"><u>Save Big on Mondly's Ultimate Offering!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saying-hi-in-indonesia-key-greeting-phrases/"><u>Saying Hi in Indonesia: Key Greeting Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spirits-and-carving-a-globe-tour-of-halloween/"><u>Spirits and Carving: A Globe Tour of Halloween</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-by-step-mondly-optimization-techniques/"><u>Step-by-Step Mondly Optimization Techniques</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/streamline-your-media-workflow-a-complete-srt-to-other-file-format-handbook/"><u>Streamline Your Media Workflow A Complete SRT-to-Other File Format Handbook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/streamlining-corporate-conversations-for-success/"><u>Streamlining Corporate Conversations for Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essential-dictionary-of-casual-speech/"><u>The Essential Dictionary of Casual Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-fundamentals-of-fluent-russian-communication/"><u>The Fundamentals of Fluent Russian Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-worldwide-hispanic-voice-network/"><u>The Worldwide Hispanic Voice Network</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/ultimate-guide-on-infinix-note-30-pro-frp-bypass-by-drfone-android/"><u>Ultimate Guide on Infinix Note 30 Pro FRP Bypass</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-benefits-with-these-10-german-lessons/"><u>Unlock Benefits with These 10 German Lessons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-untapped-tongues-learn-abroad-at-home/"><u>Unlocking Untapped Tongues: Learn Abroad, at Home</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unravel-the-secrets-of-online-finnish-proficiency/"><u>Unravel The Secrets of Online Finnish Proficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/win-over-venetians-master-20plus-italian-language-essentials/"><u>Win Over Venetians: Master 20+ Italian Language Essentials</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/wochenabschnitte-deutscher-sprache-nachlesen/"><u>Wochenabschnitte Deutscher Sprache Nachlesen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-easter-greetings-across-languages/"><u>Worldwide Easter Greetings Across Languages</u></a></li>
+</ul></div>
 
 
 

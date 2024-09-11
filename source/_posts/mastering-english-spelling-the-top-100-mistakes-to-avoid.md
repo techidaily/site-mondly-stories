@@ -1,7 +1,7 @@
 ---
 title: "Mastering English Spelling: The Top 100 Mistakes to Avoid"
-date: 2024-07-12T08:38:02.964Z
-updated: 2024-07-13T08:38:02.964Z
+date: 2024-09-10T13:24:52.729Z
+updated: 2024-09-11T13:24:52.729Z
 tags:
   - speak
   - english
@@ -26,6 +26,20 @@ thumbnail: https://thmb.techidaily.com/c0270bb78c702f180d69e641fb9f373f4cd07e8ef
 
 ## Top 10 Most Commonly Misspelled Words in English
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### 1\. Awkward not akward
 
  This one will haunt some of us for the rest of our days because it also describes how we feel when we realize we’ve just misspelled a word.
@@ -36,11 +50,45 @@ thumbnail: https://thmb.techidaily.com/c0270bb78c702f180d69e641fb9f373f4cd07e8ef
 
 Careful, though – there are some exceptions to it.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### 3\. Embarrassed not embarassed
 
 Also commonly misspelled as: embarrased
 
  This is another classic case of two sets of double letters. You’ll reduce the chances of finding yourself in an embarrassing bad spelling situation if you remember this one.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### 4\. Entrepreneur not enterpreneur
 
@@ -48,17 +96,65 @@ Also commonly misspelled as: entrepeneur , entreprenur , entreperneur
 
  We honestly can’t blame whoever misspells this one. It’s not only hard to spell but also [hard to pronounce](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . The reason? It’s a French word coming from the root entreprendre (‘undertake’).
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1770526">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### 5\. Liaison not liasion
 
  There’s a reason why you’re never sure how to spell “liaison”, “bureaucracy”, “manoeuvre”, “questionnaire”, and “connoisseur”. They do not follow the same patterns because they are all [French words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
 Your best bet is to just remember the correct spelling.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### 6\. License not lisence
 
  This is a special situation. In American English, it’s always spelled “license” – no matter what. On the other hand, in British English, it’s spelled “license” when it’s a verb and “licence” when it’s a noun.
 
  Basically, the only wrong spelling is “lisense”. However, once you decide which spelling you’re going to use – American or British – it’s best to go forward with that one don’t combine both.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### 7\. Receive not recieve
 
@@ -246,13 +342,55 @@ English words can be tricky to spell for several reasons:
 
  Before you leave, make sure to bookmark this article for future reference and check out these FAQs.👇
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### What Is the Most Commonly Misspelled Word?
 
  The most commonly misspelled words are “receive”, “accommodate”, “separate”, and “definitely”. These are often cited as commonly misspelled due to reasons like silent letters, double letters, and common phonetic errors.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### What are most Misspelled Words in America?
 
  Lists of commonly misspelled words in America often include words like “necessary”, “embarrassment”, “maintenance”, “occurrence” and “rhythm”. However, these can differ based on regional dialects, local vernacular, and other influences.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### Why is the word “misspelled” often misspelt as “misspelt”?
 
@@ -293,6 +431,51 @@ English words can be tricky to spell for several reasons:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-your-guide-to-building-stylish-snapchat-filters/"><u>[New] Your Guide to Building Stylish Snapchat Filters</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-enhancing-communication-on-google-meet-step-by-step/"><u>[Updated] Enhancing Communication on Google Meet [Step-by-Step]</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-getting-to-know-the-premium-p2715q-a-high-definition-marvel/"><u>[Updated] Getting to Know the Premium P2715Q A High-Definition Marvel</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-workplace-dialogue-dominance-unraveling-slacks-edge-over-discord/"><u>[Updated] Workplace Dialogue Dominance Unraveling Slack's Edge Over Discord</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-google-meet-a-self-teached-path-for-hosts-and-attendees/"><u>2024 Approved Google Meet A Self-Teached Path for Hosts & Attendees</u></a></li>
+<li><a href="https://article-tips.techidaily.com/breaking-down-the-barriers-effective-rtmp-streaming-in-premiere/"><u>Breaking Down the Barriers Effective RTMP Streaming in Premiere</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/elevate-your-ears-10-pro-tips-for-excellent-sound-quality/"><u>Elevate Your Ears 10 Pro Tips for Excellent Sound Quality</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-vernacular-meets-the-queens-speech/"><u>Global Vernacular Meets the Queen's Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/harmonizing-diversity-a-journey-through-african-languages/"><u>Harmonizing Diversity: A Journey Through African Languages</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-unlink-your-apple-iphone-xs-max-from-your-apple-id-by-drfone-ios/"><u>How To Unlink Your Apple iPhone XS Max From Your Apple ID</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/ignite-your-networking-join-the-1k-club-on-instagram-regularly/"><u>Ignite Your Networking Join the 1K Club on Instagram Regularly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/immersive-dialogue-analysis-in-tv-and-cinema/"><u>Immersive Dialogue Analysis in TV & Cinema</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-pgsharp-legal-when-you-are-playing-pokemon-on-honor-90-drfone-by-drfone-virtual-android/"><u>In 2024, Is pgsharp legal when you are playing pokemon On Honor 90? | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-navigating-the-cross-platform-exchange-of-tweets-and-vids-on-whatsapp/"><u>In 2024, Navigating the Cross-Platform Exchange of Tweets and Vids on WhatsApp</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-puzzle-dissecting-por-que-and-por-que/"><u>Language Puzzle: Dissecting Por Que and Por Qué</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/le-systeme-ouvert-explique-parts-of-the-body-en-francais/"><u>Le Système Ouvert Expliqué : Parts of the Body en Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguagem-verde-saudacoes-a-toda-hora-no-brasil/"><u>Linguagem Verde - Saudações a Toda Hora No Brasil</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-multiple-languages-a-path-to-prosperity/"><u>Master Multiple Languages: A Path to Prosperity</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-samsung-galaxy-s23-device-by-drfone-android/"><u>Mastering Android Device Manager The Ultimate Guide to Unlocking Your Samsung Galaxy S23 Device</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-rewrites-the-future-of-multilingual-education-with-ar/"><u>Mondly Rewrites the Future of Multilingual Education with AR</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlyar-revolutionizing-virtual-reality-for-language-learners/"><u>MondlyAR: Revolutionizing Virtual Reality for Language Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/most-widely-learned-foreign-languages-for-americans/"><u>Most Widely Learned Foreign Languages for Americans</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-privacy-statement-available/"><u>New Privacy Statement Available</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/online-language-evolution-mondly-leads-the-pack-in-germany/"><u>Online Language Evolution: Mondly Leads the Pack in Germany</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/precision-recording-of-console-games-on-your-pc-for-2024/"><u>Precision Recording of Console Games on Your PC for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/socialize-and-speak-in-espanol-with-virtual-companions/"><u>Socialize & Speak In Español with Virtual Companions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/starting-your-journey-to-speaking-spanish/"><u>Starting Your Journey to Speaking Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-chinese-thank-you-phrases/"><u>The Ultimate Guide to Chinese Thank You Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/thriving-in-your-fifties-by-embracing-language-skills/"><u>Thriving in Your Fifties by Embracing Language Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/um-compendio-do-portugues-saudacoes-a-todas-as-hora/"><u>Um Compêndio Do Português: Saudações a Todas as Hora</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-romance-say-i-love-you-in-10plus-languages/"><u>Unlock Romance: Say I Love You In 10+ Languages!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/upgraded-policies-for-your-data-security/"><u>Upgraded Policies for Your Data Security</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/us-and-uk-english-discrepancies/"><u>US & UK English Discrepancies</u></a></li>
+</ul></div>
 
 
 

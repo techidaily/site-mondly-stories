@@ -1,7 +1,7 @@
 ---
 title: Timeframe of Proficiency in Foreign Tongues
-date: 2024-07-12T08:39:15.745Z
-updated: 2024-07-13T08:39:15.745Z
+date: 2024-09-10T13:24:03.457Z
+updated: 2024-09-11T13:24:03.457Z
 tags:
   - speak
   - english
@@ -21,6 +21,20 @@ thumbnail: https://thmb.techidaily.com/98bd5c521103adb9f2f398b8ea114e1ff33040cec
 
 
  But of course, for various other reasons either personal, cultural or work-related, you will find yourself in need of learning a foreign language. The next natural question after deciding to learn a new language is: how many hours does it take to learn a foreign language and achieve fluency?
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Estimated times to learn a new language
 
@@ -44,6 +58,20 @@ thumbnail: https://thmb.techidaily.com/98bd5c521103adb9f2f398b8ea114e1ff33040cec
 * **The data is [official](https://www.state.gov/foreign-language-training/) —** the Foreign Service Institute (FSI) has conducted a study on the time it takes for native English speakers to become fluent in new languages;
 * **Knowing more than one language helps —** languages with shared features with English are generally easier to learn, while those with significant cultural and linguistic differences may take longer to learn;
 * **The time spent learning depends on you** **—** The time it takes to learn a new language varies greatly depending on your motivation and dedication to the task.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Interagency Language Roundtable scale or the IRL scale
 
@@ -99,6 +127,20 @@ thumbnail: https://thmb.techidaily.com/98bd5c521103adb9f2f398b8ea114e1ff33040cec
 * comparable stress and intonation patterns;
 * already share a number of vocabulary words.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### **Tier 2:** Similar to English
 
 | Language | Time needed to reach fluency |
@@ -110,6 +152,20 @@ thumbnail: https://thmb.techidaily.com/98bd5c521103adb9f2f398b8ea114e1ff33040cec
  The grammar is more complicated and difficult to understand; hence, German gets a tier 2 difficulty score, but of course, there are other Germanic languages out there that are much harder to master, like Icelandic.
 
 !["Fastest way to learn a language" by RF._.studio©](https://edge.mondly.com/blog/wp-content/uploads/2018/04/fastest-way-to-learn-a-language-960x641.jpg "How Long Does It Take In Hours To Learn A Language? 4")
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### **Tier 3:** Languages that may have cultural and linguistic differences compared to English
 
@@ -148,6 +204,26 @@ thumbnail: https://thmb.techidaily.com/98bd5c521103adb9f2f398b8ea114e1ff33040cec
 
  The languages above are just a part of the European languages classified as tier 4 by the FSI. The list goes on with other languages from all over the world, like Mongolian, Nepali, Thai, Xhosa, Zulu or Hebrew. All of them take about 1100 hours or 44 weeks to become fluent in. Thus, when it comes to the difficulty of languages, this list does indeed include hard languages to learn, but not the hardest.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1983552">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Hardest language to learn for English speakers
 
  All of the tier 5 languages are highly sophisticated and complex compared to English having an average learning curve of up to 4 times the period it takes for the average English speaker to learn Dutch for example. So arm yourself with a lot of patience and plenty of determination.
@@ -167,6 +243,20 @@ thumbnail: https://thmb.techidaily.com/98bd5c521103adb9f2f398b8ea114e1ff33040cec
  But don’t let all these statistics scare you! People around the world are learning and assimilating new languages every day. Besides, these are still human languages; it’s not like you need to decipher an alien dialect. All of the above are languages created by humans, and with enough determination and willpower, you can learn any language on this list. Besides, learning a new language is [good for the brain](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) !
 
 ![Mondly 1000 daily lessons for free](https://edge.mondly.com/blog/wp-content/uploads/2017/09/iphone_main_screen_s_FW7fe-1024x682.jpg "How Long Does It Take In Hours To Learn A Language? 5")
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
  Let’s not also forget that the above FSI statistics don’t include the help of modern language learning aids like apps on your smartphone can bring to the table. In theory, today you can [learn a foreign language much faster.](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
@@ -205,6 +295,61 @@ thumbnail: https://thmb.techidaily.com/98bd5c521103adb9f2f398b8ea114e1ff33040cec
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-a-guide-to-creating-gentle-sound-cuts-and-fades-with-pp/"><u>[New] A Guide to Creating Gentle Sound Cuts and Fades with PP</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-accessible-visual-aids-for-youtube-videos/"><u>[New] Accessible Visual Aids for YouTube Videos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-conquering-facebook-audiences-live-stream-excellence-with-wirecast-for-2024/"><u>[New] Conquering Facebook Audiences Live Stream Excellence with Wirecast for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-ideal-illustration-tools-for-windows-no-cost-high-prices/"><u>[New] In 2024, Ideal Illustration Tools for Windows No Cost, High Prices</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-numbers-in-focus-yearly-yt-trends-and-trivia-2017/"><u>[New] In 2024, Numbers in Focus! Yearly YT Trends & Trivia (2017)</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-top-6-must-try-instagram-reel-apps-for-2024/"><u>[Updated] Top 6 Must-Try Instagram Reel Apps for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-top-ios-psp-games-and-emulators-revealed-in-2024/"><u>[Updated] Top iOS PSP Games & Emulators Revealed, In 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-samsung-galaxy-s23-ultra-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Samsung Galaxy S23 Ultra | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/a-comprehensive-review-of-create-with-codes-makeblock-mbot-kit-build-your-own-functional-bot/"><u>A Comprehensive Review of Create with Code's Makeblock mBot Kit: Build Your Own Functional Bot</u></a></li>
+<li><a href="https://extra-information.techidaily.com/best-5-streamlined-online-convertors-for-gifs-to-video-for-2024/"><u>Best 5 Streamlined Online Convertors for GIFs to Video for 2024</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/cookiebot-enhanced-experience-enhance-your-sites-personalization/"><u>Cookiebot-Enhanced Experience: Enhance Your Site's Personalization</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/get-down-under-with-aussie-slang-definitions/"><u>Get Down Under With Aussie Slang Definitions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/get-into-it-the-next-level-conversation-ai/"><u>Get Into It: The Next-Level Conversation AI</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-speaking-sovereigns-ranked-1-15/"><u>Global Speaking Sovereigns: Ranked 1-15</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your Motorola Moto G13 | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-digital-deception-steering-clear-from-buying-non-existent-followers/"><u>In 2024, Digital Deception Steering Clear From Buying Non-Existent Followers</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-oppo-a38-mirror-screen-to-pc-drfone-by-drfone-android/"><u>In 2024, How Oppo A38 Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/interaktionstexte-10-deutsche-grussformeln-ausserhalb-des-hallo/"><u>Interaktionstexte: 10 Deutsche Grußformeln Außerhalb Des 'Hallo'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-eloquence-expressing-thanks-worldwide-152-trimmed-to-fit/"><u>International Eloquence: Expressing Thanks Worldwide (152) [Trimmed to Fit]</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-the-days-of-the-week-in-german/"><u>Learn the Days of the Week in German</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lifelong-education-top-four-reasons-to-learn-languages-at-age-40plus-for-enriched-life-experiences/"><u>Lifelong Education: Top Four Reasons to Learn Languages at Age 40+ for Enriched Life Experiences</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/living-the-language-life-immersion-techniques-unveiled/"><u>Living the Language Life: Immersion Techniques Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/milestone-achievements-mondlyback-buttonfilters/"><u>Milestone Achievements: MondlyBack ButtonFilters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/no-budget-no-problem-top-online-solo-journey-to-japan-proficiency/"><u>No Budget? No Problem! Top Online, Solo Journey to Japan Proficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pantheons-progeny-ancestral-greek-influence-today/"><u>Pantheon's Progeny: Ancestral Greek Influence Today</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/politeness-in-the-age-of-ai-engaging-with-gpt-alexa-and-more/"><u>Politeness in the Age of AI: Engaging with GPT, Alexa & More</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/premier-asian-communication-formats-priority-save/"><u>Premier Asian Communication Formats: Priority Save</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/refining-audio-in-obs-high-quality-mode/"><u>Refining Audio in OBS High-Quality Mode</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saudacoes-basicas-em-portugues-para-ficar-de-olho/"><u>Saudações Básicas Em Português Para Ficar De Olho</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seamless-syntax-system/"><u>Seamless Syntax System</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/seamless-transfer-techniques-for-moving-dvd-media-directly-to-sd-card-with-zero-quality-compromise/"><u>Seamless Transfer Techniques for Moving DVD Media Directly to SD Card with Zero Quality Compromise</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seeking-the-best-next-linguistic-endeavor/"><u>Seeking the Best Next Linguistic Endeavor</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/self-driven-japanese-study-explore-free-web-based-tools/"><u>Self-Driven Japanese Study - Explore Free Web-Based Tools</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solution-found-writing-failure-in-referenced-memory-address-0x-how-resolved/"><u>Solution Found: Writing Failure in Referenced Memory Address 0X - How Resolved?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-vs-english-grammar-understanding-por-que-and-why/"><u>Spanish Vs. English Grammar: Understanding 'Por Que' And 'Why'.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swift-techniques-for-efficient-language-learning/"><u>Swift Techniques for Efficient Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-buccaneers-guide-key-slang-for-seafaring-characters/"><u>The Buccaneer's Guide: Key Slang for Seafaring Characters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/time-optimization-for-numerical-japanese/"><u>Time Optimization for Numerical Japanese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-benefits-for-studying-german-a-compelling-list/"><u>Top Benefits for Studying German - A Compelling List</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/unleash-your-creative-potential-with-picart-clear-skies-for-2024/"><u>Unleash Your Creative Potential with PicArt Clear Skies for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/virtual-lithuanian-journey-top-tutorial-recommendations/"><u>Virtual Lithuanian Journey: Top Tutorial Recommendations</u></a></li>
+<li><a href="https://howto.techidaily.com/want-to-uninstall-google-play-service-from-infinix-smart-8-plus-here-is-how-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Want to Uninstall Google Play Service from Infinix Smart 8 Plus? Here is How | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/morfa-eygnwmwn-gkreman-systhma/"><u>Μόρφα Ευγνώμων Γκρεμάν Συστήμα</u></a></li>
+</ul></div>
 
 
 

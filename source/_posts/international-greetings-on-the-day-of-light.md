@@ -1,7 +1,7 @@
 ---
 title: International Greetings on The Day of Light
-date: 2024-07-12T08:37:58.160Z
-updated: 2024-07-13T08:37:58.160Z
+date: 2024-09-10T13:24:47.573Z
+updated: 2024-09-11T13:24:47.573Z
 tags:
   - speak
   - english
@@ -17,6 +17,20 @@ thumbnail: https://thmb.techidaily.com/73077bb518e58764d0d667c24acb26e31ce2706df
 ## International Greetings on The Day of Light
 
  Apart from their significant religious symbolism, the Easter holidays provide a wonderful opportunity to unwind, spend quality time with our loved ones and maybe reconnect with old friends. Regardless of our religious beliefs, Easter will always be about togetherness, enjoying the long-awaited spring (in the Northern Hemisphere) and the Easter bunny, of course! If you too wish to rekindle your friendship with a friend living abroad this Easter, why not join us in learning how to wish them “Happy Easter” in different languages?
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## _Happy Easter_ in different languages
 
@@ -71,6 +85,20 @@ thumbnail: https://thmb.techidaily.com/73077bb518e58764d0d667c24acb26e31ce2706df
 
 [Start Now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-7544&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-7544&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-7544&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-7544&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-7544%26mt%3D8)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Is the Easter bunny real? Easter bunny origins
 
  Do you suspect your parents are lying to you about the existence of the Easter bunny? If so, you should really ask them about it. The internet is not always the best place to look for answers. Besides, honesty is very important in a parent-child relationship. So build up the courage and ask either a parent or a guardian. They will seem surprised by your question at first, but they will be more than happy to respond.
@@ -87,9 +115,43 @@ thumbnail: https://thmb.techidaily.com/73077bb518e58764d0d667c24acb26e31ce2706df
 
 !['Easter bunny' by Gary Bendig©](https://edge.mondly.com/blog/wp-content/uploads/2023/03/easter-bunny-960x640.jpg "Happy Easter In Different Languages &Amp; Easter Traditions 3")
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
  One theory suggests that the rabbit symbol comes from the pagan festival of_Eostre_ , which celebrated the goddess of fertility and spring. The rabbit was her animal symbol, representing fertility due to their high reproduction rates.
 
  In the 1700s, German immigrants reportedly brought over their tradition of an egg-laying hare called “Osterhase” or “Oschter Haws” from the Old Country to America. According to legend, children would create nests for the bunny to leave his colorful eggs. The custom spread across America, and over time, the Easter Bunny’s delivery of treats expanded to include chocolate and toys.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## What is the Easter egg hunt tradition?
 
@@ -110,6 +172,20 @@ thumbnail: https://thmb.techidaily.com/73077bb518e58764d0d667c24acb26e31ce2706df
 * In**Haux, France** , locals serve a giant omelet in the town’s main square. The omelet is made of more than 15,000 eggs and feeds up to 1,000 people.
 * In**Vatican City** , on Good Friday, the Pope marks the Way of the Cross by beginning a procession at the Colosseum. Participants in the procession carry candles and stop 14 times along the way to represent the Stations of the Cross as they make their way around the amphitheater and up to Palatine Hill.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123465/16836" target="_top" id="2123465">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123465" border="0" alt="https://techidaily.com" width="80" height="31"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123465/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Easter greetings in different countries
 
  What do you say on Easter? Eastern Orthodox, Oriental Orthodox, Catholic, and Anglican Christians use the [Paschal greeting](https://www.oca.org/orthodoxy/paschal-greetings) , also known as the Easter Acclamation. The greeting and reply are:
@@ -128,6 +204,20 @@ thumbnail: https://thmb.techidaily.com/73077bb518e58764d0d667c24acb26e31ce2706df
 
 !['Happy Easter' by Priscilla Du Preez©](https://edge.mondly.com/blog/wp-content/uploads/2023/03/happy-easter-960x640.jpg "Happy Easter In Different Languages &Amp; Easter Traditions 4")
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## 1\. Spanish – _¡Felices Pascuas!_
 
  ‘Easter’ in Spanish is_Pascuas_ . As previously mentioned, the Paschal greeting in Spanish is_“Cristo ha resucitado! – En verdad ha resucitado!”;_ however, Spanish people don’t really use it. Instead, they say_Felices Pascuas_ (‘Happy Easter’) or simply_Felices Fiestas_ which means ‘Happy Holidays’.
@@ -140,6 +230,20 @@ _Pâques_ (‘Easter’ in French) is an important holiday in France as families
 
  Other Easter traditions in France include chocolate, the Easter bells_(_ _Les cloches de Pâques)_ and the classic rabbits and eggs, of course!
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## 3\. German –_Frohe Ostern!_
 
  Easter (_Ostern_ in German) in Germany has a long history and some of its traditions have even spread around the world.
@@ -147,6 +251,20 @@ _Pâques_ (‘Easter’ in French) is an important holiday in France as families
  On Easter Sunday, Germans have a traditional Easter brunch where they eat buns, spreads, and painted boiled eggs. Children often help paint and decorate the eggs.
 
  The Easter menu also included yeast pastries like_Hefezopf_ or_Osterkranz_ , which can be stuffed with nuts and dried fruits and eaten with butter or jam.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2128844/7443" target="_top" id="2128844">
+  <img src="//a.impactradius-go.com/display-ad/7443-2128844" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128844/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## 4\. Italian –_Buona Pasqua!_
 
@@ -168,6 +286,20 @@ In both countries, people eat salt cod on Good Friday.
 
  While you can say_Paskalyanız kutlu olsun_ to wish someone a Happy Easter in Turkish,_Paskalya Bayramınız kutlu olsun_ is the more “correct” version. Adding_“bayram”_ gives the meaning of having a holiday to celebrate.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## 7\. Romanian –_Paște Fericit!_
 
  Romania is a highly religious country, so Easter is a significant celebration for Romanians. During the three days of Easter (and even after), most locals will greet each other using the Paschal greeting_Hristos a Înviat – Adevărat a Înviat_ which means “Christ is Risen! – Truly He is Risen!”.
@@ -184,6 +316,20 @@ In both countries, people eat salt cod on Good Friday.
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Learn languages as fast as the Easter Bunny
 
@@ -217,6 +363,53 @@ In both countries, people eat salt cod on Good Friday.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-video-files.techidaily.com/new-in-2024-dancing-off-dossiers-top-country-hits-from-tiktok/"><u>[New] In 2024, Dancing Off Dossiers Top Country Hits From TikTok</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-elevate-your-android-vids-top-10-players-for-2024/"><u>[Updated] Elevate Your Android Vids Top 10 Players for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-insta-photography-enhancement-hacks-for-professionals/"><u>[Updated] Insta-Photography Enhancement Hacks for Professionals</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-pixels-to-populations-best-windowsmac-software-conversion/"><u>[Updated] Pixels to Populations Best Windows/Mac Software Conversion</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-revamping-subtitles-from-srt-with-ease/"><u>[Updated] Revamping Subtitles From SRT with Ease</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-encase-full-browser-window/"><u>2024 Approved Encase Full Browser Window</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-cinematic-upgrade-gopro-hero5-black-vs-hero4-silver-edition/"><u>In 2024, Cinematic Upgrade GoPro Hero5 Black vs Hero4 Silver Edition</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-ultimate-student-guide-to-best-history-videos-online/"><u>In 2024, Ultimate Student Guide to Best History Videos Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-enhancement-top-international-films/"><u>Language Enhancement: Top International Films</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-as-a-tool-for-social-inclusion/"><u>Language Learning as a Tool for Social Inclusion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-leapfrog-top-easy-global-languages/"><u>Language Learning Leapfrog: Top Easy Global Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-lingo-for-leaders-best-50-expressions-to-impress-all/"><u>Latin Lingo for Leaders: Best 50 Expressions to Impress All</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-the-language-of-respectful-communication-in-japan/"><u>Learn the Language of Respectful Communication in Japan</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-business-communication-top-rated-language-tools/"><u>Mastering Business Communication: Top-Rated Language Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mouthwatering-multilingualism-30-linguistic-treats-for-chocolate/"><u>Mouthwatering Multilingualism: 30 Linguistic Treats for Chocolate</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-mondlys-features-for-maximum-impact/"><u>Navigating Mondly's Features for Maximum Impact</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-romanian-with-local-expertise/"><u>Navigating Romanian with Local Expertise</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ready-to-connect-the-next-gen-ai-conversationalist/"><u>Ready to Connect: The Next-Gen AI Conversationalist</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolved-step-by-step-guide-to-overcome-preparing-to-configure-windows-issue/"><u>Resolved: Step-by-Step Guide to Overcome 'Preparing to Configure Windows' Issue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/salutations-francaises-pour-accueillir/"><u>Salutations Françaises Pour Accueillir</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/savor-the-sounds-of-cocoa-chocolate-in-diverse-dialects/"><u>Savor the Sounds of Cocoa: Chocolate in Diverse Dialects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-up-the-initial-ar-language-companion/"><u>Speaking Up: The Initial AR Language Companion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spelling-slip-ups-exposed-englands-leading-lexical-errors/"><u>Spelling Slip-Ups Exposed: England's Leading Lexical Errors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/taking-flight-in-russian-numeral-recognition/"><u>Taking Flight in Russian Numeral Recognition</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-art-of-chatgpt-navigations-a-guide-to-effective-file-use/"><u>The Art of ChatGPT Navigations: A Guide to Effective File Use</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-emergence-of-neerlandish-language/"><u>The Emergence of Neerlandish Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-importance-of-learning-a-foreign-language/"><u>The Importance of Learning a Foreign Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-intersection-of-ai-and-educational-language-development/"><u>The Intersection Of AI & Educational Language Development</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/transform-your-videos-top-free-and-paid-android-video-editing-apps-for-2024/"><u>Transform Your Videos Top Free and Paid Android Video Editing Apps for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transforming-pedagogy-through-ai-intervention/"><u>Transforming Pedagogy Through AI Intervention</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unleashing-the-power-of-ai-how-to-make-chatgpt-an-ideal-dungeon-master-companion/"><u>Unleashing the Power of AI: How to Make ChatGPT an Ideal Dungeon Master Companion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-mastery-in-international-language-testing/"><u>Unlocking Mastery in International Language Testing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-the-world-through-new-languages-anytime/"><u>Unlocking the World Through New Languages Anytime</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unravel-the-power-of-multilingual-tools-in-business/"><u>Unravel the Power of Multilingual Tools in Business</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vocal-victory-demystifying-difficult-phonetics-and-lexicon/"><u>Vocal Victory: Demystifying Difficult Phonetics and Lexicon</u></a></li>
+</ul></div>
 
 
 

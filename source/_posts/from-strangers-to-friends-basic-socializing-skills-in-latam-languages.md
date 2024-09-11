@@ -1,7 +1,7 @@
 ---
 title: "From Strangers to Friends: Basic Socializing Skills in LatAm Languages"
-date: 2024-07-12T08:37:52.825Z
-updated: 2024-07-13T08:37:52.825Z
+date: 2024-09-10T13:24:41.843Z
+updated: 2024-09-11T13:24:41.843Z
 tags:
   - speak
   - english
@@ -22,15 +22,63 @@ thumbnail: https://thmb.techidaily.com/97308f979ef9767cdb33e037debbc9d1c528c201f
 
  In this guide, we will delve into both common and unique Russian greetings. So if you’ve ever wondered how to**greet in Russian** and witness its transformative power, you’re in the right place. Welcome to the heart of Russia, one greeting at a time.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## 1\. Most common Russian greetings
 
  Whether you’re planning an expedition, immersing in classic Russian literature, meeting with Russian-speaking friends, or even looking to impress with your language skills, using**Russian greetings** will surely be appreciated. Here are some of the most common ways to say “hello” in Russian:
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### Здравствуйте (Zdravstvuyte): Hello in Russian
 
 **здравствуйте** is the most common Russian greeting. Being slightly formal, yet friendly makes it perfect for greeting people in a professional setting or people you don’t know. Besides, you can also use it to address a group of people as the verb form is meant for formal settings or addressing multiple people.
 
  Rooted in the phrase “to be healthy and well”, it’s not just a greeting, but a wish for good health.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### Привет (Privyet): Hi in Russian
 
@@ -52,6 +100,20 @@ Good job, you!
  These phrases are universal and can be used in both formal and informal situations.
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Russian Greetings: Common Phrases And Basic Words 2")
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ##### Learn Russian today
 
@@ -101,7 +163,41 @@ Good job, you!
 
 ![hello in russian](https://edge.mondly.com/blog/wp-content/uploads/2018/11/hello-in-russian-960x640.jpg "Russian Greetings: Common Phrases And Basic Words 4")
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1328683">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
  Found this interesting? You might want to learn about the [Russian alphabet](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and the [Russian numbers](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) too.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115920/19272" target="_top" id="2115920">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115920" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115920/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Cultural insights on Russian greetings
 
@@ -115,6 +211,20 @@ Good job, you!
  Whether you are traveling to Russia or engaging in business there, a firm grasp of Russian greetings will always serve you well. As the saying goes, “The first hello can lead to a million things”. So, why not start that journey with a genuine Russian greeting?
 
  If you feel like you need more information on Russian greetings, here are some frequently asked questions. Maybe you’ll find your answer here.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### How can I learn to pronounce Russian words correctly?
 
@@ -161,6 +271,65 @@ Good job, you!
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-enhancing-visuals-the-role-of-a-tripod-in-video-content/"><u>[New] 2024 Approved Enhancing Visuals The Role of a Tripod in Video Content</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-the-role-of-supplemental-imagery-in-storytelling/"><u>[New] In 2024, The Role of Supplemental Imagery in Storytelling</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-essential-guide-to-free-licensed-audio-for-yt/"><u>[New] The Essential Guide to Free, Licensed Audio for YT</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-sync-fix-twitter-vids-and-chrome/"><u>[Updated] 2024 Approved Sync Fix Twitter Vids and Chrome</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-accelerate-your-storytelling-with-customized-speed-settings/"><u>[Updated] Accelerate Your Storytelling with Customized Speed Settings</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-exclusive-list-of-premium-video-downloader-apps/"><u>[Updated] In 2024, Exclusive List of Premium Video Downloader Apps</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-facts-you-need-to-know-about-screen-mirroring-oneplus-open-drfone-by-drfone-android/"><u>3 Facts You Need to Know about Screen Mirroring OnePlus Open | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/hniques-to-retrieve-and-save-youtubes-iconic-images/"><u>3 Techniques to Retrieve & Save YouTube's Iconic Images</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/a-guide-to-gaining-entry-into-windows-11s-application-repository/"><u>A Guide to Gaining Entry Into Windows 11'S Application Repository</u></a></li>
+<li><a href="https://driver-install.techidaily.com/accessing-canon-print-driver-files-for-windows-11/"><u>Accessing Canon Print Driver Files for Windows 11</u></a></li>
+<li><a href="https://discover-community.techidaily.com/best-childrens-and-family-friendly-christmas-animation-top-10-films/"><u>Best Children's and Family-Friendly Christmas Animation: Top 10 Films</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/conquer-the-competition-with-cutting-edge-technology-the-philips-49-inch-curved-oled-gaming-screen/"><u>Conquer the Competition with Cutting-Edge Technology: The Philips 49-Inch Curved OLED Gaming Screen</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/direct-tweeted-media-to-your-ears-in-mp3/"><u>Direct Tweeted Media to Your Ears in MP3</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/freelancing-in-the-ai-era-should-you-opt-for-bing-chat-or-chatgpt-insights-on-8-important-aspects/"><u>Freelancing in the AI Era: Should You Opt for Bing Chat or ChatGPT? Insights on 8 Important Aspects</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/gopro-face-off-a-detailed-comparison-guide-for-2024/"><u>GoPro Face-Off A Detailed Comparison Guide for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-samsung-galaxy-s24-ultra-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Samsung Galaxy S24 Ultra to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hablar-en-espanol-el-ciclo-de-los-dias-del-mes/"><u>Hablar en Español: El Ciclo De Los Días Del Mes</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-advanced-strategies-for-changing-user-numbers-in-tiktok/"><u>In 2024, Advanced Strategies for Changing User Numbers in TikTok</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-free-studio-hd-screen-grab-audit/"><u>In 2024, Free Studio HD Screen Grab Audit</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-detect-and-remove-spyware-on-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Remove Spyware on Tecno Spark 20 Pro? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-lock-apps-on-motorola-moto-g23-to-protect-your-individual-information-by-drfone-android/"><u>In 2024, How to Lock Apps on Motorola Moto G23 to Protect Your Individual Information</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-instasaver-the-leading-videophoto-downloaders-round-up/"><u>In 2024, InstaSaver The Leading Video/Photo Downloaders Round-Up</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-the-perfect-blend-of-efficiency-and-artistry-in-apple-photography-apps/"><u>In 2024, The Perfect Blend of Efficiency and Artistry in Apple Photography Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/indonesian-greetings-unveiled-an-introduction/"><u>Indonesian Greetings Unveiled: An Introduction</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/israel-expedition-essentials-practical-advice-and-useful-dialogue/"><u>Israel Expedition Essentials: Practical Advice & Useful Dialogue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/italy-uncovered-essential-phrases-for-a-rich-experience/"><u>Italy Uncovered: Essential Phrases for a Rich Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/la-structure-corporelle-revelee-parts-in-french/"><u>La Structure Corporelle Révélée: Parts in French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/los-dias-del-mundo-en-espanol-descubriendo-cada-jornada/"><u>Los Días Del Mundo en Español: Descubriendo Cada Jornada</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastery-in-mouthage-elite-linguistic-training-plans/"><u>Mastery in Mouthage: Elite Linguistic Training Plans</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/maximize-marketing-with-mastery-in-effective-biz-communication/"><u>Maximize Marketing With Mastery in Effective Biz Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/myth-and-mouth-movement-the-language-of-vikings/"><u>Myth and Mouth Movement: The Language of Vikings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-years-gift-to-you-free-mondly-pro-for-life/"><u>New Year's Gift to You - Free Mondly Pro for Life!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/optimal-language-learning-platforms-for-success/"><u>Optimal Language Learning Platforms for Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/playful-persuasion-the-best-choice-of-pickup-line-tactics/"><u>Playful Persuasion: The Best Choice of Pickup Line Tactics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/principios-del-entendimiento-del-tiempo-en-espanol/"><u>Principios Del Entendimiento Del Tiempo en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-start-learn-urdu-every-day/"><u>Quick Start: Learn Urdu, Every Day</u></a></li>
+<li><a href="https://howto.techidaily.com/stuck-at-android-system-recovery-of-realme-11x-5g-fix-it-easily-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Stuck at Android System Recovery Of Realme 11X 5G ? Fix It Easily | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-cultural-wealth-of-farsi-and-its-rewards/"><u>The Cultural Wealth of Farsi & Its Rewards</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-dawn-of-verbalized-augmented-experiences/"><u>The Dawn of Verbalized Augmented Experiences</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-heart-of-indonesia-greetings-and-more/"><u>The Heart of Indonesia: Greetings and More</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/toasting-to-1500-educational-milestones/"><u>Toasting to 1,500 Educational Milestones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/turkish-and-korean-exploring-the-language-mysteryback-buttonfilter-button/"><u>Turkish And Korean: Exploring The Language MysteryBack ButtonFilter Button</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/universal-breeze-simplified-language-mastery-rankings/"><u>Universal Breeze: Simplified Language Mastery Rankings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-the-secrets-of-spanish-accent-typography/"><u>Unlocking the Secrets of Spanish Accent Typography</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vr-language-app-mondly-enhances-global-oculus-experience/"><u>VR Language App 'Mondly' Enhances Global Oculus Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/wochenstruktur-in-deutsch-verstehen/"><u>Wochenstruktur in Deutsch Verstehen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/wow-venetians-with-unique-expressions-and-vocabulary/"><u>Wow Venetians with Unique Expressions and Vocabulary</u></a></li>
+</ul></div>
 
 
 

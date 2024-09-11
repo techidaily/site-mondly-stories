@@ -1,7 +1,7 @@
 ---
 title: Unlocking the Secrets of the Turkish Script with Ease and Speed
-date: 2024-07-12T08:38:23.267Z
-updated: 2024-07-13T08:38:23.267Z
+date: 2024-09-10T13:25:18.054Z
+updated: 2024-09-11T13:25:18.054Z
 tags:
   - speak
   - english
@@ -22,6 +22,20 @@ thumbnail: https://thmb.techidaily.com/b53c5d006880c2d2e578b547fb0674d1bc4019b54
 
  But Turkish didn’t always use the Latin script. Let’s look a little bit at the history and see how today’s Turkish alphabet was born.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2114264/17093" target="_top" id="2114264">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114264" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114264/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## The Turkish alphabet – a short history
 
  The Turkik languages have a long history of [writing systems](https://en.wikipedia.org/wiki/Turkish%5Falphabet) . Over time, these languages have been written using different alphabets like Cyrillic, Uyghur, Greek, Arabic, Latin and some other Asiatic writing systems.
@@ -30,6 +44,26 @@ thumbnail: https://thmb.techidaily.com/b53c5d006880c2d2e578b547fb0674d1bc4019b54
 
 ![turkish language](https://edge.mondly.com/blog/wp-content/uploads/2019/10/turkish-language-1024x713.jpg "Turkish Alphabet And Pronunciation: A Quick Guide 2")
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1993645">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
  “The Blue Mosque, Istanbul, Turkey” by Adli Wahid©
 
  Then, in the 19th century, together with the introduction of the printing press and telegraph appeared the need for a more Turkish-oriented script. The Arabic script was perfect for writing Ottoman Turkish – which included a lot of [Arabic](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and Persian words – but it was poorly suited for the Turkish part of the vocabulary.
@@ -37,6 +71,26 @@ thumbnail: https://thmb.techidaily.com/b53c5d006880c2d2e578b547fb0674d1bc4019b54
  In other words, while the Arabic language is poor in vowels and rich in consonants, Turkish is exactly the opposite. Thus, the Arabic script was inadequate at representing Turkish phonemes. And this is exactly why Turkish reformists promoted the adoption of the Latin script.
 
  Fortunately, **in 1928, Mustafa Kemal Atatürk, the founder of the Turkish Republic, finally adopted the 29-letter Latin script as a part of his famous Reforms in Turkey – the same alphabet that Turks use today.**
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1983552">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## The pronunciation of each letter of the Turkish alphabet
 
@@ -48,7 +102,41 @@ thumbnail: https://thmb.techidaily.com/b53c5d006880c2d2e578b547fb0674d1bc4019b54
 
 ![turkish alphabet pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2019/10/turkish-alphabet-pronunciation-scaled-960x679.jpg "Turkish Alphabet And Pronunciation: A Quick Guide 3")
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
  The pronunciation of the 29 letters of the Turkish alphabet
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Rules to help you get started with Turkish
 
@@ -98,6 +186,54 @@ thumbnail: https://thmb.techidaily.com/b53c5d006880c2d2e578b547fb0674d1bc4019b54
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-10-pro-tips-for-effortless-android-recording-for-2024/"><u>[New] 10 Pro Tips for Effortless Android Recording for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nveiling-the-reasons-behind-missing-shorts-thumbnails-for-2024/"><u>[New] Unveiling the Reasons Behind Missing Shorts Thumbnails for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-expertise-in-action-gopro-for-dynamic-time-lapses/"><u>[Updated] Expertise in Action GoPro for Dynamic Time-Lapses</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-streaming-quality-comparison-obs-against-shadowplay/"><u>[Updated] In 2024, Streaming Quality Comparison OBS Against ShadowPlay</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-step-into-premium-sound-quality-garageband-edition/"><u>[Updated] Step Into Premium Sound Quality GarageBand Edition</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/embrace-change-on-the-move-with-flexible-tripod-12/"><u>Embrace Change on the Move with Flexible Tripod 12</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/everything-you-need-to-know-about-unlocked-apple-iphone-14-pro-by-drfone-ios/"><u>Everything You Need To Know About Unlocked Apple iPhone 14 Pro</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/find-what-you-need-for-free-with-oodle-classified-ads/"><u>Find What You Need for Free with Oodle Classified Ads</u></a></li>
+<li><a href="https://techtrends.techidaily.com/how-to-easily-disable-secure-boot-and-trusted-platform-module-for-drivers-on-windows-11/"><u>How to Easily Disable Secure Boot & Trusted Platform Module for Drivers on Windows 11</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-xr-to-other-iphone-12-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone XR To Other iPhone 12 devices? | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/hp-color-laserjet-pro-mfp-m477-downloading-the-correct-printer-drivers/"><u>HP Color LaserJet Pro MFP M477: Downloading the Correct Printer Drivers</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-beyond-low-definition-the-ultimate-path-from-sdr-to-hdri-video/"><u>In 2024, Beyond Low Definition The Ultimate Path From SDR to HDRI Video</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-with-location-spoofer-on-lava-agni-2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Simulate GPS Movement With Location Spoofer On Lava Agni 2 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-infinix-hot-40-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Infinix Hot 40 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/inspire-ischia-italians-mastering-over-20-local-expressions/"><u>Inspire Ischia Italians: Mastering Over 20 Local Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-days-of-gratitude-similar-to-us-thanksgiving/"><u>International Days of Gratitude Similar to US Thanksgiving</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/japenese-expressions-friendliness-and-respect-on-display/"><u>Japenese Expressions: Friendliness & Respect on Display</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-through-time-with-earths-oldest-language/"><u>Journey Through Time with Earth’s Oldest Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/les-jours-de-la-semaine-en-francais/"><u>Les Jours De La Semaine en Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-hindi-made-easy-top-8-reasons-why-choose-mondlys-online-platform/"><u>Mastering Hindi Made Easy: Top 8 Reasons Why Choose Mondly's Online Platform</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oratory-excellence-overcoming-the-hardest-pronunciations/"><u>Oratory Excellence: Overcoming the Hardest Pronunciations</u></a></li>
+<li><a href="https://article-posts.techidaily.com/perfect-360-rotation-visual-exploration/"><u>Perfect 360° Rotation Visual Exploration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/premier-apps-fueling-fluency-journey/"><u>Premier Apps Fueling Fluency Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seamless-korean-learning-the-premier-6-online-resources-guide/"><u>Seamless Korean Learning: The Premier 6 Online Resources Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/temps-des-jours-francais/"><u>Temps Des Jours Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-formality-expressing-bonjour-in-french-culture/"><u>The Art of Formality: Expressing 'Bonjour' In French Culture</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-eerie-origins-of-halloween-customs/"><u>The Eerie Origins of Halloween Customs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-roadmap-to-korean-mastery-selecting-your-best-resources/"><u>The Roadmap to Korean Mastery: Selecting Your Best Resources</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-9-challenging-tongues-overcoming-language-barriers/"><u>Top 9 Challenging Tongues: Overcoming Language Barriers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-and-mastering-russian-alphabet-pronunciation/"><u>Understanding and Mastering Russian Alphabet Pronunciation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-multilingualism-integrating-sound-science-and-effective-learning-techniques/"><u>Unlocking Multilingualism: Integrating Sound, Science & Effective Learning Techniques</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-crafting-a-commanding-presence-in-audio-media-with-filmoras-filters-for-2024/"><u>Updated Crafting a Commanding Presence in Audio Media with Filmoras Filters for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vielfaltig-sein-eine-auswahl-deutscher-begrussungen-ohne-hallo/"><u>Vielfältig Sein: Eine Auswahl Deutscher Begrüßungen Ohne Hallo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/want-to-understand-the-squid-game-in-korean-learn-the-language/"><u>Want To Understand The Squid Game In Korean? Learn The Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/words-weaving-worlds-mondlylanguages-2-years-of-ambition/"><u>Words Weaving Worlds - MondlyLanguages, 2 Years of Ambition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ta-sygkrismata-glwttothpeioy-ston-eyxhs/"><u>Τα Συγκρίσματα Γλωττοτηπειού Στον Ευχής</u></a></li>
+</ul></div>
 
 
 
