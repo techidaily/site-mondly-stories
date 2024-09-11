@@ -61,6 +61,63 @@
     <link rel="preload" href="https://cloudflare-cdn.techidaily.com/webfonts/fa-duotone-900.woff2" as="font" crossorigin type="font/woff2">
     <link rel="preload" href="https://cloudflare-cdn.techidaily.com/webfonts/fa-thin-100.woff2" as="font" crossorigin type="font/woff2">
 
+    <!-- tailwind.css -->
+    <script src="https://cloudflare-cdn.techidaily.com/js/libs/tailwindcss.v3.4.5.js" crossorigin></script> 
+    <script>
+    try {
+        tailwind.config = {
+          theme: {
+            extend: {
+              spacing: {
+                unit: "38px",
+              },
+              margin: {
+                "spacing-unit": "38px",
+              },
+              maxWidth: {
+                content: "1280px",
+                "has-toc-content": "120%",
+              },
+              zIndex: {
+                1: 1001,
+                2: 1002,
+                3: 1003,
+                4: 1004,
+                5: 1005,
+                6: 1006,
+                7: 1007,
+                8: 1008,
+                9: 1009,
+              },
+              borderRadius: {
+                none: "0px",
+                xsmall: "4px",
+                small: "9px",
+                medium: "14px",
+                large: "18px",
+                xlarge: "24px",
+                xxlarge: "48px",
+              },
+              fontFamily: {
+                chinese: ["sans-serif"],
+                english: ["Satoshi-Variable", "sans-serif"],
+                default: [
+                  "Satoshi-Variable",
+                  "system-ui",
+                  "sans-serif",
+                ],
+              },
+              fontSize: {
+                default: "16px"
+              },
+              lineHeight: {
+                default: "1.5"
+              }
+            }
+          }
+        }        
+    } catch (e) {}
+    </script>   
 
     <!--- Page Info-->
     
@@ -248,7 +305,7 @@
 
     <script id="hexo-configurations">
     window.config = {"hostname":"mondly-stories.techidaily.com","root":"/","language":"en"};
-    window.theme = {"articles":{"style":{"font_size":"16px","line_height":1.5,"image_border_radius":"0px","image_alignment":"center","image_caption":false,"link_icon":true,"title_alignment":"left","headings_top_spacing":{"h1":"5rem","h2":"4rem","h3":"2.8rem","h4":"2.5rem","h5":"2.2rem","h6":"2rem"}},"word_count":{"enable":true,"count":true,"min2read":true},"author_label":{"enable":true,"auto":false,"list":[]},"code_block":{"copy":true,"style":"mac","font":{"enable":false,"family":null,"url":null}},"toc":{"enable":true,"max_depth":3,"number":false,"expand":true,"init_open":false},"copyright":{"enable":true,"default":"cc_by_nc_sa"},"lazyload":true,"recommendation":{"enable":false,"title":"Recommend","limit":3,"mobile_limit":2,"placeholder":"/images/wallhaven-wqery6-light.webp","skip_dirs":[]}},"colors":{"primary":"#A31F34","secondary":null,"default_mode":"light"},"global":{"fonts":{"chinese":{"enable":false,"family":null,"url":null},"english":{"enable":false,"family":null,"url":null}},"content_max_width":"1000px","sidebar_width":"210px","hover":{"shadow":true,"scale":false},"scroll_progress":{"bar":false,"percentage":true},"website_counter":{"url":"https://cn.vercount.one/js","enable":false,"site_pv":true,"site_uv":true,"post_pv":true},"single_page":true,"preloader":true,"open_graph":true,"google_analytics":{"enable":true,"id":"G-NYMH9T25CD"}},"home_banner":{"enable":true,"style":"fixed","image":{"light":"/images/wallhaven-wqery6-light.webp","dark":"/images/wallhaven-wqery6-dark.webp"},"title":"Enjoy life easier but more creative!","subtitle":{"text":[],"hitokoto":{"enable":false,"api":"https://v1.hitokoto.cn"},"typing_speed":100,"backing_speed":80,"starting_delay":500,"backing_delay":1500,"loop":true,"smart_backspace":true},"text_color":{"light":"#fff","dark":"#d1d1b6"},"text_style":{"title_size":"2.8rem","subtitle_size":"1.5rem","line_height":1.2},"custom_font":{"enable":false,"family":null,"url":null},"social_links":{"enable":false,"style":"default","links":{"github":null,"instagram":null,"zhihu":null,"twitter":null,"email":null},"qrs":{"weixin":null}}},"plugins":{"feed":{"enable":true},"aplayer":{"enable":false,"type":"fixed","audios":[{"name":null,"artist":null,"url":null,"cover":null,"lrc":null}]},"mermaid":{"enable":false,"version":"9.3.0"}},"version":"2.6.1","navbar":{"auto_hide":true,"color":{"left":"#f78736","right":"#367df7","transparency":35},"width":{"home":"1200px","pages":"1000px"},"links":{"Home":{"path":"/","icon":"fa-regular fa-house"},"Tools":{"path":"https://tools.techidaily.com","icon":"fa-regular fa-archive"},"Links":{"icon":"fa-regular fa-link","submenus":{"HowTo":"https://howto.techidaily.com","Mobile Images":"https://img0mobiles.techidaily.com"}},"Privacy":{"path":"/privacy","icon":"fa-regular fa-shield-halved"},"Terms&Conditions":{"path":"/terms_conditions","icon":"fa-regular fa-file-contract"},"About":{"path":"/about","icon":"fa-regular fa-user"}},"search":{"enable":false,"preload":true}},"page_templates":{"friends_column":2,"tags_style":"blur"},"home":{"sidebar":{"enable":true,"position":"left","first_item":"menu","announcement":null,"show_on_mobile":true,"links":null},"article_date_format":"auto","categories":{"enable":true,"limit":3},"tags":{"enable":true,"limit":3}},"footerStart":"2017/8/17 11:45:14"};
+    window.theme = {"articles":{"style":{"font_size":"16px","line_height":1.5,"image_border_radius":"0px","image_alignment":"center","image_caption":false,"link_icon":true,"title_alignment":"left","headings_top_spacing":{"h1":"5rem","h2":"4rem","h3":"2.8rem","h4":"2.5rem","h5":"2.2rem","h6":"2rem"}},"word_count":{"enable":true,"count":true,"min2read":true},"author_label":{"enable":true,"auto":false,"list":[]},"code_block":{"copy":true,"style":"mac","font":{"enable":false,"family":null,"url":null}},"toc":{"enable":true,"max_depth":3,"number":false,"expand":true,"init_open":false},"copyright":{"enable":true,"default":"cc_by_nc_sa"},"lazyload":true,"recommendation":{"enable":false,"title":"Recommend","limit":3,"mobile_limit":2,"placeholder":"/images/wallhaven-wqery6-light.webp","skip_dirs":[]}},"colors":{"primary":"#A31F34","secondary":null,"default_mode":"light"},"global":{"fonts":{"chinese":{"enable":false,"family":null,"url":null},"english":{"enable":false,"family":null,"url":null}},"content_max_width":"1280px","sidebar_width":"210px","hover":{"shadow":true,"scale":false},"scroll_progress":{"bar":false,"percentage":true},"website_counter":{"url":"https://cn.vercount.one/js","enable":false,"site_pv":true,"site_uv":true,"post_pv":true},"single_page":true,"preloader":true,"open_graph":true,"google_analytics":{"enable":true,"id":"G-NYMH9T25CD"}},"home_banner":{"enable":true,"style":"fixed","image":{"light":"/images/wallhaven-wqery6-light.webp","dark":"/images/wallhaven-wqery6-dark.webp"},"title":"Enjoy life easier but more creative!","subtitle":{"text":[],"hitokoto":{"enable":false,"api":"https://v1.hitokoto.cn"},"typing_speed":100,"backing_speed":80,"starting_delay":500,"backing_delay":1500,"loop":true,"smart_backspace":true},"text_color":{"light":"#fff","dark":"#d1d1b6"},"text_style":{"title_size":"2.8rem","subtitle_size":"1.5rem","line_height":1.2},"custom_font":{"enable":false,"family":null,"url":null},"social_links":{"enable":false,"style":"default","links":{"github":null,"instagram":null,"zhihu":null,"twitter":null,"email":null},"qrs":{"weixin":null}}},"plugins":{"feed":{"enable":true},"aplayer":{"enable":false,"type":"fixed","audios":[{"name":null,"artist":null,"url":null,"cover":null,"lrc":null}]},"mermaid":{"enable":false,"version":"9.3.0"}},"version":"2.6.1","navbar":{"auto_hide":true,"color":{"left":"#f78736","right":"#367df7","transparency":35},"width":{"home":"1280px","pages":"1280px"},"links":{"Home":{"path":"/","icon":"fa-regular fa-house"},"Tools":{"path":"https://tools.techidaily.com","icon":"fa-regular fa-archive"},"Links":{"icon":"fa-regular fa-link","submenus":{"HowTo":"https://howto.techidaily.com","Mobile Images":"https://img0mobiles.techidaily.com"}},"Privacy":{"path":"/privacy","icon":"fa-regular fa-shield-halved"},"Terms&Conditions":{"path":"/terms_conditions","icon":"fa-regular fa-file-contract"},"About":{"path":"/about","icon":"fa-regular fa-user"}},"search":{"enable":false,"preload":true}},"page_templates":{"friends_column":2,"tags_style":"blur"},"home":{"sidebar":{"enable":true,"position":"left","first_item":"menu","announcement":null,"show_on_mobile":true,"links":null},"article_date_format":"auto","categories":{"enable":true,"limit":3},"tags":{"enable":true,"limit":3}},"footerStart":"2017/8/17 11:45:14"};
     window.lang_ago = {"second":"%s seconds ago","minute":"%s minutes ago","hour":"%s hours ago","day":"%s days ago","week":"%s weeks ago","month":"%s months ago","year":"%s years ago"};
     window.data = {"masonry":false};
   </script>
@@ -266,8 +323,6 @@
     
     
     
-    <!-- tailwind.css -->
-    <script async src="https://cloudflare-cdn.techidaily.com/js/libs/tailwindcss.v3.4.5.js" crossorigin></script>
 <meta name="generator" content="Hexo 7.3.0"><link rel="alternate" href="/atom.xml" title="Mondly Stories" type="application/atom+xml">
 </head>
 
@@ -634,71 +689,71 @@
                     <li class="article-item space-y-2 px-6 pt-10 pb-2 text-xl relative border-l-2 border-border-color" date-is='08-15'>
                 
                     
-                        <a href="/beyond-earthly-words-discovering-the-multifaceted-languages-in-star-wars/" class="block overflow-hidden w-fit">
-                            <span class="article-title mb-0.5 text-2xl">Beyond Earthly Words: Discovering the Multifaceted Languages in Star Wars</span>
+                        <a href="/beginners-pathway-to-urdu-mastery-with-keywords/" class="block overflow-hidden w-fit">
+                            <span class="article-title mb-0.5 text-2xl">Beginner&#39;s Pathway to Urdu Mastery with Keywords</span>
                         </a>
                     
               
                 
                     
-                        <a href="/celebrating-a-decade-and-half-of-free-lessons/" class="block overflow-hidden w-fit">
-                            <span class="article-title mb-0.5 text-2xl">Celebrating a Decade &amp; Half of Free Lessons</span>
+                        <a href="/bridging-words-and-hearts-overcoming-language-obstacles-in-romance/" class="block overflow-hidden w-fit">
+                            <span class="article-title mb-0.5 text-2xl">Bridging Words &amp; Hearts: Overcoming Language Obstacles in Romance</span>
                         </a>
                     
               
                 
                     
-                        <a href="/beyond-rules-the-real-goal-of-learning-languages/" class="block overflow-hidden w-fit">
-                            <span class="article-title mb-0.5 text-2xl">Beyond Rules: The Real Goal of Learning Languages</span>
+                        <a href="/beginnings-of-bilingualism-spanish-for-youngsters/" class="block overflow-hidden w-fit">
+                            <span class="article-title mb-0.5 text-2xl">Beginnings of Bilingualism: Spanish for Youngsters</span>
                         </a>
                     
               
                 
                     
-                        <a href="/best-practices-in-linguistics-top-5-teaching-technologies/" class="block overflow-hidden w-fit">
-                            <span class="article-title mb-0.5 text-2xl">Best Practices in Linguistics: Top 5 Teaching Technologies</span>
+                        <a href="/beginners-counting-guide-from-1-to-100-in-german/" class="block overflow-hidden w-fit">
+                            <span class="article-title mb-0.5 text-2xl">Beginner&#39;s Counting Guide: From 1 to 100 in German</span>
                         </a>
                     
               
                 
                     
-                        <a href="/chinese-graciousness-deciphering-xiexie-and-related-terms/" class="block overflow-hidden w-fit">
-                            <span class="article-title mb-0.5 text-2xl">Chinese Graciousness: Deciphering Xièxiè and Related Terms</span>
+                        <a href="/belgian-babel-how-many-tongues-does-it-wield/" class="block overflow-hidden w-fit">
+                            <span class="article-title mb-0.5 text-2xl">Belgian Babel: How Many Tongues Does It Wield?</span>
                         </a>
                     
               
                 
                     
-                        <a href="/cross-country-leader-apples-choice-of-the-day/" class="block overflow-hidden w-fit">
-                            <span class="article-title mb-0.5 text-2xl">Cross-Country Leader: Apple&#39;s Choice of the Day</span>
+                        <a href="/cross-cultural-gratitude-thanking-in-30-languages-154/" class="block overflow-hidden w-fit">
+                            <span class="article-title mb-0.5 text-2xl">Cross-Cultural Gratitude: Thanking in 30 Languages (154)</span>
                         </a>
                     
               
                 
                     
-                        <a href="/colors-in-spanish-how-to-pronounce-them/" class="block overflow-hidden w-fit">
-                            <span class="article-title mb-0.5 text-2xl">Colors In Spanish: How To Pronounce Them</span>
+                        <a href="/beyond-pronunciations-conquering-the-most-tricky-tongues-in-the-world/" class="block overflow-hidden w-fit">
+                            <span class="article-title mb-0.5 text-2xl">Beyond Pronunciations: Conquering the Most Tricky Tongues in the World</span>
                         </a>
                     
               
                 
                     
-                        <a href="/cognitive-multitaskers-thrive-with-bilingualism/" class="block overflow-hidden w-fit">
-                            <span class="article-title mb-0.5 text-2xl">Cognitive Multitaskers Thrive with Bilingualism</span>
+                        <a href="/break-barriers-learn-languages-anywhere-mondlys-vr-language-program/" class="block overflow-hidden w-fit">
+                            <span class="article-title mb-0.5 text-2xl">Break Barriers, Learn Languages Anywhere - Mondly&#39;s VR Language Program</span>
                         </a>
                     
               
                 
                     
-                        <a href="/bards-brilliance-in-modern-dialogue-36-phrases-examined/" class="block overflow-hidden w-fit">
-                            <span class="article-title mb-0.5 text-2xl">Bard&#39;s Brilliance in Modern Dialogue: 36 Phrases Examined</span>
+                        <a href="/conquering-vietnamese-a-beginners-phrasebook/" class="block overflow-hidden w-fit">
+                            <span class="article-title mb-0.5 text-2xl">Conquering Vietnamese: A Beginner&#39;s Phrasebook</span>
                         </a>
                     
               
                 
                     
-                        <a href="/bring-international-communication-within-your-home-mondly-vr-language-program/" class="block overflow-hidden w-fit">
-                            <span class="article-title mb-0.5 text-2xl">Bring International Communication Within Your Home: Mondly VR Language Program</span>
+                        <a href="/common-spelling-traps-in-english-the-definitive-top-100-list/" class="block overflow-hidden w-fit">
+                            <span class="article-title mb-0.5 text-2xl">Common Spelling Traps in English - The Definitive Top 100 List</span>
                         </a>
                     
               

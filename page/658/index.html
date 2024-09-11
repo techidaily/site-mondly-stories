@@ -61,6 +61,63 @@
     <link rel="preload" href="https://cloudflare-cdn.techidaily.com/webfonts/fa-duotone-900.woff2" as="font" crossorigin type="font/woff2">
     <link rel="preload" href="https://cloudflare-cdn.techidaily.com/webfonts/fa-thin-100.woff2" as="font" crossorigin type="font/woff2">
 
+    <!-- tailwind.css -->
+    <script src="https://cloudflare-cdn.techidaily.com/js/libs/tailwindcss.v3.4.5.js" crossorigin></script> 
+    <script>
+    try {
+        tailwind.config = {
+          theme: {
+            extend: {
+              spacing: {
+                unit: "38px",
+              },
+              margin: {
+                "spacing-unit": "38px",
+              },
+              maxWidth: {
+                content: "1280px",
+                "has-toc-content": "120%",
+              },
+              zIndex: {
+                1: 1001,
+                2: 1002,
+                3: 1003,
+                4: 1004,
+                5: 1005,
+                6: 1006,
+                7: 1007,
+                8: 1008,
+                9: 1009,
+              },
+              borderRadius: {
+                none: "0px",
+                xsmall: "4px",
+                small: "9px",
+                medium: "14px",
+                large: "18px",
+                xlarge: "24px",
+                xxlarge: "48px",
+              },
+              fontFamily: {
+                chinese: ["sans-serif"],
+                english: ["Satoshi-Variable", "sans-serif"],
+                default: [
+                  "Satoshi-Variable",
+                  "system-ui",
+                  "sans-serif",
+                ],
+              },
+              fontSize: {
+                default: "16px"
+              },
+              lineHeight: {
+                default: "1.5"
+              }
+            }
+          }
+        }        
+    } catch (e) {}
+    </script>   
 
     <!--- Page Info-->
     
@@ -246,7 +303,7 @@
 
     <script id="hexo-configurations">
     window.config = {"hostname":"mondly-stories.techidaily.com","root":"/","language":"en"};
-    window.theme = {"articles":{"style":{"font_size":"16px","line_height":1.5,"image_border_radius":"0px","image_alignment":"center","image_caption":false,"link_icon":true,"title_alignment":"left","headings_top_spacing":{"h1":"5rem","h2":"4rem","h3":"2.8rem","h4":"2.5rem","h5":"2.2rem","h6":"2rem"}},"word_count":{"enable":true,"count":true,"min2read":true},"author_label":{"enable":true,"auto":false,"list":[]},"code_block":{"copy":true,"style":"mac","font":{"enable":false,"family":null,"url":null}},"toc":{"enable":true,"max_depth":3,"number":false,"expand":true,"init_open":false},"copyright":{"enable":true,"default":"cc_by_nc_sa"},"lazyload":true,"recommendation":{"enable":false,"title":"Recommend","limit":3,"mobile_limit":2,"placeholder":"/images/wallhaven-wqery6-light.webp","skip_dirs":[]}},"colors":{"primary":"#A31F34","secondary":null,"default_mode":"light"},"global":{"fonts":{"chinese":{"enable":false,"family":null,"url":null},"english":{"enable":false,"family":null,"url":null}},"content_max_width":"1000px","sidebar_width":"210px","hover":{"shadow":true,"scale":false},"scroll_progress":{"bar":false,"percentage":true},"website_counter":{"url":"https://cn.vercount.one/js","enable":false,"site_pv":true,"site_uv":true,"post_pv":true},"single_page":true,"preloader":true,"open_graph":true,"google_analytics":{"enable":true,"id":"G-NYMH9T25CD"}},"home_banner":{"enable":true,"style":"fixed","image":{"light":"/images/wallhaven-wqery6-light.webp","dark":"/images/wallhaven-wqery6-dark.webp"},"title":"Enjoy life easier but more creative!","subtitle":{"text":[],"hitokoto":{"enable":false,"api":"https://v1.hitokoto.cn"},"typing_speed":100,"backing_speed":80,"starting_delay":500,"backing_delay":1500,"loop":true,"smart_backspace":true},"text_color":{"light":"#fff","dark":"#d1d1b6"},"text_style":{"title_size":"2.8rem","subtitle_size":"1.5rem","line_height":1.2},"custom_font":{"enable":false,"family":null,"url":null},"social_links":{"enable":false,"style":"default","links":{"github":null,"instagram":null,"zhihu":null,"twitter":null,"email":null},"qrs":{"weixin":null}}},"plugins":{"feed":{"enable":true},"aplayer":{"enable":false,"type":"fixed","audios":[{"name":null,"artist":null,"url":null,"cover":null,"lrc":null}]},"mermaid":{"enable":false,"version":"9.3.0"}},"version":"2.6.1","navbar":{"auto_hide":true,"color":{"left":"#f78736","right":"#367df7","transparency":35},"width":{"home":"1200px","pages":"1000px"},"links":{"Home":{"path":"/","icon":"fa-regular fa-house"},"Tools":{"path":"https://tools.techidaily.com","icon":"fa-regular fa-archive"},"Links":{"icon":"fa-regular fa-link","submenus":{"HowTo":"https://howto.techidaily.com","Mobile Images":"https://img0mobiles.techidaily.com"}},"Privacy":{"path":"/privacy","icon":"fa-regular fa-shield-halved"},"Terms&Conditions":{"path":"/terms_conditions","icon":"fa-regular fa-file-contract"},"About":{"path":"/about","icon":"fa-regular fa-user"}},"search":{"enable":false,"preload":true}},"page_templates":{"friends_column":2,"tags_style":"blur"},"home":{"sidebar":{"enable":true,"position":"left","first_item":"menu","announcement":null,"show_on_mobile":true,"links":null},"article_date_format":"auto","categories":{"enable":true,"limit":3},"tags":{"enable":true,"limit":3}},"footerStart":"2017/8/17 11:45:14"};
+    window.theme = {"articles":{"style":{"font_size":"16px","line_height":1.5,"image_border_radius":"0px","image_alignment":"center","image_caption":false,"link_icon":true,"title_alignment":"left","headings_top_spacing":{"h1":"5rem","h2":"4rem","h3":"2.8rem","h4":"2.5rem","h5":"2.2rem","h6":"2rem"}},"word_count":{"enable":true,"count":true,"min2read":true},"author_label":{"enable":true,"auto":false,"list":[]},"code_block":{"copy":true,"style":"mac","font":{"enable":false,"family":null,"url":null}},"toc":{"enable":true,"max_depth":3,"number":false,"expand":true,"init_open":false},"copyright":{"enable":true,"default":"cc_by_nc_sa"},"lazyload":true,"recommendation":{"enable":false,"title":"Recommend","limit":3,"mobile_limit":2,"placeholder":"/images/wallhaven-wqery6-light.webp","skip_dirs":[]}},"colors":{"primary":"#A31F34","secondary":null,"default_mode":"light"},"global":{"fonts":{"chinese":{"enable":false,"family":null,"url":null},"english":{"enable":false,"family":null,"url":null}},"content_max_width":"1280px","sidebar_width":"210px","hover":{"shadow":true,"scale":false},"scroll_progress":{"bar":false,"percentage":true},"website_counter":{"url":"https://cn.vercount.one/js","enable":false,"site_pv":true,"site_uv":true,"post_pv":true},"single_page":true,"preloader":true,"open_graph":true,"google_analytics":{"enable":true,"id":"G-NYMH9T25CD"}},"home_banner":{"enable":true,"style":"fixed","image":{"light":"/images/wallhaven-wqery6-light.webp","dark":"/images/wallhaven-wqery6-dark.webp"},"title":"Enjoy life easier but more creative!","subtitle":{"text":[],"hitokoto":{"enable":false,"api":"https://v1.hitokoto.cn"},"typing_speed":100,"backing_speed":80,"starting_delay":500,"backing_delay":1500,"loop":true,"smart_backspace":true},"text_color":{"light":"#fff","dark":"#d1d1b6"},"text_style":{"title_size":"2.8rem","subtitle_size":"1.5rem","line_height":1.2},"custom_font":{"enable":false,"family":null,"url":null},"social_links":{"enable":false,"style":"default","links":{"github":null,"instagram":null,"zhihu":null,"twitter":null,"email":null},"qrs":{"weixin":null}}},"plugins":{"feed":{"enable":true},"aplayer":{"enable":false,"type":"fixed","audios":[{"name":null,"artist":null,"url":null,"cover":null,"lrc":null}]},"mermaid":{"enable":false,"version":"9.3.0"}},"version":"2.6.1","navbar":{"auto_hide":true,"color":{"left":"#f78736","right":"#367df7","transparency":35},"width":{"home":"1280px","pages":"1280px"},"links":{"Home":{"path":"/","icon":"fa-regular fa-house"},"Tools":{"path":"https://tools.techidaily.com","icon":"fa-regular fa-archive"},"Links":{"icon":"fa-regular fa-link","submenus":{"HowTo":"https://howto.techidaily.com","Mobile Images":"https://img0mobiles.techidaily.com"}},"Privacy":{"path":"/privacy","icon":"fa-regular fa-shield-halved"},"Terms&Conditions":{"path":"/terms_conditions","icon":"fa-regular fa-file-contract"},"About":{"path":"/about","icon":"fa-regular fa-user"}},"search":{"enable":false,"preload":true}},"page_templates":{"friends_column":2,"tags_style":"blur"},"home":{"sidebar":{"enable":true,"position":"left","first_item":"menu","announcement":null,"show_on_mobile":true,"links":null},"article_date_format":"auto","categories":{"enable":true,"limit":3},"tags":{"enable":true,"limit":3}},"footerStart":"2017/8/17 11:45:14"};
     window.lang_ago = {"second":"%s seconds ago","minute":"%s minutes ago","hour":"%s hours ago","day":"%s days ago","week":"%s weeks ago","month":"%s months ago","year":"%s years ago"};
     window.data = {"masonry":false};
   </script>
@@ -264,8 +321,6 @@
     
     
     
-    <!-- tailwind.css -->
-    <script async src="https://cloudflare-cdn.techidaily.com/js/libs/tailwindcss.v3.4.5.js" crossorigin></script>
 <meta name="generator" content="Hexo 7.3.0"><link rel="alternate" href="/atom.xml" title="Mondly Stories" type="application/atom+xml">
 </head>
 
@@ -695,21 +750,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/manejo-de-horas-un-principio-de-lectura-en-espanol/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/ebd8fd55586bef5fe806c5a6931ae068dd25745cbaa69a714d4a27725179f8ad.jpg" alt="Manejo De Horas: Un Principio De Lectura En Español" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/premier-asian-tongues-leading-three-countries/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/987e27a7892f02906f099613af94ad907edd8b77287d835797fe2caec0c18f95.jpg" alt="Premier Asian Tongues: Leading Three Countries" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/manejo-de-horas-un-principio-de-lectura-en-espanol/">
-                            Manejo De Horas: Un Principio De Lectura En Español
+                        <a href="/premier-asian-tongues-leading-three-countries/">
+                            Premier Asian Tongues: Leading Three Countries
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes Manejo De Horas: Un Principio De Lectura En Español</p>
+                            <p>This Article Describes Premier Asian Tongues: Leading Three Countries</p>
 
                         
                     </div>
@@ -717,9 +772,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Fri Jul 12 2024 08:35:13 GMT+0800">
+            <span class="home-article-date" data-date="Mon Jul 29 2024 06:42:30 GMT+0800">
                 
-                    2024-07-12
+                    2024-07-29
                 
             </span>
         </span>
@@ -765,7 +820,7 @@
         
     </div>
 
-    <a href="/manejo-de-horas-un-principio-de-lectura-en-espanol/">Read more<span class="seo-reader-text">Manejo De Horas: Un Principio De Lectura En Español</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/premier-asian-tongues-leading-three-countries/">Read more<span class="seo-reader-text">Premier Asian Tongues: Leading Three Countries</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -781,21 +836,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/love-in-translation-inspirational-french-movies/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/c5954b26aae847d226df8714f23c02a4ef32990ac98d6db24e45432fb84625b4.png" alt="Love in Translation: Inspirational French Movies" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/polyglot-dreams-late-beginnings-are-fine/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/1c29d979a20696d19bd8c5c3e9d947157133fd882c32bc816c08287c2bc4feb3.jpg" alt="Polyglot Dreams - Late Beginnings Are Fine" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/love-in-translation-inspirational-french-movies/">
-                            Love in Translation: Inspirational French Movies
+                        <a href="/polyglot-dreams-late-beginnings-are-fine/">
+                            Polyglot Dreams - Late Beginnings Are Fine
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes Love in Translation: Inspirational French Movies</p>
+                            <p>This Article Describes Polyglot Dreams - Late Beginnings Are Fine</p>
 
                         
                     </div>
@@ -803,9 +858,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Fri Jul 12 2024 08:35:12 GMT+0800">
+            <span class="home-article-date" data-date="Mon Jul 29 2024 06:42:29 GMT+0800">
                 
-                    2024-07-12
+                    2024-07-29
                 
             </span>
         </span>
@@ -851,7 +906,7 @@
         
     </div>
 
-    <a href="/love-in-translation-inspirational-french-movies/">Read more<span class="seo-reader-text">Love in Translation: Inspirational French Movies</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/polyglot-dreams-late-beginnings-are-fine/">Read more<span class="seo-reader-text">Polyglot Dreams - Late Beginnings Are Fine</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -867,21 +922,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/learn-urdu-easily-every-day/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/f66305bee95e2c8cfda71737bc488d60f6c275330b2e729ec458216f465e024e.png" alt="Learn Urdu Easily, Every Day" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/parthenon-prose-ancient-greek-to-present-day-words/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/84120ce1dd040ef96ca974489513e09e6fd38ddc4b035ddddd4021d7d15c6c74.jpg" alt="Parthenon Prose: Ancient Greek to Present-Day Words" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/learn-urdu-easily-every-day/">
-                            Learn Urdu Easily, Every Day
+                        <a href="/parthenon-prose-ancient-greek-to-present-day-words/">
+                            Parthenon Prose: Ancient Greek to Present-Day Words
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes Learn Urdu Easily, Every Day</p>
+                            <p>This Article Describes Parthenon Prose: Ancient Greek to Present-Day Words</p>
 
                         
                     </div>
@@ -889,9 +944,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Fri Jul 12 2024 08:35:11 GMT+0800">
+            <span class="home-article-date" data-date="Mon Jul 29 2024 06:42:29 GMT+0800">
                 
-                    2024-07-12
+                    2024-07-29
                 
             </span>
         </span>
@@ -937,7 +992,7 @@
         
     </div>
 
-    <a href="/learn-urdu-easily-every-day/">Read more<span class="seo-reader-text">Learn Urdu Easily, Every Day</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/parthenon-prose-ancient-greek-to-present-day-words/">Read more<span class="seo-reader-text">Parthenon Prose: Ancient Greek to Present-Day Words</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -953,21 +1008,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/leading-non-native-language-curriculum-for-us-students/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/e1e3cd6b008cdab8aeee33309c0a15674cf83671f125b94d0f79189ce7d24b4f.jpg" alt="Leading Non-Native Language Curriculum for U.S. Students" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/new-years-pledges-from-idea-to-action/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/beb79c97cd88302125e646092101e6316bc065b6e8c0e4d468eed617783ebeeb.jpg" alt="New Year&#39;s Pledges: From Idea to Action" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/leading-non-native-language-curriculum-for-us-students/">
-                            Leading Non-Native Language Curriculum for U.S. Students
+                        <a href="/new-years-pledges-from-idea-to-action/">
+                            New Year&#39;s Pledges: From Idea to Action
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes Leading Non-Native Language Curriculum for U.S. Students</p>
+                            <p>This Article Describes New Year’s Pledges: From Idea to Action</p>
 
                         
                     </div>
@@ -975,9 +1030,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Fri Jul 12 2024 08:35:10 GMT+0800">
+            <span class="home-article-date" data-date="Mon Jul 29 2024 06:42:28 GMT+0800">
                 
-                    2024-07-12
+                    2024-07-29
                 
             </span>
         </span>
@@ -1023,7 +1078,7 @@
         
     </div>
 
-    <a href="/leading-non-native-language-curriculum-for-us-students/">Read more<span class="seo-reader-text">Leading Non-Native Language Curriculum for U.S. Students</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/new-years-pledges-from-idea-to-action/">Read more<span class="seo-reader-text">New Year&#39;s Pledges: From Idea to Action</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1039,21 +1094,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/key-expressions-your-guide-to-fluent-conversations-in-south-america/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/91d5be9a6861c4c9aa999253b8784315fe4d3aae2f0511baeab6c403517618b1.jpg" alt="Key Expressions: Your Guide to Fluent Conversations in South America" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/nations-holding-thanksgiving-festivals/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/2cdcba4b1f7015b8a27449250ed093dcedd443fa9b99fd4da2116bc1b6fb0847.jpg" alt="Nations Holding Thanksgiving Festivals" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/key-expressions-your-guide-to-fluent-conversations-in-south-america/">
-                            Key Expressions: Your Guide to Fluent Conversations in South America
+                        <a href="/nations-holding-thanksgiving-festivals/">
+                            Nations Holding Thanksgiving Festivals
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes Key Expressions: Your Guide to Fluent Conversations in South America</p>
+                            <p>This Article Describes Nations Holding Thanksgiving Festivals</p>
 
                         
                     </div>
@@ -1061,9 +1116,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Fri Jul 12 2024 08:35:09 GMT+0800">
+            <span class="home-article-date" data-date="Mon Jul 29 2024 06:42:27 GMT+0800">
                 
-                    2024-07-12
+                    2024-07-29
                 
             </span>
         </span>
@@ -1109,7 +1164,7 @@
         
     </div>
 
-    <a href="/key-expressions-your-guide-to-fluent-conversations-in-south-america/">Read more<span class="seo-reader-text">Key Expressions: Your Guide to Fluent Conversations in South America</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/nations-holding-thanksgiving-festivals/">Read more<span class="seo-reader-text">Nations Holding Thanksgiving Festivals</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1125,21 +1180,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/journey-through-hindi-why-mondlys-online-study-triumphs/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/29c87a2813101a91590a08620c363a707a12be2c13cdc82a6c440d60f80e5fd3.jpg" alt="Journey Through Hindi: Why Mondly&#39;s Online Study Triumphs" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/multilingual-pursuits-cognitive-mastery/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/f8f467b332b89dbb4d8c51eef116fbbce4476e735f93f6027b47c78945bb4e75.jpg" alt="Multilingual Pursuits, Cognitive Mastery" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/journey-through-hindi-why-mondlys-online-study-triumphs/">
-                            Journey Through Hindi: Why Mondly&#39;s Online Study Triumphs
+                        <a href="/multilingual-pursuits-cognitive-mastery/">
+                            Multilingual Pursuits, Cognitive Mastery
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes Journey Through Hindi: Why Mondly’s Online Study Triumphs</p>
+                            <p>This Article Describes Multilingual Pursuits, Cognitive Mastery</p>
 
                         
                     </div>
@@ -1147,9 +1202,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Fri Jul 12 2024 08:35:08 GMT+0800">
+            <span class="home-article-date" data-date="Mon Jul 29 2024 06:42:26 GMT+0800">
                 
-                    2024-07-12
+                    2024-07-29
                 
             </span>
         </span>
@@ -1195,7 +1250,7 @@
         
     </div>
 
-    <a href="/journey-through-hindi-why-mondlys-online-study-triumphs/">Read more<span class="seo-reader-text">Journey Through Hindi: Why Mondly&#39;s Online Study Triumphs</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/multilingual-pursuits-cognitive-mastery/">Read more<span class="seo-reader-text">Multilingual Pursuits, Cognitive Mastery</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1211,21 +1266,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/jour-de-la-france-jour-de-la-semaine/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/d0c9b7047797b18daa1e1aa41be92c363eb13ba8f8bfa2b570a90a8bfa430bd1.jpg" alt="Jour De La France, Jour De La Semaine" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/mondly-is-offering-free-language-courses-for-millions-of-ukrainians/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/d1b957d75a545d4bf761b1ab71e56a83f74f572b9cfdc1f2dd93c379e17f7085.jpg" alt="Mondly Is Offering Free Language Courses For Millions Of Ukrainians" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/jour-de-la-france-jour-de-la-semaine/">
-                            Jour De La France, Jour De La Semaine
+                        <a href="/mondly-is-offering-free-language-courses-for-millions-of-ukrainians/">
+                            Mondly Is Offering Free Language Courses For Millions Of Ukrainians
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes Jour De La France, Jour De La Semaine</p>
+                            <p>This Article Describes Mondly Is Offering Free Language Courses For Millions Of Ukrainians</p>
 
                         
                     </div>
@@ -1233,9 +1288,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Fri Jul 12 2024 08:35:06 GMT+0800">
+            <span class="home-article-date" data-date="Mon Jul 29 2024 06:42:26 GMT+0800">
                 
-                    2024-07-12
+                    2024-07-29
                 
             </span>
         </span>
@@ -1281,7 +1336,7 @@
         
     </div>
 
-    <a href="/jour-de-la-france-jour-de-la-semaine/">Read more<span class="seo-reader-text">Jour De La France, Jour De La Semaine</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/mondly-is-offering-free-language-courses-for-millions-of-ukrainians/">Read more<span class="seo-reader-text">Mondly Is Offering Free Language Courses For Millions Of Ukrainians</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1297,21 +1352,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/japanese-salutations-key-phrases-for-perfect-greeting/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/b0c789775642f2ac1a082c3710ec3e71a5c2db92094d509f8f2ac2b5d87390af.jpg" alt="Japanese Salutations: Key Phrases for Perfect Greeting" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/monday-to-domingo-learn-the-days-of-the-week-in-spanish/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/ce4adb63fa2c2ea65274491b10b565805f9f069cb38a9de890519fca2ccb2732.jpg" alt="Monday to Domingo – Learn the Days of the Week in Spanish" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/japanese-salutations-key-phrases-for-perfect-greeting/">
-                            Japanese Salutations: Key Phrases for Perfect Greeting
+                        <a href="/monday-to-domingo-learn-the-days-of-the-week-in-spanish/">
+                            Monday to Domingo – Learn the Days of the Week in Spanish
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes Japanese Salutations: Key Phrases for Perfect Greeting</p>
+                            <p>This Article Describes Monday to Domingo – Learn the Days of the Week in Spanish</p>
 
                         
                     </div>
@@ -1319,9 +1374,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Fri Jul 12 2024 08:35:05 GMT+0800">
+            <span class="home-article-date" data-date="Mon Jul 29 2024 06:42:24 GMT+0800">
                 
-                    2024-07-12
+                    2024-07-29
                 
             </span>
         </span>
@@ -1367,7 +1422,7 @@
         
     </div>
 
-    <a href="/japanese-salutations-key-phrases-for-perfect-greeting/">Read more<span class="seo-reader-text">Japanese Salutations: Key Phrases for Perfect Greeting</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/monday-to-domingo-learn-the-days-of-the-week-in-spanish/">Read more<span class="seo-reader-text">Monday to Domingo – Learn the Days of the Week in Spanish</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1383,21 +1438,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/international-english-communication-skills/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/ef4f7364eb178269ce5e333115e1834d8d6af4b37108b148f724431123b9f7ea.jpg" alt="International English Communication Skills" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/mastering-urdu-fast-one-short-session-daily/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/1d52a784f1445afeffa363db79a58daa37aba70187bc1afa1f381803fc3dfa00.jpg" alt="Mastering Urdu Fast: One Short Session Daily" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/international-english-communication-skills/">
-                            International English Communication Skills
+                        <a href="/mastering-urdu-fast-one-short-session-daily/">
+                            Mastering Urdu Fast: One Short Session Daily
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes International English Communication Skills</p>
+                            <p>This Article Describes Mastering Urdu Fast: One Short Session Daily</p>
 
                         
                     </div>
@@ -1405,9 +1460,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Fri Jul 12 2024 08:35:04 GMT+0800">
+            <span class="home-article-date" data-date="Mon Jul 29 2024 06:42:24 GMT+0800">
                 
-                    2024-07-12
+                    2024-07-29
                 
             </span>
         </span>
@@ -1453,7 +1508,7 @@
         
     </div>
 
-    <a href="/international-english-communication-skills/">Read more<span class="seo-reader-text">International English Communication Skills</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/mastering-urdu-fast-one-short-session-daily/">Read more<span class="seo-reader-text">Mastering Urdu Fast: One Short Session Daily</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1469,21 +1524,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/how-youthful-minds-conquer-linguistic-barriers/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/d00d489dab3eb54e89c3ca7ade1be65a3363127e621a133942b5008a80266cd9.jpg" alt="How Youthful Minds Conquer Linguistic Barriers" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/mastering-keywords-with-oxfords-ease/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/5f29ab47c82493b144af09fd3ee1e6f095ceaed40a8d07f3a01f7431f1caf6d4.jpg" alt="Mastering Keywords with Oxford&#39;s Ease" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/how-youthful-minds-conquer-linguistic-barriers/">
-                            How Youthful Minds Conquer Linguistic Barriers
+                        <a href="/mastering-keywords-with-oxfords-ease/">
+                            Mastering Keywords with Oxford&#39;s Ease
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes How Youthful Minds Conquer Linguistic Barriers</p>
+                            <p>This Article Describes Mastering Keywords with Oxford’s Ease</p>
 
                         
                     </div>
@@ -1491,9 +1546,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Fri Jul 12 2024 08:35:03 GMT+0800">
+            <span class="home-article-date" data-date="Mon Jul 29 2024 06:42:23 GMT+0800">
                 
-                    2024-07-12
+                    2024-07-29
                 
             </span>
         </span>
@@ -1539,7 +1594,7 @@
         
     </div>
 
-    <a href="/how-youthful-minds-conquer-linguistic-barriers/">Read more<span class="seo-reader-text">How Youthful Minds Conquer Linguistic Barriers</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/mastering-keywords-with-oxfords-ease/">Read more<span class="seo-reader-text">Mastering Keywords with Oxford&#39;s Ease</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>

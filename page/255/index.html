@@ -61,6 +61,63 @@
     <link rel="preload" href="https://cloudflare-cdn.techidaily.com/webfonts/fa-duotone-900.woff2" as="font" crossorigin type="font/woff2">
     <link rel="preload" href="https://cloudflare-cdn.techidaily.com/webfonts/fa-thin-100.woff2" as="font" crossorigin type="font/woff2">
 
+    <!-- tailwind.css -->
+    <script src="https://cloudflare-cdn.techidaily.com/js/libs/tailwindcss.v3.4.5.js" crossorigin></script> 
+    <script>
+    try {
+        tailwind.config = {
+          theme: {
+            extend: {
+              spacing: {
+                unit: "38px",
+              },
+              margin: {
+                "spacing-unit": "38px",
+              },
+              maxWidth: {
+                content: "1280px",
+                "has-toc-content": "120%",
+              },
+              zIndex: {
+                1: 1001,
+                2: 1002,
+                3: 1003,
+                4: 1004,
+                5: 1005,
+                6: 1006,
+                7: 1007,
+                8: 1008,
+                9: 1009,
+              },
+              borderRadius: {
+                none: "0px",
+                xsmall: "4px",
+                small: "9px",
+                medium: "14px",
+                large: "18px",
+                xlarge: "24px",
+                xxlarge: "48px",
+              },
+              fontFamily: {
+                chinese: ["sans-serif"],
+                english: ["Satoshi-Variable", "sans-serif"],
+                default: [
+                  "Satoshi-Variable",
+                  "system-ui",
+                  "sans-serif",
+                ],
+              },
+              fontSize: {
+                default: "16px"
+              },
+              lineHeight: {
+                default: "1.5"
+              }
+            }
+          }
+        }        
+    } catch (e) {}
+    </script>   
 
     <!--- Page Info-->
     
@@ -246,7 +303,7 @@
 
     <script id="hexo-configurations">
     window.config = {"hostname":"mondly-stories.techidaily.com","root":"/","language":"en"};
-    window.theme = {"articles":{"style":{"font_size":"16px","line_height":1.5,"image_border_radius":"0px","image_alignment":"center","image_caption":false,"link_icon":true,"title_alignment":"left","headings_top_spacing":{"h1":"5rem","h2":"4rem","h3":"2.8rem","h4":"2.5rem","h5":"2.2rem","h6":"2rem"}},"word_count":{"enable":true,"count":true,"min2read":true},"author_label":{"enable":true,"auto":false,"list":[]},"code_block":{"copy":true,"style":"mac","font":{"enable":false,"family":null,"url":null}},"toc":{"enable":true,"max_depth":3,"number":false,"expand":true,"init_open":false},"copyright":{"enable":true,"default":"cc_by_nc_sa"},"lazyload":true,"recommendation":{"enable":false,"title":"Recommend","limit":3,"mobile_limit":2,"placeholder":"/images/wallhaven-wqery6-light.webp","skip_dirs":[]}},"colors":{"primary":"#A31F34","secondary":null,"default_mode":"light"},"global":{"fonts":{"chinese":{"enable":false,"family":null,"url":null},"english":{"enable":false,"family":null,"url":null}},"content_max_width":"1000px","sidebar_width":"210px","hover":{"shadow":true,"scale":false},"scroll_progress":{"bar":false,"percentage":true},"website_counter":{"url":"https://cn.vercount.one/js","enable":false,"site_pv":true,"site_uv":true,"post_pv":true},"single_page":true,"preloader":true,"open_graph":true,"google_analytics":{"enable":true,"id":"G-NYMH9T25CD"}},"home_banner":{"enable":true,"style":"fixed","image":{"light":"/images/wallhaven-wqery6-light.webp","dark":"/images/wallhaven-wqery6-dark.webp"},"title":"Enjoy life easier but more creative!","subtitle":{"text":[],"hitokoto":{"enable":false,"api":"https://v1.hitokoto.cn"},"typing_speed":100,"backing_speed":80,"starting_delay":500,"backing_delay":1500,"loop":true,"smart_backspace":true},"text_color":{"light":"#fff","dark":"#d1d1b6"},"text_style":{"title_size":"2.8rem","subtitle_size":"1.5rem","line_height":1.2},"custom_font":{"enable":false,"family":null,"url":null},"social_links":{"enable":false,"style":"default","links":{"github":null,"instagram":null,"zhihu":null,"twitter":null,"email":null},"qrs":{"weixin":null}}},"plugins":{"feed":{"enable":true},"aplayer":{"enable":false,"type":"fixed","audios":[{"name":null,"artist":null,"url":null,"cover":null,"lrc":null}]},"mermaid":{"enable":false,"version":"9.3.0"}},"version":"2.6.1","navbar":{"auto_hide":true,"color":{"left":"#f78736","right":"#367df7","transparency":35},"width":{"home":"1200px","pages":"1000px"},"links":{"Home":{"path":"/","icon":"fa-regular fa-house"},"Tools":{"path":"https://tools.techidaily.com","icon":"fa-regular fa-archive"},"Links":{"icon":"fa-regular fa-link","submenus":{"HowTo":"https://howto.techidaily.com","Mobile Images":"https://img0mobiles.techidaily.com"}},"Privacy":{"path":"/privacy","icon":"fa-regular fa-shield-halved"},"Terms&Conditions":{"path":"/terms_conditions","icon":"fa-regular fa-file-contract"},"About":{"path":"/about","icon":"fa-regular fa-user"}},"search":{"enable":false,"preload":true}},"page_templates":{"friends_column":2,"tags_style":"blur"},"home":{"sidebar":{"enable":true,"position":"left","first_item":"menu","announcement":null,"show_on_mobile":true,"links":null},"article_date_format":"auto","categories":{"enable":true,"limit":3},"tags":{"enable":true,"limit":3}},"footerStart":"2017/8/17 11:45:14"};
+    window.theme = {"articles":{"style":{"font_size":"16px","line_height":1.5,"image_border_radius":"0px","image_alignment":"center","image_caption":false,"link_icon":true,"title_alignment":"left","headings_top_spacing":{"h1":"5rem","h2":"4rem","h3":"2.8rem","h4":"2.5rem","h5":"2.2rem","h6":"2rem"}},"word_count":{"enable":true,"count":true,"min2read":true},"author_label":{"enable":true,"auto":false,"list":[]},"code_block":{"copy":true,"style":"mac","font":{"enable":false,"family":null,"url":null}},"toc":{"enable":true,"max_depth":3,"number":false,"expand":true,"init_open":false},"copyright":{"enable":true,"default":"cc_by_nc_sa"},"lazyload":true,"recommendation":{"enable":false,"title":"Recommend","limit":3,"mobile_limit":2,"placeholder":"/images/wallhaven-wqery6-light.webp","skip_dirs":[]}},"colors":{"primary":"#A31F34","secondary":null,"default_mode":"light"},"global":{"fonts":{"chinese":{"enable":false,"family":null,"url":null},"english":{"enable":false,"family":null,"url":null}},"content_max_width":"1280px","sidebar_width":"210px","hover":{"shadow":true,"scale":false},"scroll_progress":{"bar":false,"percentage":true},"website_counter":{"url":"https://cn.vercount.one/js","enable":false,"site_pv":true,"site_uv":true,"post_pv":true},"single_page":true,"preloader":true,"open_graph":true,"google_analytics":{"enable":true,"id":"G-NYMH9T25CD"}},"home_banner":{"enable":true,"style":"fixed","image":{"light":"/images/wallhaven-wqery6-light.webp","dark":"/images/wallhaven-wqery6-dark.webp"},"title":"Enjoy life easier but more creative!","subtitle":{"text":[],"hitokoto":{"enable":false,"api":"https://v1.hitokoto.cn"},"typing_speed":100,"backing_speed":80,"starting_delay":500,"backing_delay":1500,"loop":true,"smart_backspace":true},"text_color":{"light":"#fff","dark":"#d1d1b6"},"text_style":{"title_size":"2.8rem","subtitle_size":"1.5rem","line_height":1.2},"custom_font":{"enable":false,"family":null,"url":null},"social_links":{"enable":false,"style":"default","links":{"github":null,"instagram":null,"zhihu":null,"twitter":null,"email":null},"qrs":{"weixin":null}}},"plugins":{"feed":{"enable":true},"aplayer":{"enable":false,"type":"fixed","audios":[{"name":null,"artist":null,"url":null,"cover":null,"lrc":null}]},"mermaid":{"enable":false,"version":"9.3.0"}},"version":"2.6.1","navbar":{"auto_hide":true,"color":{"left":"#f78736","right":"#367df7","transparency":35},"width":{"home":"1280px","pages":"1280px"},"links":{"Home":{"path":"/","icon":"fa-regular fa-house"},"Tools":{"path":"https://tools.techidaily.com","icon":"fa-regular fa-archive"},"Links":{"icon":"fa-regular fa-link","submenus":{"HowTo":"https://howto.techidaily.com","Mobile Images":"https://img0mobiles.techidaily.com"}},"Privacy":{"path":"/privacy","icon":"fa-regular fa-shield-halved"},"Terms&Conditions":{"path":"/terms_conditions","icon":"fa-regular fa-file-contract"},"About":{"path":"/about","icon":"fa-regular fa-user"}},"search":{"enable":false,"preload":true}},"page_templates":{"friends_column":2,"tags_style":"blur"},"home":{"sidebar":{"enable":true,"position":"left","first_item":"menu","announcement":null,"show_on_mobile":true,"links":null},"article_date_format":"auto","categories":{"enable":true,"limit":3},"tags":{"enable":true,"limit":3}},"footerStart":"2017/8/17 11:45:14"};
     window.lang_ago = {"second":"%s seconds ago","minute":"%s minutes ago","hour":"%s hours ago","day":"%s days ago","week":"%s weeks ago","month":"%s months ago","year":"%s years ago"};
     window.data = {"masonry":false};
   </script>
@@ -264,8 +321,6 @@
     
     
     
-    <!-- tailwind.css -->
-    <script async src="https://cloudflare-cdn.techidaily.com/js/libs/tailwindcss.v3.4.5.js" crossorigin></script>
 <meta name="generator" content="Hexo 7.3.0"><link rel="alternate" href="/atom.xml" title="Mondly Stories" type="application/atom+xml">
 </head>
 
@@ -695,21 +750,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/a-treasure-trove-of-germanys-linguistic-gems-top-25-idioms/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/8497a84119e0a96a5c983db49610c81e2418d1546f465ac4877a5dbfe4aa35e7.JPG" alt="A Treasure Trove of Germany&#39;s Linguistic Gems: Top 25 Idioms" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/o-poder-da-palavra-em-portugues-melhores-expressoes-para-amigos/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/773b13fe6e17412a9b5b64d4e711163f73a0c0700089624569da26ef89b36362.jpg" alt="O Poder Da Palavra Em Português: Melhores Expressões Para Amigos" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/a-treasure-trove-of-germanys-linguistic-gems-top-25-idioms/">
-                            A Treasure Trove of Germany&#39;s Linguistic Gems: Top 25 Idioms
+                        <a href="/o-poder-da-palavra-em-portugues-melhores-expressoes-para-amigos/">
+                            O Poder Da Palavra Em Português: Melhores Expressões Para Amigos
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes A Treasure Trove of Germany’s Linguistic Gems: Top 25 Idioms</p>
+                            <p>This Article Describes O Poder Da Palavra Em Português: Melhores Expressões Para Amigos</p>
 
                         
                     </div>
@@ -717,7 +772,7 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Tue Aug 27 2024 22:49:03 GMT+0800">
+            <span class="home-article-date" data-date="Tue Aug 27 2024 22:55:26 GMT+0800">
                 
                     2024-08-27
                 
@@ -765,7 +820,7 @@
         
     </div>
 
-    <a href="/a-treasure-trove-of-germanys-linguistic-gems-top-25-idioms/">Read more<span class="seo-reader-text">A Treasure Trove of Germany&#39;s Linguistic Gems: Top 25 Idioms</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/o-poder-da-palavra-em-portugues-melhores-expressoes-para-amigos/">Read more<span class="seo-reader-text">O Poder Da Palavra Em Português: Melhores Expressões Para Amigos</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -781,21 +836,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/1719578903374-accelerated-norsk-knowledge-daily-dash/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/dccb34317888d85bf5b03242f6ff077822b2720dd93141b57f6f0f2fbe555fd1.jpg" alt="Accelerated Norsk Knowledge - Daily Dash!" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/quick-introduction-to-the-swedish-alphabet-and-its-fascinating-history/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/64b02260fc2e331299df22a1e999eab91ad890c07462ad4672fe1c0550ce5fa1.jpg" alt="Quick Introduction to the Swedish Alphabet and Its Fascinating History" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/1719578903374-accelerated-norsk-knowledge-daily-dash/">
-                            Accelerated Norsk Knowledge - Daily Dash!
+                        <a href="/quick-introduction-to-the-swedish-alphabet-and-its-fascinating-history/">
+                            Quick Introduction to the Swedish Alphabet and Its Fascinating History
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes Accelerated Norsk Knowledge - Daily Dash!</p>
+                            <p>This Article Describes Quick Introduction to the Swedish Alphabet and Its Fascinating History</p>
 
                         
                     </div>
@@ -803,7 +858,7 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Tue Aug 27 2024 22:49:02 GMT+0800">
+            <span class="home-article-date" data-date="Tue Aug 27 2024 22:55:25 GMT+0800">
                 
                     2024-08-27
                 
@@ -851,7 +906,7 @@
         
     </div>
 
-    <a href="/1719578903374-accelerated-norsk-knowledge-daily-dash/">Read more<span class="seo-reader-text">Accelerated Norsk Knowledge - Daily Dash!</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/quick-introduction-to-the-swedish-alphabet-and-its-fascinating-history/">Read more<span class="seo-reader-text">Quick Introduction to the Swedish Alphabet and Its Fascinating History</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -867,21 +922,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/1719577659953-beat-the-time-barrier-and-learn-slovak-in-smart-10-minute-chunks/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/01734b8ef062c5f42913179297294f7a33898d76f5f56b23f4fc2e8e00dd6cb9.jpg" alt="Beat the Time Barrier &amp; Learn Slovak in Smart 10-Minute Chunks" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/jumpstart-your-turkish-learning-an-essential-phonetics-guidebook/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/91d880ab7920ac263b2bbc42f64c84854115542d15d4b0d06e6a3ab502cdbe2d.jpg" alt="Jumpstart Your Turkish Learning: An Essential Phonetics Guidebook" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/1719577659953-beat-the-time-barrier-and-learn-slovak-in-smart-10-minute-chunks/">
-                            Beat the Time Barrier &amp; Learn Slovak in Smart 10-Minute Chunks
+                        <a href="/jumpstart-your-turkish-learning-an-essential-phonetics-guidebook/">
+                            Jumpstart Your Turkish Learning: An Essential Phonetics Guidebook
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes Beat the Time Barrier &amp; Learn Slovak in Smart 10-Minute Chunks</p>
+                            <p>This Article Describes Jumpstart Your Turkish Learning: An Essential Phonetics Guidebook</p>
 
                         
                     </div>
@@ -889,7 +944,7 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Tue Aug 27 2024 22:49:00 GMT+0800">
+            <span class="home-article-date" data-date="Tue Aug 27 2024 22:55:24 GMT+0800">
                 
                     2024-08-27
                 
@@ -937,7 +992,7 @@
         
     </div>
 
-    <a href="/1719577659953-beat-the-time-barrier-and-learn-slovak-in-smart-10-minute-chunks/">Read more<span class="seo-reader-text">Beat the Time Barrier &amp; Learn Slovak in Smart 10-Minute Chunks</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/jumpstart-your-turkish-learning-an-essential-phonetics-guidebook/">Read more<span class="seo-reader-text">Jumpstart Your Turkish Learning: An Essential Phonetics Guidebook</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -953,21 +1008,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/1719579465163-language-learning-made-simple-and-super-affordable-this-new-year/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/524624a8aef372cbe885ba5524fa4cfc7d196c57bd7eb5355d7bfa8bf34a7eb4.jpg" alt="Language Learning Made Simple and Super Affordable This New Year" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/introducing-the-precision-of-the-global-scale-of-languages-by-pearson-to-mondly/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/dbcd91d398192e490625be17ab539ce0390575e1cb979a99a698fecfb5d28b74.jpg" alt="Introducing the Precision of the Global Scale of Languages by Pearson to Mondly" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/1719579465163-language-learning-made-simple-and-super-affordable-this-new-year/">
-                            Language Learning Made Simple and Super Affordable This New Year
+                        <a href="/introducing-the-precision-of-the-global-scale-of-languages-by-pearson-to-mondly/">
+                            Introducing the Precision of the Global Scale of Languages by Pearson to Mondly
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes Language Learning Made Simple and Super Affordable This New Year</p>
+                            <p>This Article Describes Introducing the Precision of the Global Scale of Languages by Pearson to Mondly</p>
 
                         
                     </div>
@@ -975,7 +1030,7 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Tue Aug 27 2024 22:48:59 GMT+0800">
+            <span class="home-article-date" data-date="Tue Aug 27 2024 22:55:23 GMT+0800">
                 
                     2024-08-27
                 
@@ -1023,7 +1078,7 @@
         
     </div>
 
-    <a href="/1719579465163-language-learning-made-simple-and-super-affordable-this-new-year/">Read more<span class="seo-reader-text">Language Learning Made Simple and Super Affordable This New Year</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/introducing-the-precision-of-the-global-scale-of-languages-by-pearson-to-mondly/">Read more<span class="seo-reader-text">Introducing the Precision of the Global Scale of Languages by Pearson to Mondly</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1039,21 +1094,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/1719581198562-norges-language-leap-10-minute-magic/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/ccfb3790f8ad95defe8eeb3081f9de7ed56611e53637f14f1068ca279d4f09ec.jpg" alt="Norge&#39;s Language Leap - 10-Minute Magic" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/international-preference-this-apple-app/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/bed828e860e21f38fd1f019188cab74669ed8a92873ff57d3d957484d8eacf74.jpg" alt="International Preference: This Apple App" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/1719581198562-norges-language-leap-10-minute-magic/">
-                            Norge&#39;s Language Leap - 10-Minute Magic
+                        <a href="/international-preference-this-apple-app/">
+                            International Preference: This Apple App
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes Norge’s Language Leap - 10-Minute Magic</p>
+                            <p>This Article Describes International Preference: This Apple App</p>
 
                         
                     </div>
@@ -1061,7 +1116,7 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Tue Aug 27 2024 22:48:58 GMT+0800">
+            <span class="home-article-date" data-date="Tue Aug 27 2024 22:55:22 GMT+0800">
                 
                     2024-08-27
                 
@@ -1109,7 +1164,7 @@
         
     </div>
 
-    <a href="/1719581198562-norges-language-leap-10-minute-magic/">Read more<span class="seo-reader-text">Norge&#39;s Language Leap - 10-Minute Magic</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/international-preference-this-apple-app/">Read more<span class="seo-reader-text">International Preference: This Apple App</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1125,21 +1180,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/1719580845727-the-ultimate-guide-to-learning-croatian-top-7-reasons-explored/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/0553b37a2d0bfe56c6f7794ae22609d4c46a2b30d090cb5ced8396683e115022.jpg" alt="The Ultimate Guide to Learning Croatian – Top 7 Reasons Explored!" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/international-indulgence-saying-chocolate-in-languages/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/d35e798d7cf8d00e558373e4952ec0178aa0674db22d4cc9c0a2fcdcf78387c6.jpg" alt="International Indulgence: Saying &#39;Chocolate&#39; In Languages" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/1719580845727-the-ultimate-guide-to-learning-croatian-top-7-reasons-explored/">
-                            The Ultimate Guide to Learning Croatian – Top 7 Reasons Explored!
+                        <a href="/international-indulgence-saying-chocolate-in-languages/">
+                            International Indulgence: Saying &#39;Chocolate&#39; In Languages
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes The Ultimate Guide to Learning Croatian – Top 7 Reasons Explored!</p>
+                            <p>This Article Describes International Indulgence: Saying ‘Chocolate’ In Languages</p>
 
                         
                     </div>
@@ -1147,7 +1202,7 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Tue Aug 27 2024 22:48:57 GMT+0800">
+            <span class="home-article-date" data-date="Tue Aug 27 2024 22:55:20 GMT+0800">
                 
                     2024-08-27
                 
@@ -1195,7 +1250,7 @@
         
     </div>
 
-    <a href="/1719580845727-the-ultimate-guide-to-learning-croatian-top-7-reasons-explored/">Read more<span class="seo-reader-text">The Ultimate Guide to Learning Croatian – Top 7 Reasons Explored!</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/international-indulgence-saying-chocolate-in-languages/">Read more<span class="seo-reader-text">International Indulgence: Saying &#39;Chocolate&#39; In Languages</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1211,21 +1266,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/1719581002513-journey-to-a-new-world-start-learning-croatian-today-for-these-7-reasons/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/e5cf76fbd383eaf326a40e9f47ba567bbfc7a691177fb2bbb8430f5442ba8e06.jpg" alt="Journey to a New World – Start Learning Croatian Today for These 7 Reasons" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/minute-math-learning-japanese-digits-now/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/1fe266fd758c5a75e45b03c65cf75f79c47b7be92cf62fce6f2e53504509e2e1.jpg" alt="Minute Math: Learning Japanese Digits Now" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/1719581002513-journey-to-a-new-world-start-learning-croatian-today-for-these-7-reasons/">
-                            Journey to a New World – Start Learning Croatian Today for These 7 Reasons
+                        <a href="/minute-math-learning-japanese-digits-now/">
+                            Minute Math: Learning Japanese Digits Now
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes Journey to a New World – Start Learning Croatian Today for These 7 Reasons</p>
+                            <p>This Article Describes Minute Math: Learning Japanese Digits Now</p>
 
                         
                     </div>
@@ -1233,7 +1288,7 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Tue Aug 27 2024 22:48:56 GMT+0800">
+            <span class="home-article-date" data-date="Tue Aug 27 2024 22:55:19 GMT+0800">
                 
                     2024-08-27
                 
@@ -1281,7 +1336,7 @@
         
     </div>
 
-    <a href="/1719581002513-journey-to-a-new-world-start-learning-croatian-today-for-these-7-reasons/">Read more<span class="seo-reader-text">Journey to a New World – Start Learning Croatian Today for These 7 Reasons</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/minute-math-learning-japanese-digits-now/">Read more<span class="seo-reader-text">Minute Math: Learning Japanese Digits Now</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1297,21 +1352,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/100plus-basic-russian-phrases-every-traveler-needs-to-know/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/14ac9c60c0a7c6de320a160e01c4efc88f6a5375e7f1f2f22a50af90ed0a0cd5.jpg" alt="100+ Basic Russian Phrases Every Traveler Needs To Know" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/precision-leap-in-education-pearsons-updated-gsl-with-mondly/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/b14bd542496e4948fe05bb38f6412cf78aa1b8b18a9d1513181032f4ee05f357.jpg" alt="Precision Leap in Education: Pearson&#39;s Updated GSL with Mondly" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/100plus-basic-russian-phrases-every-traveler-needs-to-know/">
-                            100+ Basic Russian Phrases Every Traveler Needs To Know
+                        <a href="/precision-leap-in-education-pearsons-updated-gsl-with-mondly/">
+                            Precision Leap in Education: Pearson&#39;s Updated GSL with Mondly
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes 100+ Basic Russian Phrases Every Traveler Needs To Know</p>
+                            <p>This Article Describes Precision Leap in Education: Pearson’s Updated GSL with Mondly</p>
 
                         
                     </div>
@@ -1319,7 +1374,7 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Tue Aug 27 2024 22:48:54 GMT+0800">
+            <span class="home-article-date" data-date="Tue Aug 27 2024 22:55:18 GMT+0800">
                 
                     2024-08-27
                 
@@ -1367,7 +1422,7 @@
         
     </div>
 
-    <a href="/100plus-basic-russian-phrases-every-traveler-needs-to-know/">Read more<span class="seo-reader-text">100+ Basic Russian Phrases Every Traveler Needs To Know</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/precision-leap-in-education-pearsons-updated-gsl-with-mondly/">Read more<span class="seo-reader-text">Precision Leap in Education: Pearson&#39;s Updated GSL with Mondly</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1383,21 +1438,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/age-defying-linguistic-ambitions-achieved/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/ff0e2bc796f68a77c989442115175dff38598efbd629d2e9e9c88ebc255585bb.jpg" alt="Age-Defying Linguistic Ambitions Achieved!" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/why-mondly-dominates-in-cutting-edge-learning-tech/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/77d3e1b90c90a1223bd94c398f31bb9940ba742ed134b8bf4a5fe9e955fed55f.jpg" alt="Why Mondly Dominates in Cutting-Edge Learning Tech?" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/age-defying-linguistic-ambitions-achieved/">
-                            Age-Defying Linguistic Ambitions Achieved!
+                        <a href="/why-mondly-dominates-in-cutting-edge-learning-tech/">
+                            Why Mondly Dominates in Cutting-Edge Learning Tech?
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes Age-Defying Linguistic Ambitions Achieved!</p>
+                            <p>This Article Describes Why Mondly Dominates in Cutting-Edge Learning Tech?</p>
 
                         
                     </div>
@@ -1405,7 +1460,7 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Tue Aug 27 2024 22:48:53 GMT+0800">
+            <span class="home-article-date" data-date="Tue Aug 27 2024 22:55:17 GMT+0800">
                 
                     2024-08-27
                 
@@ -1453,7 +1508,7 @@
         
     </div>
 
-    <a href="/age-defying-linguistic-ambitions-achieved/">Read more<span class="seo-reader-text">Age-Defying Linguistic Ambitions Achieved!</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/why-mondly-dominates-in-cutting-edge-learning-tech/">Read more<span class="seo-reader-text">Why Mondly Dominates in Cutting-Edge Learning Tech?</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1469,21 +1524,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/1719581616270-daily-dose-of-slovak-master-speech-minutes-not-hours/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/db3dbeacfdd5ea435b3f8eb406f01646288938a037fe9e28d65cbe9fbebcdbb0.png" alt="Daily Dose of Slovak - Master Speech, Minutes Not Hours!" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/pronouncing-spaniard-sounds-with-accents-correctly/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/2f486f4dd87aa179d36ac9cfba84a9e655bb2170ba42ee253c3df8a8c92937c0.jpg" alt="Pronouncing Spaniard Sounds with Accents Correctly" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/1719581616270-daily-dose-of-slovak-master-speech-minutes-not-hours/">
-                            Daily Dose of Slovak - Master Speech, Minutes Not Hours!
+                        <a href="/pronouncing-spaniard-sounds-with-accents-correctly/">
+                            Pronouncing Spaniard Sounds with Accents Correctly
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes Daily Dose of Slovak - Master Speech, Minutes Not Hours!</p>
+                            <p>This Article Describes Pronouncing Spaniard Sounds with Accents Correctly</p>
 
                         
                     </div>
@@ -1491,7 +1546,7 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Tue Aug 27 2024 22:48:52 GMT+0800">
+            <span class="home-article-date" data-date="Tue Aug 27 2024 22:55:16 GMT+0800">
                 
                     2024-08-27
                 
@@ -1539,7 +1594,7 @@
         
     </div>
 
-    <a href="/1719581616270-daily-dose-of-slovak-master-speech-minutes-not-hours/">Read more<span class="seo-reader-text">Daily Dose of Slovak - Master Speech, Minutes Not Hours!</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/pronouncing-spaniard-sounds-with-accents-correctly/">Read more<span class="seo-reader-text">Pronouncing Spaniard Sounds with Accents Correctly</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>

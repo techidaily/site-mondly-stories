@@ -61,6 +61,63 @@
     <link rel="preload" href="https://cloudflare-cdn.techidaily.com/webfonts/fa-duotone-900.woff2" as="font" crossorigin type="font/woff2">
     <link rel="preload" href="https://cloudflare-cdn.techidaily.com/webfonts/fa-thin-100.woff2" as="font" crossorigin type="font/woff2">
 
+    <!-- tailwind.css -->
+    <script src="https://cloudflare-cdn.techidaily.com/js/libs/tailwindcss.v3.4.5.js" crossorigin></script> 
+    <script>
+    try {
+        tailwind.config = {
+          theme: {
+            extend: {
+              spacing: {
+                unit: "38px",
+              },
+              margin: {
+                "spacing-unit": "38px",
+              },
+              maxWidth: {
+                content: "1280px",
+                "has-toc-content": "120%",
+              },
+              zIndex: {
+                1: 1001,
+                2: 1002,
+                3: 1003,
+                4: 1004,
+                5: 1005,
+                6: 1006,
+                7: 1007,
+                8: 1008,
+                9: 1009,
+              },
+              borderRadius: {
+                none: "0px",
+                xsmall: "4px",
+                small: "9px",
+                medium: "14px",
+                large: "18px",
+                xlarge: "24px",
+                xxlarge: "48px",
+              },
+              fontFamily: {
+                chinese: ["sans-serif"],
+                english: ["Satoshi-Variable", "sans-serif"],
+                default: [
+                  "Satoshi-Variable",
+                  "system-ui",
+                  "sans-serif",
+                ],
+              },
+              fontSize: {
+                default: "16px"
+              },
+              lineHeight: {
+                default: "1.5"
+              }
+            }
+          }
+        }        
+    } catch (e) {}
+    </script>   
 
     <!--- Page Info-->
     
@@ -246,7 +303,7 @@
 
     <script id="hexo-configurations">
     window.config = {"hostname":"mondly-stories.techidaily.com","root":"/","language":"en"};
-    window.theme = {"articles":{"style":{"font_size":"16px","line_height":1.5,"image_border_radius":"0px","image_alignment":"center","image_caption":false,"link_icon":true,"title_alignment":"left","headings_top_spacing":{"h1":"5rem","h2":"4rem","h3":"2.8rem","h4":"2.5rem","h5":"2.2rem","h6":"2rem"}},"word_count":{"enable":true,"count":true,"min2read":true},"author_label":{"enable":true,"auto":false,"list":[]},"code_block":{"copy":true,"style":"mac","font":{"enable":false,"family":null,"url":null}},"toc":{"enable":true,"max_depth":3,"number":false,"expand":true,"init_open":false},"copyright":{"enable":true,"default":"cc_by_nc_sa"},"lazyload":true,"recommendation":{"enable":false,"title":"Recommend","limit":3,"mobile_limit":2,"placeholder":"/images/wallhaven-wqery6-light.webp","skip_dirs":[]}},"colors":{"primary":"#A31F34","secondary":null,"default_mode":"light"},"global":{"fonts":{"chinese":{"enable":false,"family":null,"url":null},"english":{"enable":false,"family":null,"url":null}},"content_max_width":"1000px","sidebar_width":"210px","hover":{"shadow":true,"scale":false},"scroll_progress":{"bar":false,"percentage":true},"website_counter":{"url":"https://cn.vercount.one/js","enable":false,"site_pv":true,"site_uv":true,"post_pv":true},"single_page":true,"preloader":true,"open_graph":true,"google_analytics":{"enable":true,"id":"G-NYMH9T25CD"}},"home_banner":{"enable":true,"style":"fixed","image":{"light":"/images/wallhaven-wqery6-light.webp","dark":"/images/wallhaven-wqery6-dark.webp"},"title":"Enjoy life easier but more creative!","subtitle":{"text":[],"hitokoto":{"enable":false,"api":"https://v1.hitokoto.cn"},"typing_speed":100,"backing_speed":80,"starting_delay":500,"backing_delay":1500,"loop":true,"smart_backspace":true},"text_color":{"light":"#fff","dark":"#d1d1b6"},"text_style":{"title_size":"2.8rem","subtitle_size":"1.5rem","line_height":1.2},"custom_font":{"enable":false,"family":null,"url":null},"social_links":{"enable":false,"style":"default","links":{"github":null,"instagram":null,"zhihu":null,"twitter":null,"email":null},"qrs":{"weixin":null}}},"plugins":{"feed":{"enable":true},"aplayer":{"enable":false,"type":"fixed","audios":[{"name":null,"artist":null,"url":null,"cover":null,"lrc":null}]},"mermaid":{"enable":false,"version":"9.3.0"}},"version":"2.6.1","navbar":{"auto_hide":true,"color":{"left":"#f78736","right":"#367df7","transparency":35},"width":{"home":"1200px","pages":"1000px"},"links":{"Home":{"path":"/","icon":"fa-regular fa-house"},"Tools":{"path":"https://tools.techidaily.com","icon":"fa-regular fa-archive"},"Links":{"icon":"fa-regular fa-link","submenus":{"HowTo":"https://howto.techidaily.com","Mobile Images":"https://img0mobiles.techidaily.com"}},"Privacy":{"path":"/privacy","icon":"fa-regular fa-shield-halved"},"Terms&Conditions":{"path":"/terms_conditions","icon":"fa-regular fa-file-contract"},"About":{"path":"/about","icon":"fa-regular fa-user"}},"search":{"enable":false,"preload":true}},"page_templates":{"friends_column":2,"tags_style":"blur"},"home":{"sidebar":{"enable":true,"position":"left","first_item":"menu","announcement":null,"show_on_mobile":true,"links":null},"article_date_format":"auto","categories":{"enable":true,"limit":3},"tags":{"enable":true,"limit":3}},"footerStart":"2017/8/17 11:45:14"};
+    window.theme = {"articles":{"style":{"font_size":"16px","line_height":1.5,"image_border_radius":"0px","image_alignment":"center","image_caption":false,"link_icon":true,"title_alignment":"left","headings_top_spacing":{"h1":"5rem","h2":"4rem","h3":"2.8rem","h4":"2.5rem","h5":"2.2rem","h6":"2rem"}},"word_count":{"enable":true,"count":true,"min2read":true},"author_label":{"enable":true,"auto":false,"list":[]},"code_block":{"copy":true,"style":"mac","font":{"enable":false,"family":null,"url":null}},"toc":{"enable":true,"max_depth":3,"number":false,"expand":true,"init_open":false},"copyright":{"enable":true,"default":"cc_by_nc_sa"},"lazyload":true,"recommendation":{"enable":false,"title":"Recommend","limit":3,"mobile_limit":2,"placeholder":"/images/wallhaven-wqery6-light.webp","skip_dirs":[]}},"colors":{"primary":"#A31F34","secondary":null,"default_mode":"light"},"global":{"fonts":{"chinese":{"enable":false,"family":null,"url":null},"english":{"enable":false,"family":null,"url":null}},"content_max_width":"1280px","sidebar_width":"210px","hover":{"shadow":true,"scale":false},"scroll_progress":{"bar":false,"percentage":true},"website_counter":{"url":"https://cn.vercount.one/js","enable":false,"site_pv":true,"site_uv":true,"post_pv":true},"single_page":true,"preloader":true,"open_graph":true,"google_analytics":{"enable":true,"id":"G-NYMH9T25CD"}},"home_banner":{"enable":true,"style":"fixed","image":{"light":"/images/wallhaven-wqery6-light.webp","dark":"/images/wallhaven-wqery6-dark.webp"},"title":"Enjoy life easier but more creative!","subtitle":{"text":[],"hitokoto":{"enable":false,"api":"https://v1.hitokoto.cn"},"typing_speed":100,"backing_speed":80,"starting_delay":500,"backing_delay":1500,"loop":true,"smart_backspace":true},"text_color":{"light":"#fff","dark":"#d1d1b6"},"text_style":{"title_size":"2.8rem","subtitle_size":"1.5rem","line_height":1.2},"custom_font":{"enable":false,"family":null,"url":null},"social_links":{"enable":false,"style":"default","links":{"github":null,"instagram":null,"zhihu":null,"twitter":null,"email":null},"qrs":{"weixin":null}}},"plugins":{"feed":{"enable":true},"aplayer":{"enable":false,"type":"fixed","audios":[{"name":null,"artist":null,"url":null,"cover":null,"lrc":null}]},"mermaid":{"enable":false,"version":"9.3.0"}},"version":"2.6.1","navbar":{"auto_hide":true,"color":{"left":"#f78736","right":"#367df7","transparency":35},"width":{"home":"1280px","pages":"1280px"},"links":{"Home":{"path":"/","icon":"fa-regular fa-house"},"Tools":{"path":"https://tools.techidaily.com","icon":"fa-regular fa-archive"},"Links":{"icon":"fa-regular fa-link","submenus":{"HowTo":"https://howto.techidaily.com","Mobile Images":"https://img0mobiles.techidaily.com"}},"Privacy":{"path":"/privacy","icon":"fa-regular fa-shield-halved"},"Terms&Conditions":{"path":"/terms_conditions","icon":"fa-regular fa-file-contract"},"About":{"path":"/about","icon":"fa-regular fa-user"}},"search":{"enable":false,"preload":true}},"page_templates":{"friends_column":2,"tags_style":"blur"},"home":{"sidebar":{"enable":true,"position":"left","first_item":"menu","announcement":null,"show_on_mobile":true,"links":null},"article_date_format":"auto","categories":{"enable":true,"limit":3},"tags":{"enable":true,"limit":3}},"footerStart":"2017/8/17 11:45:14"};
     window.lang_ago = {"second":"%s seconds ago","minute":"%s minutes ago","hour":"%s hours ago","day":"%s days ago","week":"%s weeks ago","month":"%s months ago","year":"%s years ago"};
     window.data = {"masonry":false};
   </script>
@@ -264,8 +321,6 @@
     
     
     
-    <!-- tailwind.css -->
-    <script async src="https://cloudflare-cdn.techidaily.com/js/libs/tailwindcss.v3.4.5.js" crossorigin></script>
 <meta name="generator" content="Hexo 7.3.0"><link rel="alternate" href="/atom.xml" title="Mondly Stories" type="application/atom+xml">
 </head>
 
@@ -695,21 +750,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/from-latin-to-modernity-spains-spanish-vs-portugals-portuguese/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/8acacdc22230e6f80289d91bcd880583b7cb15e9e01a6f044249c64c2e7db27f.jpg" alt="From Latin to Modernity: Spain&#39;s Spanish Vs. Portugal&#39;s Portuguese" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/embrace-the-future-with-a-new-ai-dialogue-partner/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/597edf717990ca62361393de3d070cd39e4e090d77618c1c86673588d21031a3.jpeg" alt="Embrace the Future with a New AI Dialogue Partner" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/from-latin-to-modernity-spains-spanish-vs-portugals-portuguese/">
-                            From Latin to Modernity: Spain&#39;s Spanish Vs. Portugal&#39;s Portuguese
+                        <a href="/embrace-the-future-with-a-new-ai-dialogue-partner/">
+                            Embrace the Future with a New AI Dialogue Partner
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes From Latin to Modernity: Spain’s Spanish Vs. Portugal’s Portuguese</p>
+                            <p>This Article Describes Embrace the Future with a New AI Dialogue Partner</p>
 
                         
                     </div>
@@ -717,9 +772,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Mon Jul 29 2024 06:49:21 GMT+0800">
+            <span class="home-article-date" data-date="Thu Aug 08 2024 09:25:55 GMT+0800">
                 
-                    2024-07-29
+                    2024-08-08
                 
             </span>
         </span>
@@ -765,7 +820,7 @@
         
     </div>
 
-    <a href="/from-latin-to-modernity-spains-spanish-vs-portugals-portuguese/">Read more<span class="seo-reader-text">From Latin to Modernity: Spain&#39;s Spanish Vs. Portugal&#39;s Portuguese</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/embrace-the-future-with-a-new-ai-dialogue-partner/">Read more<span class="seo-reader-text">Embrace the Future with a New AI Dialogue Partner</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -781,21 +836,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/exploring-slavic-ties-ukrainian-and-russian/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/ab578454ad6a3b390bf0a2c62c4ff10914131d163b29599a64c4c6748f645e74.jpg" alt="Exploring Slavic Ties: Ukrainian &amp; Russian" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/deciphering-japans-characters-and-script/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/b0c789775642f2ac1a082c3710ec3e71a5c2db92094d509f8f2ac2b5d87390af.jpg" alt="Deciphering Japan&#39;s Characters and Script" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/exploring-slavic-ties-ukrainian-and-russian/">
-                            Exploring Slavic Ties: Ukrainian &amp; Russian
+                        <a href="/deciphering-japans-characters-and-script/">
+                            Deciphering Japan&#39;s Characters and Script
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes Exploring Slavic Ties: Ukrainian &amp; Russian</p>
+                            <p>This Article Describes Deciphering Japan’s Characters and Script</p>
 
                         
                     </div>
@@ -803,9 +858,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Mon Jul 29 2024 06:49:20 GMT+0800">
+            <span class="home-article-date" data-date="Thu Aug 08 2024 09:25:54 GMT+0800">
                 
-                    2024-07-29
+                    2024-08-08
                 
             </span>
         </span>
@@ -851,7 +906,7 @@
         
     </div>
 
-    <a href="/exploring-slavic-ties-ukrainian-and-russian/">Read more<span class="seo-reader-text">Exploring Slavic Ties: Ukrainian &amp; Russian</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/deciphering-japans-characters-and-script/">Read more<span class="seo-reader-text">Deciphering Japan&#39;s Characters and Script</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -867,21 +922,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/free-words-to-freedom-mondly-empowers-ukrainians/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/042cea82a1fcfb2242b9880aa52ff1cf0cb7e4c3cd3e6dc3d81f2870623c2d81.jpg" alt="Free Words to Freedom: Mondly Empowers Ukrainians" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/deciphering-global-patterns-in-french-speaking-populations/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/5da3799a8bedda4d69cf1376b93deacb85f38c0ac9294944d02b8e17d908c0f4.png" alt="Deciphering Global Patterns in French-Speaking Populations" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/free-words-to-freedom-mondly-empowers-ukrainians/">
-                            Free Words to Freedom: Mondly Empowers Ukrainians
+                        <a href="/deciphering-global-patterns-in-french-speaking-populations/">
+                            Deciphering Global Patterns in French-Speaking Populations
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes Free Words to Freedom: Mondly Empowers Ukrainians</p>
+                            <p>This Article Describes Deciphering Global Patterns in French-Speaking Populations</p>
 
                         
                     </div>
@@ -889,9 +944,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Mon Jul 29 2024 06:49:19 GMT+0800">
+            <span class="home-article-date" data-date="Thu Aug 08 2024 09:25:53 GMT+0800">
                 
-                    2024-07-29
+                    2024-08-08
                 
             </span>
         </span>
@@ -937,7 +992,7 @@
         
     </div>
 
-    <a href="/free-words-to-freedom-mondly-empowers-ukrainians/">Read more<span class="seo-reader-text">Free Words to Freedom: Mondly Empowers Ukrainians</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/deciphering-global-patterns-in-french-speaking-populations/">Read more<span class="seo-reader-text">Deciphering Global Patterns in French-Speaking Populations</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -953,21 +1008,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/essential-guide-speaking-french-from-home/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/363cfd8ccc7387dbea9a9af2228add755c6db4677ce3ea0f3af2ecf0cae0e8a1.jpg" alt="Essential Guide: Speaking French From Home" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/dive-into-down-under-slang-a-comprehensible-guide/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/b993525d5116d4df453998a70a05051f65231397420add6e99e93d21f420e273.JPG" alt="Dive Into Down Under Slang: A Comprehensible Guide" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/essential-guide-speaking-french-from-home/">
-                            Essential Guide: Speaking French From Home
+                        <a href="/dive-into-down-under-slang-a-comprehensible-guide/">
+                            Dive Into Down Under Slang: A Comprehensible Guide
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes Essential Guide: Speaking French From Home</p>
+                            <p>This Article Describes Dive Into Down Under Slang: A Comprehensible Guide</p>
 
                         
                     </div>
@@ -975,9 +1030,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Mon Jul 29 2024 06:49:19 GMT+0800">
+            <span class="home-article-date" data-date="Thu Aug 08 2024 09:25:52 GMT+0800">
                 
-                    2024-07-29
+                    2024-08-08
                 
             </span>
         </span>
@@ -1023,7 +1078,7 @@
         
     </div>
 
-    <a href="/essential-guide-speaking-french-from-home/">Read more<span class="seo-reader-text">Essential Guide: Speaking French From Home</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/dive-into-down-under-slang-a-comprehensible-guide/">Read more<span class="seo-reader-text">Dive Into Down Under Slang: A Comprehensible Guide</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1039,21 +1094,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/from-novice-to-expert-in-german-with-darks-help/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/dc54f112c78b3afb0110331eb25c5f493a4d3b2149d6ee352dfe8394d4845198.jpg" alt="From Novice to Expert in German - With Dark&#39;s Help" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/dawn-of-the-bulbarian-10m-daily-study/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/80eceb8d178e7070d961e9242a3b69515c63dafd8e5fc7dc88cdf6b3a3cfcace.jpg" alt="Dawn of the Bulbarian: 10M Daily Study" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/from-novice-to-expert-in-german-with-darks-help/">
-                            From Novice to Expert in German - With Dark&#39;s Help
+                        <a href="/dawn-of-the-bulbarian-10m-daily-study/">
+                            Dawn of the Bulbarian: 10M Daily Study
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes From Novice to Expert in German - With Dark’s Help</p>
+                            <p>This Article Describes Dawn of the Bulbarian: 10M Daily Study</p>
 
                         
                     </div>
@@ -1061,9 +1116,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Mon Jul 29 2024 06:49:18 GMT+0800">
+            <span class="home-article-date" data-date="Thu Aug 08 2024 09:25:51 GMT+0800">
                 
-                    2024-07-29
+                    2024-08-08
                 
             </span>
         </span>
@@ -1109,7 +1164,7 @@
         
     </div>
 
-    <a href="/from-novice-to-expert-in-german-with-darks-help/">Read more<span class="seo-reader-text">From Novice to Expert in German - With Dark&#39;s Help</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/dawn-of-the-bulbarian-10m-daily-study/">Read more<span class="seo-reader-text">Dawn of the Bulbarian: 10M Daily Study</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1125,21 +1180,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/from-latin-origins-to-contemporary-expressions/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/ef126118f50b6cc91b0e402fe75cfce958a6a6e6b161357abe8bae35407eca1c.jpg" alt="From Latin Origins to Contemporary Expressions" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/diverse-expressions-of-hello/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/157b4e9d1934c1c32aca2d6b6705f77b73d99232e75edfde8c6b1f3606739a33.jpg" alt="Diverse Expressions of Hello" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/from-latin-origins-to-contemporary-expressions/">
-                            From Latin Origins to Contemporary Expressions
+                        <a href="/diverse-expressions-of-hello/">
+                            Diverse Expressions of Hello
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes From Latin Origins to Contemporary Expressions</p>
+                            <p>This Article Describes Diverse Expressions of Hello</p>
 
                         
                     </div>
@@ -1147,9 +1202,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Mon Jul 29 2024 06:49:17 GMT+0800">
+            <span class="home-article-date" data-date="Thu Aug 08 2024 09:25:50 GMT+0800">
                 
-                    2024-07-29
+                    2024-08-08
                 
             </span>
         </span>
@@ -1195,7 +1250,7 @@
         
     </div>
 
-    <a href="/from-latin-origins-to-contemporary-expressions/">Read more<span class="seo-reader-text">From Latin Origins to Contemporary Expressions</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/diverse-expressions-of-hello/">Read more<span class="seo-reader-text">Diverse Expressions of Hello</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1211,21 +1266,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/enhance-your-eloquence-top-50-latin-maxims-and-aphorisms/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/9f799a63c5ced001089eec847a965c77100b85a292d3d2c56946946b1d875c1f.jpg" alt="Enhance Your Eloquence: Top 50 Latin Maxims &amp; Aphorisms" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/cultural-skeletons-the-many-faces-of-halloween/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/d66a628fa0cf48140c10b181f20d8c3673ed432efe3b9eaa0c987c81fd05af8c.jpg" alt="Cultural Skeletons: The Many Faces of Halloween" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/enhance-your-eloquence-top-50-latin-maxims-and-aphorisms/">
-                            Enhance Your Eloquence: Top 50 Latin Maxims &amp; Aphorisms
+                        <a href="/cultural-skeletons-the-many-faces-of-halloween/">
+                            Cultural Skeletons: The Many Faces of Halloween
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes Enhance Your Eloquence: Top 50 Latin Maxims &amp; Aphorisms</p>
+                            <p>This Article Describes Cultural Skeletons: The Many Faces of Halloween</p>
 
                         
                     </div>
@@ -1233,9 +1288,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Mon Jul 29 2024 06:49:16 GMT+0800">
+            <span class="home-article-date" data-date="Thu Aug 08 2024 09:25:49 GMT+0800">
                 
-                    2024-07-29
+                    2024-08-08
                 
             </span>
         </span>
@@ -1281,7 +1336,7 @@
         
     </div>
 
-    <a href="/enhance-your-eloquence-top-50-latin-maxims-and-aphorisms/">Read more<span class="seo-reader-text">Enhance Your Eloquence: Top 50 Latin Maxims &amp; Aphorisms</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/cultural-skeletons-the-many-faces-of-halloween/">Read more<span class="seo-reader-text">Cultural Skeletons: The Many Faces of Halloween</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1297,21 +1352,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/entrelacando-o-portugues-melhores-frases-para-fazer-amizade/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/fea6185edc685da72ba963a46eed57a3a71d461697393364ab3bd89b9977de72.jpg" alt="Entrelaçando O Português: Melhores Frases Para Fazer Amizade" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/decoding-turkish-korean-communication-riddles/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/49f07ba1564e1ad5829085791d56fbd558cd9b6be43ee97117663280d85142ff.jpg" alt="Decoding Turkish-Korean Communication Riddles" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/entrelacando-o-portugues-melhores-frases-para-fazer-amizade/">
-                            Entrelaçando O Português: Melhores Frases Para Fazer Amizade
+                        <a href="/decoding-turkish-korean-communication-riddles/">
+                            Decoding Turkish-Korean Communication Riddles
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes Entrelaçando O Português: Melhores Frases Para Fazer Amizade</p>
+                            <p>This Article Describes Decoding Turkish-Korean Communication Riddles</p>
 
                         
                     </div>
@@ -1319,9 +1374,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Mon Jul 29 2024 06:49:15 GMT+0800">
+            <span class="home-article-date" data-date="Thu Aug 08 2024 09:25:48 GMT+0800">
                 
-                    2024-07-29
+                    2024-08-08
                 
             </span>
         </span>
@@ -1367,7 +1422,7 @@
         
     </div>
 
-    <a href="/entrelacando-o-portugues-melhores-frases-para-fazer-amizade/">Read more<span class="seo-reader-text">Entrelaçando O Português: Melhores Frases Para Fazer Amizade</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/decoding-turkish-korean-communication-riddles/">Read more<span class="seo-reader-text">Decoding Turkish-Korean Communication Riddles</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1383,21 +1438,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/from-bean-to-bite-translating-chocolate-in-global-tongues/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/e99583f6b5b06e719853b0ad4d8e79890585ba4f6bebb22736b51161b0bbe49e.jpg" alt="From Bean to Bite: Translating &#39;Chocolate&#39; In Global Tongues" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/dannys-colombian-efforts-for-disadvantaged-communities/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/08bfc68ca7424de532f1e4f97e0746486dfe84c1304de3ac8c4843a110a218e6.jpg" alt="Danny&#39;s Colombian Efforts for Disadvantaged Communities" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/from-bean-to-bite-translating-chocolate-in-global-tongues/">
-                            From Bean to Bite: Translating &#39;Chocolate&#39; In Global Tongues
+                        <a href="/dannys-colombian-efforts-for-disadvantaged-communities/">
+                            Danny&#39;s Colombian Efforts for Disadvantaged Communities
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes From Bean to Bite: Translating ‘Chocolate’ In Global Tongues</p>
+                            <p>This Article Describes Danny’s Colombian Efforts for Disadvantaged Communities</p>
 
                         
                     </div>
@@ -1405,9 +1460,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Mon Jul 29 2024 06:49:14 GMT+0800">
+            <span class="home-article-date" data-date="Thu Aug 08 2024 09:25:47 GMT+0800">
                 
-                    2024-07-29
+                    2024-08-08
                 
             </span>
         </span>
@@ -1453,7 +1508,7 @@
         
     </div>
 
-    <a href="/from-bean-to-bite-translating-chocolate-in-global-tongues/">Read more<span class="seo-reader-text">From Bean to Bite: Translating &#39;Chocolate&#39; In Global Tongues</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/dannys-colombian-efforts-for-disadvantaged-communities/">Read more<span class="seo-reader-text">Danny&#39;s Colombian Efforts for Disadvantaged Communities</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1469,21 +1524,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/exploring-ais-role-in-shaping-linguistic-abilities/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/d35c94f12f755c322517a2947b55e4796f16febf7bfe5d4d03e4ed968b83a331.jpg" alt="Exploring AI&#39;s Role in Shaping Linguistic Abilities" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/earths-linguistic-heavyweights-countdown-to-5/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/84772a0e20318a50277b6d80239d31259f3d754cba45388a4148935e78d13735.jpg" alt="Earth&#39;s Linguistic Heavyweights: Countdown to #5" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/exploring-ais-role-in-shaping-linguistic-abilities/">
-                            Exploring AI&#39;s Role in Shaping Linguistic Abilities
+                        <a href="/earths-linguistic-heavyweights-countdown-to-5/">
+                            Earth&#39;s Linguistic Heavyweights: Countdown to #5
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes Exploring AI’s Role in Shaping Linguistic Abilities</p>
+                            <p>This Article Describes Earth’s Linguistic Heavyweights: Countdown to #5</p>
 
                         
                     </div>
@@ -1491,9 +1546,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Mon Jul 29 2024 06:49:14 GMT+0800">
+            <span class="home-article-date" data-date="Thu Aug 08 2024 09:25:46 GMT+0800">
                 
-                    2024-07-29
+                    2024-08-08
                 
             </span>
         </span>
@@ -1539,7 +1594,7 @@
         
     </div>
 
-    <a href="/exploring-ais-role-in-shaping-linguistic-abilities/">Read more<span class="seo-reader-text">Exploring AI&#39;s Role in Shaping Linguistic Abilities</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/earths-linguistic-heavyweights-countdown-to-5/">Read more<span class="seo-reader-text">Earth&#39;s Linguistic Heavyweights: Countdown to #5</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>

@@ -61,6 +61,63 @@
     <link rel="preload" href="https://cloudflare-cdn.techidaily.com/webfonts/fa-duotone-900.woff2" as="font" crossorigin type="font/woff2">
     <link rel="preload" href="https://cloudflare-cdn.techidaily.com/webfonts/fa-thin-100.woff2" as="font" crossorigin type="font/woff2">
 
+    <!-- tailwind.css -->
+    <script src="https://cloudflare-cdn.techidaily.com/js/libs/tailwindcss.v3.4.5.js" crossorigin></script> 
+    <script>
+    try {
+        tailwind.config = {
+          theme: {
+            extend: {
+              spacing: {
+                unit: "38px",
+              },
+              margin: {
+                "spacing-unit": "38px",
+              },
+              maxWidth: {
+                content: "1280px",
+                "has-toc-content": "120%",
+              },
+              zIndex: {
+                1: 1001,
+                2: 1002,
+                3: 1003,
+                4: 1004,
+                5: 1005,
+                6: 1006,
+                7: 1007,
+                8: 1008,
+                9: 1009,
+              },
+              borderRadius: {
+                none: "0px",
+                xsmall: "4px",
+                small: "9px",
+                medium: "14px",
+                large: "18px",
+                xlarge: "24px",
+                xxlarge: "48px",
+              },
+              fontFamily: {
+                chinese: ["sans-serif"],
+                english: ["Satoshi-Variable", "sans-serif"],
+                default: [
+                  "Satoshi-Variable",
+                  "system-ui",
+                  "sans-serif",
+                ],
+              },
+              fontSize: {
+                default: "16px"
+              },
+              lineHeight: {
+                default: "1.5"
+              }
+            }
+          }
+        }        
+    } catch (e) {}
+    </script>   
 
     <!--- Page Info-->
     
@@ -246,7 +303,7 @@
 
     <script id="hexo-configurations">
     window.config = {"hostname":"mondly-stories.techidaily.com","root":"/","language":"en"};
-    window.theme = {"articles":{"style":{"font_size":"16px","line_height":1.5,"image_border_radius":"0px","image_alignment":"center","image_caption":false,"link_icon":true,"title_alignment":"left","headings_top_spacing":{"h1":"5rem","h2":"4rem","h3":"2.8rem","h4":"2.5rem","h5":"2.2rem","h6":"2rem"}},"word_count":{"enable":true,"count":true,"min2read":true},"author_label":{"enable":true,"auto":false,"list":[]},"code_block":{"copy":true,"style":"mac","font":{"enable":false,"family":null,"url":null}},"toc":{"enable":true,"max_depth":3,"number":false,"expand":true,"init_open":false},"copyright":{"enable":true,"default":"cc_by_nc_sa"},"lazyload":true,"recommendation":{"enable":false,"title":"Recommend","limit":3,"mobile_limit":2,"placeholder":"/images/wallhaven-wqery6-light.webp","skip_dirs":[]}},"colors":{"primary":"#A31F34","secondary":null,"default_mode":"light"},"global":{"fonts":{"chinese":{"enable":false,"family":null,"url":null},"english":{"enable":false,"family":null,"url":null}},"content_max_width":"1000px","sidebar_width":"210px","hover":{"shadow":true,"scale":false},"scroll_progress":{"bar":false,"percentage":true},"website_counter":{"url":"https://cn.vercount.one/js","enable":false,"site_pv":true,"site_uv":true,"post_pv":true},"single_page":true,"preloader":true,"open_graph":true,"google_analytics":{"enable":true,"id":"G-NYMH9T25CD"}},"home_banner":{"enable":true,"style":"fixed","image":{"light":"/images/wallhaven-wqery6-light.webp","dark":"/images/wallhaven-wqery6-dark.webp"},"title":"Enjoy life easier but more creative!","subtitle":{"text":[],"hitokoto":{"enable":false,"api":"https://v1.hitokoto.cn"},"typing_speed":100,"backing_speed":80,"starting_delay":500,"backing_delay":1500,"loop":true,"smart_backspace":true},"text_color":{"light":"#fff","dark":"#d1d1b6"},"text_style":{"title_size":"2.8rem","subtitle_size":"1.5rem","line_height":1.2},"custom_font":{"enable":false,"family":null,"url":null},"social_links":{"enable":false,"style":"default","links":{"github":null,"instagram":null,"zhihu":null,"twitter":null,"email":null},"qrs":{"weixin":null}}},"plugins":{"feed":{"enable":true},"aplayer":{"enable":false,"type":"fixed","audios":[{"name":null,"artist":null,"url":null,"cover":null,"lrc":null}]},"mermaid":{"enable":false,"version":"9.3.0"}},"version":"2.6.1","navbar":{"auto_hide":true,"color":{"left":"#f78736","right":"#367df7","transparency":35},"width":{"home":"1200px","pages":"1000px"},"links":{"Home":{"path":"/","icon":"fa-regular fa-house"},"Tools":{"path":"https://tools.techidaily.com","icon":"fa-regular fa-archive"},"Links":{"icon":"fa-regular fa-link","submenus":{"HowTo":"https://howto.techidaily.com","Mobile Images":"https://img0mobiles.techidaily.com"}},"Privacy":{"path":"/privacy","icon":"fa-regular fa-shield-halved"},"Terms&Conditions":{"path":"/terms_conditions","icon":"fa-regular fa-file-contract"},"About":{"path":"/about","icon":"fa-regular fa-user"}},"search":{"enable":false,"preload":true}},"page_templates":{"friends_column":2,"tags_style":"blur"},"home":{"sidebar":{"enable":true,"position":"left","first_item":"menu","announcement":null,"show_on_mobile":true,"links":null},"article_date_format":"auto","categories":{"enable":true,"limit":3},"tags":{"enable":true,"limit":3}},"footerStart":"2017/8/17 11:45:14"};
+    window.theme = {"articles":{"style":{"font_size":"16px","line_height":1.5,"image_border_radius":"0px","image_alignment":"center","image_caption":false,"link_icon":true,"title_alignment":"left","headings_top_spacing":{"h1":"5rem","h2":"4rem","h3":"2.8rem","h4":"2.5rem","h5":"2.2rem","h6":"2rem"}},"word_count":{"enable":true,"count":true,"min2read":true},"author_label":{"enable":true,"auto":false,"list":[]},"code_block":{"copy":true,"style":"mac","font":{"enable":false,"family":null,"url":null}},"toc":{"enable":true,"max_depth":3,"number":false,"expand":true,"init_open":false},"copyright":{"enable":true,"default":"cc_by_nc_sa"},"lazyload":true,"recommendation":{"enable":false,"title":"Recommend","limit":3,"mobile_limit":2,"placeholder":"/images/wallhaven-wqery6-light.webp","skip_dirs":[]}},"colors":{"primary":"#A31F34","secondary":null,"default_mode":"light"},"global":{"fonts":{"chinese":{"enable":false,"family":null,"url":null},"english":{"enable":false,"family":null,"url":null}},"content_max_width":"1280px","sidebar_width":"210px","hover":{"shadow":true,"scale":false},"scroll_progress":{"bar":false,"percentage":true},"website_counter":{"url":"https://cn.vercount.one/js","enable":false,"site_pv":true,"site_uv":true,"post_pv":true},"single_page":true,"preloader":true,"open_graph":true,"google_analytics":{"enable":true,"id":"G-NYMH9T25CD"}},"home_banner":{"enable":true,"style":"fixed","image":{"light":"/images/wallhaven-wqery6-light.webp","dark":"/images/wallhaven-wqery6-dark.webp"},"title":"Enjoy life easier but more creative!","subtitle":{"text":[],"hitokoto":{"enable":false,"api":"https://v1.hitokoto.cn"},"typing_speed":100,"backing_speed":80,"starting_delay":500,"backing_delay":1500,"loop":true,"smart_backspace":true},"text_color":{"light":"#fff","dark":"#d1d1b6"},"text_style":{"title_size":"2.8rem","subtitle_size":"1.5rem","line_height":1.2},"custom_font":{"enable":false,"family":null,"url":null},"social_links":{"enable":false,"style":"default","links":{"github":null,"instagram":null,"zhihu":null,"twitter":null,"email":null},"qrs":{"weixin":null}}},"plugins":{"feed":{"enable":true},"aplayer":{"enable":false,"type":"fixed","audios":[{"name":null,"artist":null,"url":null,"cover":null,"lrc":null}]},"mermaid":{"enable":false,"version":"9.3.0"}},"version":"2.6.1","navbar":{"auto_hide":true,"color":{"left":"#f78736","right":"#367df7","transparency":35},"width":{"home":"1280px","pages":"1280px"},"links":{"Home":{"path":"/","icon":"fa-regular fa-house"},"Tools":{"path":"https://tools.techidaily.com","icon":"fa-regular fa-archive"},"Links":{"icon":"fa-regular fa-link","submenus":{"HowTo":"https://howto.techidaily.com","Mobile Images":"https://img0mobiles.techidaily.com"}},"Privacy":{"path":"/privacy","icon":"fa-regular fa-shield-halved"},"Terms&Conditions":{"path":"/terms_conditions","icon":"fa-regular fa-file-contract"},"About":{"path":"/about","icon":"fa-regular fa-user"}},"search":{"enable":false,"preload":true}},"page_templates":{"friends_column":2,"tags_style":"blur"},"home":{"sidebar":{"enable":true,"position":"left","first_item":"menu","announcement":null,"show_on_mobile":true,"links":null},"article_date_format":"auto","categories":{"enable":true,"limit":3},"tags":{"enable":true,"limit":3}},"footerStart":"2017/8/17 11:45:14"};
     window.lang_ago = {"second":"%s seconds ago","minute":"%s minutes ago","hour":"%s hours ago","day":"%s days ago","week":"%s weeks ago","month":"%s months ago","year":"%s years ago"};
     window.data = {"masonry":false};
   </script>
@@ -264,8 +321,6 @@
     
     
     
-    <!-- tailwind.css -->
-    <script async src="https://cloudflare-cdn.techidaily.com/js/libs/tailwindcss.v3.4.5.js" crossorigin></script>
 <meta name="generator" content="Hexo 7.3.0"><link rel="alternate" href="/atom.xml" title="Mondly Stories" type="application/atom+xml">
 </head>
 
@@ -695,21 +750,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/world-languages-fusing-into-the-english-phonetic-palette/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/e874e7774ed1bae47e14908261fcbf31de304eed1c8fec16cc5f931b201e9fca.jpg" alt="World Languages Fusing Into the English Phonetic Palette" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/15-premier-words-of-the-planet/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/36b09f7ccaa9c81816aab7eda16cf8f7440a1a40a70bb2dcfcf0284506d79ec5.jpg" alt="15 Premier Words of the Planet" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/world-languages-fusing-into-the-english-phonetic-palette/">
-                            World Languages Fusing Into the English Phonetic Palette
+                        <a href="/15-premier-words-of-the-planet/">
+                            15 Premier Words of the Planet
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes World Languages Fusing Into the English Phonetic Palette</p>
+                            <p>This Article Describes 15 Premier Words of the Planet</p>
 
                         
                     </div>
@@ -717,9 +772,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Tue Aug 27 2024 22:57:26 GMT+0800">
+            <span class="home-article-date" data-date="Sun Sep 01 2024 00:14:28 GMT+0800">
                 
-                    2024-08-27
+                    2024-09-01
                 
             </span>
         </span>
@@ -765,7 +820,7 @@
         
     </div>
 
-    <a href="/world-languages-fusing-into-the-english-phonetic-palette/">Read more<span class="seo-reader-text">World Languages Fusing Into the English Phonetic Palette</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/15-premier-words-of-the-planet/">Read more<span class="seo-reader-text">15 Premier Words of the Planet</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -781,21 +836,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/mondly-the-collaborative-language-learning-experience-approved-by-google/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/698acf9899d7549d0c21beb422c9a4efb393d0c106634028a5e9ccbf41fc2d01.jpg" alt="Mondly: The Collaborative Language Learning Experience, Approved by Google" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/1719579122156-effortless-norsk-acquisition-short-sessions/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/6d037ed02bb78c8d6ffd1b34444df7b04ee29318597dde2ea49af183ae0562b3.png" alt="Effortless Norsk Acquisition - Short Sessions!" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/mondly-the-collaborative-language-learning-experience-approved-by-google/">
-                            Mondly: The Collaborative Language Learning Experience, Approved by Google
+                        <a href="/1719579122156-effortless-norsk-acquisition-short-sessions/">
+                            Effortless Norsk Acquisition - Short Sessions!
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes Mondly: The Collaborative Language Learning Experience, Approved by Google</p>
+                            <p>This Article Describes Effortless Norsk Acquisition - Short Sessions!</p>
 
                         
                     </div>
@@ -803,9 +858,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Tue Aug 27 2024 22:57:24 GMT+0800">
+            <span class="home-article-date" data-date="Sun Sep 01 2024 00:14:26 GMT+0800">
                 
-                    2024-08-27
+                    2024-09-01
                 
             </span>
         </span>
@@ -851,7 +906,7 @@
         
     </div>
 
-    <a href="/mondly-the-collaborative-language-learning-experience-approved-by-google/">Read more<span class="seo-reader-text">Mondly: The Collaborative Language Learning Experience, Approved by Google</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/1719579122156-effortless-norsk-acquisition-short-sessions/">Read more<span class="seo-reader-text">Effortless Norsk Acquisition - Short Sessions!</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -867,21 +922,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/new-language-feature-on-oculus-quest-with-mondly-integration/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/6404644d3e1ec95170f598da6ea66bbff597c34cc3f9580cc8d7755b3643dcab.png" alt="New Language Feature on Oculus Quest with Mondly Integration" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/a-lifelong-guide-to-spanish-verbal-patterns/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/d00d489dab3eb54e89c3ca7ade1be65a3363127e621a133942b5008a80266cd9.jpg" alt="A Lifelong Guide to Spanish Verbal Patterns" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/new-language-feature-on-oculus-quest-with-mondly-integration/">
-                            New Language Feature on Oculus Quest with Mondly Integration
+                        <a href="/a-lifelong-guide-to-spanish-verbal-patterns/">
+                            A Lifelong Guide to Spanish Verbal Patterns
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes New Language Feature on Oculus Quest with Mondly Integration</p>
+                            <p>This Article Describes A Lifelong Guide to Spanish Verbal Patterns</p>
 
                         
                     </div>
@@ -889,9 +944,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Tue Aug 27 2024 22:57:23 GMT+0800">
+            <span class="home-article-date" data-date="Sun Sep 01 2024 00:14:25 GMT+0800">
                 
-                    2024-08-27
+                    2024-09-01
                 
             </span>
         </span>
@@ -937,7 +992,7 @@
         
     </div>
 
-    <a href="/new-language-feature-on-oculus-quest-with-mondly-integration/">Read more<span class="seo-reader-text">New Language Feature on Oculus Quest with Mondly Integration</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/a-lifelong-guide-to-spanish-verbal-patterns/">Read more<span class="seo-reader-text">A Lifelong Guide to Spanish Verbal Patterns</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -953,21 +1008,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/universal-introduction-strategies/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/287414ff43ab53f27880b8114eed3693184381a70cdfc416ba85990af80f04e8.jpg" alt="Universal Introduction Strategies" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/1719576338655-transform-your-life-through-hindi-discover-8-compelling-mondly-benefits/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/36a0feb333642fafe6d899d77e13984485a54242ddf28da6d8e7c4998067f22e.jpg" alt="Transform Your Life Through Hindi: Discover 8 Compelling Mondly Benefits" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/universal-introduction-strategies/">
-                            Universal Introduction Strategies
+                        <a href="/1719576338655-transform-your-life-through-hindi-discover-8-compelling-mondly-benefits/">
+                            Transform Your Life Through Hindi: Discover 8 Compelling Mondly Benefits
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes Universal Introduction Strategies</p>
+                            <p>This Article Describes Transform Your Life Through Hindi: Discover 8 Compelling Mondly Benefits</p>
 
                         
                     </div>
@@ -975,9 +1030,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Tue Aug 27 2024 22:57:22 GMT+0800">
+            <span class="home-article-date" data-date="Sun Sep 01 2024 00:14:24 GMT+0800">
                 
-                    2024-08-27
+                    2024-09-01
                 
             </span>
         </span>
@@ -1023,7 +1078,7 @@
         
     </div>
 
-    <a href="/universal-introduction-strategies/">Read more<span class="seo-reader-text">Universal Introduction Strategies</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/1719576338655-transform-your-life-through-hindi-discover-8-compelling-mondly-benefits/">Read more<span class="seo-reader-text">Transform Your Life Through Hindi: Discover 8 Compelling Mondly Benefits</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1039,21 +1094,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/guide-de-la-physiologie-composants-bodily-en-francais/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/09d90f71aa46b1fd9d4bcc7810bb203ff9683f8d93c042d20e109ab131454cc4.jpg" alt="Guide De La Physiologie: Composants Bodily en Français" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/1719581331881-mondly-by-pearson/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/731e7d95cb104fd0f2b4a441263b2d39fb916acbe1dcf99883081e6f54b5961f.jpg" alt="Mondly by Pearson" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/guide-de-la-physiologie-composants-bodily-en-francais/">
-                            Guide De La Physiologie: Composants Bodily en Français
+                        <a href="/1719581331881-mondly-by-pearson/">
+                            Mondly by Pearson
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes Guide De La Physiologie: Composants Bodily en Français</p>
+                            <p>This Article Describes Mondly by Pearson</p>
 
                         
                     </div>
@@ -1061,9 +1116,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Tue Aug 27 2024 22:57:21 GMT+0800">
+            <span class="home-article-date" data-date="Sun Sep 01 2024 00:14:22 GMT+0800">
                 
-                    2024-08-27
+                    2024-09-01
                 
             </span>
         </span>
@@ -1109,7 +1164,7 @@
         
     </div>
 
-    <a href="/guide-de-la-physiologie-composants-bodily-en-francais/">Read more<span class="seo-reader-text">Guide De La Physiologie: Composants Bodily en Français</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/1719581331881-mondly-by-pearson/">Read more<span class="seo-reader-text">Mondly by Pearson</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1125,21 +1180,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/top-screenplays-from-diverse-cultures-to-learn-languages/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/2ce87a986250d8398be45eae1ecaf9f012f12535b14ea9611940de411cb7abe5.jpg" alt="Top Screenplays From Diverse Cultures to Learn Languages" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/ausdauer-der-sprache-deutsche-grusse-abseits-von-hallo/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/22aa5877473f7aef18423fbe77d7ea5e7e2937ae2cb99e9b5ca8066747f3813d.jpg" alt="Ausdauer Der Sprache: Deutsche Grüße Abseits Von Hallo" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/top-screenplays-from-diverse-cultures-to-learn-languages/">
-                            Top Screenplays From Diverse Cultures to Learn Languages
+                        <a href="/ausdauer-der-sprache-deutsche-grusse-abseits-von-hallo/">
+                            Ausdauer Der Sprache: Deutsche Grüße Abseits Von Hallo
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes Top Screenplays From Diverse Cultures to Learn Languages</p>
+                            <p>This Article Describes Ausdauer Der Sprache: Deutsche Grüße Abseits Von Hallo</p>
 
                         
                     </div>
@@ -1147,9 +1202,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Tue Aug 27 2024 22:57:19 GMT+0800">
+            <span class="home-article-date" data-date="Sun Sep 01 2024 00:14:21 GMT+0800">
                 
-                    2024-08-27
+                    2024-09-01
                 
             </span>
         </span>
@@ -1195,7 +1250,7 @@
         
     </div>
 
-    <a href="/top-screenplays-from-diverse-cultures-to-learn-languages/">Read more<span class="seo-reader-text">Top Screenplays From Diverse Cultures to Learn Languages</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/ausdauer-der-sprache-deutsche-grusse-abseits-von-hallo/">Read more<span class="seo-reader-text">Ausdauer Der Sprache: Deutsche Grüße Abseits Von Hallo</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1211,21 +1266,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/the-endless-enigma-of-earths-ultimate-term/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/7b8336f5215e637e754158b1429078ceab1fa3c341406711596b3493655e21bb.jpg" alt="The Endless Enigma of Earth&#39;s Ultimate Term" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/a-global-guide-to-grateful-gestures-in-30-languages-156/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/307c74c604613a22f691edcf44e5f2764e78d11c78ed3cd5b584a70064abc036.jpg" alt="A Global Guide to Grateful Gestures in 30 Languages (156)" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/the-endless-enigma-of-earths-ultimate-term/">
-                            The Endless Enigma of Earth&#39;s Ultimate Term
+                        <a href="/a-global-guide-to-grateful-gestures-in-30-languages-156/">
+                            A Global Guide to Grateful Gestures in 30 Languages (156)
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes The Endless Enigma of Earth’s Ultimate Term</p>
+                            <p>This Article Describes A Global Guide to Grateful Gestures in 30 Languages (156)</p>
 
                         
                     </div>
@@ -1233,9 +1288,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Tue Aug 27 2024 22:57:18 GMT+0800">
+            <span class="home-article-date" data-date="Sun Sep 01 2024 00:14:20 GMT+0800">
                 
-                    2024-08-27
+                    2024-09-01
                 
             </span>
         </span>
@@ -1281,7 +1336,7 @@
         
     </div>
 
-    <a href="/the-endless-enigma-of-earths-ultimate-term/">Read more<span class="seo-reader-text">The Endless Enigma of Earth&#39;s Ultimate Term</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/a-global-guide-to-grateful-gestures-in-30-languages-156/">Read more<span class="seo-reader-text">A Global Guide to Grateful Gestures in 30 Languages (156)</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1297,21 +1352,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/speed-up-french-color-pronunciation/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/88fe982f8ab0af867f1f236b151f6e7396d26757691ab451f3dce8ae4b3a818b.jpg" alt="Speed Up French Color Pronunciation" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/alluring-arsenal-german-lingo-for-lovers/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/178d58d377f4b203ad233ab64de23e646d3152a87cde8619a12016708a1a023a.jpg" alt="Alluring Arsenal: German Lingo for Lovers" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/speed-up-french-color-pronunciation/">
-                            Speed Up French Color Pronunciation
+                        <a href="/alluring-arsenal-german-lingo-for-lovers/">
+                            Alluring Arsenal: German Lingo for Lovers
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes Speed Up French Color Pronunciation</p>
+                            <p>This Article Describes Alluring Arsenal: German Lingo for Lovers</p>
 
                         
                     </div>
@@ -1319,9 +1374,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Tue Aug 27 2024 22:57:17 GMT+0800">
+            <span class="home-article-date" data-date="Sun Sep 01 2024 00:14:18 GMT+0800">
                 
-                    2024-08-27
+                    2024-09-01
                 
             </span>
         </span>
@@ -1367,7 +1422,7 @@
         
     </div>
 
-    <a href="/speed-up-french-color-pronunciation/">Read more<span class="seo-reader-text">Speed Up French Color Pronunciation</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/alluring-arsenal-german-lingo-for-lovers/">Read more<span class="seo-reader-text">Alluring Arsenal: German Lingo for Lovers</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1383,21 +1438,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/lyric-learning-labyrinas-accelerated-speech-through-song/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/4cde13e35fb005f35b03fe575a760700ef2f31716bcebcb3bdb2d428b2778fad.jpg" alt="Lyric Learning Labyrinas: Accelerated Speech Through Song" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/1719579989099-4-popular-ways-to-say-youre-welcome-in-french/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/30033eb1d439e3a5ccb9587805c5084ce6ce6344b14d88b85b8e477a0430e0fc.jpg" alt="4 Popular Ways to Say You’re Welcome in French" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/lyric-learning-labyrinas-accelerated-speech-through-song/">
-                            Lyric Learning Labyrinas: Accelerated Speech Through Song
+                        <a href="/1719579989099-4-popular-ways-to-say-youre-welcome-in-french/">
+                            4 Popular Ways to Say You’re Welcome in French
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes Lyric Learning Labyrinas: Accelerated Speech Through Song</p>
+                            <p>This Article Describes 4 Popular Ways to Say You’re Welcome in French</p>
 
                         
                     </div>
@@ -1405,9 +1460,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Tue Aug 27 2024 22:57:15 GMT+0800">
+            <span class="home-article-date" data-date="Sun Sep 01 2024 00:14:17 GMT+0800">
                 
-                    2024-08-27
+                    2024-09-01
                 
             </span>
         </span>
@@ -1453,7 +1508,7 @@
         
     </div>
 
-    <a href="/lyric-learning-labyrinas-accelerated-speech-through-song/">Read more<span class="seo-reader-text">Lyric Learning Labyrinas: Accelerated Speech Through Song</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/1719579989099-4-popular-ways-to-say-youre-welcome-in-french/">Read more<span class="seo-reader-text">4 Popular Ways to Say You’re Welcome in French</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1469,21 +1524,21 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/mindfullinguist-cognitive-development-through-virtual-realms/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426c62a6f89484db17077fafde.jpg" alt="MindfulLinguist: Cognitive Development Through Virtual Realms" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/1719580629507-fluent-in-just-a-few-weeks-learn-tagalog-fast/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/e02c41a99d42d63b7e95bafe0fe0df1b7497d09e9c40411355dba4e89fa8d316.jpg" alt="Fluent in Just a Few Weeks? Learn Tagalog Fast" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/mindfullinguist-cognitive-development-through-virtual-realms/">
-                            MindfulLinguist: Cognitive Development Through Virtual Realms
+                        <a href="/1719580629507-fluent-in-just-a-few-weeks-learn-tagalog-fast/">
+                            Fluent in Just a Few Weeks? Learn Tagalog Fast
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            <p>This Article Describes MindfulLinguist: Cognitive Development Through Virtual Realms</p>
+                            <p>This Article Describes Fluent in Just a Few Weeks? Learn Tagalog Fast</p>
 
                         
                     </div>
@@ -1491,9 +1546,9 @@
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Tue Aug 27 2024 22:57:14 GMT+0800">
+            <span class="home-article-date" data-date="Sun Sep 01 2024 00:14:16 GMT+0800">
                 
-                    2024-08-27
+                    2024-09-01
                 
             </span>
         </span>
@@ -1539,7 +1594,7 @@
         
     </div>
 
-    <a href="/mindfullinguist-cognitive-development-through-virtual-realms/">Read more<span class="seo-reader-text">MindfulLinguist: Cognitive Development Through Virtual Realms</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/1719580629507-fluent-in-just-a-few-weeks-learn-tagalog-fast/">Read more<span class="seo-reader-text">Fluent in Just a Few Weeks? Learn Tagalog Fast</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>

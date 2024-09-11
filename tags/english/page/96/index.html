@@ -61,6 +61,63 @@
     <link rel="preload" href="https://cloudflare-cdn.techidaily.com/webfonts/fa-duotone-900.woff2" as="font" crossorigin type="font/woff2">
     <link rel="preload" href="https://cloudflare-cdn.techidaily.com/webfonts/fa-thin-100.woff2" as="font" crossorigin type="font/woff2">
 
+    <!-- tailwind.css -->
+    <script src="https://cloudflare-cdn.techidaily.com/js/libs/tailwindcss.v3.4.5.js" crossorigin></script> 
+    <script>
+    try {
+        tailwind.config = {
+          theme: {
+            extend: {
+              spacing: {
+                unit: "38px",
+              },
+              margin: {
+                "spacing-unit": "38px",
+              },
+              maxWidth: {
+                content: "1280px",
+                "has-toc-content": "120%",
+              },
+              zIndex: {
+                1: 1001,
+                2: 1002,
+                3: 1003,
+                4: 1004,
+                5: 1005,
+                6: 1006,
+                7: 1007,
+                8: 1008,
+                9: 1009,
+              },
+              borderRadius: {
+                none: "0px",
+                xsmall: "4px",
+                small: "9px",
+                medium: "14px",
+                large: "18px",
+                xlarge: "24px",
+                xxlarge: "48px",
+              },
+              fontFamily: {
+                chinese: ["sans-serif"],
+                english: ["Satoshi-Variable", "sans-serif"],
+                default: [
+                  "Satoshi-Variable",
+                  "system-ui",
+                  "sans-serif",
+                ],
+              },
+              fontSize: {
+                default: "16px"
+              },
+              lineHeight: {
+                default: "1.5"
+              }
+            }
+          }
+        }        
+    } catch (e) {}
+    </script>   
 
     <!--- Page Info-->
     
@@ -248,7 +305,7 @@
 
     <script id="hexo-configurations">
     window.config = {"hostname":"mondly-stories.techidaily.com","root":"/","language":"en"};
-    window.theme = {"articles":{"style":{"font_size":"16px","line_height":1.5,"image_border_radius":"0px","image_alignment":"center","image_caption":false,"link_icon":true,"title_alignment":"left","headings_top_spacing":{"h1":"5rem","h2":"4rem","h3":"2.8rem","h4":"2.5rem","h5":"2.2rem","h6":"2rem"}},"word_count":{"enable":true,"count":true,"min2read":true},"author_label":{"enable":true,"auto":false,"list":[]},"code_block":{"copy":true,"style":"mac","font":{"enable":false,"family":null,"url":null}},"toc":{"enable":true,"max_depth":3,"number":false,"expand":true,"init_open":false},"copyright":{"enable":true,"default":"cc_by_nc_sa"},"lazyload":true,"recommendation":{"enable":false,"title":"Recommend","limit":3,"mobile_limit":2,"placeholder":"/images/wallhaven-wqery6-light.webp","skip_dirs":[]}},"colors":{"primary":"#A31F34","secondary":null,"default_mode":"light"},"global":{"fonts":{"chinese":{"enable":false,"family":null,"url":null},"english":{"enable":false,"family":null,"url":null}},"content_max_width":"1000px","sidebar_width":"210px","hover":{"shadow":true,"scale":false},"scroll_progress":{"bar":false,"percentage":true},"website_counter":{"url":"https://cn.vercount.one/js","enable":false,"site_pv":true,"site_uv":true,"post_pv":true},"single_page":true,"preloader":true,"open_graph":true,"google_analytics":{"enable":true,"id":"G-NYMH9T25CD"}},"home_banner":{"enable":true,"style":"fixed","image":{"light":"/images/wallhaven-wqery6-light.webp","dark":"/images/wallhaven-wqery6-dark.webp"},"title":"Enjoy life easier but more creative!","subtitle":{"text":[],"hitokoto":{"enable":false,"api":"https://v1.hitokoto.cn"},"typing_speed":100,"backing_speed":80,"starting_delay":500,"backing_delay":1500,"loop":true,"smart_backspace":true},"text_color":{"light":"#fff","dark":"#d1d1b6"},"text_style":{"title_size":"2.8rem","subtitle_size":"1.5rem","line_height":1.2},"custom_font":{"enable":false,"family":null,"url":null},"social_links":{"enable":false,"style":"default","links":{"github":null,"instagram":null,"zhihu":null,"twitter":null,"email":null},"qrs":{"weixin":null}}},"plugins":{"feed":{"enable":true},"aplayer":{"enable":false,"type":"fixed","audios":[{"name":null,"artist":null,"url":null,"cover":null,"lrc":null}]},"mermaid":{"enable":false,"version":"9.3.0"}},"version":"2.6.1","navbar":{"auto_hide":true,"color":{"left":"#f78736","right":"#367df7","transparency":35},"width":{"home":"1200px","pages":"1000px"},"links":{"Home":{"path":"/","icon":"fa-regular fa-house"},"Tools":{"path":"https://tools.techidaily.com","icon":"fa-regular fa-archive"},"Links":{"icon":"fa-regular fa-link","submenus":{"HowTo":"https://howto.techidaily.com","Mobile Images":"https://img0mobiles.techidaily.com"}},"Privacy":{"path":"/privacy","icon":"fa-regular fa-shield-halved"},"Terms&Conditions":{"path":"/terms_conditions","icon":"fa-regular fa-file-contract"},"About":{"path":"/about","icon":"fa-regular fa-user"}},"search":{"enable":false,"preload":true}},"page_templates":{"friends_column":2,"tags_style":"blur"},"home":{"sidebar":{"enable":true,"position":"left","first_item":"menu","announcement":null,"show_on_mobile":true,"links":null},"article_date_format":"auto","categories":{"enable":true,"limit":3},"tags":{"enable":true,"limit":3}},"footerStart":"2017/8/17 11:45:14"};
+    window.theme = {"articles":{"style":{"font_size":"16px","line_height":1.5,"image_border_radius":"0px","image_alignment":"center","image_caption":false,"link_icon":true,"title_alignment":"left","headings_top_spacing":{"h1":"5rem","h2":"4rem","h3":"2.8rem","h4":"2.5rem","h5":"2.2rem","h6":"2rem"}},"word_count":{"enable":true,"count":true,"min2read":true},"author_label":{"enable":true,"auto":false,"list":[]},"code_block":{"copy":true,"style":"mac","font":{"enable":false,"family":null,"url":null}},"toc":{"enable":true,"max_depth":3,"number":false,"expand":true,"init_open":false},"copyright":{"enable":true,"default":"cc_by_nc_sa"},"lazyload":true,"recommendation":{"enable":false,"title":"Recommend","limit":3,"mobile_limit":2,"placeholder":"/images/wallhaven-wqery6-light.webp","skip_dirs":[]}},"colors":{"primary":"#A31F34","secondary":null,"default_mode":"light"},"global":{"fonts":{"chinese":{"enable":false,"family":null,"url":null},"english":{"enable":false,"family":null,"url":null}},"content_max_width":"1280px","sidebar_width":"210px","hover":{"shadow":true,"scale":false},"scroll_progress":{"bar":false,"percentage":true},"website_counter":{"url":"https://cn.vercount.one/js","enable":false,"site_pv":true,"site_uv":true,"post_pv":true},"single_page":true,"preloader":true,"open_graph":true,"google_analytics":{"enable":true,"id":"G-NYMH9T25CD"}},"home_banner":{"enable":true,"style":"fixed","image":{"light":"/images/wallhaven-wqery6-light.webp","dark":"/images/wallhaven-wqery6-dark.webp"},"title":"Enjoy life easier but more creative!","subtitle":{"text":[],"hitokoto":{"enable":false,"api":"https://v1.hitokoto.cn"},"typing_speed":100,"backing_speed":80,"starting_delay":500,"backing_delay":1500,"loop":true,"smart_backspace":true},"text_color":{"light":"#fff","dark":"#d1d1b6"},"text_style":{"title_size":"2.8rem","subtitle_size":"1.5rem","line_height":1.2},"custom_font":{"enable":false,"family":null,"url":null},"social_links":{"enable":false,"style":"default","links":{"github":null,"instagram":null,"zhihu":null,"twitter":null,"email":null},"qrs":{"weixin":null}}},"plugins":{"feed":{"enable":true},"aplayer":{"enable":false,"type":"fixed","audios":[{"name":null,"artist":null,"url":null,"cover":null,"lrc":null}]},"mermaid":{"enable":false,"version":"9.3.0"}},"version":"2.6.1","navbar":{"auto_hide":true,"color":{"left":"#f78736","right":"#367df7","transparency":35},"width":{"home":"1280px","pages":"1280px"},"links":{"Home":{"path":"/","icon":"fa-regular fa-house"},"Tools":{"path":"https://tools.techidaily.com","icon":"fa-regular fa-archive"},"Links":{"icon":"fa-regular fa-link","submenus":{"HowTo":"https://howto.techidaily.com","Mobile Images":"https://img0mobiles.techidaily.com"}},"Privacy":{"path":"/privacy","icon":"fa-regular fa-shield-halved"},"Terms&Conditions":{"path":"/terms_conditions","icon":"fa-regular fa-file-contract"},"About":{"path":"/about","icon":"fa-regular fa-user"}},"search":{"enable":false,"preload":true}},"page_templates":{"friends_column":2,"tags_style":"blur"},"home":{"sidebar":{"enable":true,"position":"left","first_item":"menu","announcement":null,"show_on_mobile":true,"links":null},"article_date_format":"auto","categories":{"enable":true,"limit":3},"tags":{"enable":true,"limit":3}},"footerStart":"2017/8/17 11:45:14"};
     window.lang_ago = {"second":"%s seconds ago","minute":"%s minutes ago","hour":"%s hours ago","day":"%s days ago","week":"%s weeks ago","month":"%s months ago","year":"%s years ago"};
     window.data = {"masonry":false};
   </script>
@@ -266,8 +323,6 @@
     
     
     
-    <!-- tailwind.css -->
-    <script async src="https://cloudflare-cdn.techidaily.com/js/libs/tailwindcss.v3.4.5.js" crossorigin></script>
 <meta name="generator" content="Hexo 7.3.0"><link rel="alternate" href="/atom.xml" title="Mondly Stories" type="application/atom+xml">
 </head>
 
@@ -631,74 +686,74 @@
               
                 
                     
-                    <li class="article-item space-y-2 px-6 pt-10 pb-2 text-xl relative border-l-2 border-border-color" date-is='09-01'>
+                    <li class="article-item space-y-2 px-6 pt-10 pb-2 text-xl relative border-l-2 border-border-color" date-is='09-05'>
                 
                     
-                        <a href="/poiothta-eygnwmwn-klisma-gkreman/" class="block overflow-hidden w-fit">
-                            <span class="article-title mb-0.5 text-2xl">Ποιότητα Ευγνώμων Κλίσμα Γκρεμάν</span>
+                        <a href="/mondly-supports-millions-in-language-mastery/" class="block overflow-hidden w-fit">
+                            <span class="article-title mb-0.5 text-2xl">Mondly Supports Millions in Language Mastery</span>
                         </a>
                     
               
                 
                     
-                        <a href="/mastering-english-contractions-a-comprehensive-walkthrough/" class="block overflow-hidden w-fit">
-                            <span class="article-title mb-0.5 text-2xl">Mastering English Contractions: A Comprehensive Walkthrough</span>
+                        <a href="/lifetime-mondly-exclusive-at-no-cost/" class="block overflow-hidden w-fit">
+                            <span class="article-title mb-0.5 text-2xl">Lifetime Mondly Exclusive at No Cost</span>
                         </a>
                     
               
                 
                     
-                        <a href="/top-100-spelling-pitfalls-avoiding-the-most-frequent-mistakes/" class="block overflow-hidden w-fit">
-                            <span class="article-title mb-0.5 text-2xl">Top 100 Spelling Pitfalls: Avoiding the Most Frequent Mistakes</span>
+                        <a href="/the-language-lifeline-essential-russian-terms-for-tourists/" class="block overflow-hidden w-fit">
+                            <span class="article-title mb-0.5 text-2xl">The Language Lifeline: Essential Russian Terms For Tourists</span>
                         </a>
                     
               
                 
                     
-                        <a href="/italian-journey-companion-phrases-for-a-seamless-visit/" class="block overflow-hidden w-fit">
-                            <span class="article-title mb-0.5 text-2xl">Italian Journey Companion: Phrases for a Seamless Visit</span>
+                        <a href="/mondly-co-op-with-pearson-education-network/" class="block overflow-hidden w-fit">
+                            <span class="article-title mb-0.5 text-2xl">Mondly Co-Op with Pearson Education Network</span>
                         </a>
                     
               
                 
                     
-                        <a href="/google-and-mondly-team-up-for-your-linguistic-endeavors/" class="block overflow-hidden w-fit">
-                            <span class="article-title mb-0.5 text-2xl">Google and Mondly Team Up for Your Linguistic Endeavors</span>
+                        <a href="/i-numeri-italiani-da-1-al-prolungamento-a-mille/" class="block overflow-hidden w-fit">
+                            <span class="article-title mb-0.5 text-2xl">I Numeri Italiani: Da 1 Al Prolungamento a Mille</span>
                         </a>
                     
               
                 
                     
-                        <a href="/unveiling-the-multilingual-magic-of-saint-nick/" class="block overflow-hidden w-fit">
-                            <span class="article-title mb-0.5 text-2xl">Unveiling The Multilingual Magic of Saint Nick</span>
+                        <a href="/multilingual-marvels-turkish-korean-nexus/" class="block overflow-hidden w-fit">
+                            <span class="article-title mb-0.5 text-2xl">Multilingual Marvels: Turkish-Korean Nexus</span>
                         </a>
                     
               
                 
                     
-                        <a href="/latin-american-versus-old-world-portuguese-buttons/" class="block overflow-hidden w-fit">
-                            <span class="article-title mb-0.5 text-2xl">Latin American Versus Old World Portuguese Buttons</span>
+                        <a href="/zap-up-your-skills-speed-up-slovak-learning-with-micro-lessons/" class="block overflow-hidden w-fit">
+                            <span class="article-title mb-0.5 text-2xl">Zap Up Your Skills: Speed up Slovak Learning with Micro Lessons</span>
                         </a>
                     
               
                 
                     
-                        <a href="/russian-cyrillic-sounds-a-practical-guide/" class="block overflow-hidden w-fit">
-                            <span class="article-title mb-0.5 text-2xl">Russian Cyrillic Sounds: A Practical Guide</span>
+                        <a href="/ingenious-methods-for-quick-linguistic-growth/" class="block overflow-hidden w-fit">
+                            <span class="article-title mb-0.5 text-2xl">Ingenious Methods for Quick Linguistic Growth</span>
                         </a>
                     
               
                 
                     
-                        <a href="/perfezionamento-dei-numeri-italiani-1-mille-e-oltre/" class="block overflow-hidden w-fit">
-                            <span class="article-title mb-0.5 text-2xl">Perfezionamento Dei Numeri Italiani: 1 - Mille E Oltre</span>
+                        <a href="/global-dialect-dashboard-simplest-languages-overview/" class="block overflow-hidden w-fit">
+                            <span class="article-title mb-0.5 text-2xl">Global Dialect Dashboard: Simplest Languages Overview</span>
                         </a>
                     
               
                 
                     
-                        <a href="/top-triad-of-language-schools-effortlessly-converse-in-new-languages/" class="block overflow-hidden w-fit">
-                            <span class="article-title mb-0.5 text-2xl">Top Triad of Language Schools: Effortlessly Converse in New Languages</span>
+                        <a href="/unlock-fluency-top-3-app-based-linguistic-advancement-platforms/" class="block overflow-hidden w-fit">
+                            <span class="article-title mb-0.5 text-2xl">Unlock Fluency: Top 3 App-Based Linguistic Advancement Platforms</span>
                         </a>
                     
               

@@ -61,6 +61,63 @@
     <link rel="preload" href="https://cloudflare-cdn.techidaily.com/webfonts/fa-duotone-900.woff2" as="font" crossorigin type="font/woff2">
     <link rel="preload" href="https://cloudflare-cdn.techidaily.com/webfonts/fa-thin-100.woff2" as="font" crossorigin type="font/woff2">
 
+    <!-- tailwind.css -->
+    <script src="https://cloudflare-cdn.techidaily.com/js/libs/tailwindcss.v3.4.5.js" crossorigin></script> 
+    <script>
+    try {
+        tailwind.config = {
+          theme: {
+            extend: {
+              spacing: {
+                unit: "38px",
+              },
+              margin: {
+                "spacing-unit": "38px",
+              },
+              maxWidth: {
+                content: "1280px",
+                "has-toc-content": "120%",
+              },
+              zIndex: {
+                1: 1001,
+                2: 1002,
+                3: 1003,
+                4: 1004,
+                5: 1005,
+                6: 1006,
+                7: 1007,
+                8: 1008,
+                9: 1009,
+              },
+              borderRadius: {
+                none: "0px",
+                xsmall: "4px",
+                small: "9px",
+                medium: "14px",
+                large: "18px",
+                xlarge: "24px",
+                xxlarge: "48px",
+              },
+              fontFamily: {
+                chinese: ["sans-serif"],
+                english: ["Satoshi-Variable", "sans-serif"],
+                default: [
+                  "Satoshi-Variable",
+                  "system-ui",
+                  "sans-serif",
+                ],
+              },
+              fontSize: {
+                default: "16px"
+              },
+              lineHeight: {
+                default: "1.5"
+              }
+            }
+          }
+        }        
+    } catch (e) {}
+    </script>   
 
     <!--- Page Info-->
     
@@ -248,7 +305,7 @@
 
     <script id="hexo-configurations">
     window.config = {"hostname":"mondly-stories.techidaily.com","root":"/","language":"en"};
-    window.theme = {"articles":{"style":{"font_size":"16px","line_height":1.5,"image_border_radius":"0px","image_alignment":"center","image_caption":false,"link_icon":true,"title_alignment":"left","headings_top_spacing":{"h1":"5rem","h2":"4rem","h3":"2.8rem","h4":"2.5rem","h5":"2.2rem","h6":"2rem"}},"word_count":{"enable":true,"count":true,"min2read":true},"author_label":{"enable":true,"auto":false,"list":[]},"code_block":{"copy":true,"style":"mac","font":{"enable":false,"family":null,"url":null}},"toc":{"enable":true,"max_depth":3,"number":false,"expand":true,"init_open":false},"copyright":{"enable":true,"default":"cc_by_nc_sa"},"lazyload":true,"recommendation":{"enable":false,"title":"Recommend","limit":3,"mobile_limit":2,"placeholder":"/images/wallhaven-wqery6-light.webp","skip_dirs":[]}},"colors":{"primary":"#A31F34","secondary":null,"default_mode":"light"},"global":{"fonts":{"chinese":{"enable":false,"family":null,"url":null},"english":{"enable":false,"family":null,"url":null}},"content_max_width":"1000px","sidebar_width":"210px","hover":{"shadow":true,"scale":false},"scroll_progress":{"bar":false,"percentage":true},"website_counter":{"url":"https://cn.vercount.one/js","enable":false,"site_pv":true,"site_uv":true,"post_pv":true},"single_page":true,"preloader":true,"open_graph":true,"google_analytics":{"enable":true,"id":"G-NYMH9T25CD"}},"home_banner":{"enable":true,"style":"fixed","image":{"light":"/images/wallhaven-wqery6-light.webp","dark":"/images/wallhaven-wqery6-dark.webp"},"title":"Enjoy life easier but more creative!","subtitle":{"text":[],"hitokoto":{"enable":false,"api":"https://v1.hitokoto.cn"},"typing_speed":100,"backing_speed":80,"starting_delay":500,"backing_delay":1500,"loop":true,"smart_backspace":true},"text_color":{"light":"#fff","dark":"#d1d1b6"},"text_style":{"title_size":"2.8rem","subtitle_size":"1.5rem","line_height":1.2},"custom_font":{"enable":false,"family":null,"url":null},"social_links":{"enable":false,"style":"default","links":{"github":null,"instagram":null,"zhihu":null,"twitter":null,"email":null},"qrs":{"weixin":null}}},"plugins":{"feed":{"enable":true},"aplayer":{"enable":false,"type":"fixed","audios":[{"name":null,"artist":null,"url":null,"cover":null,"lrc":null}]},"mermaid":{"enable":false,"version":"9.3.0"}},"version":"2.6.1","navbar":{"auto_hide":true,"color":{"left":"#f78736","right":"#367df7","transparency":35},"width":{"home":"1200px","pages":"1000px"},"links":{"Home":{"path":"/","icon":"fa-regular fa-house"},"Tools":{"path":"https://tools.techidaily.com","icon":"fa-regular fa-archive"},"Links":{"icon":"fa-regular fa-link","submenus":{"HowTo":"https://howto.techidaily.com","Mobile Images":"https://img0mobiles.techidaily.com"}},"Privacy":{"path":"/privacy","icon":"fa-regular fa-shield-halved"},"Terms&Conditions":{"path":"/terms_conditions","icon":"fa-regular fa-file-contract"},"About":{"path":"/about","icon":"fa-regular fa-user"}},"search":{"enable":false,"preload":true}},"page_templates":{"friends_column":2,"tags_style":"blur"},"home":{"sidebar":{"enable":true,"position":"left","first_item":"menu","announcement":null,"show_on_mobile":true,"links":null},"article_date_format":"auto","categories":{"enable":true,"limit":3},"tags":{"enable":true,"limit":3}},"footerStart":"2017/8/17 11:45:14"};
+    window.theme = {"articles":{"style":{"font_size":"16px","line_height":1.5,"image_border_radius":"0px","image_alignment":"center","image_caption":false,"link_icon":true,"title_alignment":"left","headings_top_spacing":{"h1":"5rem","h2":"4rem","h3":"2.8rem","h4":"2.5rem","h5":"2.2rem","h6":"2rem"}},"word_count":{"enable":true,"count":true,"min2read":true},"author_label":{"enable":true,"auto":false,"list":[]},"code_block":{"copy":true,"style":"mac","font":{"enable":false,"family":null,"url":null}},"toc":{"enable":true,"max_depth":3,"number":false,"expand":true,"init_open":false},"copyright":{"enable":true,"default":"cc_by_nc_sa"},"lazyload":true,"recommendation":{"enable":false,"title":"Recommend","limit":3,"mobile_limit":2,"placeholder":"/images/wallhaven-wqery6-light.webp","skip_dirs":[]}},"colors":{"primary":"#A31F34","secondary":null,"default_mode":"light"},"global":{"fonts":{"chinese":{"enable":false,"family":null,"url":null},"english":{"enable":false,"family":null,"url":null}},"content_max_width":"1280px","sidebar_width":"210px","hover":{"shadow":true,"scale":false},"scroll_progress":{"bar":false,"percentage":true},"website_counter":{"url":"https://cn.vercount.one/js","enable":false,"site_pv":true,"site_uv":true,"post_pv":true},"single_page":true,"preloader":true,"open_graph":true,"google_analytics":{"enable":true,"id":"G-NYMH9T25CD"}},"home_banner":{"enable":true,"style":"fixed","image":{"light":"/images/wallhaven-wqery6-light.webp","dark":"/images/wallhaven-wqery6-dark.webp"},"title":"Enjoy life easier but more creative!","subtitle":{"text":[],"hitokoto":{"enable":false,"api":"https://v1.hitokoto.cn"},"typing_speed":100,"backing_speed":80,"starting_delay":500,"backing_delay":1500,"loop":true,"smart_backspace":true},"text_color":{"light":"#fff","dark":"#d1d1b6"},"text_style":{"title_size":"2.8rem","subtitle_size":"1.5rem","line_height":1.2},"custom_font":{"enable":false,"family":null,"url":null},"social_links":{"enable":false,"style":"default","links":{"github":null,"instagram":null,"zhihu":null,"twitter":null,"email":null},"qrs":{"weixin":null}}},"plugins":{"feed":{"enable":true},"aplayer":{"enable":false,"type":"fixed","audios":[{"name":null,"artist":null,"url":null,"cover":null,"lrc":null}]},"mermaid":{"enable":false,"version":"9.3.0"}},"version":"2.6.1","navbar":{"auto_hide":true,"color":{"left":"#f78736","right":"#367df7","transparency":35},"width":{"home":"1280px","pages":"1280px"},"links":{"Home":{"path":"/","icon":"fa-regular fa-house"},"Tools":{"path":"https://tools.techidaily.com","icon":"fa-regular fa-archive"},"Links":{"icon":"fa-regular fa-link","submenus":{"HowTo":"https://howto.techidaily.com","Mobile Images":"https://img0mobiles.techidaily.com"}},"Privacy":{"path":"/privacy","icon":"fa-regular fa-shield-halved"},"Terms&Conditions":{"path":"/terms_conditions","icon":"fa-regular fa-file-contract"},"About":{"path":"/about","icon":"fa-regular fa-user"}},"search":{"enable":false,"preload":true}},"page_templates":{"friends_column":2,"tags_style":"blur"},"home":{"sidebar":{"enable":true,"position":"left","first_item":"menu","announcement":null,"show_on_mobile":true,"links":null},"article_date_format":"auto","categories":{"enable":true,"limit":3},"tags":{"enable":true,"limit":3}},"footerStart":"2017/8/17 11:45:14"};
     window.lang_ago = {"second":"%s seconds ago","minute":"%s minutes ago","hour":"%s hours ago","day":"%s days ago","week":"%s weeks ago","month":"%s months ago","year":"%s years ago"};
     window.data = {"masonry":false};
   </script>
@@ -266,8 +323,6 @@
     
     
     
-    <!-- tailwind.css -->
-    <script async src="https://cloudflare-cdn.techidaily.com/js/libs/tailwindcss.v3.4.5.js" crossorigin></script>
 <meta name="generator" content="Hexo 7.3.0"><link rel="alternate" href="/atom.xml" title="Mondly Stories" type="application/atom+xml">
 </head>
 
@@ -634,71 +689,71 @@
                     <li class="article-item space-y-2 px-6 pt-10 pb-2 text-xl relative border-l-2 border-border-color" date-is='07-29'>
                 
                     
-                        <a href="/nordic-narratives-the-language-of-the-sea-roaming-warriors/" class="block overflow-hidden w-fit">
-                            <span class="article-title mb-0.5 text-2xl">Nordic Narratives: The Language of the Sea-Roaming Warriors</span>
+                        <a href="/french-for-beginners-saying-hello-with-confidence-and-style/" class="block overflow-hidden w-fit">
+                            <span class="article-title mb-0.5 text-2xl">French for Beginners: Saying Hello with Confidence &amp; Style</span>
                         </a>
                     
               
                 
                     
-                        <a href="/navigating-love-across-languages-overcoming-communication-gaps/" class="block overflow-hidden w-fit">
-                            <span class="article-title mb-0.5 text-2xl">Navigating Love Across Languages: Overcoming Communication Gaps</span>
+                        <a href="/fun-filled-journey-into-latin-language/" class="block overflow-hidden w-fit">
+                            <span class="article-title mb-0.5 text-2xl">Fun-Filled Journey Into Latin Language</span>
                         </a>
                     
               
                 
                     
-                        <a href="/mondly-kids-parental-control-essentials-awarded-by-google/" class="block overflow-hidden w-fit">
-                            <span class="article-title mb-0.5 text-2xl">Mondly Kids: Parental Control Essentials, Awarded by Google</span>
+                        <a href="/fast-track-to-fluency-10-minday-learning/" class="block overflow-hidden w-fit">
+                            <span class="article-title mb-0.5 text-2xl">Fast-Track to Fluency: 10 Min/Day Learning</span>
                         </a>
                     
               
                 
                     
-                        <a href="/melodic-mastery-leveraging-evidence-based-techniques-for-languages/" class="block overflow-hidden w-fit">
-                            <span class="article-title mb-0.5 text-2xl">Melodic Mastery: Leveraging Evidence-Based Techniques for Languages</span>
+                        <a href="/enlighten-yourself-in-lithuanian-online-best-practices/" class="block overflow-hidden w-fit">
+                            <span class="article-title mb-0.5 text-2xl">Enlighten Yourself in Lithuanian - Online Best Practices</span>
                         </a>
                     
               
                 
                     
-                        <a href="/maximize-your-language-potential-why-learn-afrikaans-through-mondly/" class="block overflow-hidden w-fit">
-                            <span class="article-title mb-0.5 text-2xl">Maximize Your Language Potential: Why Learn Afrikaans Through Mondly?</span>
+                        <a href="/esl-learning-english-for-non-native-speakers/" class="block overflow-hidden w-fit">
+                            <span class="article-title mb-0.5 text-2xl">ESL: Learning English for Non-Native Speakers</span>
                         </a>
                     
               
                 
                     
-                        <a href="/mandarin-manners-essential-chinese-gratitude-words/" class="block overflow-hidden w-fit">
-                            <span class="article-title mb-0.5 text-2xl">Mandarin Manners: Essential Chinese Gratitude Words</span>
+                        <a href="/entender-el-calendario-semanal-el-espanol-para-cada-jornada/" class="block overflow-hidden w-fit">
+                            <span class="article-title mb-0.5 text-2xl">Entender El Calendario Semanal: El Español Para Cada Jornada</span>
                         </a>
                     
               
                 
                     
-                        <a href="/lechange-bienveillant-en-francais-merci/" class="block overflow-hidden w-fit">
-                            <span class="article-title mb-0.5 text-2xl">L&#39;Echange Bienveillant en Français: Merci</span>
+                        <a href="/francais-des-semaines/" class="block overflow-hidden w-fit">
+                            <span class="article-title mb-0.5 text-2xl">Français Des Semaines</span>
                         </a>
                     
               
                 
                     
-                        <a href="/languages-of-the-croatian-people/" class="block overflow-hidden w-fit">
-                            <span class="article-title mb-0.5 text-2xl">Languages of the Croatian People</span>
+                        <a href="/enhancing-your-life-in-hindi-mondly-highlights-8-key-benefits/" class="block overflow-hidden w-fit">
+                            <span class="article-title mb-0.5 text-2xl">Enhancing Your Life in Hindi: Mondly Highlights 8 Key Benefits</span>
                         </a>
                     
               
                 
                     
-                        <a href="/key-differences-between-brazilian-and-european-portuguese/" class="block overflow-hidden w-fit">
-                            <span class="article-title mb-0.5 text-2xl">Key Differences Between Brazilian and European Portuguese</span>
+                        <a href="/fastidious-norsk-comprehension-in-short-spurts/" class="block overflow-hidden w-fit">
+                            <span class="article-title mb-0.5 text-2xl">Fastidious Norsk Comprehension in Short Spurts!</span>
                         </a>
                     
               
                 
                     
-                        <a href="/japan-mastery-made-simple-online-solo-and-free-learning-options/" class="block overflow-hidden w-fit">
-                            <span class="article-title mb-0.5 text-2xl">Japan Mastery Made Simple - Online, Solo &amp; Free Learning Options</span>
+                        <a href="/exploring-27-phrases-for-perfecting-french-pronunciation/" class="block overflow-hidden w-fit">
+                            <span class="article-title mb-0.5 text-2xl">Exploring 27 Phrases for Perfecting French Pronunciation</span>
                         </a>
                     
               
