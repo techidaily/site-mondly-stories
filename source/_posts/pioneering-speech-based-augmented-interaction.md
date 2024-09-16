@@ -1,7 +1,7 @@
 ---
 title: Pioneering Speech-Based Augmented Interaction
-date: 2024-07-12T08:26:53.562Z
-updated: 2024-07-13T08:26:53.562Z
+date: 2024-09-10T17:46:56.223Z
+updated: 2024-09-16T19:45:44.728Z
 tags:
   - speak
   - english
@@ -70,6 +70,19 @@ Alex Iliescu, our CEO, spoke about the launch:
 * Available on iPhone, iPad, Android and Web
 * [Mondly Press Kit](https://www.dropbox.com/sh/vo4j5214zvwdxy5/AAC20VxIgpuiEe7ED2%5F37VNEa?dl=0)
 
+<!-- affiliate ads begin -->
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Media mentions about Mondly
 
 * **INC.com** – “The New Way to Learn Languages”
@@ -90,8 +103,6 @@ Alex Iliescu, our CEO, spoke about the launch:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -99,6 +110,18 @@ Alex Iliescu, our CEO, spoke about the launch:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-how-to-edit-youtube-videos-in-sony-vegas/"><u>[New] 2024 Approved How to Edit YouTube Videos in Sony Vegas</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-expert-filigree-alterations/"><u>[New] Expert Filigree Alterations</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-creating-engaging-youtube-openings-and-closers-for-free/"><u>[Updated] Creating Engaging YouTube Openings & Closers for Free</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/dissecting-the-best-app-for-video-editing-is-inshot-it-in-2024/"><u>Dissecting the Best App for Video Editing - Is InShot It, In 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/gamings-finest-bike-battles-compiled-for-2024/"><u>Gaming's Finest Bike Battles Compiled for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-digital-darling-list-top-viewed-on-fb/"><u>In 2024, Digital Darling List Top Viewed on FB</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-full-guide-to-fix-itoolab-anygo-not-working-on-motorola-edge-40-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Fix iToolab AnyGO Not Working On Motorola Edge 40 Pro | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-samsungs-55-inch-ru7300-curved-4k-led-smart-television/"><u>In-Depth Analysis of Samsung's 55-Inch RU7300 Curved 4K LED Smart Television</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581539142-speak-bulgarian-flawlessly-minutes-only/"><u>Speak Bulgarian Flawlessly - Minutes Only!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tech-powered-classrooms-with-mondly-and-apple/"><u>Tech-Powered Classrooms with Mondly and Apple</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ten-years-of-button-filter-excellence-mondlyback/"><u>Ten Years of Button Filter Excellence: MondlyBack</u></a></li>
+</ul></div>
 

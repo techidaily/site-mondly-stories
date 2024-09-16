@@ -1,7 +1,7 @@
 ---
 title: Uniting Colombia Through Danny's Assistance Network
-date: 2024-09-05T04:37:54.769Z
-updated: 2024-09-06T04:37:54.769Z
+date: 2024-09-11T19:57:15.409Z
+updated: 2024-09-16T17:24:49.503Z
 tags:
   - speak
   - english
@@ -14,12 +14,6 @@ keywords: Colombia Reconciliation Efforts,Danny's Assistance Network Impact,Peac
 thumbnail: https://thmb.techidaily.com/bdc516c407f1c047ce69fce10934901af5b77e56306af6bf8cabd1b35043cc3e.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Uniting Colombia Through Danny's Assistance Network
 
  We, at Mondly, strongly believe that education can change the world for the better. This is why we pledged ourselves to give those who need it most the opportunity to learn languages with Mondly Premium for free.
@@ -28,12 +22,6 @@ thumbnail: https://thmb.techidaily.com/bdc516c407f1c047ce69fce10934901af5b77e563
 
 ![fundacion danny mondly](https://edge.mondly.com/blog/wp-content/uploads/2020/03/fundacion-danny-mondly-600x450.jpg "Helping Those Who Need It Most: Fundación Danny From Colombia 2")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Colombian children attending the Danny Foundation courses.
 
  Fundación Danny or Danny Foundation has been active since 2011 and its goal is to help children and young people from different places in Colombia to develop skills that can ensure a better future for them and their families. The foundation provides multiple courses from language learning to programming and even playing an instrument.
@@ -42,30 +30,12 @@ thumbnail: https://thmb.techidaily.com/bdc516c407f1c047ce69fce10934901af5b77e563
 
  **DANNY stands for Developing Aptitudes for a New Nation and Youth.**
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Unlocking the power of social good
 
  When Andrés Rodríguez, the director of Danny Foundation, first came for our help, we knew right away we had to do it. For the children and adolescents that attend the foundations’ courses, language learning is not just a hobby, but the key to success. This is why we wanted to give them the opportunity to experience the transformational power of learning English with Mondly.
 
 ![danny foundation mondly](https://edge.mondly.com/blog/wp-content/uploads/2020/03/danny-foundation-mondly-468x600.jpg "Helping Those Who Need It Most: Fundación Danny From Colombia 3")
 
-<!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Graduation at the Danny Foundation.
 
 > _Learning English in Colombia is not an easy task. Schools do teach English but just once or twice per week and sometimes the teachers themselves are not as competent as they should be. So Mondly is a great opportunity for our students to practice English every day._
@@ -81,12 +51,6 @@ thumbnail: https://thmb.techidaily.com/bdc516c407f1c047ce69fce10934901af5b77e563
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Learn a new language in just 10 minutes a day
 
  If the story of the Colombian children from the Danny Foundation inspired you to invest in yourself, you can start learning a new language right now with Mondly.
@@ -105,8 +69,6 @@ thumbnail: https://thmb.techidaily.com/bdc516c407f1c047ce69fce10934901af5b77e563
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -116,37 +78,22 @@ thumbnail: https://thmb.techidaily.com/bdc516c407f1c047ce69fce10934901af5b77e563
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-capture-every-detail-on-mac-free-in-2024/"><u>[New] Capture Every Detail on Mac - Free, In 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-lenovos-easy-pathway-to-screen-recording/"><u>[New] In 2024, Lenovo's Easy Pathway to Screen Recording</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-conquer-the-crunch-how-to-edit-and-reduce-massive-tiktok-files/"><u>[Updated] Conquer the Crunch  How to Edit and Reduce Massive TikTok Files</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-shining-up-your-videos-on-android/"><u>2024 Approved  Shining Up Your Videos on Android</u></a></li>
-<li><a href="https://article-posts.techidaily.com/advanced-lighting-strategies-for-superior-iphone-photos/"><u>Advanced Lighting Strategies for Superior iPhone Photos</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/can-you-really-feel-the-depths-of-dolby-atmos-immersive-audio-at-home/"><u>Can You Really Feel the Depths of Dolby Atmos Immersive Audio at Home?</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/exploring-advanced-pc-components-with-toms-gear-guidance/"><u>Exploring Advanced PC Components with Tom's Gear Guidance</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/germanys-language-milestone-with-mondly-as-the-leader/"><u>Germany's Language Milestone with Mondly as the Leader</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/how-to-maximize-your-content-impact-with-imovie-on-vimeo-for-2024/"><u>How to Maximize Your Content Impact with iMovie on Vimeo for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/how-to-say-hello-in-spanish-10-different-spanish-greetings/"><u>How To Say Hello In Spanish: 10 Different Spanish Greetings</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/impress-with-these-top-50-classics-in-latin-language/"><u>Impress with These Top 50 Classics in Latin Language</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-google-hangout-optimization-advanced-methods-4-tips/"><u>In 2024, Google Hangout Optimization  Advanced Methods, 4 Tips</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-ultimate-handbook-insta-to-tik-tok-connectivity/"><u>In 2024, Ultimate Handbook  Insta-to-Tik Tok Connectivity</u></a></li>
-<li><a href="https://review-topics.techidaily.com/iphone-x-data-recovery-software-to-recover-lost-ios-data-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>iPhone X® Data Recovery Software to Recover Lost iOS® Data | Stellar</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-unlocked-romanian-made-simple/"><u>Language Unlocked: Romanian Made Simple</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-ukrainian-efficiently-with-10-minute-a-day-commitment-106-chars/"><u>Learn Ukrainian Efficiently with 10-Minute a Day Commitment (106 Chars)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/masterys-journey-honoring-the-1500th-free-daily-lesson-anniversary/"><u>Mastery's Journey: Honoring the 1500Th Free Daily Lesson Anniversary</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-vr-networking-expand-your-spanish-proficiency/"><u>Mondly VR Networking: Expand Your Spanish Proficiency</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-the-nuances-of-japanese-characters/"><u>Navigating the Nuances of Japanese Characters</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/rapid-norwegian-understanding-10-daily-moments/"><u>Rapid Norwegian Understanding, 10 Daily Moments</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-fluently-top-6-e-learning-platforms-for-korean-study/"><u>Speak Fluently: Top 6 E-Learning Platforms for Korean Study</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-like-a-pro-a-beginners-french-accent-guide/"><u>Speak Like a Pro: A Beginner's French Accent Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speedy-strategies-for-mastering-new-languages/"><u>Speedy Strategies for Mastering New Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/survival-russian-the-must-know-phrases-for-visitors/"><u>Survival Russian: The Must-Know Phrases for Visitors</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-10-best-foreign-films-to-watch-this-holiday-season-to-improve-your-language-skills/"><u>The 10 Best Foreign Films to Watch This Holiday Season to Improve Your Language Skills</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-allure-of-arabic-mastery-top-six-with-mondly-online/"><u>The Allure of Arabic Mastery: Top Six with Mondly Online</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/top-10-free-harmonies-for-deep-calm-meditation-sessions-for-2024/"><u>Top 10 Free Harmonies for Deep, Calm Meditation Sessions for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/transform-your-future-by-embracing-english-language/"><u>Transform Your Future by Embracing English Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ukranian-mastery-rapid-acquisition-via-daily-microlearning-98-chars/"><u>Ukranian Mastery: Rapid Acquisition via Daily Microlearning (98 Chars)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unleash-the-power-of-love-in-different-languages-discover-more-ways-to-say-i-love-you-this-valentines-day/"><u>Unleash The Power Of Love In Different Languages! Discover More Ways To Say I Love You This Valentine's Day</u></a></li>
-<li><a href="https://extra-information.techidaily.com/unlock-the-magic-of-motion-in-video-text-elements/"><u>Unlock the Magic of Motion in Video Text Elements</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/why-it-matters-distinguishing-por-que-from-por-que/"><u>Why It Matters: Distinguishing Por Que From Por Qué</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/molofia-eygnwmwn-glwttoprwteyoyntes/"><u>Μολόφια Ευγνώμων Γλωττοπρωτεύουντες</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-is-active-presenter-8-the-peak-of-recording/"><u>[New] In 2024, Is Active Presenter 8 the Peak of Recording?</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-quicktime-stall-capture-help/"><u>2024 Approved QuickTime Stall Capture Help</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/discover-cutting-edge-technology-with-tomebase-the-ultimate-guide-toms-hardware/"><u>Discover Cutting-Edge Technology with Tom'ebase - The Ultimate Guide! ⚡️ | Tom's Hardware</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/english-lexicon-blunders-a-compiled-rank-of-the-worst-mistakes/"><u>English Lexicon Blunders: A Compiled Rank of the Worst Mistakes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/favored-foreign-languages-for-academic-study/"><u>Favored Foreign Languages for Academic Study</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-abcs-to-spanish-abcs-kindergarten-elementary-journey/"><u>From ABCs to Spanish ABCs: Kindergarten-Elementary Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-shanties-to-speech-a-buccaneers-path/"><u>From Shanties to Speech: A Buccaneer’s Path</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/how-to-stream-htc-videos-using-the-no-cost-htc-media-player-for-pcs-and-laptops/"><u>How to Stream HTC Videos Using the No-Cost HTC Media Player for PCs and Laptops</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-can-i-unlock-my-iphone-14-pro-after-forgetting-my-pin-code-by-drfone-ios/"><u>In 2024, How Can I Unlock My iPhone 14 Pro After Forgetting my PIN Code?</u></a></li>
+<li><a href="https://techtrends.techidaily.com/inside-information-on-sonys-car-project-afela-news-pricing-predictions-launch-timeline-and-specs-revealed/"><u>Inside Information on Sony's Car Project (AFELA): News, Pricing Predictions, Launch Timeline, and Specs Revealed!</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115945/19272" target="_top" id="2115945">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115945/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: "Israel's National Language: An Overview?"
-date: 2024-09-05T04:38:05.228Z
-updated: 2024-09-06T04:38:05.228Z
+date: 2024-09-12T19:44:38.102Z
+updated: 2024-09-16T19:40:15.567Z
 tags:
   - speak
   - english
@@ -14,32 +14,12 @@ keywords: Israel's National Language,Hebrew Language Origins in Israel,Importanc
 thumbnail: https://thmb.techidaily.com/0a1a7225cf59c67660e5517795e22301d6d92dc2445c6377515e5503eb99dcd0.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Israel's National Language: An Overview?
 
  Home to three major religions (Judaism, Christianity and Islam), Israel is just as diverse when it comes to languages. Therefore, it’s not a matter of “what language is spoken in Israel”, but of which**_are_** **_the languages_** spoken in Israel.
 
-
-
  Following a tumultuous and often violent history, the nation of Israel now has a [population](https://en.wikipedia.org/wiki/Israel#Demographics) of more than 9 million people. Out of this, 74.2% are Jews, 20.9% Arabs and 4.8% are Christians and people who have no religion listed in the civil registry. Despite the cultural diversity, almost the entire population speaks Hebrew, the country’s official language, either as a first or second language. However, this is not the full story of the languages of Israel. Let’s take a closer look at the country’s current linguistic landscape.
 
-<!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The Israel language mosaic – what language is spoken in Israel?
 
  **Hebrew is the everyday and official language of Israel and roughly everyone speaks it, but the Arab minority which accounts for about one-fifth of the population, also speaks Arabic. Additionally, a high percentage of Israelis know English and over a million of them speak Russian as a result of immigration from the Soviet Union.**
@@ -54,12 +34,6 @@ thumbnail: https://thmb.techidaily.com/0a1a7225cf59c67660e5517795e22301d6d92dc24
 
  Modern Hebrew is what you’ll hear on [the streets of Israel](https://link.springer.com/referenceworkentry/10.1007%2F978-3-030-02438-3%5F125) (and what you can [learn with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5614&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5614?mother%5Flang=en%5Fus?target%5Flang=he&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5614?mother%5Flang=en%5Fus?target%5Flang=he) ) and premodern Hebrew is now used only for prayer or study in Jewish communities.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Arabic
 
  Although Arabic is [no longer an official language](https://www.csmonitor.com/World/Middle-East/2018/0917/Why-Arabic-is-flowering-in-Israel-even-as-it-s-officially-demoted) in Israel, it has a special status under Israeli law and it is spoken by Israeli Muslims, Christians and Druze, as well as by Jews who originate from Arab countries.
@@ -71,17 +45,12 @@ thumbnail: https://thmb.techidaily.com/0a1a7225cf59c67660e5517795e22301d6d92dc24
  “Dome of the Rock, Jerusalem, Israel” by Stacey Franco©
 
 <!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115920/19272" target="_top" id="2115920">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115920" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115920/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Russian
 
  When you asked yourself “what language is spoken in Israel?”, probably Russian wasn’t your first choice. However, over one million [Russian-speaking Israelis](https://en.wikipedia.org/wiki/Languages%5Fof%5FIsrael) make Russian the most widely spoken non-official language in the State of Israel. Following a mass Jewish immigration from the USSR in the 1970s and later, Israel became home to many Soviet Jews who fled Russia to escape anti-Semitic discrimination.
@@ -95,11 +64,12 @@ So, as you can see, Russian is surprisingly widespread in Israel.
  Other languages you’re likely to hear in Israel are Yiddish, French (which was used as a diplomatic language in Israel until the 1990s when the Israeli-French alliance was undermined), German, Spanish and Romanian.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115936/19272" target="_top" id="2115936">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115936" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115936/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Can you speak English in Israel?
 
  **Yes, you can. A high percentage of Israelis can understand and speak English on at least a basic level.**
@@ -115,12 +85,6 @@ So, as you can see, Russian is surprisingly widespread in Israel.
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Speak Hebrew or Arabic fluently in just 10 minutes a day
 
  Do you want to speak Hebrew fluently fast? Or maybe Arabic? Get Mondly, the award-winning language learning app that will help you speak a new language in just 10 minutes a day.
@@ -137,8 +101,6 @@ So, as you can see, Russian is surprisingly widespread in Israel.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -148,38 +110,18 @@ So, as you can see, Russian is surprisingly widespread in Israel.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-audiovisual-harmony-music-integration-in-social-media/"><u>[New] 2024 Approved  Audiovisual Harmony  Music Integration in Social Media</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-diy-guide-screen-capture-and-sound-from-youtube/"><u>[New] 2024 Approved  DIY Guide  Screen Capture & Sound From YouTube</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-the-invisible-dimensions-of-instagram-story-fans/"><u>[New] The Invisible Dimensions of Instagram Story Fans</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-top-10-stress-relieving-games/"><u>[New] Top 10 Stress Relieving Games</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-masterclass-splitting-your-screen-for-maximum-impact-on-facebook-live/"><u>[Updated] Masterclass  Splitting Your Screen for Maximum Impact on Facebook Live</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-top-10-zoom-tips-for-efficient-chromebook-use/"><u>2024 Approved  Top 10 Zoom Tips for Efficient Chromebook Use</u></a></li>
-<li><a href="https://windows11.techidaily.com/boost-efficiency-with-top-practices-for-wsl-2-usage-on-pcs/"><u>Boost Efficiency with Top Practices for WSL 2 Usage on PCs</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/detailed-guide-crafting-powerful-video-thumbnails-for-content-marketing/"><u>Detailed Guide  Crafting Powerful Video Thumbnails for Content Marketing</u></a></li>
-<li><a href="https://solve-news.techidaily.com/driven-by-the-advanced-data-capture-of-cookiebot/"><u>Driven by the Advanced Data-Capture of Cookiebot</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/guide-triggering-a-hard-reset-on-windows-boot-into-safe-mode/"><u>Guide: Triggering a Hard Reset on Windows - Boot Into Safe Mode</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-leave-a-life360-group-on-apple-iphone-12-without-anyone-knowing-drfone-by-drfone-virtual-ios/"><u>How To Leave a Life360 Group On Apple iPhone 12 Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/indonesias-hospitality-in-everyday-language/"><u>Indonesia's Hospitality in Everyday Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/interlingual-exploration-turkey-and-korea/"><u>Interlingual Exploration: Turkey & Korea</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/key-5-mobile-apps-boosting-linguistic-training/"><u>Key 5 Mobile Apps Boosting Linguistic Training</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-and-pearson-buttonfilters-a-new-standard-rising/"><u>Mondly & Pearson ButtonFilters: A New Standard Rising</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-kids-a-google-play-best-2017/"><u>Mondly Kids: A Google Play Best - 2017</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-shatters-boundaries-uniting-global-educators-of-70plus-millions/"><u>Mondly Shatters Boundaries - Uniting Global Educators of 70+ Millions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/multilingual-mayhem-embrace-new-languages-with-vr/"><u>Multilingual Mayhem: Embrace New Languages with VR</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/must-know-russian-lingo-for-travel-efficiency/"><u>Must-Know Russian Lingo for Travel Efficiency</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pearson-upgrades-gsl-embraces-mondly-for-perfection/"><u>Pearson Upgrades GSL, Embraces Mondly for Perfection</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/quick-start-mastering-latvian-in-daily-doses/"><u>Quick Start: Mastering Latvian in Daily Doses</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/rapid-learn-the-essentials-of-japanese-counting/"><u>Rapid Learn: The Essentials of Japanese Counting</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/spanish-and-portuguese-a-comparative-analysis/"><u>Spanish and Portuguese: A Comparative Analysis</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/students-benefit-from-mondlys-tech-upgrade-with-apple/"><u>Students Benefit From Mondly's Tech Upgrade with Apple</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/team-enhancement-through-multilingual-software-exploration/"><u>Team Enhancement Through Multilingual Software Exploration</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-complete-japanese-greeting-handbook/"><u>The Complete Japanese Greeting Handbook</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/tweet-titans-social-networks-10-most-shared-posts/"><u>Tweet Titans  Social Network’s 10 Most Shared Posts</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/un-viaje-descubrimiento-en-anatomia-de-la-boca-a-los-rinones-en-espanol/"><u>Un Viaje Descubrimiento en Anatomía: De La Boca A Los Riñones En Español</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-global-potential-through-german-studies-10-reasons/"><u>Unlock Global Potential Through German Studies (10 Reasons)</u></a></li>
-<li><a href="https://driver-error.techidaily.com/versatile-pci-interfaces-compatible-with-windows/"><u>Versatile PCI Interfaces Compatible with Windows</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/voice-translation-revolution-oculus-quest-and-mondly-unite/"><u>Voice Translation Revolution: Oculus Quest and Mondly Unite</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/voice-variations-dissecting-aussie-slang-from-us-southern-drawl/"><u>Voice Variations: Dissecting Aussie Slang From U.S. Southern Drawl</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/why-learn-croatian-discover-these-7-remarkable-advantages-immediately/"><u>Why Learn Croatian? Discover These 7 Remarkable Advantages Immediately</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/zoom-mastery-maximizing-your-podcast-recording-quality-for-2024/"><u>Zoom Mastery  Maximizing Your Podcast Recording Quality for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-avoid-facebook-video-ad-interruptions/"><u>[New] 2024 Approved Avoid Facebook Video Ad Interruptions</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-revamping-educational-experiences-through-vr/"><u>[Updated] Revamping Educational Experiences Through VR</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/afrikaans-proficiency-achieved-faster-reasons-supported-by-mondlys-approach/"><u>Afrikaans Proficiency Achieved Faster: Reasons Supported by Mondly's Approach</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bangla-breakthrough-master-in-just-ten-minutes/"><u>Bangla Breakthrough: Master in Just Ten Minutes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-language-gaps-uk-rus-comparison/"><u>Bridging Language Gaps: Uk-Rus Comparison</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-deep-into-new-dialects-save-a-bundle-on-language-classes/"><u>Dive Deep Into New Dialects - Save a Bundle on Language Classes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevate-your-flirting-game-the-best-pick-up-lines-in-english/"><u>Elevate Your Flirting Game: The Best Pick-Up Lines in English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevate-your-speaking-with-pearson-language-services/"><u>Elevate Your Speaking with Pearson Language Services</u></a></li>
+<li><a href="https://win-dash.techidaily.com/expert-guide-troubleshooting-mov-file-imports-in-davinci-resolve-editor/"><u>Expert Guide: Troubleshooting MOV File Imports in DaVinci Resolve Editor</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/flawless-transcription-mastery-with-googles-ai-for-2024/"><u>Flawless Transcription Mastery with Google's AI for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/from-conceptualization-to-production-writing-engaging-documentary-stories-for-2024/"><u>From Conceptualization to Production Writing Engaging Documentary Stories for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-change-your-apple-id-on-apple-iphone-11-pro-max-with-or-without-password-drfone-by-drfone-ios/"><u>How To Change Your Apple ID on Apple iPhone 11 Pro Max With or Without Password | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-pathway-to-youtube-prosperity-a-comprehensive-guide-for-2024/"><u>The Pathway to YouTube Prosperity - A Comprehensive Guide for 2024</u></a></li>
 </ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: "Pioneering Filters: The Mondly-Pearson Collaboration"
-date: 2024-09-10T13:30:55.679Z
-updated: 2024-09-11T13:30:55.679Z
+date: 2024-09-09T18:30:44.450Z
+updated: 2024-09-16T18:16:33.657Z
 tags:
   - speak
   - english
@@ -35,43 +35,9 @@ thumbnail: https://thmb.techidaily.com/3f22ae9e837b10e05053cf12480b5c15e8d166c20
 
 ---
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120865/26400?prodsku=mercury" target="_top" id="2120865">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120865/26400?prodsku=mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## **About Pearson**
 
  At Pearson, our purpose is simple: to add life to a lifetime of learning. We believe that every learning opportunity is a chance for a personal breakthrough. That’s why our c.20,000 Pearson employees are committed to creating vibrant and enriching learning experiences designed for real-life impact. We are the world’s leading learning company, serving customers in more than 200 countries with digital content, assessments, qualifications, and data. For us, learning isn’t just what we do. It’s who we are. Visit us at pearsonplc.com
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## **About Mondly**
 
@@ -85,8 +51,6 @@ thumbnail: https://thmb.techidaily.com/3f22ae9e837b10e05053cf12480b5c15e8d166c20
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -96,43 +60,24 @@ thumbnail: https://thmb.techidaily.com/3f22ae9e837b10e05053cf12480b5c15e8d166c20
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/updated-expert-round-up-the-most-effective-9-digital-recorders/"><u>[Updated] Expert Round-Up  The Most Effective 9 Digital Recorders</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/dealing-with-bugcodeusbdriver-bluescreen-problems-solutions-for-windows-eosystem/"><u>Dealing with BUGCODE_USB_Driver Bluescreen Problems - Solutions for Windows Eosystem</u></a></li>
-<li><a href="https://techtrends.techidaily.com/dvdwindows75/"><u>DVDをWindows7で安全かつ簡単にコピーする最新テクニック5選！</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/german-weekdays-eine-sprachubung/"><u>German Weekdays: Eine Sprachübung</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-language-popularity-top-15-ranking/"><u>Global Language Popularity: Top 15 Ranking</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/go-beyond-ciao-bella-20plus-italian-slang-words-and-expressions/"><u>Go Beyond “Ciao Bella”: 20+ Italian Slang Words & Expressions</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/how-to-restore-your-computer-when-facing-a-missing-msvcr80dll-error/"><u>How to Restore Your Computer When Facing a Missing Msvcr80.dll Error</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-5-easy-ways-to-change-location-on-youtube-tv-on-infinix-smart-7-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Easy Ways to Change Location on YouTube TV On Infinix Smart 7 | Dr.fone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-exploring-the-world-of-digital-color-grading/"><u>In 2024, Exploring the World of Digital Color Grading</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/informe-completo-sobre-partes-del-cuerpo-descubrimiento-desde-la-cara-a-los-pies-en-espanol/"><u>Informe Completo Sobre Partes Del Cuerpo: Descubrimiento Desde La Cara A Los Pies En Español</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/israelian-journey-essentials-must-know-guide-and-dialogue-tools/"><u>Israelian Journey Essentials: Must-Know Guide & Dialogue Tools</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/korean-days-unveiled-a-language-journey/"><u>Korean Days Unveiled: A Language Journey</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/launching-revolutionary-mondlys-faq-collection/"><u>Launching Revolutionary Mondly's FAQ Collection</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/new-app-mondly-on-huawei-devices/"><u>New App: Mondly on Huawei Devices</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/next-gen-learning-mondlys-tech-upgrade-for-education/"><u>Next-Gen Learning: Mondly’s Tech Upgrade for Education</u></a></li>
-<li><a href="https://facebook.techidaily.com/one-star-offensive-pro-palestinian-activism-disrupting-fb-store/"><u>One-Star Offensive: Pro-Palestinian Activism Disrupting FB Store</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/prime-gear-selection-must-have-supplementary-gopro-items/"><u>Prime Gear Selection  Must-Have Supplementary GoPro Items</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/propelled-progress-the-role-of-ai-in-scholarly-pursuits/"><u>Propelled Progress: The Role of AI in Scholarly Pursuits</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/redesigning-kyc-protocols-for-enhanced-compliance-expert-tips-from-the-abbyy-thought-leaders/"><u>Redesigning KYC Protocols for Enhanced Compliance: Expert Tips From the ABBYY Thought Leaders</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/resolve-to-learn-a-new-language-by-jan-2024/"><u>Resolve to Learn a New Language by Jan 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/revealing-santas-multilingual-secrets/"><u>Revealing Santa’s Multilingual Secrets</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/russian-math-breakdown-for-beginners/"><u>Russian Math Breakdown for Beginners</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sagas-in-syntax-tracing-norse-expressive-evolution/"><u>Sagas in Syntax: Tracing Norse Expressive Evolution</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/savoring-a-year-of-learning-without-price/"><u>Savoring a Year of Learning without Price</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/saying-thank-you-in-german-the-complete-collection/"><u>Saying 'Thank You' In German: The Complete Collection</u></a></li>
-<li><a href="https://techidaily.com/sony-bypass-tools-to-bypass-lock-screensony-by-drfone-android-unlock-android-unlock/"><u>Sony Bypass Tools to Bypass Lock Screen(Sony )</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/tempting-terms-a-multilingual-chocolate-lexicon/"><u>Tempting Terms: A Multilingual Chocolate Lexicon</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-alluring-saga-and-advantages-of-persian-study/"><u>The Alluring Saga and Advantages of Persian Study</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-best-way-to-learn-french-at-home/"><u>The Best Way to Learn French at Home</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-complete-spanish-verb-learning-toolkit/"><u>The Complete Spanish Verb Learning Toolkit</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-life-and-legacy-of-johannes-honterus/"><u>The Life and Legacy of Johannes Honterus</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-polyphonic-world-of-african-tongues/"><u>The Polyphonic World of African Tongues</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-smartest-way-to-learn-latin-web-based/"><u>The Smartest Way to Learn Latin Web-Based</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-sweet-speech-guide-to-chocolate-in-many-languages/"><u>The Sweet Speech Guide to Chocolate in Many Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-unwritten-rules-of-german-speech-alphabet-fundamentals/"><u>The Unwritten Rules of German Speech: Alphabet Fundamentals</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-latest-amazon-kindle-paperwhite-your-ultimate-guide-for-avid-readers/"><u>Unveiling the Latest Amazon Kindle Paperwhite: Your Ultimate Guide for Avid Readers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/when-and-where-do-countries-celebrate-thanksgiving/"><u>When and Where Do Countries Celebrate Thanksgiving?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/whispered-desires-in-parisian-conversations/"><u>Whispered Desires in Parisian Conversations</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/syggeneia-eyxes-mhtropolitikh-gkreman/"><u>Συγγένεια Ευχές Μητροπολιτική Γκρεμάν</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-dazzle-and-stand-out-50-free-youtube-branding-pieces/"><u>[Updated] 2024 Approved Dazzle and Stand Out 50 FREE YouTube Branding Pieces</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-navigating-the-best-hdr-cameras/"><u>[Updated] 2024 Approved Navigating the Best HDR Cameras</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/arabic-basics-for-first-timers/"><u>Arabic Basics for First-Timers</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/epicplayback-expert-analysis-for-2024/"><u>EpicPlayback Expert Analysis for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-nokia-c12-plus-phone-with-broken-screen-by-drfone-android/"><u>In 2024, How to Unlock Nokia C12 Plus Phone with Broken Screen</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-professional-insights-concealed-strategies-for-instagram-success/"><u>In 2024, Professional Insights Concealed Strategies for Instagram Success</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-saving-your-digital-dialogue-a-quick-guide-to-fb-chat-recordings/"><u>In 2024, Saving Your Digital Dialogue A Quick Guide to FB Chat Recordings</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/luminous-leap-quick-brightening-tricks-for-iphone-recordings/"><u>Luminous Leap Quick Brightening Tricks for iPhone Recordings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577749458-sovac-slovaci-language-journey-unfolding-one-quick-lesson-daily/"><u>Sovac Slováci - Language Journey Unfolding, One Quick Lesson Daily</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580375581-the-best-way-to-learn-korean-online-6-brilliant-resources/"><u>The Best Way To Learn Korean Online - 6 Brilliant Resources</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579536662-unlock-global-communication-now-96-off/"><u>Unlock Global Communication, Now 96% Off!</u></a></li>
+<li><a href="https://howto.techidaily.com/why-your-infinix-note-30i-screen-might-be-unresponsive-and-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Your Infinix Note 30i Screen Might be Unresponsive and How to Fix It | Dr.fone</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123482/16836" target="_top" id="2123482">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123482/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

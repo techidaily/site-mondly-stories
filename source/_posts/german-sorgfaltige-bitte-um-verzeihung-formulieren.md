@@ -1,7 +1,7 @@
 ---
 title: "German: Sorgfältige Bitte Um Verzeihung Formulieren"
-date: 2024-07-12T08:30:26.400Z
-updated: 2024-07-13T08:30:26.400Z
+date: 2024-09-12T16:18:49.339Z
+updated: 2024-09-16T17:12:33.008Z
 tags:
   - speak
   - english
@@ -46,6 +46,13 @@ Here are some practical examples of apologies in German:
 
  Hear the formal_Entschuldigen Sie_ in action in this basic conversation in German:
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115941/19272" target="_top" id="2115941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115941" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115941/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Other ways to say sorry in German
 
  As you very well know, there can also be other situations where you need to say “sorry” in German. For example, the “can you repeat that?” sorry is quite common. Of course, you can always say_“Entschuldigung?”_ together with the proper facial expression, but sometimes that might not be enough.
@@ -88,6 +95,13 @@ Here are some practical examples of apologies in German:
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120862/26400?prodsku=Saturn" target="_top" id="2120862">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120862" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120862/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### From 0 to conversational in German
 
  Do you want to stop apologizing for your pronunciation? Get Mondly, the award-winning language app that will help you [speak German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) from day 1.
@@ -110,8 +124,6 @@ Here are some practical examples of apologies in German:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -119,6 +131,21 @@ Here are some practical examples of apologies in German:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-steps-to-produce-empowerment-driven-livestreams/"><u>[New] 2024 Approved Steps to Produce Empowerment-Driven Livestreams</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-guide-to-adding-audio-files-to-inshots-library/"><u>[New] Guide to Adding Audio Files to InShot's Library</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-looking-to-access-the-whole-spectrum-of-shared-media-by-contacts-for-2024/"><u>[New] Looking to Access the Whole Spectrum of Shared Media by Contacts for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-vanishing-in-the-crowd-how-to-peruse-instagram-stories-on-various-platforms-anonymously/"><u>[New] Vanishing in the Crowd How to Peruse Instagram Stories on Various Platforms Anonymously</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-top-15-youtube-recording-software-for-gamers/"><u>[Updated] In 2024, Top 15 YouTube Recording Software for Gamers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-rapid-growth-techniques-for-youtube-views-via-collaborative-videos/"><u>2024 Approved Rapid Growth Techniques for YouTube Views via Collaborative Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/8-dynamic-shifts-in-lifestyle-through-language-learning/"><u>8 Dynamic Shifts in Lifestyle Through Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579831098-commonest-focus-on-foreign-language-learning-us/"><u>Commonest Focus on Foreign Language Learning U.S</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/from-forward-to-reverse-mastering-video-reversal-in-final-cut-pro-for-2024/"><u>From Forward to Reverse Mastering Video Reversal in Final Cut Pro for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/games-based-latin-learning-for-students/"><u>Games-Based Latin Learning for Students</u></a></li>
+<li><a href="https://android-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-sony-xperia-1-vfrp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Sony Xperia 1 VFRP Lock</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-unleashed-commemorating-the-milestone-of-1500-accessible-sessions/"><u>Learning Unleashed: Commemorating the Milestone of 1,500 Accessible Sessions</u></a></li>
+<li><a href="https://win-answers.techidaily.com/mastering-smooth-gameplay-essential-tips-to-resolve-2024s-dota-2-latency-problems/"><u>Mastering Smooth Gameplay: Essential Tips to Resolve 2024'S Dota 2 Latency Problems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-and-applying-english-language-contractions-easily/"><u>Understanding and Applying English Language Contractions Easily</u></a></li>
+</ul></div>
 

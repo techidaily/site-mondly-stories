@@ -1,7 +1,7 @@
 ---
 title: "Aufforderungen in Einem Respektvollen Ton: Deutsch"
-date: 2024-07-12T08:31:06.799Z
-updated: 2024-07-13T08:31:06.799Z
+date: 2024-09-13T20:00:57.085Z
+updated: 2024-09-16T17:03:36.133Z
 tags:
   - speak
   - english
@@ -46,6 +46,13 @@ Here are some practical examples of apologies in German:
 
  Hear the formal_Entschuldigen Sie_ in action in this basic conversation in German:
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Other ways to say sorry in German
 
  As you very well know, there can also be other situations where you need to say “sorry” in German. For example, the “can you repeat that?” sorry is quite common. Of course, you can always say_“Entschuldigung?”_ together with the proper facial expression, but sometimes that might not be enough.
@@ -88,6 +95,13 @@ Here are some practical examples of apologies in German:
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### From 0 to conversational in German
 
  Do you want to stop apologizing for your pronunciation? Get Mondly, the award-winning language app that will help you [speak German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) from day 1.
@@ -110,8 +124,6 @@ Here are some practical examples of apologies in German:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -119,6 +131,19 @@ Here are some practical examples of apologies in German:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-premiere-gear-optimal-panoramic-recorders/"><u>[New] Premiere Gear Optimal Panoramic Recorders</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-pc-capture-tool-apowersofts-latest-screen-recording/"><u>[Updated] In 2024, PC Capture Tool Apowersoft's Latest Screen Recording</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-inside-look-key-aspects-of-srt-mastery/"><u>[Updated] Inside Look Key Aspects of SRT Mastery</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/best-comprehensive-recorder-apps-pcmacos/"><u>Best Comprehensive Recorder Apps - PC/macOS</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-an-airtag-from-your-apple-id-account-from-iphone-6s-by-drfone-ios/"><u>In 2024, How to Remove an AirTag from Your Apple ID Account From iPhone 6s?</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/in-2024-mastering-echo-effects-implementing-reverb-in-digital-sound-environments-windows-edition/"><u>In 2024, Mastering Echo Effects Implementing Reverb in Digital Sound Environments (Windows Edition)</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/mastering-the-meaning-of-pfp-in-tiktok-world/"><u>Mastering the Meaning of PFP in TikTok World</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/origins-of-the-germanic-dialektaal-voortgang/"><u>Origins of the Germanic Dialektaal Voortgang</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/outstanding-5-educational-platforms-for-language-instruction/"><u>Outstanding 5 Educational Platforms for Language Instruction</u></a></li>
+<li><a href="https://games-able.techidaily.com/sonys-annual-gaming-plan-and-its-financial-implications/"><u>Sony's Annual Gaming Plan and Its Financial Implications</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sverige-mojligen-allt-i-gorelse/"><u>Sverige Möjligen: Allt I Görelse</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/valkommen-till-sverige-svensk-valkomman/"><u>Välkommen Till Sverige: Svensk Välkomman</u></a></li>
+</ul></div>
 

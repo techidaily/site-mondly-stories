@@ -1,7 +1,7 @@
 ---
 title: "From Novice to Numerical Fluency: Spanish Numbers"
-date: 2024-07-12T08:24:40.138Z
-updated: 2024-07-13T08:24:40.138Z
+date: 2024-09-12T17:44:28.050Z
+updated: 2024-09-16T16:28:45.736Z
 tags:
   - speak
   - english
@@ -99,6 +99,19 @@ thumbnail: https://thmb.techidaily.com/12bebdcee4292f456ae693e07b507d42d27bcfe89
 * 84 –_ochenta y cuatro_
 * 98 –_noventa y ocho_
 
+<!-- affiliate ads begin -->
+<span id="1975555">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Spanish numbers to 1000 and beyond
 
  Hundreds shouldn’t scare you either. They are just as simple. Once you know how the hundreds are, you’ll also know the numbers in between.
@@ -135,6 +148,13 @@ Here are some more examples:
 * 999 – _novecientos noventa y nueve_
 
 ![count in Spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/07/count-in-spanish-960x663.jpg "Spanish Numbers: How To Count Numbers In Spanish 4")
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Barcelona, Spain
 
@@ -176,8 +196,6 @@ Here are some more examples:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -185,6 +203,22 @@ Here are some more examples:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-the-ultimate-guide-making-your-gifs-into-stickers-via-discordwhatsapp/"><u>[New] 2024 Approved The Ultimate Guide Making Your GIFs Into Stickers via Discord/WhatsApp</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-streamlined-steps-for-saving-webcam-dialogues/"><u>[Updated] 2024 Approved Streamlined Steps for Saving Webcam Dialogues</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-annual-roundup-top-no-money-video-editing-software-reviewed-for-2024/"><u>[Updated] Annual Roundup Top No-Money Video Editing Software Reviewed for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-movies-that-make-you-a-language-connoisseur/"><u>10 Movies That Make You a Language Connoisseur</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/100plus-french-travel-phrases-youll-need-to-fall-in-love-with-paris/"><u>100+ French Travel Phrases You’ll Need to Fall in Love with Paris</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-creating-compelling-call-to-actions-utilizing-three-critical-copy-techniques/"><u>2024 Approved Creating Compelling Call-To-Actions Utilizing Three Critical Copy Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-quest-for-the-ultimate-linguistic-giant/"><u>A Quest for the Ultimate Linguistic Giant</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/break-language-barriers-with-mondlys-freshest-phrasebook/"><u>Break Language Barriers with Mondly's Freshest Phrasebook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fluent-in-finesse-top-25-must-know-german-phrases/"><u>Fluent in Finesse - Top 25 Must-Know German Phrases</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/hand-drawn-whiteboard-video-creation-the-top-5-software-options-for-2024/"><u>Hand-Drawn Whiteboard Video Creation The Top 5 Software Options for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-flash-dead-samsung-galaxy-z-flip-5-safely-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Flash Dead Samsung Galaxy Z Flip 5 Safely | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/hp-laserjet-1320-fresh-driver-download-for-microsoft-operating-systems/"><u>HP LaserJet 1320 - Fresh Driver Download for Microsoft Operating Systems</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/resolving-error-code-0x0000005c-a-step-by-step-hal-initialization-failure-guide/"><u>Resolving Error Code 0X0000005C: A Step-by-Step HAL Initialization Failure Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-body-parts-in-spanish-from-head-to-toe/"><u>The Body Parts in Spanish – From Head to Toe</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-language-mastery-mondly-languageleader/"><u>Top Language Mastery: Mondly, #LanguageLeader</u></a></li>
+</ul></div>
 

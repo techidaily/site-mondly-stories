@@ -1,7 +1,7 @@
 ---
 title: The Cultural Wealth of Farsi & Its Rewards
-date: 2024-09-10T13:30:56.511Z
-updated: 2024-09-11T13:30:56.511Z
+date: 2024-09-14T18:58:46.981Z
+updated: 2024-09-16T16:12:45.298Z
 tags:
   - speak
   - english
@@ -28,20 +28,6 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
 
  In other words, the confusion arises from the fact that there’s currently no country on Earth named Persia in the same way there’s no language we can call the ‘Iranian language’. Persian does belong to the Iranian languages, but the Iranian languages are a branch of the Indo-Iranian languages in the Indo-European language family. So they are not an individual language.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## The Persian language – history and facts
 
  One of the most fascinating things about Persian is its long history stretching back thousands of years. The Persian language that exists today is a continuation of Middle Persian, itself a continuation of Old Persian, which was used in the Achaemenid Empire between 550 and 330 BCE. Let’s look a little bit at the history of the Persian language and discover what makes it special.
@@ -49,20 +35,6 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
  The oldest known records of**Old Persian** are some inscriptions dating back to the time of King Darius I (522–486 BC). These inscriptions are written in the Babylonian cuneiform script, which is one of the oldest writing forms in the world.
 
  Old Persian then developed into**Middle Persian,** which existed from around 300 BCE until 800 CE. Evidence of Middle Persian exists mainly in the religious texts of the Zoroastrian religion. However, **Middle Persian entered a new stage when the Islamic conquest in 651 AD happened.** The following 200 years are referred to as “the two centuries of silence” because there is very little to almost no literature available from this time period.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123482/16836" target="_top" id="2123482">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123482/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### The Arab rule
 
@@ -72,69 +44,15 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
 
 !["Ferdowsi Shahnameh" by McGill Library©](https://edge.mondly.com/blog/wp-content/uploads/2022/09/mcgill-library-AH42Li7NKUc-unsplash-960x629.jpg "Persian Language: History &Amp; Benefits Of Learning Farsi/Persian 2")
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
  Persian Literary History: Ferdowsi’s ‘Shahnameh’ — Siyavush in Sudaba’s private quarters.
 
  Today, there still are a significant number of [Arabic words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) in Persian, but not as many as there could have been.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### Persian influence on other languages
 
  During this Persian cultural resurgence, the Persian language and culture impacted a wide geographic area. For this reason, Persian has left its influence on many different languages, including a heavy influence on the [vocabulary of Urdu](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and Turkish. To this day, words of Persian origin can be found as far as Malaysia.
 
  As a matter of fact, there are even some English words of Persian origin. Some of them came directly into English from Persian, but most of them came indirectly into English via a different language. Some examples include bronze, jackal, lemon, mogul, mummy, scarlet, serendipity, shawl, tulip, turban, typhoon, khaki, caravan, and paradise. Probably the most interesting borrowing is the word “checkmate,” which comes from the Persian_Shah Mat_ , meaning “the king is dead”.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Persian vs Farsi: Is Farsi the same as Persian?
 
@@ -158,19 +76,12 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
 
  All in all, Persian and Arabic can’t be considered mutually intelligible. A speaker of either Persian or Arabic with no knowledge of the other could recognize some basic words in writing, but conversations are a whole other story.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## The benefits of learning Farsi/Persian
 
@@ -191,6 +102,13 @@ Other benefits of learning Persian include:
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123468/16836" target="_top" id="2123468">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123468" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123468/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Learn Persian online with Mondly
 
@@ -214,8 +132,6 @@ Other benefits of learning Persian include:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -225,49 +141,12 @@ Other benefits of learning Persian include:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-hints.techidaily.com/new-abletons-techniques-for-diminishing-sound-intensity/"><u>[New] Ableton's Techniques for Diminishing Sound Intensity</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/iving-into-the-world-of-youtube-search-engine-rankings/"><u>[New] Diving Into the World of YouTube Search Engine Rankings</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-ensuring-longevity-for-androidmac-snapshots-for-2024/"><u>[New] Ensuring Longevity for Android/Mac Snapshots for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-leading-the-charge-in-macwin-srt-modifications/"><u>[New] Leading the Charge in Mac/Win SRT Modifications</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-the-years-finest-photo-framers-and-organizers-compilation/"><u>[New] The Year's Finest Photo Framers & Organizers Compilation</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-9-superior-editing-platforms-for-every-drone-operators-level/"><u>[Updated] 9 Superior Editing Platforms for Every Drone Operator's Level</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-chromes-best-deals-on-screen-recorder-free-tools/"><u>[Updated] Chrome's Best Deals on Screen Recorder Free Tools</u></a></li>
-<li><a href="https://article-files.techidaily.com/drone-dynamics-reimagined-the-hubsan-h501s-breakdown-for-2024/"><u>Drone Dynamics Reimagined - The Hubsan H501S Breakdown for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/from-splus10-we-get-s-1/"><u>From \\(S+1=0\\), We Get \\(S=-1\\)</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Poco F5 5G? | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-itel-p40plus-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Itel P40+ Without PUK Codes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/journey-through-persian-evolution-and-gains/"><u>Journey Through Persian Evolution and Gains</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/kennenlernen-sie-die-deutschen-tage-der-woche/"><u>Kennenlernen Sie Die Deutschen Tage Der Woche</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-british-phrases-sayings-and-slang-a-guide-to-speaking-like-a-brit/"><u>Learn British Phrases, Sayings, And Slang: A Guide To Speaking Like A Brit</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-german-with-dark-on-netflix/"><u>Learn German With Dark on Netflix</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-slovak-swiftly-with-our-quick-10-minute-online-methods/"><u>Learn Slovak Swiftly with Our Quick 10-Minute Online Methods!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/les-saturdays-francais/"><u>Les Saturdays Français</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/list-of-pokemon-go-joysticks-on-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>List of Pokémon Go Joysticks On Apple iPhone 11 | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/master-hangul-the-easiest-asian-alphabet-to-learn/"><u>Master Hangul: The Easiest Asian Alphabet To Learn</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-associates-with-pearson-learning-group/"><u>Mondly Associates With Pearson Learning Group</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-secures-prestigious-witsa-accolade/"><u>Mondly Secures Prestigious WITSA Accolade</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-insights-into-its-pedagogy/"><u>Mondly: Insights Into Its Pedagogy</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-milestone-marked-in-time/"><u>Mondly’s Milestone Marked in Time</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/motivation-maestro-the-honterus-way/"><u>Motivation Maestro - The Honterus Way</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/multilingual-mastery-made-easy-with-evidence-backed-music-techniques/"><u>Multilingual Mastery Made Easy with Evidence-Backed Music Techniques</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/multilingual-mastery-embracing-new-verbal-expressions/"><u>Multilingual Mastery: Embracing New Verbal Expressions</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/new-canon-camcorder-video-editing-made-easy-tips-tricks-and-software/"><u>New Canon Camcorder Video Editing Made Easy Tips, Tricks, and Software</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/new-generate-mind-bending-glitches-with-these-free-online-tools/"><u>New Generate Mind-Bending Glitches with These Free Online Tools</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/new-lingo-no-stress-save-95-and-speak-smoothly/"><u>New Lingo, No Stress: Save 95% and Speak Smoothly!</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/new-the-ultimate-guide-6-premier-automatic-transcription-programs-for-2024/"><u>New The Ultimate Guide 6 Premier Automatic Transcription Programs for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/online-bengali-learning-fast-track/"><u>Online Bengali Learning Fast Track</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/polyglotpulse-dubai-expo-2020-speaking-in-many-voices/"><u>PolyglotPulse Dubai Expo 2020: Speaking in Many Voices</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pumpkin-time-a-global-perspective/"><u>Pumpkin Time: A Global Perspective</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/quick-hues-speaking-in-french-with-precision/"><u>Quick Hues: Speaking in French with Precision</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/quick-mastery-conquer-japanese-numbers-in-minutes/"><u>Quick Mastery: Conquer Japanese Numbers in Minutes</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/renowned-makers-exquisite-insta-hlv-designers-online-for-2024/"><u>Renowned Makers  Exquisite Insta HLV Designers Online for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/swift-steps-to-expertise-learn-latin-easily/"><u>Swift Steps to Expertise: Learn Latin Easily</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/tapping-into-ais-capabilities-for-academic-advancement/"><u>Tapping Into AI's Capabilities for Academic Advancement</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-first-and-oldest-languages-ever-spoken-origins-of-human-communication/"><u>The First & Oldest Languages Ever Spoken: Origins of Human Communication</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-freedom-to-grow-celebrating-1500-daily-free-educational-steps/"><u>The Freedom to Grow: Celebrating 1,500 Daily Free Educational Steps</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/understanding-germany-through-its-idioms-25-titles/"><u>Understanding Germany Through Its Idioms: 25 Titles</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-santa-written-in-many-languages/"><u>Unlocking Santa' Written in Many Languages</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-the-top-mts-video-editing-software-a-comprehensive-review/"><u>Updated In 2024, The Top MTS Video Editing Software A Comprehensive Review</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/what-language-did-vikings-speak/"><u>What Language Did Vikings Speak?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/wisdom-without-walls-commemorating-a-decade-of-1500-free-lessons/"><u>Wisdom Without Walls: Commemorating a Decade of 1500 Free Lessons</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-detailed-analysis-of-youtubes-versus-dailymentions/"><u>[New] Detailed Analysis of YouTubes Versus DailyMentions</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-empowering-users-to-tackle-instagram-video-snags-for-2024/"><u>[New] Empowering Users to Tackle Instagram Video Snags for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-scaling-down-macos-from-sierra-to-el-capitan-os/"><u>[Updated] 2024 Approved Scaling Down MacOS From Sierra To El Capitan OS</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/100plus-basic-russian-phrases-every-traveler-needs-to-know/"><u>100+ Basic Russian Phrases Every Traveler Needs To Know</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-guide-to-the-body-language-in-everyday-italian-life/"><u>A Guide to the Body Language in Everyday Italian Life</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-unlocking-vsco-photo-editing-tips-and-tricks/"><u>In 2024, Unlocking VSCO Photo Editing Tips & Tricks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579736864-the-best-way-to-study-portuguese-6-tips-that-will-work-wonders/"><u>The Best Way to Study Portuguese – 6 Tips That Will Work Wonders</u></a></li>
 </ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: "Semaine Française: La Palette Des Jours"
-date: 2024-09-05T04:39:07.768Z
-updated: 2024-09-06T04:39:07.768Z
+date: 2024-09-11T18:08:07.269Z
+updated: 2024-09-16T18:39:17.073Z
 tags:
   - speak
   - english
@@ -14,24 +14,12 @@ keywords: Française Weekly Moods,Journeys Through French Artistry,Daily Essence
 thumbnail: https://thmb.techidaily.com/d02ecec5426e8e1f2da5e128e095f9718e5fc3c1177707ff5abe66e708ea725f.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Semaine Française: La Palette Des Jours
 
  Mastering something as essential as the**days of the week in French** may prove more practical than you think. Paris is always a good idea, but what if you miss your_mardi_ reservation at the #1 restaurant in Paris because you show up on_mercredi_ instead? We don’t want that to happen. That’s why it’s always best to dive into [learning French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) by mastering the essentials first: how to say “[hello](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ”, “[you’re welcome](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ” and the days of the week.
 
  If “a day” is_un jour_ in French and “a week” is_une semaine_ , it may also be useful to know that “the days of the week” is “_les jours de la semaine”_ . Now let’s see how fast you can learn all seven days of the week_en français_ .
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Days of the week in French
 
 The days of the week in French are:
@@ -85,18 +73,6 @@ The days of the week in French are:
 
  Planning to spend an entire week in France? Dont stop at_les jours de la semaine en français_ . French people are known to be proud of their language and heritage. Surprise them with your French skills and go beyond “Friday” in French with these [100+ French travel phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . You’ll thank me later.
 
-<!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Usage rules
 
  One more thing before you go. To make sure you are using your newly acquired French days of the week correctly, don’t forget that:
@@ -132,8 +108,6 @@ The days of the week in French are:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -143,66 +117,24 @@ The days of the week in French are:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://mondly-stories.techidaily.com/por-que-the-english-interpretation-of-spanish-por-que/"><u>'Por Qué': The English Interpretation of Spanish 'Por Que'</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-deciphering-the-best-youtube-video-trackers-for-success/"><u>[New] In 2024, Deciphering the Best YouTube Video Trackers for Success</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-optimizing-obs-for-otofb-mastery-guide/"><u>[New] In 2024, Optimizing OBS for OToFB  Mastery Guide</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-the-8-most-advanced-open-video-call-systems-for-the-workplace/"><u>[Updated] 2024 Approved  The 8 Most Advanced Open Video Call Systems for the Workplace</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-crafting-perfect-youtube-music-sets-for-2024/"><u>[Updated] Crafting Perfect YouTube Music Sets for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-evasion-techniques-for-youtube-bans-for-2024/"><u>[Updated] Evasion Techniques for YouTube Bans for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-expert-methods-for-capturing-and-streaming-sports-gems/"><u>[Updated] Expert Methods for Capturing and Streaming Sports Gems</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-hds-finest-picks-reviewing-top-screen-recorders-for-2024/"><u>[Updated] HD's Finest Picks  Reviewing Top Screen Recorders for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-vimeos-no-money-solution-easy-editing-basics/"><u>[Updated] In 2024, Vimeo's No-Money Solution  Easy Editing Basics</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-kinemaster-elevating-your-game-play-experience-on-android-devices/"><u>[Updated] KineMaster  Elevating Your Game Play Experience on Android Devices</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-mastering-video-capture-on-periscope-a-comprehensive-manual-for-2024/"><u>[Updated] Mastering Video Capture on Periscope  A Comprehensive Manual for 2024</u></a></li>
-<li><a href="https://android-location.techidaily.com/10-fake-gps-location-apps-on-android-of-your-nokia-150-2023-drfone-by-drfone-virtual/"><u>10 Fake GPS Location Apps on Android Of your Nokia 150 (2023) | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/a-concise-timeline-of-electric-car-evolution/"><u>A Concise Timeline of Electric Car Evolution</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/camerahunt-finding-superior-substitutes/"><u>CameraHunt  Finding Superior Substitutes</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-video-files-on-infinix-note-30-pro-by-fonelab-android-recover-video/"><u>Complete guide for recovering video files on Infinix Note 30 Pro</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ehensive-guide-to-crafting-engaging-youtube-outros/"><u>Comprehensive Guide to Crafting Engaging YouTube Outros</u></a></li>
-<li><a href="https://win-answers.techidaily.com/double-impact-understanding-the-two-crash-scenario-on-your-computer/"><u>Double Impact: Understanding the Two-Crash Scenario on Your Computer</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/expert-advice-how-to-fix-windows-crashing-issue-error-0xc00000e9-explained-and-resolved/"><u>Expert Advice: How to Fix Windows Crashing Issue - Error 0Xc00#000e9 Explained and Resolved</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/getting-ready-for-imovie-smoothly-converting-avi-video-format-for-ios-devices/"><u>Getting Ready for iMovie: Smoothly Converting AVI Video Format for iOS Devices</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/guia-intuitiva-al-entender-el-tiempo-en-espanol/"><u>Guía Intuitiva Al Entender El Tiempo en Español</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-by-checkra1n-even-from-apple-iphone-se-2020-if-youve-tried-everything-by-drfone-ios/"><u>How To Bypass iCloud By Checkra1n Even From Apple iPhone SE (2020) If Youve Tried Everything</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/identifica-los-animales-en-espanol-con-estos-topos/"><u>Identifica Los Animales en Español Con Estos Topos</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/identifying-your-next-perfect-linguistic-skill/"><u>Identifying Your Next Perfect Linguistic Skill</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-vivo-s17e-drfone-by-drfone-virtual/"><u>In 2024, 9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Vivo S17e | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-vivo-v29e-drfone-by-drfone-virtual-android/"><u>In 2024, Apply These Techniques to Improve How to Detect Fake GPS Location On Vivo V29e | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-i-transferred-messages-from-oppo-find-x6-pro-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How I Transferred Messages from Oppo Find X6 Pro to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-my-samsung-galaxy-f54-5g-location-is-wrong-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix My Samsung Galaxy F54 5G Location Is Wrong | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-master-the-art-of-mobile-movie-watching-with-top-10-ios-apps/"><u>In 2024, Master the Art of Mobile Movie Watching with Top 10 iOS Apps</u></a></li>
-<li><a href="https://win-dash.techidaily.com/intel-usb-30-driver-update-easy-installation-steps-for-windows-11-users/"><u>Intel USB 3.0 Driver Update – Easy Installation Steps for Windows 11 Users</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/introduction-to-mandarin-scripting/"><u>Introduction to Mandarin Scripting</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/johannes-honterus-driving-change/"><u>Johannes Honterus: Driving Change</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/jours-francais-de-lannee/"><u>Jours Français De L'Année</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-fluency-vs-grammatical-correctness/"><u>Language Fluency Vs. Grammatical Correctness</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-learning-leaders-pioneers-of-21st-century-education/"><u>Language Learning Leaders: Pioneers of 21St Century Education</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lexical-differences-a-tale-of-two-englishes/"><u>Lexical Differences: A Tale of Two Englishes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-collaborates-with-pearson-resources/"><u>Mondly Collaborates with Pearson Resources</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-uniting-force-fostering-knowledge-for-70-million-learners/"><u>Mondly's Uniting Force - Fostering Knowledge for 70 Million Learners</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlyar-redefining-communication-in-virtual-reality/"><u>MondlyAR: Redefining Communication in Virtual Reality</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/multilanguage-masterclass/"><u>Multilanguage Masterclass</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mundo-lunar-un-curso-semanal-de-dia-a-dia-en-espanol/"><u>Mundo Lunar: Un Curso Semanal De Día a Día en Español</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-affection-conveyance-via-magyar-words/"><u>Navigating Affection Conveyance via Magyar Words</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/navigating-through-the-mechanics-of-gpt4all-an-insightful-explanation/"><u>Navigating Through the Mechanics of GPT4All - An Insightful Explanation</u></a></li>
-<li><a href="https://ai-voice-clone.techidaily.com/new-in-2024-master-deepface-live-download-and-train-your-live-model/"><u>New In 2024, Master Deepface Live Download and Train Your Live Model</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/online-linguistic-landscape-mondlys-triumph-in-germany/"><u>Online Linguistic Landscape: Mondly’s Triumph in Germany</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/overcoming-code-24-restoring-missing-devices-on-your-windows-pc/"><u>Overcoming Code 24: Restoring Missing Devices on Your Windows PC</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/performance-probe-a-vll-app-overview/"><u>Performance Probe  A VLL App Overview</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/phonic-finesse-master-english-with-twisters/"><u>Phonic Finesse: Master English With Twisters</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/rapidly-acquire-japanese-numbers-today/"><u>Rapidly Acquire Japanese Numbers Today</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/rapidly-learn-french-for-visual-vibrancy/"><u>Rapidly Learn French for Visual Vibrancy</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/seduction-in-parisian-phrases/"><u>Seduction in Parisian Phrases</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/seven-years-gone-millions-learned-with-mondly/"><u>Seven Years Gone, Millions Learned with Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-like-an-aussie-top-100-slang-guide/"><u>Speak Like an Aussie: Top 100 Slang Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/startende-deutsche-nummerierung-von-eins-bis-hundert-schrittweise-lernen/"><u>Startende Deutsche Nummerierung: Von Eins Bis Hundert Schrittweise Lernen</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/step-up-your-english-game-with-mondly-insights/"><u>Step Up Your English Game with Mondly Insights</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/tales-of-transformation-two-years-mondly-languages-dream-realized/"><u>Tales of Transformation: Two Years, Mondly Languages Dream Realized</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-forces-vocabulary-a-compreayer-into-star-war-language/"><u>The Force's Vocabulary: A Compreayer Into Star War Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-minds-evolution-through-language-learning/"><u>The Mind's Evolution Through Language Learning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-3-most-popular-asian-languagesback-buttonfilter-button/"><u>Top 3 Most Popular Asian LanguagesBack ButtonFilter Button</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/true-insights-on-languages-beyond-the-popular-myths/"><u>True Insights on Languages: Beyond the Popular Myths</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/tune-into-new-language-skills-using-scientific-musical-approaches/"><u>Tune Into New Language Skills - Using Scientific, Musical Approaches</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ukrainian-voices-elevated-through-mondlys-free-language-program/"><u>Ukrainian Voices Elevated Through Mondly’s Free Language Program</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/winxvideo-ai-perfeziona-il-tuo-contenuto-visivo-con-stabilizzazione-video-avanzata-e-conversioni-in-tempo-reale/"><u>Winxvideo AI - Perfeziona Il Tuo Contenuto Visivo Con Stabilizzazione Video Avanzata E Conversioni in Tempo Reale</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-prime-techniques-for-silent-videography/"><u>[New] Prime Techniques for Silent Videography</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/3-simple-ways-to-color-grading-in-adobe-photoshop/"><u>3 Simple Ways to Color Grading in Adobe Photoshop</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brazilian-vs-eu-portuguese-a-linguistic-comparison/"><u>Brazilian Vs. EU Portuguese: A Linguistic Comparison</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580131323-conquer-communication-with-unbeatable-linguistic-savings-this-year/"><u>Conquer Communication with Unbeatable Linguistic Savings This Year!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-dialogues-the-turkish-korean-connection/"><u>Cultural Dialogues: The Turkish-Korean Connection</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721471658808-dynamic-head-motion-causes-earsplitting-noises-in-airpods-disable-for-silence/"><u>Dynamic Head Motion Causes Earsplitting Noises in AirPods - Disable for Silence!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/einfaches-deutsch-von-1-bis-100-zahlen-lernen/"><u>Einfaches Deutsch: Von 1 Bis 100 Zählen Lernen</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-7-ways-to-unlock-a-locked-motorola-edge-40-neo-phone-by-drfone-android/"><u>In 2024, 7 Ways to Unlock a Locked Motorola Edge 40 Neo Phone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-nokia-g42-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Nokia G42 5G | Dr.fone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-in-2024-revolutionize-your-soundtracks-a-comprehensive-guide-to-the-most-effective-voice-suppressing-technology-in-music-and-karaoke-production/"><u>New In 2024, Revolutionize Your Soundtracks A Comprehensive Guide to the Most Effective Voice-Suppressing Technology in Music and Karaoke Production.</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-recover-deleted-photos-on-samsung-galaxy-a54-5g-without-backup-by-fonelab-android-recover-photos/"><u>The way to recover deleted photos on Samsung Galaxy A54 5G without backup.</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unraveling-the-sideway-video-phenomenon-on-ig-for-2024/"><u>Unraveling the Sideway Video Phenomenon on IG for 2024</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: "Bridging Cultures: Top 17 Spanish Colloquialisms"
-date: 2024-07-12T08:32:04.147Z
-updated: 2024-07-13T08:32:04.147Z
+date: 2024-09-11T18:30:14.294Z
+updated: 2024-09-16T17:47:46.071Z
 tags:
   - speak
   - english
@@ -58,6 +58,13 @@ thumbnail: https://thmb.techidaily.com/52f8da45eabd9e84edabed13a325d84ff2b39dca8
 
  Did you know this one? It means that if there are unpleasant rumors about someone or something, there is probably a good reason for it. Meaning that the rumors are almost always partly true.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 5\. Del tal palo, tal astilla
 
 **Literal translation:** Such is the stick, such is the chip.
@@ -102,6 +109,19 @@ Who wouldn’t prefer cakes over bread though?
 
  “Barcelona, Spain” by Toa Heftiba©
 
+<!-- affiliate ads begin -->
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 10\. En casa del herrero, cuchillo de palo
 
 **Literal translation:** In the blacksmith’s house, a wooden knife.
@@ -144,6 +164,19 @@ _–_   _Me preocupa no haberlo hecho bien en el examen de ayer. Estaba realment
 
  “Torrevieja, Spain” by Ralph (Ravi) Kayden©
 
+<!-- affiliate ads begin -->
+<span id="1374819">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. A quien madruga, Dios le ayuda
 
 **Literal translation:** God helps those who get up early.
@@ -174,6 +207,13 @@ _– Tu suegra lleva aquí un tiempo. Supongo que se siente cómoda aquí._ (“
 
 _– Si, como Pedro por su casa._ (“Yes, like Peter in his house.”)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Spanish sayings about animals
 
  Sayings about [animals are common in any language and Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) makes no exception. Here are some of the most common Spanish sayings about animals.
@@ -197,6 +237,19 @@ _– Si, como Pedro por su casa._ (“Yes, like Peter in his house.”)
 **English equivalent or meaning:** “A bird in the hand is worth two in the bush.”
 
 In other words, don’t risk losing everything by seeking to get more.
+
+<!-- affiliate ads begin -->
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. En boca cerrada no entran moscas
 
@@ -231,8 +284,6 @@ _– No es asunto tuyo. En boca cerrada no entran moscas._ (“It’s none of yo
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -240,6 +291,22 @@ _– No es asunto tuyo. En boca cerrada no entran moscas._ (“It’s none of yo
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-elite-cutting-edge-tools-for-app-editing-for-2024/"><u>[New] Elite Cutting-Edge Tools for App Editing for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-perfect-online-shopping-picks-for-one-of-a-kind-box-packaging/"><u>[New] Perfect Online Shopping Picks for One-of-a-Kind Box Packaging</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-maximizing-your-dslr-footage-with-pc-or-mac-for-social-media-for-2024/"><u>[Updated] Maximizing Your DSLR Footage with PC or Mac for Social Media for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-quick-and-easy-comedy-unraveling-ifunnys-meme-magic/"><u>2024 Approved Quick & Easy Comedy Unraveling iFunny's Meme Magic</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/ae-excellence-select-best-templates-for-free-access-for-2024/"><u>AE Excellence Select Best Templates for Free Access for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/how-well-does-chatgpt-handle-complex-calculations-and-equations/"><u>How Well Does ChatGPT Handle Complex Calculations and Equations?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-inside-the-core-of-xstream-studios-an-exhaustive-studio-guide/"><u>In 2024, Inside the Core of XStream Studios – An Exhaustive Studio Guide</u></a></li>
+<li><a href="https://win-dash.techidaily.com/lenovo-ideapad-t430-driver-downloads-compatible-with-windows-10-8-and-7-quick-guide/"><u>Lenovo IdeaPad T430 Driver Downloads: Compatible with Windows 10, 8 & 7 - Quick Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-swede-sounds-a-linguistic-guide/"><u>Quick Swede Sounds: A Linguistic Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-italian-explorers-vocabulary-100plus-must-learn-phrases/"><u>The Italian Explorer’s Vocabulary: 100+ Must-Learn Phrases</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/transform-your-ideas-into-impactful-podcast-content-writing-tips-and-samples/"><u>Transform Your Ideas Into Impactful Podcast Content Writing Tips & Samples</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/twin-tongue-transition-training/"><u>Twin-Tongue Transition Training</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-and-using-spanish-verb-endings/"><u>Understanding and Using Spanish Verb Endings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-the-world-with-a-linguistic-95-off-offer-this-year/"><u>Unlock the World with a Linguistic 95% Off Offer This Year!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-latin-mastery-digital-edition-guide/"><u>Unlocking Latin Mastery: Digital Edition Guide</u></a></li>
+</ul></div>
 

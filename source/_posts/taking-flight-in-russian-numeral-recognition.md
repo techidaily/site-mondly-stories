@@ -1,7 +1,7 @@
 ---
 title: Taking Flight in Russian Numeral Recognition
-date: 2024-09-10T13:30:53.599Z
-updated: 2024-09-11T13:30:53.599Z
+date: 2024-09-11T16:56:54.579Z
+updated: 2024-09-16T17:55:31.561Z
 tags:
   - speak
   - english
@@ -20,20 +20,6 @@ thumbnail: https://thmb.techidaily.com/5e0a2202e9f4da31ba85b59400bc244193601b11b
 
  Whether you need to find out what’s the price for a matryoshka, ask a stranger when is the next bus arriving or give someone your phone number, knowing the Russian numbers is definitely essential. On top of that, they are not even that hard to learn. Once you learn how to count to ten, counting to 100 is a piece of cake.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Russian numbers 1-10
 
  In order to understand the logic behind counting in Russian faster, it’s best to break down the information into multiple sections. As you may expect, the Russian numbers from 1 to 10 are the most important. Not only these are the ones you’ll probably use the most, but they also lay the foundations for the bigger numbers in Russian.
@@ -50,26 +36,6 @@ thumbnail: https://thmb.techidaily.com/5e0a2202e9f4da31ba85b59400bc244193601b11b
 * feminine: одна _(odna)_ ; две _(dve)_
 * neuter: одно _(odno)_ ; два _(dva)_
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Learn how to count to 20 in Russian
 
  Did you manage to learn the Russian pronunciation for the first ten numbers? If you are having issues with the accent, you can [get Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4729&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4729?mother%5Flang=en%5Fus?target%5Flang=ru&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4729?mother%5Flang=en%5Fus?target%5Flang=ru) now and hear them pronounced by professional Russian speakers.
@@ -80,37 +46,9 @@ If you did manage, good job! You must be a natural.
 
 ![numbers in russian](https://edge.mondly.com/blog/wp-content/uploads/2020/04/numbers-in-russian-600x424.jpg "Russian Numbers - Learn How To Count In Russian 3")
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
  Russian numbers 11-20
 
 **Good to know:** If you want to bring a flower bouquet when you are invited to someone’s house in Russia, choose an odd number of flowers – so три, пять, семь or девять flowers. One Russian superstition says that bouquets with an even number of flowers are adequate only for funerals.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Russian numbers: 21 and onwards
 
@@ -134,39 +72,18 @@ And guess what! It works the same with the hundreds.
 
 ![russian hundreds](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-hundreds-600x424.jpg "Russian Numbers - Learn How To Count In Russian 5")
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
  Russian hundreds
 
  For example, if you want to say 146, you say сто сорок шесть_(sto sorok shest)_ .
 
 Not as hard as you’d expect, is it?
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Russian ordinal numbers
 
@@ -204,8 +121,6 @@ Not as hard as you’d expect, is it?
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -215,67 +130,19 @@ Not as hard as you’d expect, is it?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://win-blog.techidaily.com/the-ascent-understanding-its-unforeseen-launch-hurdles-and-status-update/"><u>'The Ascent': Understanding Its Unforeseen Launch Hurdles and Status Update</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-protecting-content-avoiding-premature-deletions/"><u>[New] 2024 Approved  Protecting Content  Avoiding Premature Deletions</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-which-screen-recording-app-wins-bandicam-vs-camtasia-analysis/"><u>[New] Which Screen Recording App Wins? Bandicam Vs Camtasia Analysis</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-editing-savvy-streamlining-your-youtube-video-lengths/"><u>[Updated] 2024 Approved  Editing Savvy  Streamlining Your YouTube Video Lengths</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-fixing-inactive-obs-video-inputs/"><u>[Updated] 2024 Approved  Fixing Inactive OBS Video Inputs</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-high-fidelity-playback-of-games-using-obs/"><u>[Updated] In 2024, High Fidelity Playback of Games Using OBS</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-resolve-ineffective-fb-content-distribution-for-2024/"><u>[Updated] Resolve Ineffective FB Content Distribution for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-the-economic-blueprint-for-music-video-filming/"><u>[Updated] The Economic Blueprint for Music Video Filming</u></a></li>
-<li><a href="https://android-location.techidaily.com/10-fake-gps-location-apps-on-android-of-your-motorola-moto-g23-drfone-by-drfone-virtual/"><u>10 Fake GPS Location Apps on Android Of your Motorola Moto G23 | Dr.fone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-ai-powered-name-ideas-for-standout-podcast-titles/"><u>2024 Approved  AI-Powered Name Ideas for Standout Podcast Titles</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-dominate-online-chatter-secrets-to-buzz-creating/"><u>2024 Approved  Dominate Online Chatter  Secrets to Buzz-Creating</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-mastering-color-grading-techniques-in-gopro-studio/"><u>2024 Approved  Mastering Color Grading Techniques in GoPro Studio</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-grats-learn-thank-you-in-30-diverse-languages-156/"><u>Global Grats: Learn Thank You in 30 Diverse Languages (156)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-greeting-handbook/"><u>Global Greeting Handbook</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-speak-with-ease-top-10-accessible-languages-guide/"><u>Global Speak with Ease: Top 10 Accessible Languages Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-thanksgiving-a-comparative-study/"><u>Global Thanksgiving: A Comparative Study</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/heartfelt-harbingers-love-in-italian-vernacular/"><u>Heartfelt Harbingers: Love in Italian Vernacular</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/how-to-immerse-yourself-in-a-language-6-helpful-tips/"><u>How to Immerse Yourself in a Language: 6 Helpful Tips</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/hushing-up-unwanted-noise-on-skype-for-2024/"><u>Hushing Up Unwanted Noise on Skype for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-motorola-razr-40-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Motorola Razr 40</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-top-5-fluid-simulation-games/"><u>In 2024, Top 5 Fluid Simulation Games</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-unlocking-asmrs-wellness-boost-for-you/"><u>In 2024, Unlocking ASMR's Wellness Boost for You</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/instagram-sounds-ownership-policy/"><u>Instagram Sounds Ownership Policy</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/join-the-quest-for-europes-language-riches-this-day/"><u>Join the Quest for Europe's Language Riches This Day</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/key-to-proper-spanish-accent-usage-in-writing/"><u>Key to Proper Spanish Accent Usage in Writing</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/key-words-for-successful-journeys-top-93-spanish-travel-essentials/"><u>Key Words for Successful Journeys: Top 93 Spanish Travel Essentials</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lhospitalite-francaise-en-phrase-simple/"><u>L'Hospitalité Française En Phrase Simple</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-journey-beyond-forties-top-4-reasons-to-start-today/"><u>Language Journey Beyond Forties: Top 4 Reasons to Start Today</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learning-russian-letters-pronunciation-techniques/"><u>Learning Russian Letters Pronunciation Techniques</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguistic-kinship-between-uk-and-russ/"><u>Linguistic Kinship Between Uk & Russ</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguistic-utility-evaluation-german-vs-french-comparison/"><u>Linguistic Utility Evaluation: German Vs French Comparison</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-japanese-language-without-spending-money/"><u>Mastering Japanese Language Without Spending Money</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-pearson-alliance-for-optimized-filtering-techniques/"><u>Mondly-Pearson Alliance for Optimized Filtering Techniques</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-leap-forward-bridging-education-for-over-70-million-learners/"><u>Mondly's Leap Forward: Bridging Education for Over 70 Million Learners</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/monthly-apple-watch-savings-guide-hunt-the-best-deals-now/"><u>Monthly Apple Watch Savings Guide: Hunt the Best Deals Now</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/navigating-through-synthetic-prose-gptzero-as-a-guide/"><u>Navigating Through Synthetic Prose: GPTZero as a Guide</u></a></li>
-<li><a href="https://android-frp.techidaily.com/nokia-c02-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>Nokia C02 ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/non-native-english-proficiency-training/"><u>Non-Native English Proficiency Training</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pearsons-eslefl-interactive-classroom/"><u>Pearson's ESL/EFL Interactive Classroom</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/quatre-exemples-francais-un-merci-accepte/"><u>Quatre Exemples Français: Un 'Merci' Accepté</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/rhythm-based-language-leapfrogging-scientific-approaches/"><u>Rhythm-Based Language Leapfrogging: Scientific Approaches</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/romantic-riddles-unraveling-italys-pick-up-lines/"><u>Romantic Riddles: Unraveling Italy's Pick Up Lines</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sich-zu-verantworten-deutsche-ausdrucksweisen-erlernen/"><u>Sich Zu Verantworten – Deutsche Ausdrucksweisen Erlernen</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/spanish-numbers-1-10-explained/"><u>Spanish Numbers 1-10 Explained</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-like-a-native-innovative-vr-language-learning/"><u>Speak Like a Native: Innovative VR Language Learning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-naturally-17-commonplace-spanish-phrases/"><u>Speak Naturally: 17 Commonplace Spanish Phrases</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/spirits-and-spuds-global-trends-of-halloween/"><u>Spirits and Spuds: Global Trends of Halloween</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/step-by-step-setting-up-your-smartphone-as-a-webcam-device/"><u>Step-by-Step  Setting Up Your Smartphone as a Webcam Device</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/swedish-alphabet-and-pronunciation-a-quick-guide/"><u>Swedish Alphabet And Pronunciation: A Quick Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sweet-notion-romance-in-italys-lexicon/"><u>Sweet Notion: Romance in Italy's Lexicon</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/swift-progress-in-learning-polish/"><u>Swift Progress in Learning Polish</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-art-of-cooking-key-principles-that-will-take-your-dishes-to-new-heights/"><u>The Art of Cooking: Key Principles that Will Take Your Dishes to New Heights</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-cognitive-boost-of-language-mastery-after-50/"><u>The Cognitive Boost of Language Mastery After 50</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-enchantment-of-farsi-history-and-its-skills-payoff/"><u>The Enchantment of Farsi History & Its Skills Payoff</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-grammar-gap-understanding-por-que-and-por-que/"><u>The Grammar Gap: Understanding Por Que and Por Qué</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-polyglot-puzzle-europes-linguistic-plurality-celebrated/"><u>The Polyglot Puzzle: Europe's Linguistic Plurality Celebrated</u></a></li>
-<li><a href="https://program-issues.techidaily.com/troubleshooting-guide-how-google-play-music-detected-an-audio-configuration-problem-on-your-computer/"><u>Troubleshooting Guide: How Google Play Music Detected an Audio Configuration Problem on Your Computer</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/tweet-trends-unveiled-top-videos-of-the-twittersphere-for-2024/"><u>Tweet Trends Unveiled  Top Videos of the Twittersphere for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlimited-premium-mondly-for-a-limited-price/"><u>Unlimited Premium Mondly for a Limited Price</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-communication-skills-with-these-10-essential-and-versatile-spanish-salutations/"><u>Unlock Communication Skills With These 10 Essential & Versatile Spanish Salutations</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/unlock-your-poco-x6-pros-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>Unlock Your Poco X6 Pros Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-hindi-potential-with-mondly-the-best-reasons-why/"><u>Unlocking Hindi Potential with Mondly: The Best Reasons Why!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unveiling-earths-primordial-language-pioneers/"><u>Unveiling Earth's Primordial Language Pioneers</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-what-makes-a-viral-video-the-tiktok-twitter-link/"><u>[Updated] 2024 Approved What Makes a Viral Video The TikTok-Twitter Link</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-chortle-creators-undead-hilarity/"><u>[Updated] Chortle Creators Undead Hilarity</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-tutorial-uploading-youtube-to-instagram-stories-effortlessly/"><u>[Updated] In 2024, Tutorial Uploading YouTube to Instagram Stories Effortlessly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/best-practices-in-language-education-software/"><u>Best Practices in Language Education Software</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/comprehensive-fixes-for-unseen-youtube-comments-under-videos/"><u>Comprehensive Fixes for Unseen YouTube Comments Under Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580797196-europes-vibrant-verbal-tapestry-celebrate-it-today/"><u>Europe's Vibrant Verbal Tapestry – Celebrate It Today!</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-your-canon-scanner-ready-on-windows-free-drivers-and-installation-help/"><u>Get Your Canon Scanner Ready on Windows: FREE Drivers and Installation Help</u></a></li>
+<li><a href="https://network-issues.techidaily.com/how-to-clean-up-your-pcs-graphics-driver-cache/"><u>How to Clean Up Your PC's Graphics Driver Cache</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-friendship-starters/"><u>International Friendship Starters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mundo-semanal-en-espanol-no-olvides-desde-martes-hasta-domingo/"><u>Mundo Semanal en Español: No Olvides Desde Martes Hasta Domingo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/palabras-comunes-en-ingles-y-espanol-cognados-realizadores/"><u>Palabras Comunes en Inglés Y Español: Cognados Realizadores</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/picks-of-the-best-danish-features-for-lingo-proficiency/"><u>Picks of the Best Danish Features for Lingo Proficiency</u></a></li>
+<li><a href="https://video-capture.techidaily.com/the-art-of-video-editing-employing-strikethrough-for-clarity-for-2024/"><u>The Art of Video Editing Employing Strikethrough for Clarity for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/talling-video-libraries-from-youtube-for-2024/"><u>Uninstalling Video Libraries From YouTube for 2024</u></a></li>
 </ul></div>
+

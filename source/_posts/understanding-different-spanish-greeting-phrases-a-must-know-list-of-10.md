@@ -1,7 +1,7 @@
 ---
 title: Understanding Different Spanish Greeting Phrases - A Must Know List Of 10
-date: 2024-09-10T13:30:58.863Z
-updated: 2024-09-11T13:30:58.863Z
+date: 2024-09-15T19:26:44.992Z
+updated: 2024-09-16T18:57:46.890Z
 tags:
   - speak
   - english
@@ -20,20 +20,6 @@ thumbnail: https://thmb.techidaily.com/6568a394f73588c2742e16d9523df01c904b1fdda
 
  Let’s break down the most important Spanish greetings and introductions you’ll need for a basic conversation in Spanish. As Speedy Gonzales used to say:_¡Arriba, arriba! ¡Ándale, ándale!_ – meaning “Go, go! Come on, come on!”
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115936/19272" target="_top" id="2115936">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115936" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115936/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## “Hello” in Spanish: ¡Hola
 
 **¡Hola!** – pronounced without the “h” – is your safety net wherever you’ll go: to a date, meeting or a Spanish-speaking country. This is the absolute basic greeting you need to know in Spanish and it can be used to salute any person regardless of the circumstance: formal or informal.
@@ -47,20 +33,6 @@ thumbnail: https://thmb.techidaily.com/6568a394f73588c2742e16d9523df01c904b1fdda
 **Pro tip:** All you need is a simple “hola” to spark a**conversation in Spanish** with people from Spain, Mexico, Argentina or Colombia. They are generally very nice and chatty people and they will be extremely happy to find out you are trying to [speak Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . From my experience, they will probably start talking to you right away with the speed of a Bugatti. Your safety net in this situation will certainly be_Yo no hablo Español_ –_I don’t speak Spanish_ .
 
 **Bonus dating tip:** “Hello, beautiful” in Spanish is “Hola, hermosa” and “Hello, handsome” in Spanish is “Hola, hermoso”. Good luck! (wink wink)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Spanish greetings for certain moments of the day
 
@@ -76,20 +48,6 @@ thumbnail: https://thmb.techidaily.com/6568a394f73588c2742e16d9523df01c904b1fdda
 
  ¡Hola, señor! by Bruce Jastrow©
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## “How are you?” in Spanish
 
  In many places around the world, you can also greet people by asking, “how are you?” or “what’s up?”. Particularly in informal situations.  
@@ -102,19 +60,12 @@ thumbnail: https://thmb.techidaily.com/6568a394f73588c2742e16d9523df01c904b1fdda
 **¿Qué hay?** – generally used in Spain; it is used the same way we use “hey!” or “what’s up” in English  
 **¿Cómo va?** – it translates to “how is it going?” and you can also add “todo” at the end – ¿cómo va todo? – to expand its meaning to “how is it all going?
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115938/19272" target="_top" id="2115938">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115938" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115938/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## “Yes”, “please” and “thank you” in Spanish
 
@@ -128,20 +79,6 @@ thumbnail: https://thmb.techidaily.com/6568a394f73588c2742e16d9523df01c904b1fdda
 * I’m sorry – Lo siento
 * I have/I don’t have – Tengo/No tengo
 * Nice to meet you – Encantado/Encantada de conocerte
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Goodbye in Spanish
 
@@ -160,19 +97,12 @@ thumbnail: https://thmb.techidaily.com/6568a394f73588c2742e16d9523df01c904b1fdda
 
 ![hasta la vista](https://media.giphy.com/media/2oVfyRHk1EuRy/giphy-downsized-large.gif "Hello In Spanish And Other Basic Spanish Greetings You Need To Know 4")
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123471/16836" target="_top" id="2123471">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123471" border="0" alt="https://techidaily.com" width="234" height="60"/>
+<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123471/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
  Not sure you understand how Spanish accents work? Check out our [article on how to master them all](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
@@ -197,8 +127,6 @@ thumbnail: https://thmb.techidaily.com/6568a394f73588c2742e16d9523df01c904b1fdda
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -208,53 +136,18 @@ thumbnail: https://thmb.techidaily.com/6568a394f73588c2742e16d9523df01c904b1fdda
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-decoding-and-practicing-with-creative-commons-licenses/"><u>[New] 2024 Approved  Decoding and Practicing with Creative Commons Licenses</u></a></li>
-<li><a href="https://win-able.techidaily.com/solved-runescape-keeps-crashing/"><u>[SOLVED] RuneScape Keeps Crashing</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-auditory-mastery-selecting-background-music-for-vids/"><u>[Updated] Auditory Mastery  Selecting Background Music for Vids</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-cutting-edge-8-screen-tech-lists/"><u>[Updated] In 2024, Cutting-Edge 8 Screen Tech Lists</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-textual-amplification-for-igtv-broadcasts/"><u>[Updated] In 2024, Textual Amplification for IGTV Broadcasts</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-journey-to-audio-excellence-mastering-ios-based-recording-techniques/"><u>[Updated] Journey to Audio Excellence  Mastering iOS-Based Recording Techniques</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-understanding-and-assessing-cloud-cost-variability/"><u>[Updated] Understanding & Assessing Cloud Cost Variability</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-how-to-archive-snaps-on-iphoneandroid-from-snapchat/"><u>2024 Approved  How To Archive Snaps on iPhone/Android From Snapchat</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-the-art-of-zooming-in-a-videoleap-approach/"><u>2024 Approved  The Art of Zooming In  A Videoleap Approach</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/amazon-struggles-with-drone-delivery-system-implementation/"><u>Amazon Struggles with Drone Delivery System Implementation</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/detailed-tutorial-reactivating-the-dolby-audio-driver-when-encountered-with-errors-in-windows-11/"><u>Detailed Tutorial: Reactivating the Dolby Audio Driver When Encountered with Errors in Windows 11</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-best-apps-for-3d-video-intros-on-social-platforms/"><u>In 2024, Best Apps for 3D Video Intros on Social Platforms</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/in-2024-essential-strategies-successful-webcam-and-gaming-recordings/"><u>In 2024, Essential Strategies  Successful Webcam & Gaming Recordings</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-spy-on-text-messages-from-computer-and-infinix-smart-8-plus-drfone-by-drfone-virtual-android/"><u>In 2024, How to Spy on Text Messages from Computer & Infinix Smart 8 Plus | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-vivo-v30-pro-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock Vivo V30 Pro Phone without Google Account?</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-inside-look-whatsapps-vocal-messaging-network/"><u>In 2024, Inside Look  WhatsApp's Vocal Messaging Network</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-oppo-find-n3-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Best Spy Watches For your Oppo Find N3 | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/interactive-latin-an-enjoyable-study-experience/"><u>Interactive Latin: An Enjoyable Study Experience</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/intro-to-bing-the-alternative-to-google-search-platforms/"><u>Intro to Bing: The Alternative to Google Search Platforms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/israel-expedition-checklist-practical-advice-and-useful-language/"><u>Israel Expedition Checklist: Practical Advice & Useful Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/key-russian-language-elements-your-journey-starter-kit/"><u>Key Russian Language Elements: Your Journey Starter Kit</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/leading-asian-languages-quick-filter-last-access/"><u>Leading Asian Languages: Quick Filter, Last Access</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguistic-ladder-top-reasons-to-climb-another-language-level/"><u>Linguistic Ladder: Top Reasons to Climb Another Language Level</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/luminous-language-the-secret-of-dynamic-story-titles-for-2024/"><u>Luminous Language  The Secret of Dynamic Story Titles for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/majorly-studied-foreign-languages-by-americans/"><u>Majorly Studied Foreign Languages by Americans</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/most-popular-immigrant-languages-educated-in-us/"><u>Most Popular Immigrant Languages Educated In U.S</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/must-know-french-jargon-to-master-on-parisian-escapades/"><u>Must-Know French Jargon to Master on Parisian Escapades</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-through-basic-german-letters-and-sounds/"><u>Navigating Through Basic German Letters & Sounds</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/optimal-departure-times-with-google-maps-ensuring-on-time-arrivals/"><u>Optimal Departure Times with Google Maps: Ensuring On-Time Arrivals</u></a></li>
-<li><a href="https://fox-that.techidaily.com/overcoming-common-keyboard-challenges-a-guide-for-iphoneipad-users/"><u>Overcoming Common Keyboard Challenges: A Guide for iPhone/iPad Users</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/perfect-your-pronunciation-with-these-100-english-tongue-twisters/"><u>Perfect Your Pronunciation With These 100 English Tongue Twisters</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/revamped-policies-and-tandu-your-guide/"><u>Revamped Policies & T&U: Your Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/salutations-across-cultures/"><u>Salutations Across Cultures</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/say-it-smart-uk-expressions-and-idioms/"><u>Say It Smart: UK Expressions and Idioms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/semana-en-accion-todos-los-dias-del-mes-de-la-luna-en-espanol/"><u>Semana en Acción: Todos Los Días Del Mes De La Luna en Español</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/sham-interface-extension-larcenizes-fb-credentials/"><u>Sham Interface Extension: Larcenizes FB Credentials</u></a></li>
-<li><a href="https://network-issues.techidaily.com/smooth-playback-on-upgraded-windows-10-systems/"><u>Smooth Playback on Upgraded Windows 10 Systems</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/soviet-speech-patterns-in-uk-and-rus-languages/"><u>Soviet Speech Patterns in Uk & Rus Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speed-up-your-understanding-of-numerical-japan/"><u>Speed-Up Your Understanding of Numerical Japan</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-dos-and-donts-in-spanish-accented-writing/"><u>The Do's & Don'ts in Spanish Accented Writing</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-francophiles-treasure-chest-of-104plus-travel-phrases/"><u>The Francophile's Treasure Chest of 104+ Travel Phrases</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ideal-online-approach-to-learn-finnish-effectively/"><u>The Ideal Online Approach to Learn Finnish Effectively</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-voyagers-handbook-deciphering-vietnams-language/"><u>The Voyager’s Handbook: Deciphering Vietnam's Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-language-trends-globally/"><u>Top Language Trends Globally</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/uncover-the-secret-to-quick-latin-proficiency/"><u>Uncover the Secret to Quick Latin Proficiency</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-fluency-a-guide-to-self-taught-french/"><u>Unlocking Fluency: A Guide to Self-Taught French</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-the-world-of-russian-quantitative-language/"><u>Unlocking the World of Russian Quantitative Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/which-language-benefits-you-more-in-global-settings-german-or-french/"><u>Which Language Benefits You More in Global Settings, German or French?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/timwtores-eygnwmwn-gkreman/"><u>Τιμωτόρες Ευγνώμων Γκρεμάν</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-the-critical-factors-for-upgrading-your-4k-lens/"><u>[New] 2024 Approved The Critical Factors for Upgrading Your 4K Lens</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-unveiling-the-art-of-itunes-video-capture/"><u>[New] 2024 Approved Unveiling the Art of iTunes Video Capture</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-cutting-ties-with-instagram-navigating-a-permanent-exit-strategy/"><u>2024 Approved Cutting Ties with Instagram Navigating a Permanent Exit Strategy</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-top-tiktok-anthems-melodies-you-cant-get-out-of-your-head/"><u>2024 Approved Top TikTok Anthems Melodies You Can't Get Out of Your Head</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-fake-gps-without-root-on-tecno-camon-20-pro-5g-drfone-by-drfone-virtual-android/"><u>3 Ways to Fake GPS Without Root On Tecno Camon 20 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beginners-pathway-to-russian-currency-terminology/"><u>Beginner's Pathway to Russian Currency Terminology</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beyond-the-hype-true-factors-in-mastering-languages/"><u>Beyond the Hype: True Factors in Mastering Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dialect-diversity-north-america-vs-united-kingdom/"><u>Dialect Diversity: North America vs United Kingdom</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/digital-gateway-to-latin-learning-made-simple/"><u>Digital Gateway to Latin Learning Made Simple</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevate-your-english-vocabulary-simplified/"><u>Elevate Your English Vocabulary, Simplified</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576482297-sovace-slovaci-language-made-easy-with-10-minute-daily-doses-online/"><u>Sovace Slováci - Language Made Easy with 10-Minute Daily Doses Online!</u></a></li>
+<li><a href="https://fox-links.techidaily.com/transforming-messages-into-memorable-video-experienits/"><u>Transforming Messages Into Memorable Video Experienits</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unlocking-the-potential-of-resin-tech-with-a-closer-look-at-elegoo-saturn-4-ultra-our-detailed-review/"><u>Unlocking the Potential of Resin Tech with a Closer Look at Elegoo Saturn 4 Ultra - Our Detailed Review</u></a></li>
 </ul></div>
+

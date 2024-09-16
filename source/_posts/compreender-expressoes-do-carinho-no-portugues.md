@@ -1,7 +1,7 @@
 ---
 title: Compreender Expressões Do Carinho No Português
-date: 2024-07-12T08:24:30.407Z
-updated: 2024-07-13T08:24:30.407Z
+date: 2024-09-11T20:02:25.276Z
+updated: 2024-09-16T19:20:40.421Z
 tags:
   - speak
   - english
@@ -67,6 +67,13 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
  All three of these are safe to use in any kind of interaction (formal or informal).
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3.“Goodbye” in Portuguese – Adeus
 
  The most common way to say “Goodbye” in Portuguese is_Adeus_ , but you can also use_Tchau_ which simply translates to “bye”.
@@ -80,6 +87,13 @@ _Olá_ is the best choice for most social situations regardless of the person yo
  Another useful phrase for bidding farewell is “have a good day”. In Portuguese, that’s_t_ _enha um bom dia_ .
 
 ![portuguese greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/08/portuguese-greetings-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 4")
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  “Ruínas da Fortaleza de Arrifana, Aljezur, Portugal” by Ferhat Deniz Fors©
 
@@ -106,6 +120,13 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 * No. –_Não._
 
 ![obrigado](https://edge.mondly.com/blog/wp-content/uploads/2019/08/obrigado-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 5")
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  “Gruta do Lago Azul, Brazil” by Ademir Alves©
 
@@ -136,8 +157,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -145,6 +164,21 @@ _Olá_ is the best choice for most social situations regardless of the person yo
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-adding-time-stamps-to-pictures-step-by-step-tutorial-for-2024/"><u>[New] Adding Time Stamps to Pictures Step-by-Step Tutorial for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-unlock-the-full-potential-with-these-top-6-music-videos-on-android-for-2024/"><u>[New] Unlock the Full Potential with These Top 6 Music Videos on Android for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-bebops-avian-evolution-strikes-again-with-parrot-2-for-2024/"><u>[Updated] Bebop's Avian Evolution Strikes Again with Parrot 2 for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-step-forward-leveraging-live-talks-in-the-instagram-world-for-2024/"><u>[Updated] Step Forward Leveraging Live Talks in the Instagram World for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-visual-virtuosity-the-ultimate-collection-of-11-expert-tutorials/"><u>2024 Approved Visual Virtuosity The Ultimate Collection of 11 Expert Tutorials</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/amplify-potential-by-embracing-new-tongues/"><u>Amplify Potential by Embracing New Tongues</u></a></li>
+<li><a href="https://fake-location.techidaily.com/apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-nokia-c22-drfone-by-drfone-virtual-android/"><u>Apply These Techniques to Improve How to Detect Fake GPS Location On Nokia C22 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dawn-dialogues-how-to-wake-up-the-world-with-good-morning/"><u>Dawn Dialogues: How to Wake Up the World with 'Good Morning'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevate-your-worldview-with-second-language-skills/"><u>Elevate Your Worldview With Second Language Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-leap-forward-easy-learning-for-an-extraordinary-savings/"><u>Language Leap Forward - Easy Learning for an Extraordinary Savings</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/master-levels-enhancing-steam-gameplay-videos-for-2024/"><u>Master Levels Enhancing Steam Gameplay Videos for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-iphone-7-plus-data-from-ios-itunes-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover iPhone 7 Plus Data From iOS iTunes | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/redefining-mobility-with-the-newly-released-lg-gram-15-inch-laptop-in-2018-an-in-depth-review-and-analysis/"><u>Redefining Mobility with the Newly Released LG Gram 15-Inch Laptop in 2018: An In-Depth Review and Analysis</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/superior-software-paving-the-way-to-polyglot-prowess/"><u>Superior Software Paving the Way to Polyglot Prowess</u></a></li>
+</ul></div>
 

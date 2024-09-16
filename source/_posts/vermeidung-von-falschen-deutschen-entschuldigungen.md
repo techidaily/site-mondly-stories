@@ -1,7 +1,7 @@
 ---
 title: Vermeidung Von Falschen Deutschen Entschuldigungen
-date: 2024-09-10T13:30:52.795Z
-updated: 2024-09-11T13:30:52.795Z
+date: 2024-09-11T16:20:27.208Z
+updated: 2024-09-16T17:22:37.856Z
 tags:
   - speak
   - english
@@ -20,39 +20,11 @@ thumbnail: https://thmb.techidaily.com/3119c4d644ca38982b7a0f68d251b6e048a299751
 
  Let’s look at the most important ways to say “sorry” in German and when to use each of them.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## When should you say you’re sorry?
 
  What you need to remember is that learning how to say “sorry” in German also has a cultural component. It’s not enough to learn how to say you’re sorry; you also have to learn_when_ to say you’re sorry. Unlike Americans and even Brits who apologize quite a lot,**Germans tend to keep their sorrys to a minimum.** In fact, they say sorry so rarely that they can come off as rude to people of other nationalities.
 
  However, this is not strictly a German thing. It’s true Germans say sorry once in a blue moon, but there are some other countries like France or Russia where over-apologizing can be regarded as insincere as well.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## How to apologize in German
 
@@ -66,26 +38,6 @@ Here are some practical examples of apologies in German:
 * _Sie haben Recht, das tut mir leid._  – You are right, I am sorry.
 * _Tut mir leid, ich mag die Suppe nicht._ – Sorry, I don’t like the soup.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## How to say sorry in German – the “Excuse me” sorry
 
  If you bump into someone on the street or cause a mishap, the most common way to say “sorry” in German is_**Entschuldigung**_ which literally means “apology!”. This is basically the “sorry” or the “excuse me” you say for a minor inconvenience. In other words, we’re talking about a slight bump or barely touching that person. If you knock them over, a cool_Entschuldigung_ won’t do, so you should probably apologize sincerely.
@@ -94,19 +46,12 @@ Here are some practical examples of apologies in German:
 
  Hear the formal_Entschuldigen Sie_ in action in this basic conversation in German:
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Other ways to say sorry in German
 
@@ -150,19 +95,12 @@ Here are some practical examples of apologies in German:
 
 ---
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### From 0 to conversational in German
 
@@ -186,8 +124,6 @@ Here are some practical examples of apologies in German:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -197,45 +133,17 @@ Here are some practical examples of apologies in German:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-breakdown-of-youtubes-monetization-update/"><u>[New] In 2024, Breakdown of YouTube's Monetization Update</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-enhance-video-quality-by-cutting-out-background-sounds/"><u>[New] In 2024, Enhance Video Quality by Cutting Out Background Sounds</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-inside-look-analyzing-androids-photoshop-substitute-lightroom/"><u>[New] Inside Look  Analyzing Android's Photoshop Substitute, Lightroom</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-expert-netflix-tips-maximizing-screenshots-with-your-mac/"><u>[Updated] 2024 Approved  Expert Netflix Tips  Maximizing Screenshots with Your Mac</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-the-definitive-xbox-gameplay-capture-strategy/"><u>[Updated] 2024 Approved  The Definitive Xbox Gameplay Capture Strategy</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-a-pros-handbook-to-youtube-income-multiplatform-use-for-2024/"><u>[Updated] A Pro's Handbook to YouTube Income  Multiplatform Use for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-maximizing-engagement-through-creator-studio-insights/"><u>[Updated] In 2024, Maximizing Engagement Through Creator Studio Insights</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-navigating-the-path-to-igtv-fame-5-growth-strategies-explored/"><u>[Updated] Navigating the Path to IGTV Fame  5 Growth Strategies Explored</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-discover-the-best-8-innovative-5k-panels/"><u>2024 Approved  Discover the Best 8 Innovative 5K Panels</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-tongues-triumph-list-of-15/"><u>Global Tongues Triumph: List of #15</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-itel-p55plus-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Itel P55+</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-motorola-edge-2023-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Motorola Edge 2023 without Losing Data | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/immersive-french-learning-with-iconic-27-sayings-and-idioms/"><u>Immersive French Learning with Iconic 27 Sayings & Idioms</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-ways-to-stop-parent-tracking-your-nokia-c210-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to stop parent tracking your Nokia C210 | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/iniciar-conversaciones-frescas-con-los-colores/"><u>Iniciar Conversaciones Frescas Con Los Colores</u></a></li>
-<li><a href="https://coupons.techidaily.com/coupon-1118666-share-97331-sale/"><u>Latest 2024/09 Discount Coupons - PETKIT Fit 3 Smart Pet Collars Tag Bluetooth Remote Control</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/leading-global-education-uss-language-choices/"><u>Leading Global Education: U.S.'s Language Choices</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-catalan-fast-quick-tips-for-minutes/"><u>Learn Catalan Fast: Quick Tips for Minutes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguistic-mosaic-how-other-languages-enhance-english/"><u>Linguistic Mosaic: How Other Languages Enhance English</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/map-all-nations-with-latin-roots/"><u>Map: All Nations with Latin Roots</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/meilleurs-outils-dextraction-video-librement-accessibles-guide-exhaustif-des-utilitaires-premium-windows-11-2023/"><u>Meilleurs Outils D'Extraction Vidéo Librement Accessibles: Guide Exhaustif Des Utilitaires Premium Windows 11 2023</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-frees-ukrainians-from-learning-boundaries/"><u>Mondly Frees Ukrainians From Learning Boundaries</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-formula-for-fluent-advanced-english/"><u>Mondly's Formula for Fluent, Advanced English</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-mission-bringing-affordable-language-education-to-ukrainian-ears/"><u>Mondly’s Mission: Bringing Affordable Language Education to Ukrainian Ears</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/persian-languages-rich-past-and-lifelong-rewards/"><u>Persian Language's Rich Past & Lifelong Rewards</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pioneering-educational-trends-with-smart-ai-integration/"><u>Pioneering Educational Trends with Smart AI Integration</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/quick-start-to-hangul-mastery-the-korean-alphabet-unveiled/"><u>Quick Start to Hangul Mastery: The Korean Alphabet Unveiled</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/rapid-bulgarian-embrace-a-new-language-10-minday/"><u>Rapid Bulgarian: Embrace a New Language, 10 Min/Day</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/rapidly-gain-urdu-skills-ten-minutes-a-day/"><u>Rapidly Gain Urdu Skills, Ten Minutes a Day</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sign-up-now-enjoy-96-off-on-lifetime-mondly-access/"><u>Sign Up Now, Enjoy 96% OFF on Lifetime Mondly Access!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-latvian-like-a-pro-master-in-just-under-an-hour/"><u>Speak Latvian Like a Pro: Master in Just Under an Hour</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sprachdiversitat-deutsche-grussworter-ohne-hallo/"><u>Sprachdiversität: Deutsche Grußwörter Ohne 'Hallo'</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-art-of-english-second-language-acquisition/"><u>The Art of English Second Language Acquisition</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-jargon-jungle-navigating-todays-casual-speech/"><u>The Jargon Jungle: Navigating Today's Casual Speech</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/the-ultimate-selection-of-microsd-cards-for-your-raspberry-pi-needs-2024-edition/"><u>The Ultimate Selection of MicroSD Cards for Your Raspberry Pi Needs - 2024 Edition</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/transparency-boost-tandc-revisions-explained/"><u>Transparency Boost: T&C Revisions Explained</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/troubleshooting-non-spinning-gpu-fans/"><u>Troubleshooting Non-Spinning GPU Fans</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ultimate-guide-to-the-japanese-alphabet-and-writing-system/"><u>Ultimate Guide To The Japanese Alphabet And Writing System</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ultimate-guide-top-6-online-tools-for-mastering-korean/"><u>Ultimate Guide: Top 6 Online Tools for Mastering Korean</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/varias-maneiras-de-fazer-o-olho-direito-em-pt/"><u>Várias Maneiras De Fazer O Olho Direito Em PT</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/what-languages-do-they-speak-in-belgium/"><u>What Languages Do They Speak In Belgium?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-dial-up-your-digital-presence-tips-for-confident-video-creators/"><u>[New] 2024 Approved Dial Up Your Digital Presence Tips for Confident Video Creators</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-precision-and-speed-the-ultimate-guide-to-mac-srt-editing/"><u>[Updated] In 2024, Precision and Speed The Ultimate Guide to Mac Srt Editing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/4-reasons-why-you-should-learn-a-language-in-your-forties/"><u>4 Reasons Why You Should Learn A Language In Your Forties</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/android-call-history-recovery-recover-deleted-call-logs-from-smart-8-plus-by-fonelab-android-recover-call-logs/"><u>Android Call History Recovery - recover deleted call logs from Smart 8 Plus</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bangla-basics-a-10-minute-daily-regimen/"><u>Bangla Basics: A 10-Minute Daily Regimen</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/budget-masterclass-review-caixuns-stellar-performance-on-a-4k-75-inch-android-tv-set/"><u>Budget Masterclass Review: Caixun's Stellar Performance on a 4K, 75-Inch Android TV Set</u></a></li>
+<li><a href="https://fox-http.techidaily.com/from-abrupt-shifts-to-serene-journeys-expert-crossfade-guidance-with-audacity-for-2024/"><u>From Abrupt Shifts to Serene Journeys Expert Crossfade Guidance with Audacity for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/how-to-install-corsair-k70-mouse-firmware-download-guide-and-steps/"><u>How to Install Corsair K70 Mouse Firmware: Download Guide and Steps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-10-various-ways-to-communicate-hello-in-spanish/"><u>Introducing 10 Various Ways to Communicate 'Hello' In Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/joyful-latin-teaching-approaches/"><u>Joyful Latin Teaching Approaches</u></a></li>
+<li><a href="https://article-files.techidaily.com/luxury-makeup-techniques-unveiled-for-2024/"><u>Luxury Makeup Techniques Unveiled for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-merges-with-pearson-academic-consortium/"><u>Mondly Merges With Pearson Academic Consortium</u></a></li>
 </ul></div>
+

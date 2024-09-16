@@ -1,7 +1,7 @@
 ---
 title: Celebrate with a Smile, No Words Needed
-date: 2024-07-12T08:25:26.202Z
-updated: 2024-07-13T08:25:26.202Z
+date: 2024-09-11T18:32:53.142Z
+updated: 2024-09-16T18:15:12.971Z
 tags:
   - speak
   - english
@@ -44,6 +44,13 @@ If you’ll check the literal meaning of Shēngrì Kuàilè, you’ll see that i
 
 ![happy birthday in russian](https://edge.mondly.com/blog/wp-content/uploads/2018/12/happy-birthday-in-russian.jpg "How To Say &Quot;Happy Birthday&Quot; In Different Languages 3")
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Image source: <https://tops.ua>
 
 If you want to say “happy birthday” in Russian, you say “S Dnem Rozhdeniya”. And if you feel like memorizing a longer phrase, add “pozdravlyayu” in the start and it will transform to “I congratulate you on your birthday”. Russians have a funny tradition of celebrating. The guests pull the celebrated’s ears for a number of times equal to his or her age. The phrase “Grow up – don’t be noodles,” is considered as a sign of good omen for the growth of children. It means the child will grow up strong and healthy. Birthday songs are not common am0ng them, but if the person has survived after a severe accident, that day is celebrated as another birthday.
@@ -59,6 +66,13 @@ If you want to say “happy birthday” in Russian, you say “S Dnem Rozhdeniya
 Image source: <https://trivselkort.com>
 
 “Grattis På Födelsedagen” is translated to “Birthday congratulations!” in Swedish. The Swedish culture has a lot of love for celebrating birthdays. They often surprise the celebrated with birthday gifts and breakfast in bed while singing “Ja, ma du leva” meaning “Yes, may you live”. Their traditional party has a cake coated in green marzipan with gifts wrapped in blue and gold sheets – the colors of the Swedish flag.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Happy Birthday in Hindi: जन्मदिन की शुभकामनाएं (Janmadin Kee Shubhakaamanaen)
 
@@ -92,8 +106,6 @@ Start using Mondly for free on your computer or tablet or, better yet, download 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -101,6 +113,18 @@ Start using Mondly for free on your computer or tablet or, better yet, download 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-step-by-step-instructions-for-extracting-mp3-from-video/"><u>[Updated] In 2024, Step-By-Step Instructions for Extracting MP3 From Video</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-pinnacle-article-hook-maker/"><u>[Updated] Pinnacle Article Hook Maker</u></a></li>
+<li><a href="https://video-capture.techidaily.com/flagiconnga-chinwendu-ihezuo-sheikh-jamal-dhanmondi-club-10-goals/"><u>{{Flagicon|NGA}} Chinwendu Ihezuo (Sheikh Jamal Dhanmondi Club, 10 Goals)</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-navigating-artistry-selecting-from-6-best-nft-makers/"><u>2024 Approved Navigating Artistry Selecting From 6 Best NFT Makers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/achieve-cross-cultural-success-through-learning/"><u>Achieve Cross-Cultural Success Through Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprehensive-review-tandcs-amendments/"><u>Comprehensive Review: T&Cs Amendments</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/effortless-steps-to-refresh-lenovo-battery-and-charging-software/"><u>Effortless Steps to Refresh Lenovo Battery & Charging Software</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-music-from-samsung-galaxy-a05-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Music from Samsung Galaxy A05 to iPod | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-bites-and-bloopers-tasty-talents-on-tiktok/"><u>In 2024, Bites & Bloopers Tasty Talents on TikTok</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tage-der-woche-in-deutsch-eine-anleitung/"><u>Tage Der Woche in Deutsch: Eine Anleitung</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/updating-your-chromecast-a-step-by-step-guide-to-personalizing-the-wallpaper/"><u>Updating Your Chromecast: A Step-by-Step Guide to Personalizing the Wallpaper</u></a></li>
+</ul></div>
 

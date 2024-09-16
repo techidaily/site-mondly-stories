@@ -1,7 +1,7 @@
 ---
 title: Population & Prevalence of French-Speaking Societies
-date: 2024-09-10T13:30:55.963Z
-updated: 2024-09-11T13:30:55.963Z
+date: 2024-09-12T19:15:54.816Z
+updated: 2024-09-16T19:30:38.596Z
 tags:
   - speak
   - english
@@ -18,23 +18,7 @@ thumbnail: https://thmb.techidaily.com/59ebf54bbd2728b1cee67f80e126289c9f6737977
 
  French is one of the most spoken and widespread languages in the world. As a result of the French colonization from the 16th century onward, we have a**long list of French-speaking countries** today. In fact, along with English, French is the only language spoken on five continents: Europe, Africa, Asia, America and Oceania (or Australia). Naturally, we can’t help but ask ourselves: **how many people [speak French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ?** Let’s find out.
 
-
-
  Meanwhile, if you’re not sure whether you should [learn French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) or not, our advice would be to go for it. **French has been adopted as the official language of the largest number of countries after English.** For this reason alone, speaking French will help you make friends and easily communicate all over the world.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## How many people speak French?
 
@@ -73,20 +57,6 @@ thumbnail: https://thmb.techidaily.com/59ebf54bbd2728b1cee67f80e126289c9f6737977
 * Switzerland — 67%
 * Italy — 20% (French is the official language of the autonomous region of the Aosta Valley)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### French-speaking countries in Africa
 
  How many people in Africa speak French? Well, some of you will be surprised to find out that Africa has more French speakers than any other continent. Even though many speak it as a second language, there are regions where French even replaced the local languages. As a result, French is the fastest-growing language here.
@@ -119,19 +89,12 @@ The French-speaking countries of Africa are:
 
  \* the number represents the percentage of the population who speak French.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### French-speaking countries in North America
 
@@ -151,39 +114,18 @@ We told you that French speakers could be found everywhere in the world!
 
 !['French speakers' by Claudia Altamimi©](https://edge.mondly.com/blog/wp-content/uploads/2022/10/french-speakers-960x720.jpg "Top French-Speaking Countries | How Many People Speak French? 5")
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1983584">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### French-speaking countries in Oceania
 
@@ -195,6 +137,13 @@ We told you that French speakers could be found everywhere in the world!
 
  Later, in the 1880s, France and the United Kingdom claimed parts of the archipelago and they agreed to manage it jointly. However, an independence movement arose in the 1970s, and the Republic of Vanuatu was founded in 1980\. And that’s the story of how the French language made it all the way to Australia.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Countries where French is spoken although it’s not an official language
 
  Despite not being their official language, French is spoken in other countries as well. Just like previously mentioned, the French language enjoys growing notoriety all over the world.
@@ -202,26 +151,6 @@ We told you that French speakers could be found everywhere in the world!
  Some of the largest minorities of French speakers can be found in Lebanon (38%), Algeria (33%), Tunisia (53%), Morocco (36%), Italy (20%) and Mauritius (73%). The same as before, the number represents the percentage of the entire population speaking French.
 
  Now we finally have the full picture and we can understand why French is spoken on five continents.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## A short history of the French language
 
@@ -262,8 +191,6 @@ We told you that French speakers could be found everywhere in the world!
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -273,47 +200,16 @@ We told you that French speakers could be found everywhere in the world!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-master-your-mobile-communications-skype-and-zoom-on-android/"><u>[Updated] 2024 Approved  Master Your Mobile Communications  Skype & Zoom on Android</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-top-incredible-browser-game-hacks/"><u>[Updated] 2024 Approved  Top Incredible Browser Game Hacks</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-2024-approved-tricks-of-trade-remote-recording-mastery/"><u>[Updated] 2024 Approved  Tricks of Trade  Remote Recording Mastery</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-guidelines-to-frame-your-youtube-creation-flow/"><u>[Updated] In 2024, Guidelines to Frame Your YouTube Creation Flow</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-streamline-your-income-youtubes-new-rules/"><u>[Updated] In 2024, Streamline Your Income  YouTube's New Rules</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-strategies-to-swiftly-remove-unwanted-video-post-comments-for-2024/"><u>[Updated] Strategies to Swiftly Remove Unwanted Video Post-Comments for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-unlock-high-quality-audio-recording-with-these-top-5-windows-11-tips/"><u>[Updated] Unlock High-Quality Audio Recording with These Top 5 Windows 11 Tips</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-unlocking-fullscreen-footage-screen-recording-made-simple-for-mac-users/"><u>[Updated] Unlocking Fullscreen Footage  Screen Recording Made Simple for Mac Users</u></a></li>
-<li><a href="https://location-social.techidaily.com/4-most-known-ways-to-find-someone-on-tinder-for-xiaomi-redmi-note-12r-by-name-drfone-by-drfone-virtual-android/"><u>4 Most-Known Ways to Find Someone on Tinder For Xiaomi Redmi Note 12R by Name | Dr.fone</u></a></li>
-<li><a href="https://network-issues.techidaily.com/banish-sims-4-solid-color-warnings/"><u>Banish Sims 4 Solid-Color Warnings</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/gsl-mastered-pearson-and-mondly-uniting-forces/"><u>GSL Mastered - Pearson and Mondly Uniting Forces</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/gsl-perfection-achieved-pearson-and-mondly-union/"><u>GSL Perfection Achieved - Pearson & Mondly Union</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/guida-passo-passo-allaggiornamento-del-software-di-controllo-della-scheda-video-in-windows/"><u>Guida Passo-Passo All'aggiornamento Del Software Di Controllo Della Scheda Video in Windows</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-after-switching-from-vivo-v27e-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data After Switching From Vivo V27e to Latest Samsung | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-easy-guide-to-motorola-edge-40-neo-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Motorola Edge 40 Neo FRP Bypass With Best Methods</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-itel-a70withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Itel A70with/without a PC</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-insight-into-how-luts-transform-your-digital-canvas/"><u>In 2024, Insight Into How LUTs Transform Your Digital Canvas</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-ps5xbox-series-x-top-gaming-tvs-unveiled/"><u>In 2024, PS5/Xbox Series X  Top Gaming TVs Unveiled</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ingenieria-del-lenguaje-identificacion-de-cognados-falsos/"><u>Ingeniería Del Lenguaje: Identificación De Cognados Falsos</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/international-english-with-pearson/"><u>International English with Pearson</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/is-german-a-difficult-target-for-learners/"><u>Is German a Difficult Target for Learners?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/langsam-gehende-abfahrtsprache-fur-deutsche/"><u>Langsam Gehende Abfahrtsprache Für Deutsche</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-mastery-made-simple-10-effective-strategies-with-mondly/"><u>Language Mastery Made Simple: 10 Effective Strategies with Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-revolution-mondly-now-on-oculus-quest/"><u>Language Revolution: Mondly Now on Oculus Quest</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learning-languages-later-successful-strategies/"><u>Learning Languages Later: Successful Strategies</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguistic-gifts-from-abroad-to-eng/"><u>Linguistic Gifts From Abroad to Eng</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lowest-price-for-endless-mondly-use/"><u>Lowest Price for Endless Mondly Use</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastery-over-spanish-sounds-with-diacritical-marks/"><u>Mastery Over Spanish Sounds with Diacritical Marks</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-inspires-global-education-touching-lives-of-70plus-million/"><u>Mondly Inspires Global Education, Touching Lives of 70+ Million</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-reaches-global-classroom-hub-for-over-70m-students/"><u>Mondly Reaches Global Classroom Hub for Over 70M Students</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/nations-unified-by-castilian-roots/"><u>Nations Unified by Castilian Roots</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-the-complexities-of-ru-sounds/"><u>Navigating the Complexities of RU Sounds</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/nine-steps-to-master-the-art-of-engaging-chats/"><u>Nine Steps to Master the Art of Engaging Chats</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/one-moment-a-day-gain-mastery-over-urdu/"><u>One Moment a Day, Gain Mastery Over Urdu</u></a></li>
-<li><a href="https://win-blog.techidaily.com/resolving-the-mordhau-crash-error-a-step-by-step-guide/"><u>Resolving the Mordhau Crash Error: A Step-by-Step Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sigue-la-rutina-semanal-de-habla-hispana/"><u>Sigue La Rutina Semanal De Habla Hispana</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/step-by-step-guide-clearing-your-chatgpt-conversation-records/"><u>Step-by-Step Guide: Clearing Your ChatGPT Conversation Records</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-art-of-being-friendly-in-indonesia/"><u>The Art of Being Friendly in Indonesia</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/the-right-way-to-watch-the-epic-star-wars-series-in-order-disneyplus/"><u>The Right Way to Watch the Epic 'Star Wars' Series in Order: Disney+</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-transformative-journey-to-english-proficiency/"><u>The Transformative Journey to English Proficiency</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-10-infinix-gt-10-pro-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 Infinix GT 10 Pro Android SIM Unlock APK</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unveiling-europes-linguistic-tapestry-language-diversity-on-europe-day/"><u>Unveiling Europe's Linguistic Tapestry: Language Diversity on Europe Day</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/why-picking-up-a-language-post-fifty-is-wise/"><u>Why Picking Up a Language Post-Fifty Is Wise</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-automating-your-viewing-on-facebook-a-step-by-step-guide/"><u>[New] Automating Your Viewing on Facebook A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-understanding-watermarks-and-protecting-fb-pics/"><u>[Updated] 2024 Approved Understanding Watermarks & Protecting FB Pics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/become-a-polyglot-faster-leading-app-based-language-learning-experience/"><u>Become a Polyglot Faster: Leading App-Based Language Learning Experience</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/chatgpts-comedy-capabilities-an-insight-into-whether-machines-can-truly-be-funny/"><u>ChatGPT's Comedy Capabilities: An Insight Into Whether Machines Can Truly Be Funny</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-lingo-top-english-slang-terms-explained/"><u>Decoding Lingo: Top English Slang Terms Explained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-humanitys-ancestral-verbal-arts/"><u>Discovering Humanity's Ancestral Verbal Arts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-german-from-novice-to-expert-via-dark-netflix-style/"><u>Dive Into German: From Novice to Expert via Dark, Netflix Style</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/empower-your-business-with-effective-language-training/"><u>Empower Your Business With Effective Language Training</u></a></li>
+<li><a href="https://driver-install.techidaily.com/exploring-advanced-gadgets-with-toms-hardware-insights/"><u>Exploring Advanced Gadgets with Tom's Hardware Insights</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-meizu-21-pro-phone-without-pin-by-drfone-android/"><u>In 2024, How to Unlock Meizu 21 Pro Phone without PIN</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-the-art-of-green-screen-without-costs-top-4-youtube-techniques-for-aspiring-vfx-artists-for-2024/"><u>Learn the Art of Green Screen Without Costs Top 4 YouTube Techniques for Aspiring VFX Artists for 2024</u></a></li>
 </ul></div>
+

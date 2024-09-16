@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Chinese Thank You Phrases
-date: 2024-09-05T04:38:31.207Z
-updated: 2024-09-06T04:38:31.207Z
+date: 2024-09-11T16:48:16.871Z
+updated: 2024-09-16T20:14:45.866Z
 tags:
   - speak
   - english
@@ -14,18 +14,6 @@ keywords: Chinese Gratitude Expressions,Thank You Phrases in Mandarin,Essential 
 thumbnail: https://thmb.techidaily.com/6b74a794374950c8c7d33f01e283b8595a0e02efb75345cb412052a7193f6b01.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1982570">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The Ultimate Guide to Chinese Thank You Phrases
 
  Politeness is a greatly complex phenomenon that can differ in meaning depending on the culture. What is polite in one country, can be considered rude in another. However, there are a few rules that keep the same interpretation everywhere in the world. For example, a heartfelt thanks is timely in every corner of the world. And the Chinese culture makes no exception. If there is one phrase you should absolutely master before traveling to China, it’s 谢谢_(xièxiè)_ – meaning “thank you” in Chinese. Like [James Allen](https://en.wikipedia.org/wiki/James%5FAllen%5F%28author%29) once said – “no duty is more urgent than that of returning thanks”.
@@ -34,12 +22,6 @@ thumbnail: https://thmb.techidaily.com/6b74a794374950c8c7d33f01e283b8595a0e02efb
 
  **So here are 12 of the most important ways to say thank you in Chinese.**
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 1\. Xièxiè – the most common Chinese thanks
 
  As already mentioned, **the most common way to say “thanks” or “thank you” in Chinese is_xièxiè_ (谢谢) or_xièxie._**  A rough [Chinese pronunciation](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) of that is_syeh-syeh,_ but while it sounds like the same words repeated twice, there is actually a very subtle difference between the two. Because the first syllable is a fourth tone and the second is a neutral, you should start the pronunciation high with the first syllable and then say the second one more lightly and without any emphasis.
@@ -56,20 +38,8 @@ thumbnail: https://thmb.techidaily.com/6b74a794374950c8c7d33f01e283b8595a0e02efb
 
 ![thanks in chinese](https://edge.mondly.com/blog/wp-content/uploads/2019/10/thanks-in-chinese-1024x682.jpg "Thank You In Chinese: Xièxiè And 12 Other Thank You Chinese Phrases 2")
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
-  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  “Xiangxi, China” by Theodor Lundqvist©
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 2\. Thank you very much in Chinese
 
  Just like in any other language, the way you say “thank you” in Chinese can alter its meaning. If you say it harshly and keep a straight face, Chinese speakers may perceive your attitude as sarcastic. So smile, act as you would in your native country and nod respectfully (don’t bow as you would do in Japan). Even if your pronunciation is not perfect, your message will certainly be conveyed correctly.
@@ -102,26 +72,15 @@ Other variations include:
 
 ![xiexie chinese](https://edge.mondly.com/blog/wp-content/uploads/2019/10/xiexie-chinese-1024x682.jpg "Thank You In Chinese: Xièxiè And 12 Other Thank You Chinese Phrases 3")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  “Jiaxing, China” by Jay©
 
 <!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 4\. Other ways to express your gratitude in Chinese
 
  Depending on the social context, in some cases, you might want to vary your answers. For example, when someone compliments you, instead of saying 谢谢_xièxiè_ – which may sound a little arrogant, you could say 哪里哪里_nǎlǐ nǎlǐ_ . In English, that translates to “no, no” or “where, where” as in “you’re flattering me” or “you’re too kind”.
@@ -141,6 +100,13 @@ Other variations include:
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115926/19272" target="_top" id="2115926">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115926" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115926/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Here’s how to speak Chinese in just 10 minutes a day
 
  It can be really tricky to master Chinese pronunciation if you don’t actively live in China. But with [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-3462&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-3462?mother%5Flang=en%5Fus?target%5Flang=zh&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-3462?mother%5Flang=en%5Fus?target%5Flang=zh) , the award-winning language learning app, **you can learn Chinese naturally with practical topics and authentic Chinese conversations** recorded by fluent voice artists so you can tackle day-to-day situations.
@@ -159,8 +125,6 @@ Other variations include:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -170,61 +134,14 @@ Other variations include:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-building-a-channel-team-up-videography-guide/"><u>[New] 2024 Approved  Building a Channel  Team-Up Videography Guide</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-2024-approved-selective-recommendations-for-advanced-voice-alteration-tools/"><u>[New] 2024 Approved  Selective Recommendations for Advanced Voice Alteration Tools</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-optimizing-techniques-broadcasting-via-obs-to-facebook/"><u>[New] In 2024, Optimizing Techniques  Broadcasting via OBS to Facebook</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-overcome-obstacles-with-these-top-10-motivation-flicks/"><u>[New] Overcome Obstacles with These Top 10 Motivation Flicks</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-start-smart-free-video-intro-templates/"><u>[New] Start Smart  Free Video Intro Templates</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-securing-your-spatial-content-mastering-the-art-of-360-degree-video-filming-and-uploading/"><u>2024 Approved  Securing Your Spatial Content  Mastering the Art of 360-Degree Video Filming & Uploading</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/easy-guide-to-tweeting-videos-and-turning-them-into-music/"><u>Easy Guide to Tweeting Videos & Turning Them Into Music</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/1722862892581-free-android-16-update-rumored-features-speculated-costs-and-official-launch-date-revealed/"><u>Free Android 16 Update: Rumored Features, Speculated Costs & Official Launch Date Revealed!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-glossary-the-ultimate-vr-lexicon-experience/"><u>Global Glossary: The Ultimate VR Lexicon Experience</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/huawei-p10-review-unpacking-its-impressive-specs-and-features/"><u>Huawei P10 Review  Unpacking Its Impressive Specs and Features</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/in-2024-claritycapturex7-zoom-in-size-up-smartly/"><u>In 2024, ClarityCaptureX7  Zoom In, Size Up Smartly</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-motorola-moto-g-stylus-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On Motorola Moto G Stylus (2023) | Dr.fone</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-flawless-soundscape-secrets-to-high-resolution-audio-recording/"><u>In 2024, Flawless Soundscape  Secrets to High-Resolution Audio Recording</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-shadows-and-highlights-for-text-depth-in-illustrator/"><u>In 2024, Shadows & Highlights for Text Depth in Illustrator</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/influential-communication-learning-new-languages-for-success/"><u>Influential Communication: Learning New Languages for Success</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/interactive-latin-an-enjoyable-study-experience/"><u>Interactive Latin: An Enjoyable Study Experience</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/introducing-mondlys-new-faq-section/"><u>Introducing Mondly’s New FAQ Section</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/keywords-made-simple-oxford-and-mondlys-way/"><u>Keywords Made Simple: Oxford & Mondly's Way</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-learning-as-an-aging-advantage/"><u>Language Learning as an Aging Advantage</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-mastery-top-50-classics-from-the-romance-language/"><u>Language Mastery - Top 50 Classics From the Romance Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/leading-asian-languages-quick-filter-last-access/"><u>Leading Asian Languages: Quick Filter, Last Access</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-and-practice-10-basic-spanish-greetings-for-perfect-communication/"><u>Learn & Practice 10 Basic Spanish Greetings For Perfect Communication</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguistic-identity-of-israelis-revealed/"><u>Linguistic Identity of Israelis Revealed?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/master-the-art-of-expression-with-essential-grammar-guidelines-esl-style/"><u>Master the Art of Expression with Essential Grammar Guidelines, ESL-Style</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-languages-after-40-unveil-4-advantages/"><u>Mastering Languages After 40: Unveil 4 Advantages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastery-in-motion-102plus-expressions-to-ease-your-france-journey/"><u>Mastery in Motion: 102+ Expressions to Ease Your France Journey</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-edit-like-a-pro-a-free-online-video-editing-course-using-jaycut/"><u>New 2024 Approved Edit Like a Pro A Free Online Video Editing Course Using Jaycut</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/oracular-odyssey-the-evolution-of-ancient-greek/"><u>Oracular Odyssey: The Evolution of Ancient Greek</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/packed-with-phrases-top-100plus-expressions-for-french-tourists/"><u>Packed with Phrases: Top 100+ Expressions for French Tourists</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/perfect-your-pictures-the-ultimate-guide-to-photo-text-editing/"><u>Perfect Your Pictures  The Ultimate Guide to Photo Text Editing</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/popular-english-slang-words-and-phrases-how-to-talk-like-gen-z/"><u>Popular English Slang Words and Phrases – How to Talk Like Gen Z</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/porque-vs-por-que-whats-the-difference/"><u>Porque Vs Por Que: What's The Difference?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/salutations-across-cultures/"><u>Salutations Across Cultures</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/semana-en-accion-todos-los-dias-del-mes-de-la-luna-en-espanol/"><u>Semana en Acción: Todos Los Días Del Mes De La Luna en Español</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/soviet-speech-patterns-in-uk-and-rus-languages/"><u>Soviet Speech Patterns in Uk & Rus Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/space-slang-101-an-introduction-to-star-wars-lingo/"><u>Space Slang 101: An Introduction to Star Wars Lingo</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speed-up-your-understanding-of-numerical-japan/"><u>Speed-Up Your Understanding of Numerical Japan</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-6-best-danish-films-to-learn-danish/"><u>The 6 Best Danish Films To Learn Danish</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-advantages-of-learning-a-foreign-language/"><u>The Advantages Of Learning A Foreign Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-buccaneers-lexicon-speaking-like-a-legend/"><u>The Buccaneer’s Lexicon: Speaking Like a Legend</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/the-comprehensible-guide-to-wincams-bests-for-2024/"><u>The Comprehensible Guide to WinCams' Bests for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-francophiles-treasure-chest-of-104plus-travel-phrases/"><u>The Francophile's Treasure Chest of 104+ Travel Phrases</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-for-fluent-germans-25-idioms-explained/"><u>The Ultimate Guide for Fluent Germans: 25 Idioms Explained</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/the-ultimate-guide-to-motion-tracking-on-android-and-iphone-for-2024/"><u>The Ultimate Guide to Motion Tracking on Android and iPhone for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-language-trends-globally/"><u>Top Language Trends Globally</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/transforming-language-education-through-mondlys-ar-platform/"><u>Transforming Language Education Through Mondly's AR Platform</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/triumph-through-translation-top-9-struggle-filled-languages/"><u>Triumph Through Translation: Top 9 Struggle-Filled Languages</u></a></li>
-<li><a href="https://extra-information.techidaily.com/tunes-and-tutorials-making-music-laced-instagram-vids/"><u>Tunes & Tutorials  Making Music-Laced Instagram Vids</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/uk-slang-decoded-unveiling-the-local-language/"><u>UK Slang Decoded: Unveiling the Local Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/uncovering-prime-online-routines-for-fluency-in-new-languages/"><u>Uncovering Prime Online Routines for Fluency in New Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-multilingual-skills-with-researched-music-techniques/"><u>Unlock Multilingual Skills with Researched Music Techniques</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-multilingual-advantages-top-6-perks/"><u>Unlocking Multilingual Advantages: Top 6 Perks</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-the-world-of-russian-quantitative-language/"><u>Unlocking the World of Russian Quantitative Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-understanding-turkey-and-korea/"><u>Unlocking Understanding: Turkey & Korea</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-10-free-avi-merger-tools-to-combine-avi-videos-seamlessly/"><u>Updated 2024 Approved 10 Free AVI Merger Tools to Combine AVI Videos Seamlessly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/voices-from-valhalla-languages-of-ancient-scandinavians/"><u>Voices From Valhalla: Languages of Ancient Scandinavians</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/your-guide-to-multilingualism-with-google-chosen-mondly/"><u>Your Guide to Multilingualism with Google-Chosen Mondly</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-intricacies-of-whatsapp-audio-dialogue/"><u>[New] The Intricacies of WhatsApp Audio Dialogue</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-unveiling-the-magic-of-moving-texts-a-guide-for-insta-pros-for-2024/"><u>[New] Unveiling the Magic of Moving Texts A Guide for Insta Pros for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-duo-in-debate-the-intricacies-of-spanish-vs-portuguese/"><u>A Duo in Debate: The Intricacies of Spanish Vs. Portuguese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/app-based-romanian-learning-by-locals/"><u>App-Based Romanian Learning by Locals</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breaking-barriers-strategies-to-enhance-multicultural-communication/"><u>Breaking Barriers: Strategies to Enhance Multicultural Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-indonesian-culture-with-local-greetings/"><u>Embrace Indonesian Culture with Local Greetings</u></a></li>
+<li><a href="https://driver-error.techidaily.com/fixing-the-gtx-ebx-950-code-43-issue-in-windows-11-a-comprehensive-guide/"><u>Fixing the GTX Ebx 950 'Code 43' Issue in Windows 11: A Comprehensive Guide</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-unlocking-made-easy-the-best-10-apps-for-unlocking-your-xiaomi-device-by-drfone-android/"><u>In 2024, Unlocking Made Easy The Best 10 Apps for Unlocking Your Xiaomi Device</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/troubleshooting-android-auto-rotation-issues-expert-tips-and-solutions/"><u>Troubleshooting Android Auto-Rotation Issues: Expert Tips & Solutions</u></a></li>
 </ul></div>
+

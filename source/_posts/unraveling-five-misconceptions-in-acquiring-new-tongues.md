@@ -1,7 +1,7 @@
 ---
 title: Unraveling Five Misconceptions in Acquiring New Tongues
-date: 2024-09-10T13:30:55.913Z
-updated: 2024-09-11T13:30:55.913Z
+date: 2024-09-10T20:08:31.321Z
+updated: 2024-09-16T19:30:18.065Z
 tags:
   - speak
   - english
@@ -20,97 +20,35 @@ thumbnail: https://thmb.techidaily.com/42aa8d9afd78cc4e28f215cb4f97cf62596e277c3
 
  Here are the most common myths and the way in which reality comes to the rescue:
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## 1\. Not everyone can learn a foreign language
 
  False! Everyone with the right motivation can learn a foreign language. The amount of effort and time invested is different for experienced learners and beginners, but the fact remains that anyone can do it. Once you ‘learn how to learn’, certain patterns become visible, especially with grammar, and this makes learning much faster.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## 2\. Language learning requires a high IQ
 
  So untrue! There are so many smart people who only speak one language. This is because a high IQ doesn’t make anyone a natural-born [polyglot](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . An average IQ combined with persuasiveness, sensitivity and lots of practice is a much better recipe for becoming fluent in another language.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## 3\. Failing to learn a language in school makes the student incompetent
 
  There are so many stories of students who left school thinking that they were incapable of learning French or Spanish, and later in life, they became fluent within a few months of living in Latin countries. The reason why students fail to learn a language in school is mostly due to the professor’s incompetence.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## 4\. Grammar is difficult
 
  Here’s a fun fact: grammar is a language’s least difficult element and it takes the least time to master. Every language, no matter how remote, is built on clear grammar rules and the experienced learner can easily figure out patterns that he or she can use to accelerate the learning process.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## 5\. Conversations require fluency
 
@@ -137,27 +75,11 @@ Thank YOU, Alan!
 
 Get Mondly now and speak any language like you never dreamed you would ![Learn a new language](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-72&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-72%26utm%5Fsource%3Dblog-post-id-72&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-72%26utm%5Fsource%3Dblog-post-id-72&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-72%26utm%5Fsource%3Dblog-post-id-72&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-72%26mt%3D8 "Learn a new language")
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -168,54 +90,16 @@ Get Mondly now and speak any language like you never dreamed you would ![Learn a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-connecting-players-and-friends-stream-xbox-to-fb/"><u>[New] 2024 Approved  Connecting Players & Friends  Stream Xbox to FB</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-chill-out-guide-selecting-inviting-winter-backgrounds-for-2024/"><u>[New] A Chill-Out Guide  Selecting Inviting Winter Backgrounds for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-sites-like-famebit-where-you-can-find-youtube-sponsorships/"><u>[New] In 2024, Sites Like FameBit Where You Can Find YouTube Sponsorships</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-exclusive-sneak-peek-at-apples-finest-facebook-video-extractor-apps/"><u>[Updated] Exclusive Sneak Peek at Apple's Finest Facebook Video Extractor Apps</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-from-raw-footage-to-high-quality-mpeg-youtube-conversion-techniques/"><u>2024 Approved  From Raw Footage to High-Quality MPEG  YouTube Conversion Techniques</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-solving-the-puzzle-of-nonexistent-facebook-video-suggests/"><u>2024 Approved  Solving the Puzzle of Nonexistent Facebook Video Suggests</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/2024-approved-top-iphone-video-editor-choose-between-cameo-and-filmorago/"><u>2024 Approved  Top iPhone Video Editor  Choose Between Cameo & FilmoraGo</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-what-is-snapchat-spotlight-how-to-use-it/"><u>2024 Approved  What Is Snapchat Spotlight? How to Use It?</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/elevate-your-snaps-mastering-snapchat-zoom-features/"><u>Elevate Your Snaps  Mastering Snapchat Zoom Features</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/examining-youtubes-copyright-stance-versus-cc-approach/"><u>Examining Youtube's Copyright Stance Versus CC Approach</u></a></li>
-<li><a href="https://extra-information.techidaily.com/focused-insights-the-best-camera-gimbals-for-iphones-androids-and-dslrs-1-10/"><u>Focused Insights  The Best Camera Gimbals for iPhones, Androids, and DSLRs #1-#10</u></a></li>
-<li><a href="https://android-location.techidaily.com/getting-the-pokemon-go-gps-signal-not-found-11-error-in-oppo-reno-11-pro-5g-drfone-by-drfone-virtual/"><u>Getting the Pokemon Go GPS Signal Not Found 11 Error in Oppo Reno 11 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-communication-powerhouses-which-is-it-german-or-french/"><u>Global Communication Powerhouses: Which Is It, German or French?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-holiday-thanksgiving-observances/"><u>Global Holiday: Thanksgiving Observances</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-language-leap-7-years-of-mondly-success/"><u>Global Language Leap - 7 Years of Mondly Success</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-linguistics-australian-outback-speech-compared-with-uk-and-us/"><u>Global Linguistics: Australian Outback Speech Compared with UK & US</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/globalizations-tale-in-the-story-of-eng/"><u>Globalization's Tale in the Story of ENG</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/how-shockwave-flash-issues-are-fixed-on-google-chrome-for-a-smoother-experience/"><u>How Shockwave Flash Issues Are Fixed on Google Chrome for a Smoother Experience</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/how-to-enable-separate-graphic-card-on-win-1011/"><u>How To Enable Separate Graphic Card on Win 10/11</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-honor-90-lite-phone-password-without-factory-reset-by-drfone-android/"><u>How to Unlock Honor 90 Lite Phone Password Without Factory Reset?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/hungarian-languages-for-romantic-dialogue/"><u>Hungarian Languages for Romantic Dialogue</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-anonymizing-faces-a-compendium-of-photographic-shielders/"><u>In 2024, Anonymizing Faces  A Compendium of Photographic Shielders</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-samsung-galaxy-m54-5g-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Samsung Galaxy M54 5G Phones with/without a PC</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-changefake-your-apple-iphone-se-2020-location-on-viber-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Change/Fake Your Apple iPhone SE (2020) Location on Viber | Dr.fone</u></a></li>
-<li><a href="https://video-capture.techidaily.com/in-2024-integrating-real-time-collaboration-slack-and-filmoras-meeting-guide/"><u>In 2024, Integrating Real-Time Collaboration  Slack & Filmora's Meeting Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/israel-journey-guide-essential-hints-and-key-local-expressions/"><u>Israel Journey Guide: Essential Hints & Key Local Expressions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/israelian-itinerary-essentials-top-7-insights-and-language-basics/"><u>Israelian Itinerary Essentials: Top 7 Insights and Language Basics</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linitiation-a-la-francais-les-dix-jours/"><u>L'Initiation À La Français: Les Dix Jours</u></a></li>
-<li><a href="https://change-location.techidaily.com/list-of-pokemon-go-joysticks-on-vivo-s17-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Vivo S17 | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-the-impossible-learn-the-most-challenging-languages/"><u>Mastering the Impossible: Learn the Most Challenging Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-kid-friendly-interface-filter-back-buttons-win-acclaim/"><u>Mondly's Kid-Friendly Interface: Filter, Back Buttons Win Acclaim</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-mission-bringing-affordable-language-education-to-ukrainian-ears/"><u>Mondly’s Mission: Bringing Affordable Language Education to Ukrainian Ears</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlyar-language-learning-takes-a-leap-into-vr/"><u>MondlyAR - Language Learning Takes a Leap Into VR!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-german-language-obstacles/"><u>Navigating German Language Obstacles</u></a></li>
-<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-music-from-tecno-spark-20-by-fonelab-android-recover-music/"><u>Possible solutions to restore deleted music from Tecno Spark 20</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/say-hi-in-another-language-today-at-nearly-no-cost-to-you/"><u>Say Hi in Another Language Today – At Nearly No Cost to You!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/saying-thanks-in-china-beyond-the-basics-of-xiexie/"><u>Saying Thanks in China: Beyond the Basics of Xièxiè</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-with-grace-japenese-introduction-phrases/"><u>Speak With Grace: Japenese Introduction Phrases</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/start-urdu-learning-with-key-essentials/"><u>Start Urdu Learning with Key Essentials</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/stir-up-sparkles-in-sicily-20plus-slang-and-phrase-guide/"><u>Stir Up Sparkles in Sicily: 20+ Slang & Phrase Guide</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/streaming-and-surfing-from-the-comfort-of-your-couch-how-to-get-your-home-theater-online/"><u>Streaming and Surfing From the Comfort of Your Couch: How to Get Your Home Theater Online</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-definitive-list-of-93-crucial-spanish-commands-for-tours/"><u>The Definitive List of 93 Crucial Spanish Commands for Tours</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-essence-of-portuguese-keyboard-shortcuts-across-continents/"><u>The Essence of Portuguese Keyboard Shortcuts Across Continents</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-intricacies-of-porque-and-por-que-usage/"><u>The Intricacies of Porque and Por Que Usage</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-surprising-brain-benefits-of-learning-a-foreign-language/"><u>The Surprising Brain Benefits of Learning a Foreign Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/tongue-triumphs-perfect-your-accent-with-twisters/"><u>Tongue Triumphs: Perfect Your Accent With Twisters</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/unveiling-tiktoks-visual-makeover-techniques-for-2024/"><u>Unveiling TikTok's Visual Makeover Techniques for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/ways-to-stop-parent-tracking-your-huawei-p60-drfone-by-drfone-virtual-android/"><u>Ways to stop parent tracking your Huawei P60 | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-huawei-nova-y71-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Huawei Nova Y71? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/worldwide-winner-apples-new-app/"><u>Worldwide Winner: Apple's New App</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-2023-mobile-download-for-fb-videos-cross-platform/"><u>[New] In 2024, 2023 Mobile Download for FB Videos, Cross-Platform</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-joining-flv-files-a-step-by-step-guide/"><u>[New] In 2024, Joining FLV Files A Step-by-Step Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/150plus-key-russian-terms-to-master-travel-lingo/"><u>150+ Key Russian Terms to Master Travel Lingo</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/download-instagram-reels-effortlessly-anytime/"><u>Download Instagram Reels Effortlessly, Anytime</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/eloquent-escapades-flirting-in-the-language-of-love/"><u>Eloquent Escapades: Flirting in the Language of Love</u></a></li>
+<li><a href="https://driver-install.techidaily.com/flawless-installation-of-wacom-bamboo-drivers/"><u>Flawless Installation of Wacom Bamboo Drivers</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-the-ultimate-guide-to-thriving-in-google-meet-chats/"><u>In 2024, The Ultimate Guide to Thriving in Google Meet Chats</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/pro-level-strategies-for-stunningly-pinning-messages-in-discord/"><u>Pro-Level Strategies for Stunningly Pinning Messages in Discord</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-call-logs-from-samsung-galaxy-m34-by-fonelab-android-recover-call-logs/"><u>Undelete lost call logs from Samsung Galaxy M34</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576145082-update-privacy-policy-and-terms-of-use/"><u>Update: Privacy Policy & Terms Of Use</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-motorola-moto-g04-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Motorola Moto G04? | Dr.fone</u></a></li>
 </ul></div>
+

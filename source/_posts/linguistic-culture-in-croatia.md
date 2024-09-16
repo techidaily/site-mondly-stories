@@ -1,7 +1,7 @@
 ---
 title: Linguistic Culture in Croatia
-date: 2024-07-12T08:29:42.487Z
-updated: 2024-07-13T08:29:42.487Z
+date: 2024-09-12T18:11:37.513Z
+updated: 2024-09-16T18:52:17.599Z
 tags:
   - speak
   - english
@@ -58,6 +58,13 @@ thumbnail: https://thmb.techidaily.com/d16299364ff8a12ac1730983e510ad0f5d0273900
 
  “Dubrovnik, Croatia” by Geio Tischler©
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123473/16836" target="_top" id="2123473">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123473" border="0" alt="https://techidaily.com" width="254" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123473/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Hello in Croatian and other basic Croatian words
 
  **The most popular way to say ‘hello’ in Croatian is_bok_ , but you can also use_zdravo,_ a more formal hello.** Similarly to other languages, it all depends on who you are talking to and how friendly you allow yourself to be. If you’re a tourist in Croatia,_bok_ or_bog_ (in some areas) should work fine in most situations.
@@ -82,6 +89,13 @@ thumbnail: https://thmb.techidaily.com/d16299364ff8a12ac1730983e510ad0f5d0273900
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## From 0 to conversational in Croatian
 
  Do you want to see the Croatian language in action? Get Mondly, the award-winning language learning app that will help you speak Croatian like a pro.
@@ -103,8 +117,6 @@ thumbnail: https://thmb.techidaily.com/d16299364ff8a12ac1730983e510ad0f5d0273900
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -112,6 +124,20 @@ thumbnail: https://thmb.techidaily.com/d16299364ff8a12ac1730983e510ad0f5d0273900
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-lessons.techidaily.com/new-a-comprerans-guide-to-capturing-spectacular-slow-motion-on-hero-10/"><u>[New] A Compreran's Guide to Capturing Spectacular Slow Motion on Hero 10</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-navigating-recordings-in-windows-11-a-compreayers-guide/"><u>[New] In 2024, Navigating Recordings in Windows 11 A Compreayer's Guide</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-transform-your-videos-the-ultimate-guide-to-spinning-media-for-2024/"><u>[New] Transform Your Videos The Ultimate Guide to Spinning Media for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-mystic-mastery-in-minimalist-photo-manipulations/"><u>[Updated] Mystic Mastery in Minimalist Photo Manipulations</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-prime-collection-of-gopro-complements/"><u>2024 Approved The Prime Collection of GoPro Complements</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-do-xiaomi-redmi-note-12-pro-5g-screen-sharing-drfone-by-drfone-android/"><u>How To Do Xiaomi Redmi Note 12 Pro 5G Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/key-spanish-expressions-for-convenient-and-confident-touring/"><u>Key Spanish Expressions for Convenient and Confident Touring</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/le-squelette-humain-une-introduction-a-ses-composants-en-francais/"><u>Le Squelette Humain: Une Introduction À Ses Composants en Français</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/navigating-netflix-and-youtubers-how-jake-paul-succeeded/"><u>Navigating Netflix & YouTubers How Jake Paul Succeeded</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-for-young-learners-kindergarten-elementary-adventures/"><u>Spanish for Young Learners: Kindergarten-Elementary Adventures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/teaching-english-as-a-second-language/"><u>Teaching English As A Second Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-power-of-multilingualism-after-age-50/"><u>The Power of Multilingualism After Age 50</u></a></li>
+<li><a href="https://win-answers.techidaily.com/victory-over-the-void-defeating-minecrafts-black-screen-challenge/"><u>Victory Over the Void: Defeating Minecraft's Black Screen Challenge</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Official Language in Croatia
-date: 2024-07-12T08:24:58.927Z
-updated: 2024-07-13T08:24:58.927Z
+date: 2024-09-13T17:56:22.977Z
+updated: 2024-09-16T19:01:44.507Z
 tags:
   - speak
   - english
@@ -58,6 +58,19 @@ thumbnail: https://thmb.techidaily.com/75040013d17be0726faccbc397c3b3541c1732db6
 
  “Dubrovnik, Croatia” by Geio Tischler©
 
+<!-- affiliate ads begin -->
+<span id="1983446">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Hello in Croatian and other basic Croatian words
 
  **The most popular way to say ‘hello’ in Croatian is_bok_ , but you can also use_zdravo,_ a more formal hello.** Similarly to other languages, it all depends on who you are talking to and how friendly you allow yourself to be. If you’re a tourist in Croatia,_bok_ or_bog_ (in some areas) should work fine in most situations.
@@ -82,6 +95,13 @@ thumbnail: https://thmb.techidaily.com/75040013d17be0726faccbc397c3b3541c1732db6
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## From 0 to conversational in Croatian
 
  Do you want to see the Croatian language in action? Get Mondly, the award-winning language learning app that will help you speak Croatian like a pro.
@@ -103,8 +123,6 @@ thumbnail: https://thmb.techidaily.com/75040013d17be0726faccbc397c3b3541c1732db6
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -112,6 +130,17 @@ thumbnail: https://thmb.techidaily.com/75040013d17be0726faccbc397c3b3541c1732db6
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-discover-the-power-of-proportions-in-youtube-content-creation/"><u>[Updated] 2024 Approved Discover the Power of Proportions in YouTube Content Creation</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-from-barely-there-to-top-rated-the-youtube-growth-arc/"><u>[Updated] In 2024, From Barely There to Top Rated The Youtube Growth Arc</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-dissecting-the-technical-aspects-of-vivavideo/"><u>2024 Approved Dissecting the Technical Aspects of VivaVideo</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/a-glossary-of-ai-jargon-29-ai-terms-you-should-know/"><u>A Glossary of AI Jargon: 29 AI Terms You Should Know</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/break-barriers-with-fluent-english-skills/"><u>Break Barriers with Fluent English Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/charming-charms-italian-love-lingo-guide/"><u>Charming Charms: Italian Love Lingo Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/harmonizing-new-years-vows-with-action-plans/"><u>Harmonizing New Year's Vows With Action Plans</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/online-efficiency-in-acquiring-finnish-proficiency/"><u>Online Efficiency in Acquiring Finnish Proficiency</u></a></li>
+<li><a href="https://win11.techidaily.com/save-smart-establish-a-weekly-windows-backup-routine/"><u>Save Smart: Establish a Weekly Windows Backup Routine</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/top-5-from-nokia-150-2023-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 5 from Nokia 150 (2023) to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
+</ul></div>
 

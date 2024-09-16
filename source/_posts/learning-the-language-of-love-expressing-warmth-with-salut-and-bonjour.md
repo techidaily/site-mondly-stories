@@ -1,7 +1,7 @@
 ---
 title: "Learning the Language of Love: Expressing Warmth with 'Salut' & 'Bonjour'"
-date: 2024-09-10T13:30:53.780Z
-updated: 2024-09-11T13:30:53.780Z
+date: 2024-09-15T19:55:23.928Z
+updated: 2024-09-16T19:52:59.121Z
 tags:
   - speak
   - english
@@ -38,20 +38,6 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  However, if you are in Quebec, you are free to use_Bon matin_ until 10 or 11 AM.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123469/16836" target="_top" id="2123469">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123469" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123469/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## 3\. “Good afternoon” in French –_Bon après-midi!_
 
  While it’s used less often than its brothers,_Bon après-midi_ is a nice twist to_Bonjour_ .
@@ -62,41 +48,26 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  The same as the_clasique Bonjour_ ,_Bonsoir_ is a universal greeting suitable for most social contexts. The only restriction is the moment of the day. So once the twilight settles in, it is safe to switch from_Bonjour_ to_Bonsoir_ !
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115931/19272" target="_top" id="2115931">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115931" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115931/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## 5\. “Good night” in French –_Bonne nuit!_
 
  Literally meaning “good night”,_Bonne nuit_ is used more as a “goodbye” than as a “hello”. So if you are spending time with your French friends,_Bonne nuit_ is a great way to let them them know you are retiring.
 
 ![french greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/11/french-greetings-scaled-722x960.jpg "How To Say Hello In French: 12 Useful French Greetings 2")
 
- “French fashion” by Charles 🇵🇭©
-
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982508">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
-
-
+ “French fashion” by Charles 🇵🇭©
 
 ## 6\. Hello? –_Allô?_
 
@@ -104,37 +75,9 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  Usually expressed with the raising tone of a question,_Allô_ is what you could say over the phone to check whether the person you are talking to is still on the other end of the line or not:_Allô?_
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115925/19272" target="_top" id="2115925">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115925" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115925/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## 7\. Excuse me? –_Excusez-moi?_
 
  Looking for a polite way to get someone’s attention in French? Maybe there’s someone blocking your way in the store or maybe you want to get noticed by the office clerk. In these situations, a classic greeting would be a bit redundant. So instead you could use this “question-like”_Excusez-moi?_ that has a double meaning and works as both a greeting and a way to get someone’s attention.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123468/16836" target="_top" id="2123468">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123468" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123468/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## 8\. “How are you” in French –_Comment ça va?_
 
@@ -150,43 +93,23 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  The only slight difference is the level for formality associated of each phrase:_Ça va?_ is obviously more suitable for informal interactions with friends and family.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## 10\. What’s up? –_Quoi de neuf?_
 
  Want to spice up and diversify your “ça-va”s? Go with the informal_Quoi de neuf_ that translates to “what’s up?” or “what’s new?”.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## 11\. The cute Bonjour:_Coucou!_
 
@@ -198,19 +121,12 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
 
  “Coucou! Is me! The Frenchie!” by Graham Holtshausen©
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2123472/16836" target="_top" id="2123472">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123472" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123472/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## 12\. How’s it going? –_Ça roule?_
 
@@ -220,6 +136,13 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Here’s how to learn French in just 10 minutes a day
 
@@ -241,8 +164,6 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -252,52 +173,15 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-top-techniques-to-captivate-viewers-with-facebook-covers/"><u>[New] 2024 Approved  Top Techniques to Captivate Viewers with Facebook Covers</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-how-to-create-and-grow-an-online-space-for-beauty-product-reviews/"><u>[New] How To Create and Grow an Online Space for Beauty Product Reviews</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-every-creators-guide-to-youtube-revenue/"><u>[New] In 2024, Every Creator's Guide to YouTube Revenue</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-expert-tips-for-eradicating-extra-green-on-youtube-videos-mac/"><u>[New] In 2024, Expert Tips for Eradicating Extra Green on YouTube Videos (Mac)</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-annual-roundup-top-no-money-video-editing-software-reviewed/"><u>[Updated] 2024 Approved  Annual Roundup  Top No-Money Video Editing Software Reviewed</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-zoom-basics-for-non-experts-setting-up-your-first-meeting/"><u>[Updated] 2024 Approved  Zoom Basics for Non-Experts  Setting Up Your First Meeting</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-clearsnap-guide-how-to-exclude-distracting-picture-borders/"><u>[Updated] ClearSnap Guide  How to Exclude Distracting Picture Borders</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-cutting-edge-strategies-for-recording-online-classes/"><u>[Updated] Cutting-Edge Strategies for Recording Online Classes</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-industrys-preferred-6-social-networking-sites-for-firms/"><u>[Updated] Industry's Preferred 6 Social Networking Sites for Firms</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/updated-strategic-message-management-expert-tips-for-discord-pinning-for-2024/"><u>[Updated] Strategic Message Management  Expert Tips for Discord Pinning for 2024</u></a></li>
-<li><a href="https://win-forum.techidaily.com/exploring-popular-networking-sites-facebook-twitter-instagram-and-youtube/"><u>Exploring Popular Networking Sites: Facebook, Twitter, Instagram and Youtube</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-glossary-the-ultimate-vr-lexicon-experience/"><u>Global Glossary: The Ultimate VR Lexicon Experience</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/guide-on-downloading-and-installing-the-latest-drivers-for-your-epson-xp-400/"><u>Guide on Downloading & Installing the Latest Drivers for Your Epson XP 400</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-motorola-moto-g84-5g-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Motorola Moto G84 5G | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/how-do-i-add-my-signature-to-xlb-files-by-ldigisigner-sign-a-excel-sign-a-excel/"><u>How do i add my signature to .xlb files</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-complete-fixes-to-solve-iphone-13-pro-max-randomly-asking-for-apple-id-password-by-drfone-ios/"><u>In 2024, Complete Fixes To Solve iPhone 13 Pro Max Randomly Asking for Apple ID Password</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-open-your-iphone-12-mini-without-a-home-button-drfone-by-drfone-ios/"><u>In 2024, How To Open Your iPhone 12 mini Without a Home Button | Dr.fone</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-mobile-mastery-establishing-your-brands-youtube-outlet/"><u>In 2024, Mobile Mastery  Establishing Your Brand's YouTube Outlet</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/influential-communication-learning-new-languages-for-success/"><u>Influential Communication: Learning New Languages for Success</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/interactive-latin-an-enjoyable-study-experience/"><u>Interactive Latin: An Enjoyable Study Experience</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/keywords-made-simple-oxford-and-mondlys-way/"><u>Keywords Made Simple: Oxford & Mondly's Way</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-learning-as-an-aging-advantage/"><u>Language Learning as an Aging Advantage</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-mastery-top-50-classics-from-the-romance-language/"><u>Language Mastery - Top 50 Classics From the Romance Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/leading-asian-languages-quick-filter-last-access/"><u>Leading Asian Languages: Quick Filter, Last Access</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/master-the-art-of-expression-with-essential-grammar-guidelines-esl-style/"><u>Master the Art of Expression with Essential Grammar Guidelines, ESL-Style</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/master-the-art-of-setting-up-and-installing-a-brother-printer-on-any-wifi-network/"><u>Master the Art of Setting Up and Installing a Brother Printer on Any WiFi Network</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastery-in-motion-102plus-expressions-to-ease-your-france-journey/"><u>Mastery in Motion: 102+ Expressions to Ease Your France Journey</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/most-popular-immigrant-languages-educated-in-us/"><u>Most Popular Immigrant Languages Educated In U.S</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/must-know-french-jargon-to-master-on-parisian-escapades/"><u>Must-Know French Jargon to Master on Parisian Escapades</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/oracular-odyssey-the-evolution-of-ancient-greek/"><u>Oracular Odyssey: The Evolution of Ancient Greek</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/salutations-across-cultures/"><u>Salutations Across Cultures</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/semana-en-accion-todos-los-dias-del-mes-de-la-luna-en-espanol/"><u>Semana en Acción: Todos Los Días Del Mes De La Luna en Español</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/soviet-speech-patterns-in-uk-and-rus-languages/"><u>Soviet Speech Patterns in Uk & Rus Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speed-up-your-understanding-of-numerical-japan/"><u>Speed-Up Your Understanding of Numerical Japan</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/subdued-soundscape-stitches-for-garageband-workflows/"><u>Subdued Soundscape Stitches for Garageband Workflows</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-francophiles-treasure-chest-of-104plus-travel-phrases/"><u>The Francophile's Treasure Chest of 104+ Travel Phrases</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-ultimate-list-of-high-quality-streaming-services-for-cricket-fans-for-2024/"><u>The Ultimate List of High-Quality Streaming Services for Cricket Fans for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-voyagers-handbook-deciphering-vietnams-language/"><u>The Voyager’s Handbook: Deciphering Vietnam's Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-language-trends-globally/"><u>Top Language Trends Globally</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/triumph-through-translation-top-9-struggle-filled-languages/"><u>Triumph Through Translation: Top 9 Struggle-Filled Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/uk-slang-decoded-unveiling-the-local-language/"><u>UK Slang Decoded: Unveiling the Local Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/uncovering-prime-online-routines-for-fluency-in-new-languages/"><u>Uncovering Prime Online Routines for Fluency in New Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-multilingual-advantages-top-6-perks/"><u>Unlocking Multilingual Advantages: Top 6 Perks</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-the-world-of-russian-quantitative-language/"><u>Unlocking the World of Russian Quantitative Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-understanding-turkey-and-korea/"><u>Unlocking Understanding: Turkey & Korea</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/1722979107361-update-your-msi-aorus-x470-drivers-now-direct-free-downloads-inside/"><u>Update Your MSI AORUS X470 Drivers Now - Direct Free Downloads Inside!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/voices-from-valhalla-languages-of-ancient-scandinavians/"><u>Voices From Valhalla: Languages of Ancient Scandinavians</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/your-guide-to-multilingualism-with-google-chosen-mondly/"><u>Your Guide to Multilingualism with Google-Chosen Mondly</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-honing-skills-for-hiring-best-filmmakers/"><u>[Updated] 2024 Approved Honing Skills for Hiring Best Filmmakers</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/2024-approved-a-step-by-step-guide-to-the-top-20-strategies-for-successful-fb-videos/"><u>2024 Approved A Step-by-Step Guide to the Top 20 Strategies for Successful FB Videos</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-from-blurred-to-bold-a-comprehensive-approach-to-buying-high-resolution-monitors/"><u>2024 Approved From Blurred to Bold A Comprehensive Approach to Buying High-Resolution Monitors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/all-spanish-speaking-states-and-territories/"><u>All Spanish-Speaking States and Territories</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/celebrating-educators-in-every-dialect-and-script/"><u>Celebrating Educators in Every Dialect and Script</u></a></li>
+<li><a href="https://apple-account.techidaily.com/detailed-guide-on-removing-apple-iphone-15-activation-lock-without-previous-owner-by-drfone-ios/"><u>Detailed Guide on Removing Apple iPhone 15 Activation Lock without Previous Owner?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-a-new-culture-mastering-croatian-here-are-the-top-7-reasons/"><u>Dive Into a New Culture - Mastering Croatian: Here Are The Top 7 Reasons!</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/easy-steps-for-posting-videos-on-facebook-from-devices/"><u>Easy Steps for Posting Videos on Facebook From Devices</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-strategies-to-leverage-youtubes-cc-licensing/"><u>In 2024, Strategies to Leverage YouTube's CC Licensing</u></a></li>
+<li><a href="https://discover-great.techidaily.com/optimal-handbrake-configuration-finding-the-perfect-rf-ratio-for-hd-conversion/"><u>Optimal Handbrake Configuration: Finding the Perfect RF Ratio for HD Conversion</u></a></li>
 </ul></div>
+

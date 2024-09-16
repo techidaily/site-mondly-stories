@@ -1,7 +1,7 @@
 ---
 title: Global Goodwill on American Celebratory Date
-date: 2024-07-12T08:26:37.594Z
-updated: 2024-07-13T08:26:37.594Z
+date: 2024-09-12T17:12:48.599Z
+updated: 2024-09-16T18:11:55.591Z
 tags:
   - speak
   - english
@@ -88,9 +88,29 @@ Now that you’re familiar with 33 ways of wishing Americans a “Happy Independ
 
 According to historical documents, July 2nd is the real Independence Day of the USA, but it’s celebrated on the fourth. Why? Well, two days before the 4th of July, the Second Continental Congress voted to approve a resolution of independence. This had been proposed in June by Richard Henry Lee of Virginia. This resolution declared the United States independent from Great Britain rule. But in order to make the decision legal, they needed the Declaration of Independence, a document which had been prepared by Thomas Jefferson and a Committee of Five. Congress debated for two days and approved it on 4th of July, which was to become the American Independence Day.
 
+<!-- affiliate ads begin -->
+<span id="1516072">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### What is the significance of the 4th of July in the United States?
 
 The 4th of July is celebrated as Independence Day in the United States. It commemorates the country's declaration of independence from Great Britain on July 4, 1776.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How do Americans typically celebrate the 4th of July?
 
@@ -118,8 +138,6 @@ Start using Mondly for free on your computer or tablet or, better yet, download 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -127,6 +145,20 @@ Start using Mondly for free on your computer or tablet or, better yet, download 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-must-see-hd-screenshots-for-mac-users-char-limit-156-for-2024/"><u>[New] Must See HD Screenshots for Mac Users (Char Limit 156) for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-unlocking-twitters-full-potential-the-ultimate-guide/"><u>[Updated] 2024 Approved Unlocking Twitter’s Full Potential The Ultimate Guide</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-amplifying-tiktok-videos-using-zoom-settings/"><u>[Updated] Amplifying TikTok Videos Using Zoom Settings</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-silent-strategies-learning-without-edge-videos/"><u>[Updated] Silent Strategies Learning Without EDGE Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/8-ways-language-learning-reimagines-your-worldview/"><u>8 Ways Language Learning Reimagines Your Worldview</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-comprehensible-approach-for-learning-english-contractions/"><u>A Comprehensible Approach for Learning English Contractions</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/beginner-friendly-approach-embracing-video-chats-on-insta-for-2024/"><u>Beginner-Friendly Approach Embracing Video Chats on Insta for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/building-bridges-in-bilingual-relationships/"><u>Building Bridges in Bilingual Relationships</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/croatian-linguistic-landscape/"><u>Croatian Linguistic Landscape</u></a></li>
+<li><a href="https://win-blog.techidaily.com/geforce-experience-error-resolution-a-step-by-step-walkthrough-for-users/"><u>GeForce Experience Error Resolution - A Step-by-Step Walkthrough for Users</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-apple-iphone-7-to-other-iphone-drfone-by-drfone-ios/"><u>How to Mirror Apple iPhone 7 to Other iPhone? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/le-corps-humain-explique-en-francais-anatomie-basique/"><u>Le Corps Humain Expliqué en Français (Anatomie Basique)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580207699-speak-croatian-with-confidence-unveil-these-top-7-advantages-now/"><u>Speak Croatian with Confidence: Unveil These Top 7 Advantages Now</u></a></li>
+</ul></div>
 

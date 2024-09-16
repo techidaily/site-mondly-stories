@@ -1,7 +1,7 @@
 ---
 title: Sprachkurse Für Die Deutschen Wochentage
-date: 2024-09-10T13:30:54.778Z
-updated: 2024-09-11T13:30:54.778Z
+date: 2024-09-10T18:54:18.045Z
+updated: 2024-09-16T19:07:28.843Z
 tags:
   - speak
   - english
@@ -19,26 +19,6 @@ thumbnail: https://thmb.techidaily.com/b7ac3fecaf39cbf4ad53ade68b5607328fb5fc5fa
  If someone asks_welchen Wochentag haben wir heute?_ (“which day of the week do we have today?”), what do you answer? The days of the week are probably one of the first things you learn not just in German but in any language. As a toddler, you probably started with “mom”, “dad”, “hello”, and “thank you”, then you probably advanced to counting, colors, and, naturally, the days of the week. So, if you are on your way to [learning German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , the days of the week in German are surely a good starting point.
 
  If you think about it, the_Tage_ (days) of the_Woche_ (week) is one of the most basic and important language lessons. Simply knowing these seven short words will help you set up meetings, and dates and create a weekly agenda that will decide your every social and professional move. After all, our entire life revolves around the concept of time and the many ways we keep track of it: seconds, minutes, hours, days, weeks, months, years, and so on. So let’s help you get started and see which are the weekdays in German.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## The days of the week in German
 
@@ -62,20 +42,6 @@ _**Mittwoch**_ , the only German weekday that doesn’t end in_tag_ , simply mea
 
 ![days of the week in German](https://edge.mondly.com/blog/wp-content/uploads/2020/08/days-of-the-week-in-german-960x960.jpg "Learn The Days Of The Week In German 2")
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
  The days of the week in German
 
 **“Thursday”** which is_**Donnerstag**_ in German literally means “thunder’s day”. The day was originally named after Thor, the super awesome Norse god Marvel made famous. In German-speaking cultures, Thor was known as Donar so this is where_Donnerstag_ comes from. Obviously, the English word “Thursday” comes from “Thor’s day”.
@@ -87,20 +53,6 @@ _**Mittwoch**_ , the only German weekday that doesn’t end in_tag_ , simply mea
 **_Sonntag_ (“Sunday”)** comes from the [German word](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) _Sonne_ (“sun”). So_Sonntag_ and “Sunday” are both literally “the day of the sun” or “sun-day”.
 
  As you can see, the German days of the week are very similar to English, so you shouldn’t have a hard time remembering them. But, if you do, you can always [get Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5415&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5415?mother%5Flang=en%5Fus?target%5Flang=de&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5415?mother%5Flang=en%5Fus?target%5Flang=de) , the award-winning language learning app that brings together crystal clear audios recorded by fluent voice actors, real conversations, and practical topics to make [German easy to learn](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5415&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5415?mother%5Flang=en%5Fus?target%5Flang=de&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5415?mother%5Flang=en%5Fus?target%5Flang=de) .
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## How to use the German days of the week correctly
 
@@ -133,8 +85,6 @@ _**Mittwoch**_ , the only German weekday that doesn’t end in_tag_ , simply mea
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -144,57 +94,28 @@ _**Mittwoch**_ , the only German weekday that doesn’t end in_tag_ , simply mea
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-advanced-mac-toolkit-screenaudio-recording-feature/"><u>[New] 2024 Approved  Advanced Mac Toolkit  Screen/Audio Recording Feature</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-behind-the-scenes-top-tactics-for-consistent-vlogging/"><u>[New] 2024 Approved  Behind the Scenes  Top Tactics for Consistent Vlogging</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-advanced-tricks-for-ios-screenshots-just-got-updated/"><u>[New] Advanced Tricks for iOS Screenshots - Just Got Updated</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-in-2024-dell-p2715q-4k-monitor-review/"><u>[New] In 2024, Dell P2715Q 4K Monitor Review</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-a-lifetime-love-affair-with-top-15-classic-stop-motion-movies/"><u>2024 Approved  A Lifetime Love Affair with Top 15 Classic Stop-Motion Movies</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-boost-your-youtube-video-to-million-views-quickly/"><u>2024 Approved  Boost Your YouTube Video to Million Views Quickly</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-comprehensive-list-audio-pace-modification-tools/"><u>2024 Approved  Comprehensive List  Audio Pace Modification Tools</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-comprehensive-strategies-for-tracking-yt-traffic-and-gains/"><u>2024 Approved  Comprehensive Strategies for Tracking YT Traffic and Gains</u></a></li>
-<li><a href="https://program-issues.techidaily.com/2024s-top-fixes-navigating-mfs-xbox-series-xs-dev-error-6068-in-warzone-a-comprehensive-guide/"><u>2024'S Top Fixes: Navigating MFS Xbox Series X/S Dev Error 6068 in Warzone - A Comprehensive Guide</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/addressing-video-deformation-post-win10-update/"><u>Addressing VIDEO Deformation Post-Win10 Update</u></a></li>
-<li><a href="https://blog-min.techidaily.com/android-to-apple-how-to-transfer-photos-from-oneplus-12-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Android to Apple How To Transfer Photos From OnePlus 12 to iPad Easily | Dr.fone</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/animation-mastery-8-elite-software-options-for-mac-and-windows-users/"><u>Animation Mastery 8 Elite Software Options for Mac and Windows Users</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/effortless-avi-file-viewing-on-your-xbox-one-a-simple-guide-using-an-avi-to-xbox-converter/"><u>Effortless AVI File Viewing on Your Xbox One: A Simple Guide Using an AVI-to-Xbox Converter</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-glossary-the-ultimate-vr-lexicon-experience/"><u>Global Glossary: The Ultimate VR Lexicon Experience</u></a></li>
-<li><a href="https://howto.techidaily.com/google-play-services-wont-update-12-fixes-are-here-on-infinix-hot-40-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Play Services Wont Update? 12 Fixes are Here on Infinix Hot 40 Pro | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-detailed-guide-on-removing-iphone-xr-activation-lock-without-previous-owner-by-drfone-ios/"><u>In 2024, Detailed Guide on Removing iPhone XR Activation Lock without Previous Owner?</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-oppo-find-x7-phone-by-drfone-android/"><u>In 2024, How to Use Google Assistant on Your Lock Screen Of Oppo Find X7 Phone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/influential-communication-learning-new-languages-for-success/"><u>Influential Communication: Learning New Languages for Success</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/interactive-methods-to-make-spanish-fun/"><u>Interactive Methods to Make Spanish Fun</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/introducing-mondlys-new-faq-section/"><u>Introducing Mondly’s New FAQ Section</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/keywords-made-simple-oxford-and-mondlys-way/"><u>Keywords Made Simple: Oxford & Mondly's Way</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-mastery-top-50-classics-from-the-romance-language/"><u>Language Mastery - Top 50 Classics From the Romance Language</u></a></li>
-<li><a href="https://coupons.techidaily.com/coupon-1116684-share-115200-sale/"><u>Latest 2024/09 Discount Coupons - 35%Off Eufycam 3/3C Series Forever Power Security Camera with BionicMindT 4K</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-and-practice-10-basic-spanish-greetings-for-perfect-communication/"><u>Learn & Practice 10 Basic Spanish Greetings For Perfect Communication</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguistic-identity-of-israelis-revealed/"><u>Linguistic Identity of Israelis Revealed?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-foreign-tongues-at-any-stage/"><u>Mastering Foreign Tongues At Any Stage</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-languages-after-40-unveil-4-advantages/"><u>Mastering Languages After 40: Unveil 4 Advantages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-swedish-sounds-a-quick-guide/"><u>Mastering Swedish Sounds: A Quick Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-unites-with-pearson-learning-group/"><u>Mondly Unites with Pearson Learning Group</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlyvr-an-immersive-journey-to-language-fluency-awaits/"><u>MondlyVR: An Immersive Journey to Language Fluency Awaits!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-commitments-for-a-better-you/"><u>Navigating Commitments for a Better You</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/new-in-2024-the-ultimate-guide-to-amr-format-processing-and-conversion/"><u>New In 2024, The Ultimate Guide to AMR Format Processing and Conversion</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/next-level-nighttime-necessities-a-comprehensive-guide-to-romers-long-lasting-led-torch/"><u>Next-Level Nighttime Necessities: A Comprehensive Guide to Romer’s Long-Lasting LED Torch</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/packed-with-phrases-top-100plus-expressions-for-french-tourists/"><u>Packed with Phrases: Top 100+ Expressions for French Tourists</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/popular-english-slang-words-and-phrases-how-to-talk-like-gen-z/"><u>Popular English Slang Words and Phrases – How to Talk Like Gen Z</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/porque-vs-por-que-whats-the-difference/"><u>Porque Vs Por Que: What's The Difference?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/rapidly-learn-french-articulation-guide/"><u>Rapidly Learn French Articulation Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sea-talk-for-swashbucklers-only/"><u>Sea-Talk for Swashbucklers Only</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/simplified-steps-to-turkish-pronunciation-quick-reference-guide/"><u>Simplified Steps To Turkish Pronunciation: Quick Reference Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/space-slang-101-an-introduction-to-star-wars-lingo/"><u>Space Slang 101: An Introduction to Star Wars Lingo</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/spanish-number-one-the-foundation/"><u>Spanish Number One: The Foundation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-tagalog-easily-with-a-10-minute-daily-routine/"><u>Speak Tagalog Easily with a 10-Minute Daily Routine</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-6-best-danish-films-to-learn-danish/"><u>The 6 Best Danish Films To Learn Danish</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-advantages-of-learning-a-foreign-language/"><u>The Advantages Of Learning A Foreign Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-buccaneers-lexicon-speaking-like-a-legend/"><u>The Buccaneer’s Lexicon: Speaking Like a Legend</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-for-fluent-germans-25-idioms-explained/"><u>The Ultimate Guide for Fluent Germans: 25 Idioms Explained</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/transforming-language-education-through-mondlys-ar-platform/"><u>Transforming Language Education Through Mondly's AR Platform</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ukraine-and-russia-a-comparative-language-study/"><u>Ukraine and Russia: A Comparative Language Study</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-multilingual-skills-with-researched-music-techniques/"><u>Unlock Multilingual Skills with Researched Music Techniques</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/voices-from-valhalla-languages-of-ancient-scandinavians/"><u>Voices From Valhalla: Languages of Ancient Scandinavians</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/worldly-influence-on-the-language-we-love/"><u>Worldly Influence on the Language We Love</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/worldwide-traditions-of-a-haunting-holiday/"><u>Worldwide Traditions of a Haunting Holiday</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/your-guide-to-multilingualism-with-google-chosen-mondly/"><u>Your Guide to Multilingualism with Google-Chosen Mondly</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-rapid-relay-youtube-playlists-to-the-public/"><u>[New] Rapid Relay Youtube Playlists to the Public</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-elite-console-emulation-top-5-ps3-options/"><u>[Updated] 2024 Approved Elite Console Emulation Top 5 PS3 Options</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-unveiling-magix-video-pro-x-capabilities/"><u>2024 Approved Unveiling Magix Video Pro X Capabilities</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/3-effective-ways-to-unlock-icloud-account-without-password-on-apple-iphone-xs-max-by-drfone-ios/"><u>3 Effective Ways to Unlock iCloud Account Without Password On Apple iPhone XS Max</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/celebrating-1500-free-daily-lessons/"><u>Celebrating 1500 Free Daily Lessons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquering-the-alphabet-quick-hangul-mastery-for-beginners/"><u>Conquering the Alphabet: Quick Hangul Mastery for Beginners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conversational-coup-intriguing-spanish-flirting-techniques/"><u>Conversational Coup: Intriguing Spanish Flirting Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultivate-politeness-in-german-learn-these-16-thanks-phrases/"><u>Cultivate Politeness in German: Learn These 16 Thanks Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-modernity-learning-languages-with-contemporary-tools/"><u>Decoding Modernity: Learning Languages with Contemporary Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effortless-learning-of-swedish-letters-and-tones/"><u>Effortless Learning of Swedish Letters & Tones</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/how-to-make-a-ken-burns-effect-in-camtasia-9-in-2024/"><u>How to Make a Ken Burns Effect in Camtasia 9, In 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-remove-the-lock-screen-fingerprint-of-your-xiaomi-redmi-note-13-proplus-5g-by-drfone-android/"><u>In 2024, Remove the Lock Screen Fingerprint Of Your Xiaomi Redmi Note 13 Pro+ 5G</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579665342-language-leap-year-get-95-off-and-dive-into-new-cultures/"><u>Language Leap Year - Get 95% Off and Dive Into New Cultures</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1726027692953-obs/"><u>OBS スタジオを活用した範囲指定方法：高度な画面録画のコツ</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/professional-grade-hd-video-editing-software-top-5-recommendations-for-2024/"><u>Professional-Grade HD Video Editing Software Top 5 Recommendations for 2024</u></a></li>
+<li><a href="https://win-forum.techidaily.com/troubleshooting-unforeseen-errors-during-planning-in-windows-11-operating-systems/"><u>Troubleshooting Unforeseen Errors During Planning in Windows 11 Operating Systems</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

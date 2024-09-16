@@ -1,7 +1,7 @@
 ---
 title: Dive Into Romanian with Local Insight
-date: 2024-07-12T08:27:31.802Z
-updated: 2024-07-13T08:27:31.802Z
+date: 2024-09-09T19:18:30.220Z
+updated: 2024-09-16T17:20:49.747Z
 tags:
   - speak
   - english
@@ -96,6 +96,13 @@ Here’s what you can get access to if you download the app now:
 
  Like talking to an old friend,[speaking Romanian](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6033&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6033?mother%5Flang=en%5Fus?target%5Flang=ro&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6033?mother%5Flang=en%5Fus?target%5Flang=ro) has never been easier!
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2121335/18498" target="_top" id="2121335">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121335/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 10 basic Romanian words and phrases you can learn right now
 
  Before you go, here’s a small gift for you: you’re going to**learn how to say ‘hello’ in Romanian.** ‘Salut!’, ‘bună!’ (’ă’ sounds like the second ‘a’ in ‘magical’) are the best choices for an informal hello, but you can also use ‘hei!’ which is pronounced the same way as the English ‘hey!’. If you need something a little more formal, you can use ‘bună dimineața’ in the morning (’t’ is pronounced ‘ts’), ‘bună ziua’ during noon and ‘bună seara’ in the evening.
@@ -118,6 +125,13 @@ Here’s what you can get access to if you download the app now:
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115941/19272" target="_top" id="2115941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115941" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115941/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## From 0 to conversational in just 10 minutes a day
 
  Do you want to speak Romanian fluently fast? Get Mondly, the award-winning language learning app made by Romanians for people who want to learn languages fast.
@@ -134,8 +148,6 @@ Here’s what you can get access to if you download the app now:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -143,6 +155,18 @@ Here’s what you can get access to if you download the app now:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-discover-your-inner-artist-with-these-leading-android-graphics-tools/"><u>[New] 2024 Approved Discover Your Inner Artist with These Leading Android Graphics Tools</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-visionary-dialogue-writer/"><u>[New] In 2024, Visionary Dialogue Writer</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-curating-historical-wisdom-the-ultimate-student-friendly-channel-list-1-10/"><u>[Updated] Curating Historical Wisdom The Ultimate Student-Friendly Channel List (#1-10)</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-the-ultimate-guide-to-essential-10-fcp-plugins/"><u>[Updated] In 2024, The Ultimate Guide to Essential 10 FCP Plugins</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-capture-nostalgia-uploading-past-photos-as-snaps/"><u>2024 Approved Capture Nostalgia - Uploading Past Photos as Snaps</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/clipchampertopic/"><u>動画サイズをClipchampで変更する方法についertopic]</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-languages-with-mondly-recommended-by-google/"><u>Explore Languages with Mondly, Recommended by Google</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-unleashed-commemorating-1500-daily-fee-free-education/"><u>Learning Unleashed: Commemorating 1500 Daily Fee-Free Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-milestones-a-decade-of-language-revolution/"><u>Mondly Milestones - A Decade of Language Revolution</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577370155-transform-lives-with-arabic-and-mondly-top-6-benefits-await/"><u>Transform Lives with Arabic & Mondly: Top 6 Benefits Await</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-potential-mondlys-free-educational-platform/"><u>Unlocking Potential: Mondly's Free Educational Platform</u></a></li>
+</ul></div>
 

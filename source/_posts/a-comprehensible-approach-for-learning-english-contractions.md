@@ -1,7 +1,7 @@
 ---
 title: A Comprehensible Approach for Learning English Contractions
-date: 2024-07-12T08:27:17.174Z
-updated: 2024-07-13T08:27:17.174Z
+date: 2024-09-10T17:31:20.884Z
+updated: 2024-09-16T17:58:55.067Z
 tags:
   - speak
   - english
@@ -27,8 +27,6 @@ thumbnail: https://thmb.techidaily.com/fcf5c5ea9608f76f888a293e8f1d7735a9ef3d7b5
  English contractions are the perfect way to sound more natural and save time when speaking. Essentially, contractions glue two or more words together and replace certain middle letters in the given union with an apostrophe. This is how phrases like_how did_ or_I would_ become shortened to_how’d_ and_I’d_ . Quite the letter economy, right?
 
  Contraction words are generally easy enough to sort out, but there are situations where they can get tricky. For all those situations, it’s necessary to keep an eye out for rules. That’s why**we are** – or let’s say_**we’re**_ – going to explain everything you need to know about the rules of contractions in English. And while we’re at it, we will also add a contraction word list to go perfectly with the explanations.
-
-
 
 ## What is a contraction?
 
@@ -215,6 +213,13 @@ Coming Soon
 | you will                     | you’ll      |
 | you will; you shall          | you’ll      |
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115915/19272" target="_top" id="2115915">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115915" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115915/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Contractions in writing and their importance
 
  If you write in English on a daily basis, you probably use contractions quite a lot. And that’s perfectly fine if you talk to your family or friends. English contractions save time and space and make your daily communications sound friendlier.
@@ -224,6 +229,13 @@ Coming Soon
  Therefore, the rule of thumb for anything formal is to**limit the use of contractions in writing.** An ideal situation would involve you knowing the other person’s expectations. But if you do not, it is best to shy away from using contractions, just like I did with this sentence.
 
  However, if what you’re writing is semi-formal, you can use a couple of very popular contractions. The only condition is to not forget about the apostrophe, as the entire text will look unprofessional.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Examples of contractions in everyday language
 
@@ -280,8 +292,6 @@ Coming Soon
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -289,6 +299,22 @@ Coming Soon
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-tailoring-video-content-for-igtv-with-horizontal-footage/"><u>[New] In 2024, Tailoring Video Content for IGTV with Horizontal Footage</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-unlocking-color-richness-the-role-of-look-up-tables-in-adobe-photos/"><u>[New] In 2024, Unlocking Color Richness The Role of Look-Up Tables in Adobe Photos</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-essential-handbook-for-periscope-video-logging/"><u>[Updated] The Essential Handbook for Periscope Video Logging</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-essential-list-of-online-video-ripper-tools/"><u>[Updated] The Essential List of Online Video Ripper Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/120plus-essential-vietnamese-words-and-phrases-for-travelers/"><u>120+ Essential Vietnamese Words and Phrases for Travelers</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-restart-honor-90-lite-without-power-button-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Restart Honor 90 Lite Without Power Button | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/becoming-grammar-savvy-in-english-top-9-techniques-by-a-passionate-esl-professional/"><u>Becoming Grammar-Savvy in English: Top 9 Techniques by a Passionate ESL Professional</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-worldwide-joyful-greetings/"><u>Discovering Worldwide Joyful Greetings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/google-picks-mondly-as-new-editors-choice-language-app/"><u>Google Picks Mondly as New Editors’ Choice Language App</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-tecno-spark-go-2024-if-i-forgot-security-code-or-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Tecno Spark Go (2024) If I Forgot Security Code or Password? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-languages-at-sixty-five-compelling-benefits/"><u>Mastering Languages at Sixty: Five Compelling Benefits</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-revolutionizing-language-education-experience/"><u>Mondly: Revolutionizing Language Education Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/reflecting-on-milestones-a-decade-at-mondly/"><u>Reflecting on Milestones: A Decade at Mondly</u></a></li>
+<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-samsung-galaxy-a54-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Samsung Galaxy A54 5G | Dr.fone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-unlocking-audio-potential-a-user-friendly-approach-to-track-combining-in-premiere-pro/"><u>Updated Unlocking Audio Potential A User-Friendly Approach to Track Combining in Premiere Pro</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "From Novice to Proficiency: Counting in Spanish"
-date: 2024-07-12T08:25:35.937Z
-updated: 2024-07-13T08:25:35.937Z
+date: 2024-09-10T18:33:56.747Z
+updated: 2024-09-16T18:58:32.838Z
 tags:
   - speak
   - english
@@ -99,6 +99,13 @@ thumbnail: https://thmb.techidaily.com/286866a306a63ee3881a3e82bbbdfd6a5621a0735
 * 84 –_ochenta y cuatro_
 * 98 –_noventa y ocho_
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Spanish numbers to 1000 and beyond
 
  Hundreds shouldn’t scare you either. They are just as simple. Once you know how the hundreds are, you’ll also know the numbers in between.
@@ -135,6 +142,13 @@ Here are some more examples:
 * 999 – _novecientos noventa y nueve_
 
 ![count in Spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/07/count-in-spanish-960x663.jpg "Spanish Numbers: How To Count Numbers In Spanish 4")
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Barcelona, Spain
 
@@ -176,8 +190,6 @@ Here are some more examples:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -185,6 +197,19 @@ Here are some more examples:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/updated-flv-video-unification-techniques-for-2024/"><u>[Updated] FLV Video Unification Techniques for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-the-ultimate-list-of-popular-videos-online/"><u>[Updated] The Ultimate List of Popular Videos Online</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-transform-ideas-into-visuals-free-templates-for-video-makers/"><u>[Updated] Transform Ideas Into Visuals Free Templates for Video Makers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aussie-expressions-made-easy-100plus-phrases/"><u>Aussie Expressions Made Easy: 100+ Phrases</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/beyond-bots-and-algorithms-who-is-truly-engaged-with-you-on-the-web-insights-into-the-dead-internet-theory/"><u>Beyond Bots & Algorithms: Who Is Truly Engaged with You on the Web? Insights Into the 'Dead Internet' Theory</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-koreas-linguistic-treasure-trove-squid-game/"><u>Decoding Korea's Linguistic Treasure Trove - Squid Game</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/easy-methods-for-archiving-digital-meeting-recordings-for-2024/"><u>Easy Methods for Archiving Digital Meeting Recordings for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/examining-por-que-vs-por-que-in-context/"><u>Examining Por Que vs Por Qué in Context</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressing-friendship-across-borders/"><u>Expressing Friendship Across Borders</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-oppo-a1-5g-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>In 2024, Oppo A1 5G ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-learn-how-everything-works-on-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>Life360 Learn How Everything Works On Apple iPhone XR | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/podcast-logo-basics-key-principles-for-striking-art-for-2024/"><u>Podcast Logo Basics Key Principles for Striking Art for 2024</u></a></li>
+</ul></div>
 

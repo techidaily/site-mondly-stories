@@ -1,7 +1,7 @@
 ---
 title: Croatian Linguistic Landscape
-date: 2024-07-12T08:27:27.352Z
-updated: 2024-07-13T08:27:27.352Z
+date: 2024-09-12T19:59:48.053Z
+updated: 2024-09-16T16:11:41.382Z
 tags:
   - speak
   - english
@@ -58,6 +58,13 @@ thumbnail: https://thmb.techidaily.com/503d593f9428317b9217e37989fa613e5c3305adb
 
  “Dubrovnik, Croatia” by Geio Tischler©
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Hello in Croatian and other basic Croatian words
 
  **The most popular way to say ‘hello’ in Croatian is_bok_ , but you can also use_zdravo,_ a more formal hello.** Similarly to other languages, it all depends on who you are talking to and how friendly you allow yourself to be. If you’re a tourist in Croatia,_bok_ or_bog_ (in some areas) should work fine in most situations.
@@ -82,6 +89,13 @@ thumbnail: https://thmb.techidaily.com/503d593f9428317b9217e37989fa613e5c3305adb
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## From 0 to conversational in Croatian
 
  Do you want to see the Croatian language in action? Get Mondly, the award-winning language learning app that will help you speak Croatian like a pro.
@@ -103,8 +117,6 @@ thumbnail: https://thmb.techidaily.com/503d593f9428317b9217e37989fa613e5c3305adb
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -112,6 +124,18 @@ thumbnail: https://thmb.techidaily.com/503d593f9428317b9217e37989fa613e5c3305adb
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-dissecting-splitcams-superiority-as-a-recorder/"><u>[New] Dissecting SplitCam’s Superiority as a Recorder</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-improve-aesthetics-techniques-for-instagram-video-borders-for-2024/"><u>[Updated] Improve Aesthetics Techniques for Instagram Video Borders for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprender-la-pantalla-de-botones-del-reloj/"><u>Comprender La Pantalla De Botones Del Reloj</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/concurrent-code-switching-course/"><u>Concurrent Code-Switching Course</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/does-grammar-hinder-language-learning/"><u>Does Grammar Hinder Language Learning?</u></a></li>
+<li><a href="https://techtrends.techidaily.com/mastering-twitter-effective-strategies-to-boost-your-follower-count/"><u>Mastering Twitter: Effective Strategies to Boost Your Follower Count</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/roku-vs-amazon-fire-tv-stick-comprehensive-guide-on-choosing-the-best-streaming-device/"><u>Roku vs Amazon Fire TV Stick - Comprehensive Guide on Choosing the Best Streaming Device</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speed-through-syntax-mastering-bulgarian/"><u>Speed Through Syntax, Mastering Bulgarian</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/steam-remote-play-failing-to-launch-here-are-the-proven-ways-to-get-it-working/"><u>Steam Remote Play Failing to Launch? Here Are the Proven Ways to Get It Working</u></a></li>
+<li><a href="https://fox-that.techidaily.com/thawing-your-stuck-apple-the-ultimate-guide-to-unfreezing-an-iphone/"><u>Thawing Your Stuck Apple: The Ultimate Guide to Unfreezing an iPhone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580749563-transform-your-communication-skills-with-mondlyvr-experience/"><u>Transform Your Communication Skills with MondlyVR Experience!</u></a></li>
+</ul></div>
 

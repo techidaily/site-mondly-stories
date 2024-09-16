@@ -1,7 +1,7 @@
 ---
 title: Unlocking Japon's Language with Key Salutations
-date: 2024-07-12T08:25:11.749Z
-updated: 2024-07-13T08:25:11.749Z
+date: 2024-09-10T19:11:17.869Z
+updated: 2024-09-16T16:43:42.226Z
 tags:
   - speak
   - english
@@ -67,6 +67,13 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
  “Meguro River, Matsuno, Japan” by Sora Sagano©
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115926/19272" target="_top" id="2115926">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115926" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115926/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3.“Goodbye” in Japanese
 
  Another greeting we borrowed from the Japanese and sometimes use in our day-to-day conversations in English is**_Sayōnara_** (さよなら), a greeting that carries the connotation of farewell and translates to “goodbye”.
@@ -83,6 +90,13 @@ This greeting is used both as a “hello” and as a “goodbye”.
 * See you soon! – _Mata ne!_  (またね！)
 
 ![goodbye in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/goodbye-in-japanese-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 4")
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  “See you soon, human” by Alain Pham©
 
@@ -109,6 +123,13 @@ This greeting is used both as a “hello” and as a “goodbye”.
 * _Iie_ (いいえ) – instead of_Dou itashi mashite,_ you can say_Iie,_ which means “no” as in “it was nothing”.
 
 ![arigato](https://edge.mondly.com/blog/wp-content/uploads/2019/08/arigato-1024x706.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 5")
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  “Kyoto, Japan” by Andre Benz©
 
@@ -172,8 +193,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -181,6 +200,19 @@ This greeting is used both as a “hello” and as a “goodbye”.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-guidance.techidaily.com/new-mastering-close-ups-quick-minecraft-enhancements/"><u>[New] Mastering Close-Ups Quick Minecraft Enhancements</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-maximizing-inner-illumination-with-natures-glow/"><u>[Updated] 2024 Approved Maximizing Inner Illumination with Nature's Glow</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-boost-social-influence-with-these-15-snap-ideas/"><u>[Updated] In 2024, Boost Social Influence with These 15 Snap Ideas</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-building-your-brand-with-brilliant-educational-videos-a-guide-to-youtube-excellence/"><u>2024 Approved Building Your Brand with Brilliant Educational Videos A Guide to YouTube Excellence</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/7-free-apps-to-get-emojis-on-android-and-iphone/"><u>7 Free Apps to Get Emojis on Android and iPhone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-journey-through-french-language-27-key-phrases/"><u>A Journey Through French Language: 27 Key Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhanced-communication-through-3-neurological-activities/"><u>Enhanced Communication Through 3 Neurological Activities</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/hashtag-hype-unveiling-twitters-toptiktok-videos/"><u>Hashtag Hype Unveiling Twitter's #TopTikTok Videos</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/imageslice-cutter/"><u>ImageSlice Cutter</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-about-realme-gt-neo-5-frp-bypass-by-drfone-android/"><u>In 2024, About Realme GT Neo 5 FRP Bypass</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-brand-identity-in-pictures-how-to-watermark-on-instagram/"><u>In 2024, Brand Identity in Pictures How to Watermark on Instagram</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-era-for-your-personal-data-rights/"><u>New Era for Your Personal Data Rights</u></a></li>
+</ul></div>
 

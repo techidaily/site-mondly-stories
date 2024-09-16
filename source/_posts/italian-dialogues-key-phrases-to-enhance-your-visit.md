@@ -1,7 +1,7 @@
 ---
 title: "Italian Dialogues: Key Phrases to Enhance Your Visit"
-date: 2024-09-10T13:30:52.212Z
-updated: 2024-09-11T13:30:52.212Z
+date: 2024-09-09T17:19:03.003Z
+updated: 2024-09-16T19:28:00.249Z
 tags:
   - speak
   - english
@@ -61,20 +61,6 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 
  “Manarola, Italy” by Marc Zimmer©
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## 2\. Basic Italian phrases for travelers that need help
 
  Emergencies are not necessarily something we expect to happen when traveling. We always associate visiting new places with pleasant feelings. However, emergencies do happen sometimes whether we like it or not. So knowing how to ask for help in Italian may come in handy while traveling. Especially if you decide to travel to remote areas where the locals don’t really speak English. Make sure you learn these key**Italian phases** by heart because you know what they say: it’s always better to be safe than sorry.
@@ -102,20 +88,6 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 
 ![italian phrases english](https://edge.mondly.com/blog/wp-content/uploads/2019/07/italian-phrases-english-1024x683.jpg "100+ Essential Italian Travel Phrases For Your Trip 3")
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
  “Gelato” by Anita Austvika©
 
 * I have a reservation. My name is \_\_\_\_\_. –_Ho una prenotazione. Mi chiamo \_\_\_\_\_._
@@ -132,19 +104,12 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 * I would like a coffee. –_Vorrei un caffè._
 * Can I have some ice cream? –_Posso prendere il gelato?_
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2123470/16836" target="_top" id="2123470">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123470" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123470/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## 4\. Basic Italian for tourists who need a place to spend the night
 
@@ -159,45 +124,18 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 * Very pleasant, thank you. –_Molto piacevole, grazie._
 * Here is your bill, please look it over. –_Ecco il suo conto, per favore lo controlli._
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## 5\. Italian for tourists who want to have fun
 
  Going out is probably one of the best ways to explore and get to know new cultures. The same places you visited during the day may reveal themselves differently during the night. Take_**Fontana di Trevi**_ for example. Nothing is as majestic as this world-famous Baroque fountain at night.
 
 ![common italian phases](https://edge.mondly.com/blog/wp-content/uploads/2019/07/common-italian-phrases-1024x682.jpg "100+ Essential Italian Travel Phrases For Your Trip 4")
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
  “Fontana di Trevi” by Ivan Bertona©
 
@@ -232,20 +170,6 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 ![basic italian phrases](https://edge.mondly.com/blog/wp-content/uploads/2019/07/basic-italian-phrases-1024x575.jpg "100+ Essential Italian Travel Phrases For Your Trip 5")
 
  “Vernazza, Italy” by Daniil Vnoutchkov
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## 7\. Days of the week and numbers in Italian
 
@@ -292,6 +216,13 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Speak Italian fluently in just 10 minutes a day
 
  Do you want to see these Italian phrases in action in real-life conversations? Get Mondly, the award-winning language learning app that will [help you speak Italian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) as if you were Tuscany-born.
@@ -308,8 +239,6 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -319,49 +248,16 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-harmony-color-calibrator/"><u>[New] Harmony Color Calibrator</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-instant-insight-snapshots-for-windows-enthusiasts/"><u>[New] In 2024, Instant Insight  Snapshots for Windows Enthusiasts</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-best-picks-the-leading-10-online-resources-for-vimeo-video-download-for-2024/"><u>[Updated] Best Picks  The Leading 10 Online Resources for Vimeo Video Download for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/1715860206396-updated-your-comprehensive-manual-for-creating-an-accessible-and-effective-chat-room-within-skype-compatible-with-both-windows-and-macos-platforms/"><u>[Updated] Your Comprehensive Manual for Creating an Accessible and Effective Chat Room Within Skype, Compatible with Both Windows & MacOS Platforms.</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-mirthful-melodies-smart-picks-for-funny-phone-tones/"><u>2024 Approved  Mirthful Melodies  Smart Picks for Funny Phone Tones</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-unseen-horizons-hot-list-of-vr-peripherals-top-10/"><u>2024 Approved  Unseen Horizons  Hot List of VR Peripherals (Top 10)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/3-leading-apps-for-seamless-multilingual-acquisition/"><u>3 Leading Apps for Seamless Multilingual Acquisition</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/achieve-greatness-in-mondly-usage/"><u>Achieve Greatness in Mondly Usage</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/adapting-classroom-practices-to-non-native-speakers/"><u>Adapting Classroom Practices to Non-Native Speakers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/anfangsgrunde-des-deutschen-nummern-von-1-bis-100-erklaren/"><u>Anfangsgründe Des Deutschen: Nummern Von 1 Bis 100 Erklären</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cataloging-the-iberian-linguistic-kinship/"><u>Cataloging the Iberian Linguistic Kinship</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/catch-the-latino-vibe-top-50-coolest-latin-maxims-and-proverbs/"><u>Catch the Latino Vibe - Top 50 Coolest Latin Maxims & Proverbs</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/celebrating-the-polyglot-pantheon-of-pedagogues/"><u>Celebrating the Polyglot Pantheon of Pedagogues</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expressing-gratitude-a-guide-in-global-languages-154/"><u>Expressing Gratitude: A Guide in Global Languages (154)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/french-novels-to-start-reading-an-essential-guide-for-newcomers/"><u>French Novels to Start Reading: An Essential Guide for Newcomers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/getting-it-right-an-expert-written-on-english-grammar-conjunctions-and-contractions/"><u>Getting It Right: An Expert' Written on English Grammar Conjunctions & Contractions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-communication-the-value-of-german-vs-french/"><u>Global Communication: The Value of German vs French</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/grasping-the-essentials-of-english-grammar-a-focus-on-contractions/"><u>Grasping the Essentials of English Grammar: A Focus on Contractions</u></a></li>
-<li><a href="https://change-location.techidaily.com/guide-how-to-unbrick-a-bricked-infinix-zero-30-5g-phone-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Guide How To Unbrick a Bricked Infinix Zero 30 5G Phone | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-hidefake-snapchat-location-on-your-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>How to Hide/Fake Snapchat Location on Your Lava Yuva 3 Pro | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/how-to-say-i-love-you-in-hungarian/"><u>How To Say I Love You In Hungarian</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/immersive-spanish-lessons-that-enthrall/"><u>Immersive Spanish Lessons That Enthrall</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-can-you-store-high-quality-videos-in-128gb/"><u>In 2024, Can You Store High-Quality Videos in 128Gb?</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-the-deadly-drafts-cutthroat-selection-of-top-zombie-titles/"><u>In 2024, The Deadly Drafts  Cutthroat Selection of Top Zombie Titles</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/in-2024-vignette-perfection-the-best-mobile-apps-for-adding-frames-and-effects/"><u>In 2024, Vignette Perfection The Best Mobile Apps for Adding Frames and Effects</u></a></li>
-<li><a href="https://review-topics.techidaily.com/infinix-smart-8-hd-tutorial-bypass-lock-screen-security-password-pin-fingerprint-pattern-by-drfone-android-unlock-android-unlock/"><u>Infinix Smart 8 HD Tutorial - Bypass Lock Screen,Security Password Pin,Fingerprint,Pattern</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/la-physiologie-humaine-expliquee-parts-in-french/"><u>La Physiologie Humaine Expliquée: Parts in French</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-spanish-diacritics-and-accented-typography/"><u>Mastering Spanish Diacritics & Accented Typography</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-the-cyrillic-code-in-minutes/"><u>Mastering the Cyrillic Code, In Minutes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-and-apple-a-topping-team-at-global-educational-summit/"><u>Mondly and Apple: A Topping Team at Global Educational Summit</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-enters-alliance-with-pearson-institute/"><u>Mondly Enters Alliance with Pearson Institute</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-launched-the-first-ever-language-app-on-oculus-quest/"><u>Mondly Launched the First-Ever Language App on Oculus Quest</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-unlocks-ukrainians-global-communication-with-no-cost/"><u>Mondly Unlocks Ukrainians' Global Communication with No Cost</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/multilingual-greetings-compendium/"><u>Multilingual Greetings Compendium</u></a></li>
-<li><a href="https://driver-download.techidaily.com/no-cost-no-hassle-get-your-windows-8-with-officially-supported-amd-graphics-drivers/"><u>No Cost, No Hassle! Get Your Windows 8 with Officially-Supported AMD Graphics Drivers</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/pattern-locks-are-unsafe-secure-your-realme-12-proplus-5g-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your Realme 12 Pro+ 5G Phone Now with These Tips</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/policy-change-alert-privacy-update/"><u>Policy Change Alert - Privacy Update</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/revolutionize-your-learning-journey-with-mondly-app/"><u>Revolutionize Your Learning Journey with Mondly App</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/spanish-english-grammar-clash-por-que-vs-por-que/"><u>Spanish-English Grammar Clash: Por Que vs Por Qué</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/swede-speak-simplified-phonetics-unleashed/"><u>Swede Speak Simplified: Phonetics Unleashed</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/swiftly-master-colorful-french-expressions/"><u>Swiftly Master Colorful French Expressions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ten-powerful-reasons-to-embrace-the-german-language/"><u>Ten Powerful Reasons to Embrace the German Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-art-of-respectful-addresses-in-japan/"><u>The Art of Respectful Addresses in Japan</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-20-tips-for-effortless-online-lithuanian-learning/"><u>Top 20 Tips for Effortless Online Lithuanian Learning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/where-is-thanksgiving-celebrated-elsewhere/"><u>Where Is Thanksgiving Celebrated Elsewhere?</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-elevate-your-presence-online-capture-high-definition-webcam-footage-in-vlc/"><u>[New] 2024 Approved Elevate Your Presence Online Capture High-Definition Webcam Footage in VLC</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-directors-academy-youtube-channels-for-cinematic-innovation/"><u>[Updated] 2024 Approved Directors Academy YouTube Channels for Cinematic Innovation</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-unlocking-the-secrets-pro-level-iphone-landscape-tips-for-2024/"><u>[Updated] Unlocking the Secrets Pro-Level iPhone Landscape Tips for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fixing-failed-attempts-at-installing-new-features-on-your-windows-11-system-update-1607/"><u>Fixing Failed Attempts at Installing New Features on Your Windows 11 System (Update 1607)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-italian-conversation-for-your-travel-adventure/"><u>Mastering Italian Conversation for Your Travel Adventure</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pirate-dialect-decoded-top-20-nautical-terms-explained/"><u>Pirate Dialect Decoded: Top 20 Nautical Terms Explained</u></a></li>
+<li><a href="https://techidaily.com/remove-google-frp-lock-on-poco-by-drfone-android-unlock-remove-google-frp/"><u>Remove Google FRP lock on Poco</u></a></li>
+<li><a href="https://extra-information.techidaily.com/snapseed-essentials-starting-your-editing-journey/"><u>Snapseed Essentials Starting Your Editing Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/social-skills-and-cognitive-health-four-advantages-of-multilingualism-for-adults-over-40/"><u>Social Skills and Cognitive Health: Four Advantages of Multilingualism for Adults Over 40</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/streamlabs-obs-demystified-an-in-depth-guide/"><u>Streamlabs OBS Demystified An In-Depth Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swiftlearnbangla-master-language-with-minutes/"><u>SwiftLearnBangla: Master Language with Minutes!</u></a></li>
 </ul></div>
+

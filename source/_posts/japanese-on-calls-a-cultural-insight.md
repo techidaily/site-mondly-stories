@@ -1,7 +1,7 @@
 ---
 title: "Japanese On-Calls: A Cultural Insight"
-date: 2024-07-12T08:27:45.924Z
-updated: 2024-07-13T08:27:45.924Z
+date: 2024-09-13T16:03:31.245Z
+updated: 2024-09-16T16:22:23.268Z
 tags:
   - speak
   - english
@@ -67,6 +67,13 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
  “Meguro River, Matsuno, Japan” by Sora Sagano©
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3.“Goodbye” in Japanese
 
  Another greeting we borrowed from the Japanese and sometimes use in our day-to-day conversations in English is**_Sayōnara_** (さよなら), a greeting that carries the connotation of farewell and translates to “goodbye”.
@@ -84,7 +91,21 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![goodbye in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/goodbye-in-japanese-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 4")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  “See you soon, human” by Alain Pham©
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 4\. “Thank you” in Japanese and other polite phrases that you should know
 
@@ -172,8 +193,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -181,6 +200,17 @@ This greeting is used both as a “hello” and as a “goodbye”.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-top-3-ipad-voice-logging-strategies/"><u>[Updated] Top 3 iPad Voice Logging Strategies</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/expert-tips-on-mastering-facetime-call-documentation-techniques/"><u>Expert Tips on Mastering FaceTime Call Documentation Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-the-top-5-digital-tools-transforming-language-education/"><u>Explore the Top 5 Digital Tools Transforming Language Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/find-the-most-effective-strategy-to-learn-finnish-online/"><u>Find the Most Effective Strategy to Learn Finnish Online</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-building-visual-story-arcs/"><u>In 2024, Building Visual Story Arcs</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-effortless-gaming-sessions-on-your-screen/"><u>In 2024, Effortless Gaming Sessions on Your Screen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leveraging-apples-tech-to-amplify-student-potential-with-mondly/"><u>Leveraging Apple's Tech to Amplify Student Potential with Mondly</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-revolutionizing-your-music-tracks-with-7-key-audio-effects-of-the-year-for-2024/"><u>New Revolutionizing Your Music Tracks with 7 Key Audio Effects of the Year for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/troubleshooting-guide-how-to-fix-an-unresponsive-samsung-galaxy-a54-5g-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Troubleshooting Guide How to Fix an Unresponsive Samsung Galaxy A54 5G Screen | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unravel-the-secrets-of-top-tier-video-editing-with-vivacut-24-for-2024/"><u>Unravel the Secrets of Top-Tier Video Editing with VivaCut '24 for 2024</u></a></li>
+</ul></div>
 

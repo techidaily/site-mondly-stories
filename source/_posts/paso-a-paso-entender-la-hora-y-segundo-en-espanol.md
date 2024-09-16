@@ -1,7 +1,7 @@
 ---
 title: "Paso a Paso: Entender La Hora Y Segundo en Español"
-date: 2024-09-10T13:30:58.035Z
-updated: 2024-09-11T13:30:58.035Z
+date: 2024-09-12T17:45:32.588Z
+updated: 2024-09-16T18:33:01.786Z
 tags:
   - speak
   - english
@@ -26,39 +26,11 @@ But first things first.
 
 ![Spanish time](https://media.giphy.com/media/cAEm5rSuuBEGY/giphy.gif "How To Tell Time In Spanish - A Complete Guide For Beginners 2")
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## ¿Que hora es? – how to ask for the time in Spanish
 
  In order to tell the time in Spanish, you’ll first have to learn how to properly ask for the time in Spanish. You can never be too cautious. I’m just making sure you’re not missing that_fiesta española_ you spent weeks thinking about!
 
  In addition to the now well-known_**¿que hora es?**_ which literally translates to “what hour is it?”, you can also ask_**¿tiene hora?**_ which is literally “do you have the hour?”. Easy enough!
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## The basics of Spanish time
 
@@ -85,20 +57,6 @@ But first things first.
 
 _**Nota bene:**_ If you prefer to use the 24-hour clock, you should say**_son las dieciséis_** **(“it’s 16:00”)** instead of **_son las cuatro_ (“it’s 4 o’clock p.m.”).** But that will require a little more studying on your part. Don’t worry though. Spanish numbers are just as easy as learning how to tell the time. You can master them with Mondly faster than you can say Jack Robinson. You can get started [here](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5345&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5345?mother%5Flang=en%5Fus?target%5Flang=es&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5345?mother%5Flang=en%5Fus?target%5Flang=es) .
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### How do you say the time in Spanish after 30?
 
  Now, the time is not always on the hour. So how do you say “half past”, “quarter past” and “quarter to” in Spanish? There are only two new words you need to remember:_**media**_ and_**cuarto**_ .
@@ -117,26 +75,6 @@ Here are some examples:
 
  Telling time in Spanish – a visual guide
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### Hour + minutes in Spanish time
 
  Wanna be a little more specific? Here’s how Spanish time works when you need to indicate the exact number of minutes that have past from the hour.
@@ -148,6 +86,13 @@ Here are some examples:
 * _Son las ocho y cuarto._ (“it’s a quarter past eight”)
 * _Son las ocho y quince._ (“it’s eight and fifteen minutes”)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Different ways of telling time in Spanish
 
  There are three formulas of telling time in Spanish. Here are different ways of telling it’s 3:10:
@@ -158,19 +103,12 @@ Here are some examples:
 
  Which one do you prefer? Additionally, if we also count it_cuarto_ and_media_ , there are no less than four different ways to tell the time in Spanish. And you’ve just mastered them all!
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## How to indicate the time of day in Spanish
 
@@ -221,20 +159,6 @@ Here are some examples:
 
 ---
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Speak Spanish fluently in just 10 minutes a day
 
  Do you want to [speak Spanish fluently](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) fast? Get Mondly, the award-winning language learning app that will help you speak Spanish as if you were Spanish-born.
@@ -251,8 +175,6 @@ Here are some examples:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -262,42 +184,13 @@ Here are some examples:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-key-methods-to-capture-and-document-live-youtube-broadcasts/"><u>[New] 2024 Approved  Key Methods to Capture and Document Live Youtube Broadcasts</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-troubleshooting-obs-frame-loss/"><u>[New] 2024 Approved  Troubleshooting OBS Frame Loss</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-unlock-high-quality-audio-recording-with-these-top-5-windows-11-tips/"><u>[New] 2024 Approved  Unlock High-Quality Audio Recording with These Top 5 Windows 11 Tips</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-navigating-through-gesture-detection-methods/"><u>[Updated] Navigating Through Gesture Detection Methods</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-techniques-for-accurate-ps3-playback-rendering/"><u>[Updated] Techniques for Accurate PS3 Playback Rendering</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-ultimate-guide-best-10-no-cost-games-screen-capture-tools-2024/"><u>[Updated] Ultimate Guide  Best 10 No-Cost Games' Screen Capture Tools 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-unleashing-creativity-mastering-camera-snaps-on-zoom-for-2024/"><u>[Updated] Unleashing Creativity  Mastering Camera Snaps on Zoom for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-creative-text-amplification-tips/"><u>2024 Approved  Creative Text Amplification Tips</u></a></li>
-<li><a href="https://location-social.techidaily.com/4-most-known-ways-to-find-someone-on-tinder-for-infinix-smart-8-hd-by-name-drfone-by-drfone-virtual-android/"><u>4 Most-Known Ways to Find Someone on Tinder For Infinix Smart 8 HD by Name | Dr.fone</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-resolve-vivo-v29-pro-screen-not-working-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Resolve Vivo V29 Pro Screen Not Working | Dr.fone</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-unbrick-a-dead-tecno-camon-30-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Unbrick a Dead Tecno Camon 30 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-4-most-known-ways-to-find-someone-on-tinder-for-motorola-moto-g-stylus-2023-by-name-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Most-Known Ways to Find Someone on Tinder For Motorola Moto G Stylus (2023) by Name | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/interspecies-chatter-crafting-effective-intercultural-conversations/"><u>Interspecies Chatter: Crafting Effective Intercultural Conversations</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/israelian-itinerary-essentials-top-7-insights-and-language-basics/"><u>Israelian Itinerary Essentials: Top 7 Insights and Language Basics</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/kennenlernen-sie-die-deutschen-tage-der-woche/"><u>Kennenlernen Sie Die Deutschen Tage Der Woche</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-leap-to-mastery-learn-slovak-quickly-one-session-at-a-time/"><u>Language Leap to Mastery: Learn Slovak Quickly, One Session at a Time!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-german-with-dark-on-netflix/"><u>Learn German With Dark on Netflix</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/mastering-battery-health-check-up-with-windows-nine-eleven-technology/"><u>Mastering Battery Health Check-Up with Windows Nine Eleven Technology</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-associates-with-pearson-learning-group/"><u>Mondly Associates With Pearson Learning Group</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-introduces-cutting-edge-language-compendium/"><u>Mondly Introduces Cutting-Edge Language Compendium</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-mastery-revel-in-advanced-functionality/"><u>Mondly Mastery: Revel In Advanced Functionality</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlyar-language-learning-takes-a-leap-into-vr/"><u>MondlyAR - Language Learning Takes a Leap Into VR!</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/perfect-pens-tablet-apps-on-the-windows-os/"><u>Perfect Pens' Tablet Apps on the Windows OS</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/quick-czech-comprehension-tactics-online/"><u>Quick Czech Comprehension Tactics Online</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/rapid-learning-chromatic-french-speech/"><u>Rapid Learning: Chromatic French Speech</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/reinvent-language-learning-why-mondly-leads-the-way/"><u>Reinvent Language Learning: Why Mondly Leads the Way?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/santas-multilingual-mastery-a-holiday-revelation/"><u>Santa's Multilingual Mastery: A Holiday Revelation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/select-danish-movies-for-authentic-linguistic-exploration/"><u>Select Danish Movies for Authentic Linguistic Exploration</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/simple-guide-updating-your-video-card-driver-on-windows-11-step-by-step/"><u>Simple Guide: Updating Your Video Card Driver on Windows 11 - Step-by-Step</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-with-grace-japenese-introduction-phrases/"><u>Speak With Grace: Japenese Introduction Phrases</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/tejor-de-sonidos-como-decir-colores/"><u>Tejor De Sonidos: Cómo Decir Colores</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-keywords-of-squid-game-in-korean/"><u>The Keywords of Squid Game in Korean</u></a></li>
-<li><a href="https://fox-info.techidaily.com/the-path-of-peacefulness-how-to-gently-dim-music-tracks-for-2024/"><u>The Path of Peacefulness  How To Gently Dim Music Tracks for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-path-to-bilingualism-duration-and-determinants/"><u>The Path to Bilingualism: Duration and Determinants</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-worldwide-words-whispered-by-st-nick/"><u>The Worldwide Words Whispered by St. Nick</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-your-potential-in-english-mastery-with-top-9-tips-by-a-dedicated-esl-educator/"><u>Unlock Your Potential in English Mastery with Top 9 Tips by a Dedicated ESL Educator</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/what-language-did-vikings-speak/"><u>What Language Did Vikings Speak?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/wisdom-without-walls-commemorating-a-decade-of-1500-free-lessons/"><u>Wisdom Without Walls: Commemorating a Decade of 1500 Free Lessons</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-collage-wizardry-secrets-unveiled/"><u>2024 Approved Collage Wizardry Secrets Unveiled</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-comprehensive-overview-the-top-12-free-user-friendly-video-players-and-apps-pcandroid/"><u>2024 Approved Comprehensive Overview The Top 12 Free, User-Friendly Video Players & Apps (PC/Android)</u></a></li>
+<li><a href="https://extra-information.techidaily.com/best-practices-in-finding-quality-photo-and-video-banners-for-2024/"><u>Best Practices in Finding Quality Photo & Video Banners for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581516684-briskly-bridge-to-slovak-skills-with-daily-digital-sessions/"><u>Briskly Bridge to Slovak Skills with Daily Digital Sessions!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cross-atlantic-language-evolution-insights/"><u>Cross-Atlantic Language Evolution: Insights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-german-languages-through-popular-tv-shows/"><u>Discovering German Languages Through Popular TV Shows</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-sky-high-quality-unveiling-the-best-4k-video-converters/"><u>In 2024, Sky-High Quality Unveiling the Best 4K Video Converters</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/plex-abandons-virtual-reality-application-endeavors/"><u>Plex Abandons Virtual Reality Application Endeavors</u></a></li>
 </ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: "The Tongue of Viking Raiders: Languages Lost in Time"
-date: 2024-07-12T08:25:06.444Z
-updated: 2024-07-13T08:25:06.444Z
+date: 2024-09-15T19:56:11.685Z
+updated: 2024-09-16T17:10:00.199Z
 tags:
   - speak
   - english
@@ -58,11 +58,31 @@ thumbnail: https://thmb.techidaily.com/cc5e0ccb2974725fe4ffe86c209fbe5c027a26cc8
 
 !['Viking language' by Hannah Grapp©](https://edge.mondly.com/blog/wp-content/uploads/2023/03/viking-language-960x640.jpg "What Language Did Vikings Speak? 4")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What language today is closest to Old Norse?
 
  **Modern Icelandic is widely regarded as the Nordic language that most closely resembles Old Norse.** In fact, the writing system is so similar that Icelandic speakers can read Old Norse texts with relative ease. Some specialists compare the likeness between modern Icelandic and Old Norse to that of Shakespearean English and present-day English. Old West Norse is the direct ancestor of Icelandic, and many surviving Old Norse manuscripts originated from Iceland. Consequently, Old West Norse is the most commonly taught variant of Old Norse at present.
 
 So yeah, you can learn Old Norse if you want to.
+
+<!-- affiliate ads begin -->
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Is Old Norse still spoken?
 
@@ -107,8 +127,6 @@ So yeah, you can learn Old Norse if you want to.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -116,6 +134,20 @@ So yeah, you can learn Old Norse if you want to.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/new-crafting-attention-grabbing-facebook-giveaways/"><u>[New] Crafting Attention-Grabbing Facebook Giveaways</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-transforming-zoom-calls-enhance-your-visuals-here/"><u>[New] Transforming Zoom Calls Enhance Your Visuals Here</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-elevate-your-social-media-presence-with-these-5-igtv-tips/"><u>[Updated] 2024 Approved Elevate Your Social Media Presence with These 5 IGTV Tips</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-best-screen-recorders-for-pc-mac-top-10-list/"><u>[Updated] In 2024, Best Screen Recorders for PC, Mac - Top 10 List</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-closer-look-at-mondlys-educational-model/"><u>A Closer Look at Mondly’s Educational Model</u></a></li>
+<li><a href="https://blog-min.techidaily.com/covid-binge-series-outbreak-the-complete-1995-epidemic-thriller-on-dvd/"><u>COVID Binge Series: 'Outbreak' - The Complete 1995 Epidemic Thriller on DVD</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/engaging-students-through-interactive-spanish/"><u>Engaging Students Through Interactive Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/english-fluency-rewards-and-reasons/"><u>English Fluency: Rewards and Reasons</u></a></li>
+<li><a href="https://program-issues.techidaily.com/installing-and-configuring-hyper-v-environment-on-windows-10-best-practices/"><u>Installing and Configuring Hyper-V Environment on Windows 10: Best Practices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-journey-into-ar-powered-linguistics/"><u>Mondly's Journey Into AR-Powered Linguistics</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/peek-behind-ustreams-curtain-and-more/"><u>Peek Behind Ustream's Curtain and More</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/shaping-future-learning-landscapes-with-ai-tools/"><u>Shaping Future Learning Landscapes With AI Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worlds-words-wisdom-the-extended-entity/"><u>World's Words Wisdom: The Extended Entity</u></a></li>
+</ul></div>
 
