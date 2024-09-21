@@ -1,7 +1,7 @@
 ---
 title: The Global Pearson Linguistic Network
-date: 2024-07-12T08:22:18.793Z
-updated: 2024-07-13T08:22:18.793Z
+date: 2024-09-17T16:24:26.237Z
+updated: 2024-09-21T18:48:28.429Z
 tags:
   - speak
   - english
@@ -43,6 +43,13 @@ thumbnail: https://thmb.techidaily.com/3bea074e02c00367c73eda64c4dc35b2b7531a175
 
  At Pearson, our purpose is simple: to add life to a lifetime of learning. We believe that every learning opportunity is a chance for a personal breakthrough. That’s why our c.20,000 Pearson employees are committed to creating vibrant and enriching learning experiences designed for real-life impact. We are the world’s leading learning company, serving customers in more than 200 countries with digital content, assessments, qualifications, and data. For us, learning isn’t just what we do. It’s who we are.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **About Mondly**
 
  Mondly is a leading online language learning platform that enables over 100 million learners from 190 countries to learn 41 languages. Launched in 2014, it quickly became a household name in the mobile space, reaching the #1 position in Education in most European countries, LATAM and Asia. Mondly is also a pioneer in VR Education, with its most recent launch on Meta Quest being in the top 10 VR apps worldwide.
@@ -57,8 +64,6 @@ thumbnail: https://thmb.techidaily.com/3bea074e02c00367c73eda64c4dc35b2b7531a175
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -66,6 +71,18 @@ thumbnail: https://thmb.techidaily.com/3bea074e02c00367c73eda64c4dc35b2b7531a175
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-how-android-flips-video-frames-for-the-ages/"><u>2024 Approved How Android Flips Video Frames for the Ages</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/aimp4ai/"><u>AI駆使した高度なMP4ビデオコンバートテクニック：ウィンクスビデオAIの圧縮と音声抽出ガイド</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/audience-appeal-the-ultimate-guide-to-youtube-video-formats-for-2024/"><u>Audience Appeal The Ultimate Guide to YouTube Video Formats for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/end-the-frustration-of-rainbow-six-siege-crashes-on-pc-with-these-effective-fixes/"><u>End the Frustration of 'Rainbow Six Siege' Crashes on PC with These Effective Fixes</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-change-honor-x50i-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change Honor X50i Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leer-las-horas-en-espanol-para-principiantes/"><u>Leer Las Horas en Español Para Principiantes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-the-art-of-flirting-best-pick-up-lines-in-english/"><u>Mastering The Art Of Flirting: Best Pick Up Lines In English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/romantic-rhythms-italys-seduction-symphony/"><u>Romantic Rhythms: Italy's Seduction Symphony</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-10-italian-hand-gestures-italians-use-all-the-time/"><u>Top 10 Italian Hand Gestures Italians Use All The Time</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-6-appsservices-to-trace-any-tecno-camon-20-premier-5g-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>Top 6 Apps/Services to Trace Any Tecno Camon 20 Premier 5G Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/top-techniques-for-flawless-distance-audio-capture/"><u>Top Techniques for Flawless Distance Audio Capture</u></a></li>
+</ul></div>
 

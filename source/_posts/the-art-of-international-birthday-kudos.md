@@ -1,7 +1,7 @@
 ---
 title: The Art of International Birthday Kudos
-date: 2024-09-10T19:00:40.387Z
-updated: 2024-09-16T19:10:45.189Z
+date: 2024-09-16T16:18:20.595Z
+updated: 2024-09-21T18:04:37.798Z
 tags:
   - speak
   - english
@@ -40,19 +40,6 @@ Chinese culture has an interesting concept of birthday celebrations. Depending o
 
 If you’ll check the literal meaning of Shēngrì Kuàilè, you’ll see that it translates to “Birthday is Happy.”
 
-<!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Happy Birthday in Russian: С днем рождения (S Dnem Rozhdeniya)**
 
 ![happy birthday in russian](https://edge.mondly.com/blog/wp-content/uploads/2018/12/happy-birthday-in-russian.jpg "How To Say &Quot;Happy Birthday&Quot; In Different Languages 3")
@@ -61,15 +48,22 @@ Image source: <https://tops.ua>
 
 If you want to say “happy birthday” in Russian, you say “S Dnem Rozhdeniya”. And if you feel like memorizing a longer phrase, add “pozdravlyayu” in the start and it will transform to “I congratulate you on your birthday”. Russians have a funny tradition of celebrating. The guests pull the celebrated’s ears for a number of times equal to his or her age. The phrase “Grow up – don’t be noodles,” is considered as a sign of good omen for the growth of children. It means the child will grow up strong and healthy. Birthday songs are not common am0ng them, but if the person has survived after a severe accident, that day is celebrated as another birthday.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Happy Birthday in Dutch: Gefeliciteerd Met Je Verjaardag**
 
 “Gefeliciteerd Met Je Verjaardag” means “Congratulations on your birthday!” in the Netherlands. An interesting custom here is that they mark their calendars for everyone’s birthday and keep that calendar by their toilet. It acts as a reminder for birthdays since forgetting one’s birthday is a major offense to your loved ones. The 50th birthday is celebrated with full bliss and cheer because it is thought that at the age of 50, men see Abraham and women see Sarah – the biblical couple who gave birth to a child at a very old age.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123467/16836" target="_top" id="2123467">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123467" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123467/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Happy Birthday in Swedish: Grattis På Födelsedagen**
@@ -121,18 +115,21 @@ Start using Mondly for free on your computer or tablet or, better yet, download 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-essential-guide-to-capturing-your-screens-stepwise-approach/"><u>[Updated] In 2024, Essential Guide to Capturing Your Screens - Stepwise Approach</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-highly-compensated-online-visionary-creator/"><u>[Updated] In 2024, Highly Compensated Online Visionary Creator</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-the-ultimate-guide-to-restoring-windows-photo-viewer-on-win-11-for-2024/"><u>[Updated] The Ultimate Guide to Restoring Windows Photo Viewer on Win 11 for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-how-to-edit-photos-on-snapchat/"><u>2024 Approved How to Edit Photos on Snapchat</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/asian-language-phenomena-prime-rankings-unveiled/"><u>Asian Language Phenomena: Prime Rankings Unveiled</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/farm-fun-and-fellowship-the-ultimate-agritainment-guide/"><u>Farm Fun & Fellowship The Ultimate Agritainment Guide</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-best-free-3d-text-psd-files/"><u>In 2024, Best Free 3D Text PSD Files</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-vivo-v27e-drfone-by-drfone-virtual-android/"><u>In 2024, Fake the Location to Get Around the MLB Blackouts on Vivo V27e | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/invitations-francaises-au-gre-de-merci/"><u>Invitations Françaises Au Gré De 'Merci'</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581006400-language-barriers-break-for-a-minimal-0-today/"><u>Language Barriers Break for a Minimal $0 Today!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/olympian-odes-tracing-the-evolution-of-greek/"><u>Olympian Odes: Tracing the Evolution of Greek</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/premium-radios-reviewed-for-modern-policing/"><u>Premium Radios Reviewed for Modern Policing</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/tank-om-sverige-grev-for-sverige/"><u>Tänk Om Sverige: Grev För Sverige</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-elevate-your-viewing-game-with-concurrent-channel-watches/"><u>[New] 2024 Approved Elevate Your Viewing Game with Concurrent Channel Watches</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-brush-up-your-skills-and-inspire-creativity-top-10-freeware-for-mac/"><u>[Updated] Brush Up Your Skills & Inspire Creativity - Top 10 Freeware for Mac</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-mastering-your-content-on-vimeo-free-plus-or-pro-for-2024/"><u>[Updated] Mastering Your Content on Vimeo Free, Plus or Pro for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-inshot-unveiled-effortless-laptoppc-video-editing/"><u>2024 Approved Inshot Unveiled Effortless Laptop/PC Video Editing</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/daylight-deployment-for-increased-indoor-comfort/"><u>Daylight Deployment for Increased Indoor Comfort</u></a></li>
+<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-motorola-moto-g34-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Motorola Moto G34 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/get-to-grips-with-the-korean-of-squid-game/"><u>Get to Grips with the Korean of Squid Game</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/guia-diaria-para-dias-de-la-semana-en-espanol/"><u>Guía Diaria Para Días De La Semana en Español</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-xiaomi-14-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Xiaomi 14 For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-you-to-basic-numbers-in-spanish/"><u>Introducing You to Basic Numbers in Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-lifeline-mondly-enhances-learning-with-augmented-reality/"><u>Language Lifeline: Mondly Enhances Learning with Augmented Reality</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-journey-discovering-why-you-should-learn-a-foreign-language/"><u>Linguistic Journey: Discovering Why You Should Learn a Foreign Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/phonetic-finesse-navigating-complex-lexical-forms/"><u>Phonetic Finesse: Navigating Complex Lexical Forms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-tagalog-progress-daily-practice-weekly-successes/"><u>Quick Tagalog Progress: Daily Practice, Weekly Successes</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722977580723-seamless-download-microsoft-wireless-mouse-navigate-to-the-driver-section-get-your-setup-complete/"><u>Seamless Download: Microsoft Wireless Mouse Navigate to the Driver Section | Get Your Setup Complete</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/content-overview-made-easy-for-2024/"><u>Tiny Content Overview Made Easy for 2024</u></a></li>
 </ul></div>
 

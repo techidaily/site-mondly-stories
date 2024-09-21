@@ -1,7 +1,7 @@
 ---
 title: "Journey Into Arabic: The Newbie's Companion"
-date: 2024-07-12T08:21:49.387Z
-updated: 2024-07-13T08:21:49.387Z
+date: 2024-09-15T18:33:23.320Z
+updated: 2024-09-21T19:26:05.019Z
 tags:
   - speak
   - english
@@ -38,6 +38,13 @@ I’d really stick by these if I were you!
 
  Ok, you can’t really learn all the Arabic, since there are many types of it (Palestinian, Iraqi, Egyptian, Levantine). To be more precise, there’s the mother tongue, which is the official language, but also different accents and a lot of pronunciations depending on the locale. So, choose the type of Arabic you want to learn in relation to the region/regions you are interested in. There’s also Modern Standard Arabic, one of the official languages of the UN.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Commence with just the basics
 
 ![arabic bead necklace](https://edge.mondly.com/blog/wp-content/uploads/2022/01/arabic-bead-necklace-960x640.jpg "Arabic For Beginners: A Step By Step Guide 2")
@@ -47,6 +54,13 @@ I’d really stick by these if I were you!
  What’s the first thing you tackle when you want to [learn a new language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ? Interested in reading and speaking Arabic as a beginner? Start with the Arabic alphabet! Then, as you progress from letters to words, you may be on the lookout for some [Arabic words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) for beginners. The Arabic alphabet is what you would call an [abjad](https://en.wikipedia.org/wiki/Abjad)  , meaning that it’s primarily made up of consonants and no vowels. Keep in mind that there are 28 letters in the alphabet, only one of them being a vowel.
 
  So, when you encounter a written word there will be no way of knowing how to pronounce it unless you’ve heard it before. And this is where Mondly comes in handy! We provide you with real-life conversations, a speech recognition chatbot, and quality recordings. You’ll get used to Arabic words in no time. Ok, final note, you write from left to right, not the other way around.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Learn how to use an Arabic dictionary
 
@@ -89,8 +103,6 @@ I’d really stick by these if I were you!
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -98,6 +110,19 @@ I’d really stick by these if I were you!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-miniature-drone-selection-expert-recommendations/"><u>[New] Miniature Drone Selection Expert Recommendations</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-modernized-guide-of-queries-for-engaging-podcast-discussions/"><u>[New] Modernized Guide of Queries for Engaging Podcast Discussions</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unveiling-the-top-6-nft-environments-for-creatives/"><u>[Updated] Unveiling the Top 6 NFT Environments for Creatives</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/google-endorses-mondly-for-immersive-language-mastery/"><u>Google Endorses Mondly for Immersive Language Mastery</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-tips-and-tricks-for-setting-up-your-itel-p55t-phone-pattern-lock-by-drfone-android/"><u>In 2024, Tips and Tricks for Setting Up your Itel P55T Phone Pattern Lock</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-top-5-nokia-c12-pro-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>In 2024, Top 5 Nokia C12 Pro Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-legacy-milestone-achievements-at-mondlylanguages/"><u>Linguistic Legacy: Milestone Achievements at MondlyLanguages</u></a></li>
+<li><a href="https://techidaily.com/repair-video-tool-repair-all-your-damaged-video-files-of-realme-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>Repair Video Tool - Repair all your damaged video files of Realme on Windows</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sensorylinguistics-a-vr-approach-to-language/"><u>SensoryLinguistics: A VR Approach to Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-by-step-guide-easy-online-latino-study/"><u>Step-By-Step Guide: Easy Online Latino Study</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unravel-english-core-with-oxford-and-mondly/"><u>Unravel English Core with Oxford & Mondly</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-benefits-of-the-garmin-venu-smartwatch-a-pioneer-in-daily-health-and-performance-tracking/"><u>Unveiling the Benefits of the Garmin Venu Smartwatch - A Pioneer in Daily Health and Performance Tracking</u></a></li>
+</ul></div>
 

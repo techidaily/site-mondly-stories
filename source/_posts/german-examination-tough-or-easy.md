@@ -1,7 +1,7 @@
 ---
 title: "German Examination: Tough or Easy?"
-date: 2024-07-12T08:22:51.284Z
-updated: 2024-07-13T08:22:51.284Z
+date: 2024-09-19T18:51:18.156Z
+updated: 2024-09-21T18:44:48.843Z
 tags:
   - speak
   - english
@@ -17,8 +17,6 @@ thumbnail: https://thmb.techidaily.com/32c4cc7803fd0fa7e8699abcd5e09dfd5773975b7
 ## German Examination: Tough or Easy?
 
  Rumor has it that German is hard to learn, but is this really true? Considering that German is the 12th [most spoken language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) worldwide with 135 million speakers (out of which only \~75 million are native), do you still believe the speculation? If German was such a hard language to learn, would 60 million speak German as a second language? It’s important to find out what to really expect if you want to [study German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . So let’s find out: is German hard to learn? We’ll give an honest answer.
-
-
 
  Like people, languages are very different but also sometimes similar. This doesn’t mean you can’t be friends. Read on to discover a fair evaluation of the complexity of the German language. If_Deutsch_ is as hard as they say, we will reveal a safe method to make it easy.
 
@@ -57,6 +55,13 @@ thumbnail: https://thmb.techidaily.com/32c4cc7803fd0fa7e8699abcd5e09dfd5773975b7
 
 !['German hard to learn' by Sebastian Herrmann©](https://edge.mondly.com/blog/wp-content/uploads/2022/04/german-hard-to-learn-960x640.jpg "Is German Hard To Study? 3")
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. German grammar is too hard to learn
 
  It’s true that German grammar is a bit more complex, but German is a very logical language. Once you will understand the basics, you’ll have no problem going forward with the rest of the curriculum. In addition, due to the shared vocabulary, there are many English and German phrases that follow the same order. For example:
@@ -69,6 +74,13 @@ Doesn’t this sound familiar?
 
 **Verdict: false assumption.**
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Is German hard to learn?
 
  Yes and no. Compared to the very popular [Romance language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) Spanish and French, German is regarded as hard to learn. But in truth,**German is actually easier to learn than a lot of other languages.**
@@ -76,6 +88,13 @@ Doesn’t this sound familiar?
  The answer truly lies somewhere in between. While it is closely related to English because they both belong to the West Germanic group of the [Indo-European language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) family, German is not necessarily easy to learn. It’s much easier for an English speaker to learn the Romance languages or other Germanic languages such as Afrikaans, Danish, or Dutch than to study German.
 
  However, according to [the FSI](https://www.state.gov/foreign-language-training/) (Foreign Service Institute) of the US government, which ranks languages in terms of difficulty,**German is a tier II language.** Considering that there are five tiers in total, with tier V including Arabic, Chinese, Japanese and Korean, tier II doesn’t seem so daunting. This indicates that German is not hard to learn after all.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How long does it take to study German?
 
@@ -114,8 +133,6 @@ Doesn’t this sound familiar?
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -123,6 +140,22 @@ Doesn’t this sound familiar?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/updated-crafting-a-winning-windowsmac-skype-chat-circle/"><u>[Updated] Crafting a Winning Windows/Mac Skype Chat Circle</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-understanding-budgets-youtube-marketing-investments/"><u>[Updated] Understanding Budgets YouTube Marketing Investments</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/canon-vixia-hf-r800-camcorder-review-modest-price-average-video/"><u>Canon VIXIA HF R800 Camcorder Review: Modest Price, Average Video</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-grammar-strategies-top-9-lessons-by-veteran-esl-educator/"><u>Essential Grammar Strategies: Top 9 Lessons by Veteran ESL Educator</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-spanish-number-one-lessons/"><u>Essential Spanish Number One Lessons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/experience-the-world-through-voice-with-oculus-quests-mondly-addition/"><u>Experience the World Through Voice with Oculus Quest's Mondly Addition</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/exploring-the-aesthetics-and-hidden-rpg-mechanics-of-mlb-the-show-19/"><u>Exploring the Aesthetics and Hidden RPG Mechanics of MLB The Show 19</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressive-french-quick-to-pronounce/"><u>Expressive French, Quick to Pronounce</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressoes-amigaveis-em-portugues-compreender-perfeitamente/"><u>Expressões Amigáveis Em Português - Compreender Perfeitamente</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/first-steps-in-speech-and-phonetics-for-germans/"><u>First Steps in Speech and Phonetics for Germans</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-silver-screen-to-verse-francophone-romance/"><u>From Silver Screen to Verse: Francophone Romance</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/gratis-downloader-mac-per-filmati-hd4k-scarica-salva-e-condividi-video-con-la-massima-qualita-1080p/"><u>Gratis Downloader Mac per Filmati HD/4K: Scarica, Salva E Condividi Video Con La Massima Qualità (1080P)</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlocking-the-power-of-smart-lock-a-beginners-guide-for-motorola-moto-g23-users-by-drfone-android/"><u>In 2024, Unlocking the Power of Smart Lock A Beginners Guide for Motorola Moto G23 Users</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/trasforma-immagini-raw-cr2-in-formati-png-e-jpeg-con-convertitore-on-line-gratuito-da-movavi/"><u>Trasforma Immagini RAW CR2 in Formati PNG E JPEG Con Convertitore On-Line Gratuito Da Movavi</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-core-structure-of-facebooks-system/"><u>Unraveling the Core Structure of Facebook’s System</u></a></li>
+</ul></div>
 

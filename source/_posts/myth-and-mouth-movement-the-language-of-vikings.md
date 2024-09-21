@@ -1,7 +1,7 @@
 ---
 title: "Myth and Mouth Movement: The Language of Vikings"
-date: 2024-09-15T17:37:52.897Z
-updated: 2024-09-16T18:47:41.514Z
+date: 2024-09-14T16:08:48.379Z
+updated: 2024-09-21T17:06:02.400Z
 tags:
   - speak
   - english
@@ -59,10 +59,10 @@ thumbnail: https://thmb.techidaily.com/c67ae945d13a65a17a2d97a04bd087435fddfcab7
 !['Viking language' by Hannah Grapp©](https://edge.mondly.com/blog/wp-content/uploads/2023/03/viking-language-960x640.jpg "What Language Did Vikings Speak? 4")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What language today is closest to Old Norse?
@@ -79,6 +79,13 @@ So yeah, you can learn Old Norse if you want to.
 
  Furthermore, Old Norse is still with us through the multitude of words that were borrowed into English. Some examples of Old Norse words in English are gift (_gift_), husband (_húsbóndi_), cake (_kaka_), egg (_egg_), anger (_angr_), arm (_armr_). And these are just a few. The list could go on for a while.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What language did Vikings write in?
 
  Scandinavians used the Elder Futhark 24-letter alphabet to write their language until the 8th century. Then, as the Viking age began, they adopted the Young Futhark. This was a simplified runic alphabet consisting of just 16 letters.
@@ -91,13 +98,6 @@ So yeah, you can learn Old Norse if you want to.
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Learn the Scandinavian languages fast
 
@@ -130,16 +130,20 @@ So yeah, you can learn Old Norse if you want to.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-approaches.techidaily.com/new-inside-the-metaverse-discovering-6-in-depth-models/"><u>[New] Inside the Metaverse Discovering 6 In-Depth Models</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-window-wisdom-taking-precise-screen-captures/"><u>[Updated] 2024 Approved Window Wisdom Taking Precise Screen Captures</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-screen-partition-prowess-top-recorders-rating-for-2024/"><u>[Updated] Screen Partition Prowess Top Recorder's Rating for 2024</u></a></li>
-<li><a href="https://android-location.techidaily.com/10-fake-gps-location-apps-on-android-of-your-oppo-a18-drfone-by-drfone-virtual/"><u>10 Fake GPS Location Apps on Android Of your Oppo A18 | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/become-a-home-cooking-wizard-in-just-three-easy-steps/"><u>Become a Home Cooking Wizard in Just Three Easy Steps!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/comprendiendo-el-reloj-digital-ensenanza-fundamental/"><u>Comprendiendo El Reloj Digital - Enseñanza Fundamental</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/deutsche-wochentage-einfache-lerneinheit/"><u>Deutsche Wochentage: Einfache Lerneinheit</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/diverse-dialogue-initiation/"><u>Diverse Dialogue Initiation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719575651672-essential-croatian-language-skills-for-cultural-immersion-success/"><u>Essential Croatian Language Skills for Cultural Immersion Success</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-oneplus-ace-2-pro-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How OnePlus Ace 2 Pro Mirror Screen to PC? | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-9-oppo-reno-11-pro-5g-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>Top 9 Oppo Reno 11 Pro 5G Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-free-and-easy-best-mac-screen-recorder-software-of-2023/"><u>[New] In 2024, Free and Easy Best Mac Screen Recorder Software of 2023</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-streamline-your-content-following-twitpic-rules-for-2024/"><u>[New] Streamline Your Content Following Twitpic Rules for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-sustainable-cinematic-solutions-catalog-for-2024/"><u>[New] Sustainable Cinematic Solutions Catalog for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-synopsis-of-crowd-opinions-on-vllo-for-2024/"><u>[New] Synopsis of Crowd Opinions on VLLO for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-permissions-for-posting-videos-on-fb/"><u>[Updated] 2024 Approved Permissions for Posting Videos on FB</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-changefake-your-honor-magic-6-pro-location-on-viber-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Fake Your Honor Magic 6 Pro Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-silence-unwanted-post-suggestions-on-insta/"><u>In 2024, Silence Unwanted Post Suggestions on Insta</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leading-global-education-uss-language-choices/"><u>Leading Global Education: U.S.'s Language Choices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-catalan-fast-quick-tips-for-minutes/"><u>Learn Catalan Fast: Quick Tips for Minutes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-mosaic-how-other-languages-enhance-english/"><u>Linguistic Mosaic: How Other Languages Enhance English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-formula-for-fluent-advanced-english/"><u>Mondly's Formula for Fluent, Advanced English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rapid-bulgarian-embrace-a-new-language-10-minday/"><u>Rapid Bulgarian: Embrace a New Language, 10 Min/Day</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/syma-x5c-rc-quadcopter-evaluation-a-cost-effective-starter-drone/"><u>SYMA X5C R/C Quadcopter Evaluation: A Cost-Effective Starter Drone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/top-5-vivo-v27-pro-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Vivo V27 Pro Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/what-languages-do-they-speak-in-belgium/"><u>What Languages Do They Speak In Belgium?</u></a></li>
 </ul></div>
 

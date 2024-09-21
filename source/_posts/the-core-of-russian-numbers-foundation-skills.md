@@ -1,7 +1,7 @@
 ---
 title: The Core of Russian Numbers - Foundation Skills
-date: 2024-07-12T08:22:17.728Z
-updated: 2024-07-13T08:22:17.728Z
+date: 2024-09-16T17:19:20.115Z
+updated: 2024-09-21T19:12:59.665Z
 tags:
   - speak
   - english
@@ -78,6 +78,13 @@ And guess what! It works the same with the hundreds.
 
 Not as hard as you’d expect, is it?
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Russian ordinal numbers
 
  Now that you’ve learned the Russian cardinal numbers, let’s end this short lesson with some ordinal numbers. You never know when they may come in handy.
@@ -114,8 +121,6 @@ Not as hard as you’d expect, is it?
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -123,6 +128,23 @@ Not as hard as you’d expect, is it?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-through-the-lens-sage-advice-for-improving-your-edits/"><u>2024 Approved Through the Lens Sage Advice for Improving Your Edits</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/accelerating-artistic-outputs-fast-tracked-google-collage-creation-for-2024/"><u>Accelerating Artistic Outputs Fast-Tracked Google Collage Creation for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/discover-the-joy-of-individuality-creating-tones-and-sounds-on-android-devices-for-2024/"><u>Discover the Joy of Individuality Creating Tones & Sounds on Android Devices for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/how-to-stop-dragon-age-origins-from-crashing-on-your-windows-11-pc-troubleshooting-guide/"><u>How to Stop Dragon Age: Origins From Crashing on Your Windows 11 PC – Troubleshooting Guide</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-top-5-from-oppo-find-x6-pro-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 5 from Oppo Find X6 Pro to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/italian-dialogues-for-the-discerning-tourist/"><u>Italian Dialogues for the Discerning Tourist</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/languages-made-easy-mondly-app-for-oculus-quest-available/"><u>Languages Made Easy: Mondly App for Oculus Quest Available</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latest-notice-data-handling-guidelines/"><u>Latest Notice: Data Handling Guidelines</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-a-study-on-its-instructional-method/"><u>Mondly: A Study on Its Instructional Method</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-role-in-accelerating-my-linguistic-competence-the-best-10-ways/"><u>Mondly's Role in Accelerating My Linguistic Competence - The Best 10 Ways</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polite-expressions-a-guide-to-saying-thank-you-in-30-languages-152-trimmed-to-fit/"><u>Polite Expressions: A Guide to Saying Thank You in 30 Languages (152) [Trimmed to Fit]</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/revolutionize-your-data-management-top-4-ai-export-apps/"><u>Revolutionize Your Data Management - Top 4 AI Export Apps</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solutions-for-preventing-self-activating-boot-sequences-on-windows-10-devices/"><u>Solutions for Preventing Self-Activating Boot Sequences on Windows 10 Devices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-5-best-apps-for-language-teachers/"><u>The 5 Best Apps for Language Teachers</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/tweak-twitter-video-clip-cover-for-2024/"><u>Tweak Twitter Video Clip Cover for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/windows-7-11-restoring-usb-port-integrity/"><u>Windows 7-11: Restoring USB Port Integrity</u></a></li>
+</ul></div>
 

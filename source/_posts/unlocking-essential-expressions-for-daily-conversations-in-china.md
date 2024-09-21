@@ -1,7 +1,7 @@
 ---
 title: Unlocking Essential Expressions for Daily Conversations in China
-date: 2024-09-13T17:51:03.201Z
-updated: 2024-09-16T16:51:13.480Z
+date: 2024-09-14T17:00:09.532Z
+updated: 2024-09-21T17:30:54.782Z
 tags:
   - speak
   - english
@@ -44,23 +44,9 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
  This expression is generally used as a response to a greeting, but it can also work as a “how are you?”.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3\. 你怎么样? (nǐ zěnmeyàng) – “What’s up?” in Chinese
 
  As you can probably already tell, this is an informal greeting you can use with your friends.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 4\. 你吃了吗？(nǐ chī le ma) – “Have you eaten?”
 
@@ -68,18 +54,18 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
  To answer to this greeting, you can say “chī le, nǐ ne?” which means “I’ve eaten, how about you?”.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 5\. 久仰 (jiǔyǎng) – a very formal Chinese greeting
 
  On your way to a business meeting where you’ll meet someone for the first time? Well, that’s the perfect moment to use this very formal Mandarin greeting.
 
  If you want something even MORE‌ formal than that, go with 久闻大名 (jiǔwéndàmíng) literally meaning “your name is famous” – a phrase which could translate to something like “I have heard much about you”. But only use this on very special occasions like meeting the president or a person you hold in very high regard.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 6\. 最近好吗？(zuì jìn hào mǎ) – “How are you these days?”
 
@@ -97,9 +83,23 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
  Want to diversify the way you greet people in Chinese? Then you can go with 下午好 (xiàwǔ hǎo) when it’s the right time of the day.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 9\. 晚上好 (wǎnshàng hǎo) – “Good evening” in Chinese
 
  Staying up late to meet with your friends? Then this your chance to show them how well you’ve mastered the Mandarin greetings!
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 10\. 喂 (wèi) – answer your phone like a fluent speaker
 
@@ -137,17 +137,14 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-skills.techidaily.com/new-photographic-prowess-the-best-lens-choices-for-stunning-images-2024-edition/"><u>[New] Photographic Prowess The Best Lens Choices for Stunning Images, 2024 Edition</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/stutter-issue-resolved-enjoy-seamless-playtime-with-grand-theft-auto-v/"><u>[Stutter Issue Resolved] Enjoy Seamless Playtime with Grand Theft Auto V</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/breaking-barriers-learn-german-from-a-hit-show-on-screen/"><u>Breaking Barriers: Learn German From a Hit Show on Screen</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/comprehensive-analysis-of-the-valkyrie-syn-aio-240l-robust-cooling-with-interface-improvement-needed/"><u>Comprehensive Analysis of the Valkyrie Syn AIO 240L - Robust Cooling with Interface Improvement Needed</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/die-effektivsten-videokonverter-software-losungen-fur-windows-1011-schnell-and-sicher-ihre-top-liste-der-zehn-besten/"><u>Die Effektivsten Videokonverter-Software Lösungen Für Windows 10/11: Schnell & Sicher – Ihre Top-Liste Der Zehn Besten</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/echoes-from-the-globe-theatre-words-that-live-on/"><u>Echoes From the Globe Theatre: Words That Live On</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/fresh-start-in-x-previously-twitter-how-to-change-your-access-code/"><u>Fresh Start in X (Previously Twitter): How to Change Your Access Code</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/game-on-a-guide-to-ideal-computing-machines/"><u>Game On: A Guide to Ideal Computing Machines</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-the-complete-youtube-video-editor-reference-manual/"><u>In 2024, The Complete YouTube Video Editor Reference Manual</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/reflecting-on-a-decade-mondlybacks-filter-mastery/"><u>Reflecting On A Decade: MondlyBack’s Filter Mastery</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unleash-your-potential-a-guide-to-excellent-mondly-use/"><u>Unleash Your Potential: A Guide to Excellent Mondly Use</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/us-vs-uk-english-key-language-divergences/"><u>US vs UK English: Key Language Divergences</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-optimal-solutions-for-webp-to-jpg-image-transformation/"><u>[New] In 2024, Optimal Solutions for WebP-to-JPG Image Transformation</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-screen-recorder-apps-for-iphoneipad-users/"><u>[Updated] In 2024, Screen Recorder Apps for iPhone/iPad Users</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-master-mac-audio-an-in-depth-look-at-using-audacity-for-recordings/"><u>2024 Approved Master Mac Audio An In-Depth Look at Using Audacity for Recordings</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-of-vyncs-service-reliable-monitoring-with-complex-subscription-tiers/"><u>Comprehensive Review of Vyncs Service - Reliable Monitoring with Complex Subscription Tiers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/horas-y-minutos-guia-sencilla-en-espanol/"><u>Horas Y Minutos: Guía Sencilla en Español</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-nokia-g310-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Nokia G310 to Outlook | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-after-switching-from-infinix-note-30-pro-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data After Switching From Infinix Note 30 Pro to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ceos-guide-to-mastering-company-language/"><u>The CEO's Guide to Mastering Company Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-european-melody-a-century-of-languages-unveiled-today/"><u>The European Melody: A Century Of Languages Unveiled Today</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "J-Lexicon: A Beginner's Treatise on Japan's Alphabets"
-date: 2024-09-15T17:19:23.297Z
-updated: 2024-09-16T20:09:21.429Z
+date: 2024-09-15T19:19:01.146Z
+updated: 2024-09-21T18:32:03.568Z
 tags:
   - speak
   - english
@@ -118,13 +118,6 @@ In rōmaji, that’s “Kon’nichiwa, watashi no namae wa Mondly desu.”
 
  Somehow related to kanji, kana evolved from_man’yōgana_ (万葉仮名) – an ancient writing system that uses Chinese characters to represent the Japanese language phonetically. The hiragana and katakana characters we use today are simplified versions of_man’yōgana_ .
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **When are Kana characters used?**
 
  The usage difference between hiragana and katakana is stylistic. Usually, **hiragana is used for particles, postpositions, adverbs, auxiliary verbs, function words,** or as a replacement for kanji when there’s a word with no kanji representation or whose kanji is thought to be too difficult for others to understand.
@@ -145,6 +138,13 @@ In rōmaji, that’s “Kon’nichiwa, watashi no namae wa Mondly desu.”
 
 ![katakana japanese alphabet](https://edge.mondly.com/blog/wp-content/uploads/2019/05/katakana-japanese-alphabet-1-960x679.png "Unlock The Secrets Of The Japanese Writing System And Alphabet: Your Ultimate Guide 16")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The Katakana Japanese alphabet
 
  As you can see, using only five vowels and nine consonants (k, s, t, n, h, m, y, r, w) you can identify all the kana sounds you’ll need to speak Japanese. Generally, consonants are pronounced the same as in English (except for “g” that is pronounced as in “get”). In addition to these syllable sounds, the Japanese language uses a single consonant – the letter “n”.
@@ -156,13 +156,6 @@ In rōmaji, that’s “Kon’nichiwa, watashi no namae wa Mondly desu.”
  There’s not very much information to point out for rōmaji. As mentioned before, I wouldn’t recommend getting used to this type of writing. It’s not in your own best interest to use rōmaji when hiragana and katakana are actually quite easy to remember.
 
  To give you a tangible example – when you write_“yama”_ instead of 山 (katakana) or やま (hiragana), you are using rōmaji.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115940/19272" target="_top" id="2115940">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115940" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115940/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Common Mistakes to Avoid in Japanese Writing
 
@@ -194,22 +187,16 @@ If you need a refresher, you can always come back to this article.
 
  Many of us are familiar with the well-known Japanese custom of the polite bow, as well as the strong emphasis that Japanese culture places on hierarchy and etiquette, especially within the family. These values seem to be deeply ingrained in Japanese society and it’s important to respect them. It all depends on the social context!
 
-<!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Not practicing enough
 
  Like any skill, learning Japanese writing takes practice. Not practicing enough can lead to slow progress and difficulties mastering the language. Don’t forget that practice makes perfect.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## What makes the Japanese writing system so complex?
 
@@ -221,13 +208,6 @@ If you need a refresher, you can always come back to this article.
 * Horizontal writing is called **_yokogaki_ (横書き); it** is read from left to right, the same as English, and it is mainly used for e-mails, how-to books, scientific and language-related writings._Yokogaki_ is generally used because more content can be incorporated horizontally (dictionaries are an excellent example for this situation);
 
 ![japanese english dictionary](https://edge.mondly.com/blog/wp-content/uploads/2019/05/japanese-english-dictionary-960x830.jpg "Unlock The Secrets Of The Japanese Writing System And Alphabet: Your Ultimate Guide 17")
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Japanese-English dictionary by P K©
 
@@ -257,9 +237,23 @@ The Japanese alphabet  has no plurals, which means there is no difference betwee
 
  Japanese city center
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. Many sounds can be represented by the same Kanji symbol
 
  The Kanji alphabet is an exception to the rule that each sound is represented by one symbol. Therefore, depending on the context, the Kanji symbols can change their meaning. 月 can mean “moon” or “month” and can be read as_Getsu_ or_Tsuki_ .
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5\. Rōmaji has a direct connection to Christianity
 
@@ -268,13 +262,6 @@ The Japanese alphabet  has no plurals, which means there is no difference betwee
  In the 1800s, the first Japanese-English dictionary was published by James Curtis Hepburn.
 
  Now, let’s finish this article by answering some frequently asked questions about the Japanese writing system.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### What is Japanese writing called?
 
@@ -289,6 +276,13 @@ The Japanese alphabet  has no plurals, which means there is no difference betwee
  In addition, there are several modified forms of Hiragana and Katakana characters that are used to represent sounds that do not occur in the Japanese language. This brings the total number of Hiragana and Katakana characters to over 100.
 
  Depending on how you define “alphabet”, the number of letters in the Japanese writing system can be anywhere from 92 to several thousand.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### What does Japanese writing look like?
 
@@ -328,21 +322,14 @@ The Japanese alphabet  has no plurals, which means there is no difference betwee
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-the-method-for-seamless-volume-dialing-down-in-audacity/"><u>[New] In 2024, The Method for Seamless Volume Dialing Down in Audacity</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-accessing-and-making-sense-of-twitter-archives/"><u>[Updated] Accessing and Making Sense of Twitter Archives</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-exploring-the-depth-of-photography-with-polarrs-advanced-editing/"><u>2024 Approved Exploring the Depth of Photography with Polarr’s Advanced Editing</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/abschiedsbittelemente-fur-deutschsprachige-beziehrangelegenheiten/"><u>Abschiedsbittelemente Für Deutschsprachige Beziehrangelegenheiten</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/belgiums-polyglot-population-speaks-which/"><u>Belgium's Polyglot Population Speaks Which?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/break-language-barriers-oculus-quest-adds-mondly-to-its-app-suite/"><u>Break Language Barriers: Oculus Quest Adds Mondly to Its App Suite</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bridging-cultures-with-germanys-essential-idioms-top-25/"><u>Bridging Cultures with Germany's Essential Idioms (Top 25)</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/brothers-quick-guide-updating-and-downloading-your-mfc-l2690dw-printer-drivers/"><u>Brother's Quick Guide: Updating & Downloading Your MFC-L2690DW Printer Drivers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/decoding-turkish-korean-communication-riddles/"><u>Decoding Turkish-Korean Communication Riddles</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/empowering-ukraines-citizens-through-learning/"><u>Empowering Ukraine's Citizens Through Learning</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-the-6-best-sim-unlock-services-that-actually-work-on-your-samsung-galaxy-f54-5g-device-by-drfone-android/"><u>In 2024, The 6 Best SIM Unlock Services That Actually Work On Your Samsung Galaxy F54 5G Device</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-youtube-monetization-carryminati-ajey-nagar-youtube-income-2023/"><u>In 2024, YouTube Monetization CarryMinati (Ajey Nagar) YouTube Income 2023</u></a></li>
-<li><a href="https://review-topics.techidaily.com/remove-google-frp-lock-on-nubia-red-magic-9-pro-by-drfone-android-unlock-remove-google-frp/"><u>Remove Google FRP lock on Nubia Red Magic 9 Pro</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/sage-scripts-for-soundplays/"><u>Sage Scripts for Soundplays</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579187330-the-finest-3-online-schools-learn-languages-with-precision-and-passion/"><u>The Finest 3 Online Schools: Learn Languages with Precision & Passion!</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/zero-money-high-quality-ranks-of-best-recording-apps/"><u>Zero Money, High Quality Ranks of Best Recording Apps</u></a></li>
+<li><a href="https://driver-error.techidaily.com/update-wdcsam64prewin8sys-core-isolation-deactivated/"><u>[Update] wdcsam64_prewin8.sys: Core Isolation Deactivated</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-complete-razer-kiyo-webcam-review-for-2024/"><u>[Updated] Complete Razer Kiyo Webcam Review for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-innovator-of-cinematic-soundscapes-and-imagery/"><u>[Updated] In 2024, Innovator of Cinematic Soundscapes & Imagery</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-enhancing-your-aerial-journey-top-10-drone-extras-and-parts/"><u>2024 Approved Enhancing Your Aerial Journey Top 10 Drone Extras and Parts</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/fb-quick-views-snap-and-share/"><u>FB Quick Views Snap & Share</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-say-hello-in-different-languages/"><u>How To Say Hello In Different Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-new-age-evolving-language-learning-methods/"><u>Speaking New Age: Evolving Language Learning Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-into-the-future-of-chat-meet-ai/"><u>Step Into the Future of Chat: Meet AI</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-swedish-phonetic-handbook/"><u>The Ultimate Swedish Phonetic Handbook</u></a></li>
 </ul></div>
 

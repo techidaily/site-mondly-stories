@@ -1,7 +1,7 @@
 ---
 title: "The Italian Explorer’s Vocabulary: 100+ Must-Learn Phrases"
-date: 2024-09-14T17:55:42.177Z
-updated: 2024-09-16T17:16:16.201Z
+date: 2024-09-19T18:10:43.195Z
+updated: 2024-09-21T19:43:57.594Z
 tags:
   - speak
   - english
@@ -104,6 +104,19 @@ thumbnail: https://thmb.techidaily.com/d8d6563b1e83446e0eb6eee844ba3f9b3df6929ea
 * I would like a coffee. –_Vorrei un caffè._
 * Can I have some ice cream? –_Posso prendere il gelato?_
 
+<!-- affiliate ads begin -->
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4\. Basic Italian for tourists who need a place to spend the night
 
  Looking for the perfect accommodation can be a real headache sometimes. Well, imagine you did find it, but the hosts only speak Italian. How will you deal with that? Some**basic Italian** would surely be useful in this situation.
@@ -117,25 +130,11 @@ thumbnail: https://thmb.techidaily.com/d8d6563b1e83446e0eb6eee844ba3f9b3df6929ea
 * Very pleasant, thank you. –_Molto piacevole, grazie._
 * Here is your bill, please look it over. –_Ecco il suo conto, per favore lo controlli._
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 5\. Italian for tourists who want to have fun
 
  Going out is probably one of the best ways to explore and get to know new cultures. The same places you visited during the day may reveal themselves differently during the night. Take_**Fontana di Trevi**_ for example. Nothing is as majestic as this world-famous Baroque fountain at night.
 
 ![common italian phases](https://edge.mondly.com/blog/wp-content/uploads/2019/07/common-italian-phrases-1024x682.jpg "100+ Essential Italian Travel Phrases For Your Trip 4")
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  “Fontana di Trevi” by Ivan Bertona©
 
@@ -147,6 +146,13 @@ thumbnail: https://thmb.techidaily.com/d8d6563b1e83446e0eb6eee844ba3f9b3df6929ea
 * How much does a ticket cost? –_Quanto costa un biglietto?_
 * One ticket, please. –_Un biglietto, per favore._
 * Are there seats available? –_Ci sono posti disponibili?_
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 6\. Italian phrases about love
 
@@ -169,14 +175,14 @@ thumbnail: https://thmb.techidaily.com/d8d6563b1e83446e0eb6eee844ba3f9b3df6929ea
 
 ![basic italian phrases](https://edge.mondly.com/blog/wp-content/uploads/2019/07/basic-italian-phrases-1024x575.jpg "100+ Essential Italian Travel Phrases For Your Trip 5")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “Vernazza, Italy” by Daniil Vnoutchkov
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 7\. Days of the week and numbers in Italian
 
@@ -248,12 +254,20 @@ thumbnail: https://thmb.techidaily.com/d8d6563b1e83446e0eb6eee844ba3f9b3df6929ea
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://mondly-stories.techidaily.com/10-things-about-dealing-with-a-language-barrier-in-a-relationship/"><u>10 Things About Dealing With A Language Barrier In A Relationship</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580633810-dive-into-dialect-diversity-get-a-staggering-95-off-languages-this-year/"><u>Dive Into Dialect Diversity - Get a Staggering 95% Off Languages This Year!</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-realme-gt-5-240w-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Realme GT 5 (240W)? | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-affiliate-acquaintanceships-elevating-budget-channels-with-ease/"><u>In 2024, Affiliate Acquaintanceships Elevating Budget Channels with Ease</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-mastering-crossfades-a-premiere-pro-guide/"><u>In 2024, Mastering Crossfades A Premiere Pro Guide</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-samsung-galaxy-f34-5g-device-by-drfone-android/"><u>In 2024, The Ultimate Guide How to Bypass Swipe Screen to Unlock on Samsung Galaxy F34 5G Device</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/transform-your-speech-mondlys-revolutionary-ar-language-programs/"><u>Transform Your Speech: Mondly’s Revolutionary AR Language Programs</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-cracking-the-code-to-niche-celeb-content-creators-on-insta-for-2024/"><u>[Updated] Cracking the Code to Niche Celeb Content Creators on Insta for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-the-art-of-revisiting-historical-facebook-posts-mobilelaptop/"><u>[Updated] In 2024, The Art of Revisiting Historical Facebook Posts (Mobile/Laptop)</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-iphoneandroid-integrating-playlists-into-your-fb-music/"><u>2024 Approved IPhone/Android Integrating Playlists Into Your FB Music</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-vernacular-vanguard-ranking-1-15/"><u>Global Vernacular Vanguard: Ranking 1-15</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-change-location-on-yik-yak-for-your-nubia-z50-ultra-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>In 2024, Change Location on Yik Yak For your Nubia Z50 Ultra to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-complete-kinemaster-blueprint-for-flawless-green-screen-techniques/"><u>In 2024, The Complete Kinemaster Blueprint for Flawless Green Screen Techniques</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/latest-mpow-bluetooth-driver-updates-available-easy-installation-for-windows-1087-users/"><u>Latest MPOW Bluetooth Driver Updates Available – Easy Installation for Windows 10/8/7 Users</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/launch-into-action-quick-tips-to-start-going-live-on-facebook-immediately-for-2024/"><u>Launch Into Action Quick Tips to Start Going Live on Facebook Immediately for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/perfect-pronunciation-prowess-navigating-hard-language-terms/"><u>Perfect Pronunciation Prowess: Navigating Hard Language Terms</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/social-media-gold-rush-prime-hashes-for-viewership-for-2024/"><u>Social Media Gold Rush Prime Hashes for Viewership for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-locals-learn-romanian-fast/"><u>Speak Like Locals, Learn Romanian Fast</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/traveling-tips-top-100plus-basic-russian-verbs-and-nouns/"><u>Traveling Tips: Top 100+ Basic Russian Verbs & Nouns</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-uks-colloquialisms-vs-usas-vernacular/"><u>Understanding UK's Colloquialisms vs USA's Vernacular</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vielfaltig-sein-10-alternative-deutsche-begrussungen/"><u>Vielfältig Sein: 10 Alternative Deutsche Begrüßungen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-learn-german-a-convincing-10-point-perspective/"><u>Why Learn German? - A Convincing 10-Point Perspective</u></a></li>
 </ul></div>
 

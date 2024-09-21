@@ -1,7 +1,7 @@
 ---
 title: "Pearson's GSL Now: Mondly-Infused Exactitude"
-date: 2024-09-11T20:14:51.103Z
-updated: 2024-09-16T17:00:06.873Z
+date: 2024-09-19T16:23:28.680Z
+updated: 2024-09-21T20:03:01.464Z
 tags:
   - speak
   - english
@@ -42,13 +42,6 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 
  Building on the GSE, our research team at Pearson decided to prove that this scale could also be transferable to other languages. The study’s results were not only encouraging but groundbreaking. The research confirmed that the GSE is directly transferable to other languages, making it possible for Pearson to develop the new GSL framework.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **Why the GSL stands out**
 
 * **Unparalleled insights:**  Going a step beyond traditional language measurement tools like the CEFR, the GSL provides a more detailed understanding of a learner’s skills through extensive global research.
@@ -56,10 +49,10 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 * **Personalized learning pathways:**  With clear objectives at each scale point, the GSL ensures a learning journey tailored to individual goals, making progression more efficient.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
+  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Why start with French, Spanish, and Italian?**
@@ -80,6 +73,13 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **Fast-track your progress with Mondly by Pearson**
 
@@ -102,20 +102,20 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-how-to-pin-someone-on-snapchat-all-you-need-to-know/"><u>[New] 2024 Approved How to Pin Someone on Snapchat All You Need to Know</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-direct-the-degrees-cutting-edge-youtube-video-manipulation/"><u>[Updated] 2024 Approved Direct the Degrees Cutting-Edge YouTube Video Manipulation</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-best-skin-perfection-iphone-and-android-leaders/"><u>[Updated] Best Skin Perfection IPhone & Android Leaders</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-revive-your-profile-resetting-2023s-facebook-error/"><u>2024 Approved Revive Your Profile Resetting 2023'S Facebook Error</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719578903374-accelerated-norsk-knowledge-daily-dash/"><u>Accelerated Norsk Knowledge - Daily Dash!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/americas-most-popular-second-language-initiatives/"><u>America's Most Popular Second Language Initiatives</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/battles-and-ballads-decoding-the-language-of-viking-bards/"><u>Battles & Ballads: Decoding the Language of Viking Bards</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/cross-platform-iptv-capture-for-2024/"><u>Cross-Platform IPTV Capture for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dialekte-und-formeln-im-deutschsprachigen-vergeben/"><u>Dialekte Und Formeln Im Deutschsprachigen Vergeben</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579212463-dive-into-hindi-mastery-with-8-compelling-mondly-advantages/"><u>Dive Into Hindi Mastery with 8 Compelling Mondly Advantages!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embrace-italy-100plus-expressions-to-speak-like-a-local/"><u>Embrace Italy: 100+ Expressions to Speak Like a Local</u></a></li>
-<li><a href="https://win-able.techidaily.com/how-to-overcome-the-boot-loop-in-football-manager-202n1-troubleshooting-guide/"><u>How to Overcome the Boot Loop in Football Manager 202N1 – Troubleshooting Guide</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/import-audio-tracks-in-premiere-pro-for-2024/"><u>Import Audio Tracks in Premiere Pro for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-adobe-cloud-storage-demystified-features-functionality-and-alternatives-reviewed/"><u>In 2024, Adobe Cloud Storage Demystified Features, Functionality, and Alternatives Reviewed</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580846789-in-a-flash-japanese-numbers-unlocked/"><u>In a Flash: Japanese Numbers Unlocked!</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/xclusive-roundup-the-best-video-to-mp3-converters/"><u>[New] Exclusive Roundup The Best Video to Mp3 Converters</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-a-trailblazers-guide-youtube-studio-location-unveiled/"><u>[Updated] 2024 Approved A Trailblazer’s Guide YouTube Studio Location Unveiled</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-unlocking-the-power-of-in-stream-ads-on-facebook-a-comprehensive-handbook/"><u>[Updated] Unlocking the Power of In-Stream Ads on Facebook A Comprehensive Handbook</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1724766453508-dvd/"><u>最新公式・マックDVDリッパーフリーエディション:初心者も簡単に使用できます</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-unlock-icloud-lock-from-your-apple-iphone-15-pro-and-ipad-by-drfone-ios/"><u>How to Unlock iCloud lock from your Apple iPhone 15 Pro and iPad?</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-todays-virtual-realty-hardware-exploration/"><u>In 2024, Today’s Virtual Realty Hardware Exploration</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-vision-and-flavor-shooting-the-best-food-videos/"><u>In 2024, Vision and Flavor Shooting the Best Food Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-bridging-starting-conversations/"><u>Language Bridging: Starting Conversations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/languagehorizon-2020-expo-dubais-vision-for-communication/"><u>LanguageHorizon 2020: Expo Dubai's Vision for Communication</u></a></li>
+<li><a href="https://common-error.techidaily.com/overcoming-msvcp140dll-shortage/"><u>Overcoming MSVCP140.dll Shortage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sparking-interest-fun-in-learning-latin/"><u>Sparking Interest: Fun in Learning Latin</u></a></li>
+<li><a href="https://fox-links.techidaily.com/the-powerhouse-analyzing-the-performance-of-lg-ud88-w-hdtv/"><u>The Powerhouse Analyzing the Performance of LG UD88-W HDTV</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/triple-tiered-learning-experience-our-top-3-for-language-proficiency/"><u>Triple-Tiered Learning Experience: Our Top 3 for Language Proficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-accurate-ru-alphabet-pronunciations/"><u>Unlocking Accurate RU Alphabet Pronunciations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/voice-command-enhancements-for-oculus-quest-with-mondly/"><u>Voice Command Enhancements for Oculus Quest with Mondly</u></a></li>
 </ul></div>
 

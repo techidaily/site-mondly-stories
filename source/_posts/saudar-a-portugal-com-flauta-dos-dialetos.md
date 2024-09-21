@@ -1,7 +1,7 @@
 ---
 title: Saudar a Portugal Com Flauta Dos Dialetos
-date: 2024-09-11T18:27:46.874Z
-updated: 2024-09-16T18:51:08.730Z
+date: 2024-09-15T18:35:32.180Z
+updated: 2024-09-21T16:39:18.048Z
 tags:
   - speak
   - english
@@ -54,22 +54,15 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 * **_Como foi o seu dia?_ – How’s your day?** – Used the same as in English.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. “Bom dia!” and other Portuguese greetings for certain moments of the day
 
 ![good morning in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/good-morning-in-portuguese-1024x642.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 3")
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  “Rio de Janeiro, Brazil” by Raphael Nogueira©
 
@@ -95,14 +88,20 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ![portuguese greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/08/portuguese-greetings-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 4")
 
- “Ruínas da Fortaleza de Arrifana, Aljezur, Portugal” by Ferhat Deniz Fors©
-
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123471/16836" target="_top" id="2123471">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123471" border="0" alt="https://techidaily.com" width="234" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123471/16836" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ “Ruínas da Fortaleza de Arrifana, Aljezur, Portugal” by Ferhat Deniz Fors©
 
 ## Bonus: other basic Portuguese phrases that you should know
 
@@ -135,6 +134,13 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Here’s how to speak Portuguese in 10 minutes a day
 
  Do you want to practice what you’ve learned and maybe learn some more Portuguese? **Check Mondly, the revolutionary language learning platform that makes language learning fun, fast and easy!**
@@ -166,14 +172,15 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/aptivate-your-audience-professional-end-screen-creations/"><u>[New] Captivate Your Audience Professional End Screen Creations</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-step-by-step-strategies-for-splendid-colors-in-gopro-videos/"><u>[Updated] 2024 Approved Step-by-Step Strategies for Splendid Colors in GoPro Videos</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/britlish-english-mastering-the-local-language/"><u>Britlish English: Mastering the Local Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/comparing-brazilian-and-european-portugueseback-buttonfilter-button/"><u>Comparing Brazilian And European PortugueseBack ButtonFilter Button</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discover-mondlys-innovative-phrase-compendium/"><u>Discover Mondly's Innovative Phrase Compendium</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discover-romanian-through-our-app/"><u>Discover Romanian Through Our App</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/elevate-your-note-taking-skills-to-pro-levels-with-chatgpts-powerful-tools/"><u>Elevate Your Note-Taking Skills to Pro Levels with ChatGPT's Powerful Tools</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/save-your-videos-the-10-finest-software-picks-for-repairing-footage-on-windows-and-macos/"><u>Save Your Videos! The 10 Finest Software Picks for Repairing Footage on Windows and macOS</u></a></li>
-<li><a href="https://win11.techidaily.com/tech-tango-dancing-devices-androidwindows-synchro/"><u>Tech Tango: Dancing Devices - Android/Windows Synchro</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-high-definition-ready-enabling-av1-on-youtube-for-2024/"><u>[New] High Definition Ready Enabling AV1 on YouTube for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-master-the-charm-of-darker-digital-images-for-2024/"><u>[Updated] Master the Charm of Darker Digital Images for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-quieting-audio-fades-in-ableton-live/"><u>2024 Approved Quieting Audio Fades in Ableton Live</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-inside-look-prospects-and-pitfalls-of-samsung-image-processor-2023/"><u>In 2024, Inside Look Prospects & Pitfalls of Samsung Image Processor, 2023</u></a></li>
+<li><a href="https://fox-info.techidaily.com/jotting-down-just-a-minute-movie-for-2024/"><u>Jotting Down Just a Minute Movie for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-leap-prime-programs-for-strong-communicators/"><u>Language Leap: Prime Programs for Strong Communicators</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/mastering-gameplay-smoothness-top-valheim-low-fps-solutions-for-gamers/"><u>Mastering Gameplay Smoothness: Top Valheim Low FPS Solutions for Gamers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rapid-learning-for-polska-proficiency/"><u>Rapid Learning for Polska Proficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/semana-completa-memorizar-los-dias-en-espanol-de-nuevo/"><u>Semana Completa: Memorizar Los Días En Español De Nuevo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ultimate-guide-top-5-language-learning-applications/"><u>Ultimate Guide: Top 5 Language Learning Applications</u></a></li>
 </ul></div>
 

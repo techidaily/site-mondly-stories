@@ -1,7 +1,7 @@
 ---
 title: "Quebra De Silêncio: Expressões E Manifestações Do Português"
-date: 2024-07-12T08:22:03.168Z
-updated: 2024-07-13T08:22:03.168Z
+date: 2024-09-17T18:52:58.738Z
+updated: 2024-09-21T20:06:59.845Z
 tags:
   - speak
   - english
@@ -38,6 +38,13 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
  “Lisbon, Portugal” by Diego García©
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### “How are you” in Portuguese – Tudo bem?
 
  Asking someone how they are doing is probably just as important as saying “hello”. Sometimes you don’t even expect an answer. This is just an even nicer way to greet someone. So let’s see the many ways Portuguese-speaking people ask someone how they are doing depending on the context.
@@ -56,6 +63,13 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ## 2\. “Bom dia!” and other Portuguese greetings for certain moments of the day
 
 ![good morning in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/good-morning-in-portuguese-1024x642.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 3")
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  “Rio de Janeiro, Brazil” by Raphael Nogueira©
 
@@ -107,6 +121,13 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ![obrigado](https://edge.mondly.com/blog/wp-content/uploads/2019/08/obrigado-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 5")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  “Gruta do Lago Azul, Brazil” by Ademir Alves©
 
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fhello-in-portuguese-basic-portuguese-greetings-you-need%2F&t=Hello+in+Portuguese+and+Other+Basic+Portuguese+Greetings+You+Need+to+Know "Share on Facebook")
@@ -136,8 +157,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -145,6 +164,18 @@ _Olá_ is the best choice for most social situations regardless of the person yo
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-a-primer-on-using-azures-voice-to-text-service-for-2024/"><u>[New] A Primer on Using Azure's Voice-to-Text Service for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-expertly-choosing-the-leading-5-facebook-video-grabers/"><u>[New] Expertly Choosing the Leading 5 Facebook Video Grabers</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-audioadvisor-dacast-and-what-it-should-be/"><u>[Updated] AudioAdvisor DaCast & What It Should Be</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-in-2024-how-to-zoom-in-discord/"><u>New In 2024, How to Zoom in Discord</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quelques-initiations-francaises-pour-merci/"><u>Quelques Initiations Françaises Pour 'Merci'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sociable-by-nature-unlocking-the-power-of-french-greetings/"><u>Sociable by Nature: Unlocking the Power of French Greetings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speedy-bengali-course-online/"><u>Speedy Bengali Course Online</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/stay-on-track-with-these-10-leading-exercise-logging-apps-of-the-year-2024/"><u>Stay on Track with These 10 Leading Exercise Logging Apps of the Year 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-global-availability-a-guide-to-using-chatgpt-anytime-anywhere-with-chatgpt-everywhere/"><u>Unlocking Global Availability: A Guide to Using ChatGPT Anytime, Anywhere with ChatGPT Everywhere</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-italy-top-100-travelers-phrases-in-italian/"><u>Unlocking Italy: Top 100 Traveler's Phrases in Italian</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-stop-motion-made-easy-top-5-online-tools-free-and-paid/"><u>Updated Stop Motion Made Easy Top 5 Online Tools (Free and Paid)</u></a></li>
+</ul></div>
 

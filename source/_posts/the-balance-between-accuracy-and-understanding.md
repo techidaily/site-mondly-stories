@@ -1,7 +1,7 @@
 ---
 title: The Balance Between Accuracy and Understanding
-date: 2024-09-14T16:46:57.527Z
-updated: 2024-09-16T18:34:01.691Z
+date: 2024-09-20T19:19:36.440Z
+updated: 2024-09-21T18:31:28.131Z
 tags:
   - speak
   - english
@@ -34,6 +34,13 @@ This is why a focus on grammar is the wrong way to teach and learn a language. G
 
 There is a lot to take in when learning a language. The last thing a student needs is to get bogged down in a sea of confusing grammar rules. Of course, there are languages with simpler rules. For example, the [French grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) is more difficult than [the German grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875), but unless you’re naturally gifted at learning languages, realizing there are so many grammar rules to figure out might leave you so discouraged that you give up.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **2\. Incorrect Focus**
 
 Grammar rules are generally about perfecting the written language. This isn’t to say that having a strong grasp on the written aspects of the language are not important. After all, many people do the majority of their communication online these days. However, if your aim is to learn to speak a foreign language, then spending a large amount of time focusing on grammar might be holding you back.
@@ -50,13 +57,6 @@ This might seem like a crazy concept to some, but learning a language should be 
 
 ![Learn grammar with Mondly: French grammar, German Grammar, Spanish Grammar and more](https://edge.mondly.com/blog/wp-content/uploads/2017/10/Webp.net-compress-image-1.jpg "Is Grammar Holding You Back From Learning A Language? 2")
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Returning to Our Roots: Learning with the Mind of a Child**
 
 If you’re a native English speaker, you probably didn’t begin learning the language by studying grammar at the age of two. You learned by listening to the people around you speak. Since all children learn languages by focusing on the spoken word, shouldn’t adults do the same? Why are our schools placing such importance on perfect grammar?
@@ -70,16 +70,10 @@ Do you feel that grammar holds you back from learning a language? Share your sto
 ---
 
 <!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Speak a new language in just 10 minutes a day
@@ -107,21 +101,18 @@ Start using Mondly for free on your computer or tablet or, better yet, download 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/ed-how-to-make-money-on-youtube/"><u>[Updated] How To Make Money on YouTube</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-a-beginners-guide-to-advanced-techniques-in-gopro-studio/"><u>[Updated] In 2024, A Beginner's Guide to Advanced Techniques in GoPro Studio</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-step-by-step-guide-to-high-quality-zoom-recordings-for-podcasters/"><u>[Updated] Step-by-Step Guide to High-Quality Zoom Recordings for Podcasters</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/apple-enabled-education-supported-by-mondlys-vision/"><u>Apple-Enabled Education, Supported by Mondly's Vision</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/aussies-word-wizardry-100plus-key-phrases/"><u>Aussie's Word Wizardry: 100+ Key Phrases</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/beyond-the-myths-authentic-strategies-for-language-acquisition/"><u>Beyond the Myths: Authentic Strategies for Language Acquisition</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/british-and-american-dialects-key-distinctions/"><u>British & American Dialects: Key Distinctions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/descifrar-la-hora-en-espanol-un-punto-de-inicio/"><u>Descifrar La Hora en Español: Un Punto De Inicio</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dive-into-dialects-top-six-immersive-strategies/"><u>Dive Into Dialects: Top Six Immersive Strategies</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/effective-strategies-for-learning-french-at-home/"><u>Effective Strategies for Learning French at Home</u></a></li>
-<li><a href="https://common-error.techidaily.com/how-to-fix-it-tips-and-solutions-when-your-torrent-isnt-downloading-as-expected/"><u>How to Fix It: Tips and Solutions When Your Torrent Isn't Downloading as Expected</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/how-to-view-facebook-videos-with-apple-remote/"><u>How to View Facebook Videos with Apple Remote</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Lava Yuva 2 | Dr.fone</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/in-2024-stop-motion-made-easy-top-5-online-tools-free-and-paid/"><u>In 2024, Stop Motion Made Easy Top 5 Online Tools (Free and Paid)</u></a></li>
-<li><a href="https://win-dash.techidaily.com/speedy-installation-how-to-get-the-right-keyboard-driver-for-windows-7/"><u>Speedy Installation: How to Get the Right Keyboard Driver for Windows 7</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/tailor-your-own-memetic-masterpiece-now/"><u>Tailor Your Own Memetic Masterpiece Now</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-from-capturing-moments-to-sharing-them-editing-with-adobe-premiere/"><u>[New] In 2024, From Capturing Moments to Sharing Them Editing with Adobe Premiere</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-youtube-to-avi-mastery-top-8-convertors-reviewed/"><u>[New] YouTube to AVI Mastery Top 8 Convertors Reviewed</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-immediate-cessation-of-recordings-in-qt-app/"><u>[Updated] In 2024, Immediate Cessation of Recordings in QT App</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-muting-unwanted-noise-obs-audio-solution/"><u>2024 Approved Muting Unwanted Noise OBS Audio Solution</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/advanced-strategies-to-transform-your-snaps-into-boomers/"><u>Advanced Strategies to Transform Your Snaps Into Boomers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-top-10-dynamic-ways-to-say-hello-in-spanish/"><u>Learning Top 10 Dynamic Ways To Say Hello In Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-kids-app-named-one-of-google-plays-best-apps-of-2017back-buttonfilter-button/"><u>Mondly Kids App Named One Of Google Play's Best Apps Of 2017Back ButtonFilter Button</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/navigating-the-eus-ai-act-and-chatbots-like-chatgpt/"><u>Navigating the EU's AI Act & Chatbots Like ChatGPT</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/step-by-step-strategy-achieving-perfect-4k-streams-on-youtube-a-how-to/"><u>Step-by-Step Strategy: Achieving Perfect 4K Streams on YouTube – A How-To</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-benefits-of-learning-croatian-7-reasons-to-start-today/"><u>The Benefits Of Learning Croatian: 7 Reasons To Start Today</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-ultimate-guide-to-video-cuts-windows-edition-made-simple-for-2024/"><u>The Ultimate Guide to Video Cuts Windows Edition, Made Simple for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/transition-tactics-in-audio-leveraging-adobes-fading-effects/"><u>Transition Tactics in Audio Leveraging Adobe’s Fading Effects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-the-aussie-tongue-100plus-terms-guide/"><u>Unlock the Aussie Tongue: 100+ Terms Guide</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Taking Flight in Russian Numeral Recognition
-date: 2024-09-11T16:56:54.579Z
-updated: 2024-09-16T17:55:31.561Z
+date: 2024-09-14T16:04:55.724Z
+updated: 2024-09-21T17:37:41.297Z
 tags:
   - speak
   - english
@@ -79,10 +79,10 @@ And guess what! It works the same with the hundreds.
 Not as hard as you’d expect, is it?
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Russian ordinal numbers
@@ -130,19 +130,14 @@ Not as hard as you’d expect, is it?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-what-makes-a-viral-video-the-tiktok-twitter-link/"><u>[Updated] 2024 Approved What Makes a Viral Video The TikTok-Twitter Link</u></a></li>
-<li><a href="https://extra-information.techidaily.com/updated-chortle-creators-undead-hilarity/"><u>[Updated] Chortle Creators Undead Hilarity</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-tutorial-uploading-youtube-to-instagram-stories-effortlessly/"><u>[Updated] In 2024, Tutorial Uploading YouTube to Instagram Stories Effortlessly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/best-practices-in-language-education-software/"><u>Best Practices in Language Education Software</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/comprehensive-fixes-for-unseen-youtube-comments-under-videos/"><u>Comprehensive Fixes for Unseen YouTube Comments Under Videos</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580797196-europes-vibrant-verbal-tapestry-celebrate-it-today/"><u>Europe's Vibrant Verbal Tapestry – Celebrate It Today!</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/get-your-canon-scanner-ready-on-windows-free-drivers-and-installation-help/"><u>Get Your Canon Scanner Ready on Windows: FREE Drivers and Installation Help</u></a></li>
-<li><a href="https://network-issues.techidaily.com/how-to-clean-up-your-pcs-graphics-driver-cache/"><u>How to Clean Up Your PC's Graphics Driver Cache</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/international-friendship-starters/"><u>International Friendship Starters</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mundo-semanal-en-espanol-no-olvides-desde-martes-hasta-domingo/"><u>Mundo Semanal en Español: No Olvides Desde Martes Hasta Domingo</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/palabras-comunes-en-ingles-y-espanol-cognados-realizadores/"><u>Palabras Comunes en Inglés Y Español: Cognados Realizadores</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/picks-of-the-best-danish-features-for-lingo-proficiency/"><u>Picks of the Best Danish Features for Lingo Proficiency</u></a></li>
-<li><a href="https://video-capture.techidaily.com/the-art-of-video-editing-employing-strikethrough-for-clarity-for-2024/"><u>The Art of Video Editing Employing Strikethrough for Clarity for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/talling-video-libraries-from-youtube-for-2024/"><u>Uninstalling Video Libraries From YouTube for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-choosing-between-tiktok-and-youtube-shorts-a-users-guide/"><u>[New] Choosing Between TikTok and YouTube Shorts A User's Guide</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-live-stream-lifeline-high-quality-recorders-reviewed-in-obs/"><u>2024 Approved Live Stream Lifeline High-Quality Recorders Reviewed in OBS</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ignite-industry-insights-via-mastery-of-business-jargon/"><u>Ignite Industry Insights via Mastery of Business Jargon</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-ultimate-guide-to-7-superior-vids-on-mac/"><u>In 2024, Ultimate Guide to 7 Superior Vids on Mac</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lingo-love-mastering-spanish-courtship-quips/"><u>Lingo Love: Mastering Spanish Courtship Quips</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/syncing-subtitles-fixing-speed-issues-with-vlc-step-by-step-guide/"><u>Syncing Subtitles: Fixing Speed Issues with VLC - Step by Step Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-mondly-method-elevating-english-to-next-levels/"><u>The Mondly Method: Elevating English to Next Levels</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/top-10-airplay-apps-in-oneplus-11-5g-for-streaming-drfone-by-drfone-android/"><u>Top 10 AirPlay Apps in OnePlus 11 5G for Streaming | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukraines-new-dawn-of-dialogue-mondlys-free-language-courses-ignite-change/"><u>Ukraine's New Dawn of Dialogue – Mondly's Free Language Courses Ignite Change</u></a></li>
 </ul></div>
 

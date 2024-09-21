@@ -1,7 +1,7 @@
 ---
 title: "Beyond Basics: Advanced Steps for Total Tongue-Tying"
-date: 2024-07-12T08:19:42.472Z
-updated: 2024-07-13T08:19:42.472Z
+date: 2024-09-15T16:41:00.681Z
+updated: 2024-09-21T16:54:10.235Z
 tags:
   - speak
   - english
@@ -60,6 +60,13 @@ But of course, let’s start with the _whys_ before the _hows_  . Why should you
 
  In this case, the possibilities are endless. Watch movies and series, I hear [Squid Game](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  is popular right now, so listen to songs and podcasts, read books or even play video games using the language you want to learn. The first time I heard Ezio Auditore speak Italian, the game registered differently for me! If you’re stuck on your phone most of the time, why not change its settings to the new language? Read the news, train your pets or even start journaling in the language you want to learn. The results will surprise you!
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Talk to yourself
 
  Yes, we learn new languages in order to communicate with others, but this does not have to be the norm. Speak to yourself using the new language and you’ll notice the benefits of active recall. You might even start thinking reflexively in the new language as a result. Also, you may learn how to curse in a new language so as not to get caught so easily.
@@ -70,6 +77,19 @@ But of course, let’s start with the _whys_ before the _hows_  . Why should you
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Immerse yourself in over 40 languages
 
@@ -92,8 +112,6 @@ But of course, let’s start with the _whys_ before the _hows_  . Why should you
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -101,6 +119,19 @@ But of course, let’s start with the _whys_ before the _hows_  . Why should you
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-from-free-to-paid-transitioning-your-channel-via-partnership/"><u>[New] 2024 Approved From Free to Paid Transitioning Your Channel via Partnership</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-melody-management-and-legalities-on-social-media/"><u>[New] In 2024, Melody Management and Legalities on Social Media</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-behind-the-scenes-fixes-for-instagram-videos/"><u>[Updated] 2024 Approved Behind-the-Scenes Fixes for Instagram Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-easy-to-use-platforms-for-free-youtube-thumbnail-extracting/"><u>[Updated] 2024 Approved Easy-to-Use Platforms for Free YouTube Thumbnail Extracting</u></a></li>
+<li><a href="https://windows11.techidaily.com/how-to-achieve-a-crystal-clear-taskbar-in-windows-11/"><u>How to Achieve a Crystal Clear Taskbar in Windows 11</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-google-play-location-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Google Play Location On Google Pixel 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/maximizing-collaboration-with-zoom-meeting-recordings/"><u>Maximizing Collaboration with Zoom Meeting Recordings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-africas-multilingual-maze/"><u>Navigating Africa's Multilingual Maze</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-tagalog-mastery-daily-learning-in-under-an-hour/"><u>Quick Tagalog Mastery: Daily Learning in Under an Hour</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/secrets-of-the-pros-screening-your-switch-games/"><u>Secrets of the Pros Screening Your Switch Games</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/slavic-siblings-comparing-ukrainian-and-russian/"><u>Slavic Siblings: Comparing Ukrainian and Russian</u></a></li>
+<li><a href="https://fox-that.techidaily.com/why-are-my-iphone-contacts-disappearing-find-solutions-here/"><u>Why Are My iPhone Contacts Disappearing? Find Solutions Here</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Russian Numbers – Learn How to Count in Russian
-date: 2024-09-13T18:54:06.712Z
-updated: 2024-09-16T18:06:38.411Z
+date: 2024-09-18T17:40:38.174Z
+updated: 2024-09-21T18:18:19.252Z
 tags:
   - speak
   - english
@@ -79,16 +79,10 @@ And guess what! It works the same with the hundreds.
 Not as hard as you’d expect, is it?
 
 <!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Russian ordinal numbers
@@ -136,19 +130,18 @@ Not as hard as you’d expect, is it?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-purchase-pitfalls-steering-clear-from-the-seduction-of-false-subscribers/"><u>[New] 2024 Approved Purchase Pitfalls Steering Clear From the Seduction of False Subscribers</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-crafting-captivating-igtv-cover-images-thumbnails/"><u>[New] Crafting Captivating IGTV Cover Images (Thumbnails)</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-transforming-passion-into-a-fulfilling-design-career/"><u>[New] Transforming Passion Into a Fulfilling Design Career</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-pulling-puzzled-listeners-intros-that-involve-for-2024/"><u>[Updated] Pulling Puzzled Listeners Intros That Involve for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/6-cinematic-journeys-through-the-heart-of-denmark/"><u>6 Cinematic Journeys Through the Heart of Denmark</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cross-cultural-loanwords-in-contemporary-english/"><u>Cross-Cultural Loanwords in Contemporary English</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-unveils-new-help-and-inquiry-resource/"><u>Mondly Unveils New Help and Inquiry Resource</u></a></li>
-<li><a href="https://fox-links.techidaily.com/stand-out-with-style-ios-and-androids-best-apps-for-adding-stickers/"><u>Stand Out with Style IOS and Android's Best Apps for Adding Stickers</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-honor-x8b-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For Honor X8b Device Top 5 Picks to Remove Android Locks</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/the-best-ergonomic-wireless-mice-for-maximum-workflow/"><u>The Best Ergonomic Wireless Mice for Maximum Workflow</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ease-behind-kids-embracing-second-languages/"><u>The Ease Behind Kids Embracing Second Languages</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/the-quintessential-guide-to-premium-4k-blu-ray-devices-for-2024/"><u>The Quintessential Guide to Premium 4K Blu-Ray Devices for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/triple-threat-education-networks-language-learning-for-all-ages/"><u>Triple Threat Education Networks: Language Learning for All Ages!</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/ways-to-find-unlocking-codes-for-oneplus-nord-ce-3-lite-5g-phones-by-drfone-android/"><u>Ways To Find Unlocking Codes For OnePlus Nord CE 3 Lite 5G Phones</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-how-to-embed-a-youtube-video-in-powerpoint-4-methods/"><u>[New] In 2024, How to Embed a YouTube Video in PowerPoint [4 Methods]</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-top-choices-best-livestream-equip-and-tech-for-youtubers/"><u>[New] Top Choices Best Livestream Equip & Tech for Youtubers</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-innovative-filmmaking-methods-for-multidevice-integration/"><u>[Updated] 2024 Approved Innovative Filmmaking Methods for Multidevice Integration</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-easy-steps-for-effective-ez-grabber-implementation/"><u>[Updated] In 2024, Easy Steps for Effective EZ Grabber Implementation</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-perfect-palette-pro/"><u>[Updated] Perfect Palette Pro</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-top-5-ios-platforms-for-experiencing-classic-psp-games/"><u>2024 Approved Top 5 iOS Platforms for Experiencing Classic PSP Games</u></a></li>
+<li><a href="https://howto.techidaily.com/9-quick-fixes-to-unfortunately-touchwiz-has-stopped-of-motorola-moto-g23-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Quick Fixes to Unfortunately TouchWiz has stopped Of Motorola Moto G23 | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-sony-xperia-5-v-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>In 2024, Sony Xperia 5 V ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-adoption-the-integration-of-foreign-words-into-english/"><u>Language Adoption: The Integration of Foreign Words Into English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/loves-lexicon-french-cinematic-masterpieces/"><u>Love's Lexicon: French Cinematic Masterpieces</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-finnish-language-from-anywhere-better-way/"><u>Mastering Finnish Language From Anywhere, Better Way!</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-lip-sync-your-way-to-fame-top-rated-apps-for-creators-for-2024/"><u>New Lip Sync Your Way to Fame Top-Rated Apps for Creators for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/triad-of-asias-favorite-speeches-prioritize-and-archive/"><u>Triad of Asia's Favorite Speeches: Prioritize & Archive</u></a></li>
 </ul></div>
 

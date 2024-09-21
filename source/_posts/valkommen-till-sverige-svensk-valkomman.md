@@ -1,7 +1,7 @@
 ---
 title: "Välkommen Till Sverige: Svensk Välkomman"
-date: 2024-09-13T17:02:20.425Z
-updated: 2024-09-16T20:07:31.980Z
+date: 2024-09-17T19:56:06.977Z
+updated: 2024-09-21T17:37:03.518Z
 tags:
   - speak
   - english
@@ -38,19 +38,6 @@ thumbnail: https://thmb.techidaily.com/03446fa7c6c4437cc78cf994a5cd500e9e19b7398
 
  At the restaurant, cafés, or when you enter a building, saying “Good Morning!” is a sign of respect and will help you establish a connection with those around you. The Swedish equivalent of the morning greeting is **“God morgon!”**  . It’s important to use all the common greetings, even as a foreigner because you will most likely make a good impression.
 
-<!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to say “Good evening!” in Swedish
 
 **“God kväll!”** is a rather formal greeting in [Swedish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  , but you might hear this in theaters, or when the evening news show starts. Usually, this greeting is not used between family and friends. “Kväll” is pronounced _kvell_ and the “g” can be silent.
@@ -60,15 +47,22 @@ thumbnail: https://thmb.techidaily.com/03446fa7c6c4437cc78cf994a5cd500e9e19b7398
  After getting acquainted with Swedes, you will most likely enjoy late night talks and drinks, so a proper Goodnight is needed to end the day properly. **“Godnatt!”** , often pronounced _goo-natt_  is the way to wish locals a good night’s rest and let them know you can’t wait to hang out again soon.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115936/19272" target="_top" id="2115936">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115936" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115936/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to say “What’s up?” in Swedish
 
  What better way to find out more about your Swedish friends’ day or how they’re feeling than asking “what’s up?”? **“Hur är det?”** or **“hur går det?”**  are what is used to ask “how is it?” and “how is it going?”. They are both informal ways of getting a conversation started and can be used when talking on the phone as well, just after you introduce yourself.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to say “Goodbye!” in Swedish
 
@@ -98,16 +92,19 @@ thumbnail: https://thmb.techidaily.com/03446fa7c6c4437cc78cf994a5cd500e9e19b7398
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-hints.techidaily.com/new-action-replay-gopro-hero5-black-meets-hero4-silver-edition/"><u>[New] Action Replay GoPro Hero5 Black Meets Hero4 Silver Edition</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-introducing-effortless-group-image-assembling-via-picshot/"><u>[New] Introducing Effortless Group Image Assembling via Picshot</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-elevate-your-youtube-presence-strategic-tagging-and-titling-techniques/"><u>[Updated] 2024 Approved Elevate Your YouTube Presence Strategic Tagging and Titling Techniques</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-fusing-imagery-montage-mastery-essentials/"><u>[Updated] In 2024, Fusing Imagery Montage Mastery Essentials</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-creating-professional-videos-with-adobe-presenter/"><u>2024 Approved Creating Professional Videos with Adobe Presenter</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581151239-celebrating-a-decade-of-mondly/"><u>Celebrating A Decade of Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/conversational-charm-the-ultimate-list-of-flirting-favorites/"><u>Conversational Charm: The Ultimate List of Flirting Favorites</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discover-the-best-cross-cultural-film-experiences/"><u>Discover the Best Cross-Cultural Film Experiences</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-samsung-galaxy-a23-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Samsung Galaxy A23 5G | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-top-5-lava-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>In 2024, Top 5 Lava Bypass FRP Tools for PC That Actually Work</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/seamless-integration-utilizing-instagrams-music-stickers-expertise/"><u>Seamless Integration Utilizing Instagram's Music Stickers Expertise</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-revolutionize-your-youtube-presence-with-personalized-thumbnails/"><u>[New] 2024 Approved Revolutionize Your YouTube Presence with Personalized Thumbnails</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-expert-techniques-for-effective-tiktok-videos-pcmac-for-2024/"><u>[New] Expert Techniques for Effective TikTok Videos (PC/MAC) for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-flavorful-frames-principles-of-food-filmmaking/"><u>[Updated] 2024 Approved Flavorful Frames Principles of Food Filmmaking</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-transform-your-stories-6-premier-apps-for-snapchat-filters/"><u>[Updated] In 2024, Transform Your Stories 6 Premier Apps for Snapchat Filters</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-samsung-galaxy-m54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Simple and Effective Ways to Change Your Country on YouTube App Of your Samsung Galaxy M54 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-7-year-journey-connecting-cultures/"><u>Mondly's 7-Year Journey: Connecting Cultures</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/pc-musik-auf-ihr-iphone-ubertragen-alternative-methoden-ohne-itunes-fur-windows-and-mac/"><u>PC Musik Auf Ihr iPhone Übertragen - Alternative Methoden Ohne iTunes Für Windows & Mac</u></a></li>
+<li><a href="https://techtrends.techidaily.com/step-by-step-guide-capturing-screenshots-with-your-logitech-keyboard/"><u>Step-by-Step Guide: Capturing Screenshots with Your Logitech Keyboard</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-7-phone-number-locators-to-track-vivo-y100a-location-drfone-by-drfone-virtual-android/"><u>Top 7 Phone Number Locators To Track Vivo Y100A Location | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-tier-examination-pathways-for-elite-language-professionals/"><u>Top-Tier Examination Pathways for Elite Language Professionals</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-basic-german-alphabet-and-speech/"><u>Understanding Basic German Alphabet & Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/uniting-through-language-honoring-teachers-day/"><u>Uniting Through Language: Honoring Teachers Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-turkeys-orthography-a-basic-pronunciation-and-writing-guide/"><u>Unveiling Turkey's Orthography: A Basic Pronunciation & Writing Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vr-conversations-breaking-barriers-across-borders/"><u>VR Conversations: Breaking Barriers Across Borders</u></a></li>
 </ul></div>
 

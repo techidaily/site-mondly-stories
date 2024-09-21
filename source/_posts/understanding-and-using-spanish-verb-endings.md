@@ -1,7 +1,7 @@
 ---
 title: Understanding and Using Spanish Verb Endings
-date: 2024-09-15T18:13:54.829Z
-updated: 2024-09-16T18:33:50.187Z
+date: 2024-09-15T18:35:46.739Z
+updated: 2024-09-21T19:50:43.873Z
 tags:
   - speak
   - english
@@ -139,6 +139,13 @@ And the conjugation of comer will look like this:
 * _Vosotros / Vosotras escrib**iréis**_
 * _Ellos / Ellas / Ustedes escrib**irán**_
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Spanish verbs: how to master irregular Spanish verbs
 
  Remember how you managed to learn**irregular English verbs** ? Well, there are tricks that you can use, but the truth is that, in time,**irregular Spanish verbs** will just… come to you. No joke. Once you get used to the language and use it all the time, your brain will start making connections.
@@ -146,10 +153,10 @@ And the conjugation of comer will look like this:
  As you already know,**irregular verbs** are “rebel” verbs that follow no regular set of rules. Statistically, in Spanish, almost all verbs ending in_\-ar_ are regular, almost all verbs ending in_\-er_ are irregular and less than half of all verbs ending in_\-ir_ are irregular. So, let’s disentangle this complicated situation of**irregular Spanish verbs** and look for some patterns to help us learn faster.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
+  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Stem-Changing Verbs in Spanish
@@ -205,13 +212,6 @@ And the conjugation of comer will look like this:
  Then there’s the verb_jugar_ (to play): the one and only example of a verb whose stem changes from “u” to a “ue”.
 
 _Adquirir_ (to acquire) and_inquirir_ (to inquire) are just as rebellious because to the final letter “i” of their stem, we will need to add an “e”. Thus, “I acquire” will be “Yo adquiero”.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. Spanish verbs with an irregular “yo” form
 
@@ -328,16 +328,12 @@ Well… this is it! This is our full lesson on**Spanish verbs.**
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-2024-approved-navigating-the-world-of-zooms-camera-snapping-easily/"><u>[New] 2024 Approved Navigating the World of Zoom's Camera Snapping Easily</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-transform-every-moment-top-tasks-to-master-while-immersing-in-your-favorite-podcasts/"><u>[New] Transform Every Moment Top Tasks to Master While Immersing in Your Favorite Podcasts</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-10-best-free-luts-with-download-links/"><u>[Updated] 10 Best Free LUTs with Download Links</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discover-27-french-proverbs-sayings-and-idioms/"><u>Discover 27 French Proverbs, Sayings & Idioms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/flemish-walloon-and-french-a-belgian-triad/"><u>Flemish, Walloon & French: A Belgian Triad?</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-m1-innovation-elevating-smoothness-in-every-editors-toolkit/"><u>In 2024, M1 Innovation Elevating Smoothness in Every Editor's Toolkit</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/is-continuous-learning-part-of-chatgpts-functionality-from-conversing-with-people/"><u>Is Continuous Learning Part of ChatGPT's Functionality From Conversing With People?</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-top-10-free-video-compression-tools-for-windows-10/"><u>New 2024 Approved Top 10 Free Video Compression Tools for Windows 10</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/rated-recs-prime-websites-for-grabbing-snapalert-beats/"><u>Rated Recs Prime Websites for Grabbing SnapAlert Beats</u></a></li>
-<li><a href="https://games-able.techidaily.com/reconnecting-issues-revive-your-gaming-experience-with-headsets/"><u>Reconnecting Issues? Revive Your Gaming Experience with Headsets</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/transform-your-kitchen-skills-top-10-steps-for-gourmet-success/"><u>Transform Your Kitchen Skills: Top 10 Steps for Gourmet Success</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/afe-ways-to-download-and-convert-youtubes-audios-as-mp3-for-2024/"><u>[New] Safe Ways to Download and Convert YouTube's Audios as MP3 for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-the-leading-eights-imagery-fusion-platform-for-2024/"><u>[New] The Leading Eight’s Imagery Fusion Platform for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-introduction-essentials/"><u>International Introduction Essentials</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mitternachtsverabschiedungssatze-im-deutschen/"><u>Mitternachtsverabschiedungssätze Im Deutschen</u></a></li>
+<li><a href="https://techtrends.techidaily.com/navigate-the-process-of-permanently-wiping-out-your-tiktok-account-with-ease/"><u>Navigate the Process of Permanently Wiping Out Your TikTok Account with Ease</u></a></li>
+<li><a href="https://techidaily.com/three-solutions-to-hard-reset-nokia-xr21-drfone-by-drfone-reset-android-reset-android/"><u>Three Solutions to Hard Reset Nokia XR21? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-your-grammar-skills-with-9-top-strategies-by-esl-pioneers/"><u>Transform Your Grammar Skills with 9 Top Strategies by ESL Pioneers</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "The Heart of Indonesia: Greetings and More"
-date: 2024-09-11T16:33:40.130Z
-updated: 2024-09-16T17:43:21.447Z
+date: 2024-09-18T17:03:57.477Z
+updated: 2024-09-21T18:02:18.806Z
 tags:
   - speak
   - english
@@ -46,19 +46,6 @@ thumbnail: https://thmb.techidaily.com/44b00e7ceffa68921ecf622a184f48a9d902f80a5
 
 Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 
-<!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Indonesian greetings for different times of day
 
  Like [most languages](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , Indonesian also has some specific greetings dedicated to different times of the day. While in English, we begin every such greeting with “good”, in Indonesian_selamat_ is the word we use to wish people a “happy”, “peaceful” or “safe” day.
@@ -72,10 +59,10 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 ![indonesian words](https://edge.mondly.com/blog/wp-content/uploads/2022/07/indonesian-words.png "Hello In Indonesian: A Quick Guide To Indonesian Greetings 2")
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The same way we say “morning!’ in English, Indonesians sometimes drop the_selamat_ . This results in a very informal greeting that can be used with friends and family.
@@ -94,6 +81,13 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Start learning Indonesian today
 
@@ -126,18 +120,20 @@ Get Mondly today and learn Indonesian naturally with the following:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-easy-steps-to-document-video-calls/"><u>[New] Easy Steps to Document Video Calls</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-soundwave-startups-curating-melodies-for-your-podcast-opener/"><u>[New] Soundwave Startups Curating Melodies for Your Podcast Opener</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-the-social-media-whizs-playbook-analyzing-user-behavior-with-insta-insights/"><u>2024 Approved The Social Media Whiz's Playbook Analyzing User Behavior with Insta Insights</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/a-beginners-guide-to-chatgpt-and-its-capabilities/"><u>A Beginner's Guide to ChatGPT and Its Capabilities</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/chinese-alphabet-introduction-to-chinese-letters/"><u>Chinese Alphabet: Introduction To Chinese Letters</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/conquer-japanese-online-paths-for-independent-and-free-learning/"><u>Conquer Japanese: Online Paths for Independent and Free Learning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/descubrimiento-divertido-del-cuerpo-humano-en-espanol-del-pelo-al-rinon/"><u>Descubrimiento Divertido Del Cuerpo Humano en Español: Del Pelo Al Riñón</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/difficulty-levels-studying-german/"><u>Difficulty Levels: Studying German</u></a></li>
-<li><a href="https://win-dash.techidaily.com/effortless-resolution-for-logitech-c615-driver-problems-expert-guide/"><u>Effortless Resolution for Logitech C615 Driver Problems - Expert Guide</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/mastering-video-directorship-with-powerdirector-24-for-2024/"><u>Mastering Video Directorship with PowerDirector '24 for 2024</u></a></li>
-<li><a href="https://win-blog.techidaily.com/overcoming-the-crashes-in-chivalry-2-a-comprehensive-fix-achieved/"><u>Overcoming the Crashes in Chivalry 2 – A Comprehensive Fix Achieved</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/quick-fixes-for-mss32dll-not-found-issues-on-your-pc/"><u>Quick Fixes for MSS32.DLL Not Found Issues on Your PC</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/why-picshot-makes-photo-collage-easier/"><u>Why Picshot Makes Photo Collage Easier?</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-gamers-guide-to-high-quality-in-game-broadcasts-for-2024/"><u>[New] Gamers' Guide to High-Quality In-Game Broadcasts for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-nurturing-nature-on-android-animals-in-a-virtual-world-for-2024/"><u>[New] Nurturing Nature on Android Animals in a Virtual World for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-complete-drone-racing-playbook-plus-5-elite-fpv-brands/"><u>[New] The Complete Drone Racing Playbook + 5 Elite FPV Brands</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-from-creation-your-guide-to-googles-audio-upload/"><u>[Updated] From Creation Your Guide to Google's Audio Upload</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-skyrocketing-influence-growth-in-youtube-audience/"><u>[Updated] Skyrocketing Influence Growth in YouTube Audience</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-tailoring-your-video-content-through-youtube-studio-editing-techniques/"><u>[Updated] Tailoring Your Video Content Through YouTube Studio Editing Techniques</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-lava-yuva-3-pro-drfone-by-drfone-android/"><u>How to Screen Mirroring Lava Yuva 3 Pro? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-vivo-t2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Vivo T2 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-small-talk-and-big-talks-in-english/"><u>Mastering Small Talk and Big Talks in English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-and-pearsons-buttonfiltrate-innovation-merge/"><u>Mondly & Pearson's ButtonFiltrate Innovation Merge</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-mastery-6-core-advantages-listed/"><u>Multilingual Mastery: 6 Core Advantages Listed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revamped-learning-pearsons-gsl-with-mondly-precision/"><u>Revamped Learning: Pearson's GSL with Mondly Precision</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-numbers-how-to-count-numbers-in-spanish/"><u>Spanish Numbers: How to Count Numbers in Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-101-croatian-phrases-your-travel-guides-essential-toolkit/"><u>Top 101 Croatian Phrases: Your Travel Guide's Essential Toolkit</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-who-are-the-major-francophones-analysis/"><u>Worldwide, Who Are The Major Francophones? Analysis</u></a></li>
 </ul></div>
 

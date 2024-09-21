@@ -1,7 +1,7 @@
 ---
 title: "Introductory Urdu: Fundamental Words & Phrases"
-date: 2024-09-09T18:07:05.243Z
-updated: 2024-09-16T16:36:33.874Z
+date: 2024-09-17T17:35:30.559Z
+updated: 2024-09-21T17:37:33.388Z
 tags:
   - speak
   - english
@@ -138,19 +138,6 @@ thumbnail: https://thmb.techidaily.com/5003aae1e7f947a598bd55077396c6a7704237963
 * sugar — _شکر (shakar)_
 * pepper — _مرچ (mirch)_
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Urdu words related to body and health
 
  The names of the body parts in Urdu are some of the most basic and useful words you can learn. Whether you are in a clothing store, or at the doctor’s office, various parts of the body can come up in conversation more often than you think.
@@ -176,13 +163,6 @@ thumbnail: https://thmb.techidaily.com/5003aae1e7f947a598bd55077396c6a7704237963
 * medicine — _دوا (dawa)_
 * pharmacy — _دواخانہ (dawakhana)_
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123479/16836" target="_top" id="2123479">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123479" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123479/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Urdu words related to transportation and places
 
  While this crash course in Urdu words will get you from zero to beginner in as little as 15 minutes, these words will get you to the other hemisphere if you need it so.
@@ -201,6 +181,19 @@ thumbnail: https://thmb.techidaily.com/5003aae1e7f947a598bd55077396c6a7704237963
 * market — _بازار (bazar)_
 
  Now that you’ve mastered some of the most basic Urdu vocabulary words, you can dive into the practical phrases that’ll help you ease into real-world conversations.
+
+<!-- affiliate ads begin -->
+<span id="1983475">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The most common Urdu phrases
 
@@ -234,6 +227,13 @@ thumbnail: https://thmb.techidaily.com/5003aae1e7f947a598bd55077396c6a7704237963
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Learn Urdu in just 10 minutes a day
 
  Do you want to see the Urdu words in action? Get Mondly, the award-winning language learning app that will help you speak Urdu from day 1.
@@ -263,13 +263,21 @@ thumbnail: https://thmb.techidaily.com/5003aae1e7f947a598bd55077396c6a7704237963
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-the-adventure-begins-with-panasonics-hx-a1-action-recorder/"><u>[New] In 2024, The Adventure Begins with Panasonic's HX-A1 Action Recorder</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-uncover-the-best-10-online-vectors-collections/"><u>[New] Uncover the Best 10 Online Vectors Collections</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-streamline-multimedia-with-pip-in-apple-browsers-for-2024/"><u>[Updated] Streamline Multimedia with PIP in Apple Browsers for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/asias-talkative-trinity-back-and-organize-preferences/"><u>Asia’s Talkative Trinity: Back & Organize Preferences</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/childs-play-with-polyglots-multilingualism-made-simple/"><u>Child's Play with Polyglots: Multilingualism Made Simple</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-fix-when-apple-account-locked-from-iphone-15-pro-max-by-drfone-ios/"><u>How to Fix when Apple Account Locked From iPhone 15 Pro Max?</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-oppo-a79-5g-phone-by-drfone-android/"><u>In 2024, How to Use Google Assistant on Your Lock Screen Of Oppo A79 5G Phone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719578214765-speedy-catalan-skills-just-10-mins/"><u>Speedy Catalan Skills, Just 10 Mins!</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-decoding-inverse-image-retrieval-for-social-networks-focusing-on-fb/"><u>[New] Decoding Inverse Image Retrieval for Social Networks, Focusing on FB</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-zoom-mastery-creating-seamless-virtual-sessions/"><u>[Updated] In 2024, Zoom Mastery Creating Seamless Virtual Sessions</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-will-facebook-vids-air-on-tv-this-year-or-later-in-2024/"><u>[Updated] Will Facebook Vids Air On TV This Year or Later, In 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/comprehensive-tutorial-on-gdocs-voice-to-text-feature-for-2024/"><u>Comprehensive Tutorial on GDoc's Voice-to-Text Feature for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/experiencing-tardy-sms-notifications-on-iphone-discover-9-reliable-remedies-now/"><u>Experiencing Tardy SMS Notifications on iPhone? Discover 9 Reliable Remedies Now</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-motorola-g24-power-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>How to Cast Motorola G24 Power Screen to PC Using WiFi | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-xiaomi-redmi-note-12r-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to Xiaomi Redmi Note 12R Phones? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-uninterrupted-dark-shows-on-netflix/"><u>Language Learning Uninterrupted: Dark Shows on Netflix</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/macau-language-diversity-cantonese-macanese-and-portuguese-unveiled/"><u>Macau Language Diversity: Cantonese, Macanese, And Portuguese Unveiled</u></a></li>
+<li><a href="https://extra-support.techidaily.com/no-charges-yes-to-superior-free-webm-player-selections-for-2024/"><u>No Charges? Yes to Superior, Free WebM Player Selections for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/prevalent-global-languages-studied-by-americans/"><u>Prevalent Global Languages Studied by Americans</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-swedish-phonetics-with-flair-and-speed/"><u>Unlock Swedish Phonetics with Flair & Speed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-linguistic-excellence-mondlys-2022-triumph/"><u>Unveiling Linguistic Excellence: Mondly's 2022 Triumph</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/virtualang-revolutionizing-interactive-language-education/"><u>VirtuaLang: Revolutionizing Interactive Language Education</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/visual-virtuosity-the-ultimate-collection-of-11-expert-tutorials/"><u>Visual Virtuosity The Ultimate Collection of 11 Expert Tutorials</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/watch-dark-and-learn-a-new-language-germans/"><u>Watch 'Dark' And Learn a New Language, Germans</u></a></li>
 </ul></div>
 

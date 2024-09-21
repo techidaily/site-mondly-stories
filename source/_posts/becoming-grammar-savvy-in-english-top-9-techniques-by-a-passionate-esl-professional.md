@@ -1,7 +1,7 @@
 ---
 title: "Becoming Grammar-Savvy in English: Top 9 Techniques by a Passionate ESL Professional"
-date: 2024-07-12T08:21:31.649Z
-updated: 2024-07-13T08:21:31.649Z
+date: 2024-09-16T18:10:18.537Z
+updated: 2024-09-21T16:51:56.507Z
 tags:
   - speak
   - english
@@ -81,11 +81,25 @@ thumbnail: https://thmb.techidaily.com/aea0b058dad5a8a78b7176f739897c106c85c82d6
 
  The experts behind Mondly know how amazing the human brain is. This is why they carefully selected the content so that you’ll practice and the brain will make the connections itself. You don’t focus on the process but on the final result: speaking English like a native.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 5\. Learn the most common exceptions
 
  Forget about rules. Focus on the most common exceptions. Once you begin using the inductive learning method, rules will follow naturally. So it’s the exception you need to study and master.
 
  Whether we are talking about adjective forms, irregular verbs, or nouns without plurals, exceptions are fewer and can help you achieve the level of English fluency and correctness you always dreamed you’d have.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052062/7443" target="_top" id="2052062">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052062" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052062/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 6\. Practice English Grammar with Oxford
 
@@ -94,6 +108,13 @@ thumbnail: https://thmb.techidaily.com/aea0b058dad5a8a78b7176f739897c106c85c82d6
  Add at least 15 minutes of grammar exercises from Oxford to your learning routine, and soon enough, your brain will begin to make the connections naturally and faster.
 
 ![english grammar lessons](https://edge.mondly.com/blog/wp-content/uploads/2020/04/english-grammar-lessons-600x555.jpg "9 English Grammar Tips From An Esl Speaker 2")
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  “Find your favorite book” by 🇸🇮 Janko Ferlič©
 
@@ -136,8 +157,6 @@ thumbnail: https://thmb.techidaily.com/aea0b058dad5a8a78b7176f739897c106c85c82d6
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -145,6 +164,23 @@ thumbnail: https://thmb.techidaily.com/aea0b058dad5a8a78b7176f739897c106c85c82d6
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-depth-minecraft-gameplay-recording-strategies-for-2024/"><u>[New] In-Depth Minecraft Gameplay Recording Strategies for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-packing-list-film-your-excursions/"><u>2024 Approved Packing List Film Your Excursions</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/diy-disk-clone-mastery-for-pc-enthusiasts/"><u>DIY Disk Clone Mastery for PC Enthusiasts</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/emotional-intelligence-bots-safe-counseling-guidelines/"><u>Emotional Intelligence Bots: Safe Counseling Guidelines</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/examining-ravpowers-24w-car-charger-powerful-yet-fragile-in-depth-review/"><u>Examining RAVPower's 24W Car Charger: Powerful Yet Fragile? - In Depth Review</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-ideal-ps2-emulation-software-for-ios-users/"><u>In 2024, Ideal PS2 Emulation Software for IOS Users</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-uniting-friends-across-operating-systems-with-skype-groups/"><u>In 2024, Uniting Friends Across Operating Systems with Skype Groups</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-powerhouse-englishs-impact/"><u>Language Powerhouse: English's Impact</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-ukrainians-embrace-free-education/"><u>Mondly: Ukrainians, Embrace FREE Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/obsessed-with-squid-game-but-lost-in-translation-learn-korean/"><u>Obsessed With Squid Game, but Lost in Translation? Learn Korean</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/orientacion-para-comprender-relojes-espanoles/"><u>Orientación Para Comprender Relojes Españoles</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/techniques-for-writing-eye-catching-podcast-summaries-for-2024/"><u>Techniques for Writing Eye-Catching Podcast Summaries for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/understanding-and-solving-the-oleaut32dll-not-found-issue-on-your-pc/"><u>Understanding and Solving the Oleaut32.dll Not Found Issue on Your PC</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/what-lies-beyond-an-aminy-analysis-of-extraterrestrials/"><u>What Lies Beyond? An Aminy Analysis of Extraterrestrials</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-learning-a-new-language-is-good-for-your-brain/"><u>Why Learning a New Language Is Good for Your Brain</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-word-weaving-into-english-dialects/"><u>Worldwide Word Weaving Into English Dialects</u></a></li>
+</ul></div>
 

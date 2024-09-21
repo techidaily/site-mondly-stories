@@ -1,7 +1,7 @@
 ---
 title: A Comprehensive Guide to Chinese Polite Addresses
-date: 2024-07-12T08:19:36.012Z
-updated: 2024-07-13T08:19:36.012Z
+date: 2024-09-16T17:13:04.418Z
+updated: 2024-09-21T18:54:34.057Z
 tags:
   - speak
   - english
@@ -44,9 +44,23 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
  This expression is generally used as a response to a greeting, but it can also work as a “how are you?”.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. 你怎么样? (nǐ zěnmeyàng) – “What’s up?” in Chinese
 
  As you can probably already tell, this is an informal greeting you can use with your friends.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 4\. 你吃了吗？(nǐ chī le ma) – “Have you eaten?”
 
@@ -65,6 +79,13 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
  Isn’t this beautiful? It’s very similar to the English “how are you?”, so you can use it accordingly.
 
 ![hi in chinese](https://edge.mondly.com/blog/wp-content/uploads/2019/12/hi-in-chinese-1024x682.jpg "How To Say Hello In Chinese: A Quick Guide To Chinese Greetings 3")
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  “Hello there!” by Theodor Lundqvist©
 
@@ -107,8 +128,6 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -116,6 +135,21 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-ascend-video-rankings-top-seo-gadgets-revealed/"><u>[New] 2024 Approved Ascend Video Rankings – Top SEO Gadgets Revealed</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-simplifying-remote-work-with-zoom-recording-techniques/"><u>[Updated] 2024 Approved Simplifying Remote Work with Zoom Recording Techniques</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-innovative-advertising-on-fb-unlocking-your-brands-potential/"><u>[Updated] Innovative Advertising on FB Unlocking Your Brand's Potential</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-importance-of-tracking-igtv-conversion-rates-for-2024/"><u>[Updated] The Importance of Tracking IGTV Conversion Rates for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722961392492-free-download-of-logitech-k400-plus-software-and-drivers/"><u>Free Download of Logitech K400 Plus Software and Drivers.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/innovation-in-learning-mondly-and-apple-collaboration/"><u>Innovation in Learning: Mondly & Apple Collaboration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lettura-intermedia-di-numeri-italiani-da-1-a-migliaia/"><u>Lettura Intermedia Di Numeri Italiani: Da 1 a Migliaia</u></a></li>
+<li><a href="https://some-skills.techidaily.com/mastering-unlimited-data-keep-essential-lists-for-2024/"><u>Mastering Unlimited Data Keep Essential Lists for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-workplace-communication-your-ultimate-linguistic-journey/"><u>Mastering Workplace Communication: Your Ultimate Linguistic Journey</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/reset-itunes-backup-password-of-apple-iphone-13-pro-max-prevention-and-solution-drfone-by-drfone-ios/"><u>Reset iTunes Backup Password Of Apple iPhone 13 Pro Max Prevention & Solution | Dr.fone</u></a></li>
+<li><a href="https://win-answers.techidaily.com/resolving-your-games-endgame-glitches-fixing-the-constant-pc-malfunctions/"><u>Resolving Your Game's Endgame Glitches: Fixing the Constant PC Malfunctions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-intricacies-of-grammar-in-learning-languages/"><u>The Intricacies of Grammar in Learning Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-language-test-mastering-the-most-difficult-ones/"><u>The Ultimate Language Test: Mastering the Most Difficult Ones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/which-language-is-widely-used-by-israelis/"><u>Which Language Is Widely Used by Israelis?</u></a></li>
+</ul></div>
 

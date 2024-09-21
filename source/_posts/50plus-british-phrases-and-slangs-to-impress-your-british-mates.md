@@ -1,7 +1,7 @@
 ---
 title: 50+ British Phrases and Slangs to Impress Your British Mates
-date: 2024-07-12T08:16:43.579Z
-updated: 2024-07-13T08:16:43.579Z
+date: 2024-09-17T17:38:33.995Z
+updated: 2024-09-21T19:26:13.894Z
 tags:
   - speak
   - english
@@ -34,8 +34,6 @@ thumbnail: https://thmb.techidaily.com/15f46f7d0d38e67cb89897b04873987b9a53cd336
 
  Well, the chances of that happening are much slimmer after you get through our list. That, plus looking for online tutors can better prep you for your next British conversation.
 
-
-
 ## Common British Phrases
 
  In this section, we will look at the phrases that will make you sound more British. Some of them might be those British phrases you always hear on TV shows or movies.
@@ -60,9 +58,29 @@ This is a very British thing to say meaning very.
 
  Not meaning the regular “angry”, in British talk it actually means you’re very drunk and is used quite a lot when you are out drinking with friends.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### _Mate_
 
 A common one and quite cliché – mate means friend.
+
+<!-- affiliate ads begin -->
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### _Rubbish_
 
@@ -83,6 +101,13 @@ A person native to East London.
 ### _Bollocks_
 
  One of the more well-known British terms, it actually has a multitude of meanings. It could be used to symbolize disbelief, or to talk about a man’s private parts.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Funny British Sayings
 
@@ -112,6 +137,13 @@ A person native to East London.
  Speak English like a true Brit with Mondly.
 
 [Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-4428&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4428&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4428&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4428&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-4428%26mt%3D8)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Fancy British Words
 
@@ -202,6 +234,13 @@ A person native to East London.
 
  Having learned some of the most common British words and phrases, let’s move on to some frequently asked questions.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Why do the British say ‘cheers’?
 
  ‘Cheers’ is an informal manner of expressing gratitude, akin to saying ‘thank you’. When combined with the word ‘mate’, it forms the phrase “Cheers, mate”, which carries the same meaning as “Thank you, my friend.”
@@ -237,8 +276,6 @@ Get Mondly now and speak any language like you never dreamed you would ![Learn w
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -246,6 +283,21 @@ Get Mondly now and speak any language like you never dreamed you would ![Learn w
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-rapid-diy-filming-tips-for-the-budding-director/"><u>[New] In 2024, Rapid DIY Filming Tips for the Budding Director</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-the-psychology-behind-successful-facebook-gifting-campaigns-for-2024/"><u>[New] The Psychology Behind Successful Facebook Gifting Campaigns for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-from-twitter-to-gifs-a-cost-saving-how-to-guide-for-2024/"><u>[Updated] From Twitter to Gifs A Cost-Saving How-To Guide for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-youtubers-unleashed-a-guide-to-creating-memorable-music-reaction-vids-for-2024/"><u>[Updated] Youtubers Unleashed A Guide to Creating Memorable Music Reaction Vids for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-reviewing-changes-in-the-sony-s6500-blu-ray-system/"><u>2024 Approved Reviewing Changes in the Sony S6500 Blu-Ray System</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/discovering-snapchats-video-capabilities-with-ease-for-2024/"><u>Discovering Snapchat's Video Capabilities with Ease for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-and-set-up-your-nvme-drive-with-the-newest-windows-compatible-drivers/"><u>Get & Set Up Your NVMe Drive with the Newest Windows Compatible Drivers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-chatter-cheat-sheet-easy-languages-compendium/"><u>Global Chatter Cheat Sheet: Easy Languages Compendium</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changeadd-location-filters-on-snapchat-for-your-tecno-spark-go-2023-drfone-by-drfone-virtual-android/"><u>How to Change/Add Location Filters on Snapchat For your Tecno Spark Go (2023) | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/kickoff-2023-on-a-high-note-enjoy-free-mondly-pro-for-life/"><u>Kickoff 2023 on a High Note, Enjoy Free Mondly Pro for Life</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-the-romantic-lexicon-of-hungarian/"><u>Learning the Romantic Lexicon of Hungarian</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/peak-performance-in-global-languages-examinations/"><u>Peak Performance in Global Languages Examinations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/privacy-policy-enhancement-revealed/"><u>Privacy Policy Enhancement Revealed</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/rhythmic-revelations-unveiling-top-10-music-for-podcast-intros-for-2024/"><u>Rhythmic Revelations Unveiling Top 10 Music for Podcast Intros for 2024</u></a></li>
+</ul></div>
 

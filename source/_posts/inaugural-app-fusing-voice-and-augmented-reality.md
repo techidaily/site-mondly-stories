@@ -1,7 +1,7 @@
 ---
 title: Inaugural App Fusing Voice & Augmented Reality
-date: 2024-09-11T17:11:17.980Z
-updated: 2024-09-16T16:31:53.621Z
+date: 2024-09-15T16:39:08.556Z
+updated: 2024-09-21T18:08:02.446Z
 tags:
   - speak
   - english
@@ -71,10 +71,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 * [Mondly Press Kit](https://www.dropbox.com/sh/vo4j5214zvwdxy5/AAC20VxIgpuiEe7ED2%5F37VNEa?dl=0)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Media mentions about Mondly
@@ -106,19 +106,16 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-safest-and-cutest-toy-drones-for-children/"><u>[New] 2024 Approved Safest and Cutest Toy Drones for Children</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-capture-nostalgia-uploading-past-photos-as-snaps/"><u>[Updated] Capture Nostalgia - Uploading Past Photos as Snaps</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-digital-stream-capturers-2023-edition/"><u>[Updated] In 2024, Digital Stream Capturers, 2023 Edition</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bangla-journey-easy-daily-practice-for-mastery/"><u>Bangla Journey: Easy Daily Practice for Mastery</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/breaking-the-chains-of-unplayable-media-files/"><u>Breaking the Chains of Unplayable Media Files</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bulbarian-bootcamp-daily-10-min-lessons/"><u>Bulbarian Bootcamp: Daily 10-Min Lessons</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/chatgpt-troubleshooting-guide-fixing-the-infamous-body-stream-error-in-7-steps/"><u>ChatGPT Troubleshooting Guide: Fixing the Infamous Body Stream Error in 7 Steps</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dissecting-the-majority-of-worldwide-french-conversationalists/"><u>Dissecting the Majority of Worldwide French Conversationalists</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/educational-innovation-mondly-kids-a-2017-google-play-gem/"><u>Educational Innovation: Mondly Kids, A 2017 Google Play Gem</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719576630083-exclusive-offer-alert-lifetime-free-up-to-96-off-mondly-pro/"><u>Exclusive Offer Alert: Lifetime Free, Up to 96% Off Mondly Pro!</u></a></li>
-<li><a href="https://os-tips.techidaily.com/how-does-the-iphone-handle-urgent-alerts-and-reminders/"><u>How Does the iPhone Handle Urgent Alerts and Reminders?</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-mastering-the-art-of-youtube-to-facebook-shares/"><u>In 2024, Mastering the Art of YouTube to Facebook Shares</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/redefining-the-sony-s3700-video-experience-for-2024/"><u>Redefining the Sony S3700 Video Experience for 2024</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-best-of-the-best-4k8k-video-editing-software-for-professionals-for-2024/"><u>Updated Best of the Best 4K/8K Video Editing Software for Professionals for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-boost-your-channels-a-guide-to-best-youtube-seo-resources/"><u>[New] 2024 Approved Boost Your Channels A Guide to Best YouTube SEO Resources</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-essential-guide-to-documenting-macs-roblox-playthroughs/"><u>[New] 2024 Approved Essential Guide to Documenting Mac's Roblox Playthroughs</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-the-ultimate-guide-to-video-dimensions-on-the-yt-platform/"><u>2024 Approved The Ultimate Guide to Video Dimensions on the YT Platform</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-the-latest-lenovo-ideapad-001-drivers-how-to-download-and-install-on-windows-10/"><u>Get the Latest Lenovo IdeaPad #001 Drivers - How to Download & Install on Windows 10</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-optimal-no-cost-android-video-maker/"><u>In 2024, Optimal No-Cost Android Video Maker</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learnings-new-era-mondly-at-seven-years/"><u>Learning's New Era: Mondly at Seven Years</u></a></li>
+<li><a href="https://win-able.techidaily.com/mount-and-blade-ii-bannerlord-troubleshooting-guide-to-fix-game-crashes/"><u>Mount and Blade II: Bannerlord - Troubleshooting Guide to Fix Game Crashes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-anywhere-everytime-meet-mondlyar/"><u>Speak Anywhere, Everytime - Meet MondlyAR!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-smart-succeed-premier-communication-courses/"><u>Speak Smart, Succeed: Premier Communication Courses</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-stars-decoding-the-language-mysteries-in-star-wars/"><u>Speaking Stars: Decoding the Language Mysteries in Star Wars</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-first-vocal-command-center-for-ar-worlds/"><u>The First Vocal Command Center for AR Worlds</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Worldwide Words Shaping English Identity
-date: 2024-09-09T17:40:35.834Z
-updated: 2024-09-16T16:19:15.596Z
+date: 2024-09-17T16:26:40.806Z
+updated: 2024-09-21T16:33:34.672Z
 tags:
   - speak
   - english
@@ -113,13 +113,6 @@ thumbnail: https://thmb.techidaily.com/014d79402613effc6daacc66a3f2a300ba2df5a4c
 
  Did you know that approximately**30% of the English vocabulary** consists of words that have their origins in**French and Latin** ? Considering that French was the language of the English king and his court for over 300 years, it’s no surprise. During that time, as many as 10,000 French loanwords came into English.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Spanish loanwords: English words that are actually Spanish
 
 | Chinchilla |
@@ -170,6 +163,13 @@ thumbnail: https://thmb.techidaily.com/014d79402613effc6daacc66a3f2a300ba2df5a4c
 
  Thanks to Italy’s cultural influence throughout history, especially during the Renaissance period, many languages borrowed its words. Italian words related to art, music, architecture and cuisine have an especially high predominance in the English vocabulary.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## German loanwords: English words that are actually German
 
 | Pretzel      |
@@ -195,10 +195,10 @@ thumbnail: https://thmb.techidaily.com/014d79402613effc6daacc66a3f2a300ba2df5a4c
  Some of the first German words were borrowed into English during the interactions between Germanic-speaking tribes and English-speaking communities in early medieval Europe. Words related to everyday life, family, and community were among the earliest borrowings. Later, thanks to Germany’s influence in various fields, English borrowed German words related to science and technology, music, philosophy, literature and engineering.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Understanding the Size of the English Vocabulary
@@ -259,21 +259,20 @@ Coming Soon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-unboxing-freex-streamer-pro-for-webcams/"><u>[New] Unboxing FreeX Streamer Pro for Webcams</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-in-2024-top-screencast-software-on-the-market-bandicam-vs-camtasia/"><u>[Updated] In 2024, Top Screencast Software on the Market Bandicam Vs. Camtasia</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-the-ultimate-guide-to-posting-panoramas-a-step-by-step-approach-for-2024/"><u>[Updated] The Ultimate Guide to Posting Panoramas A Step-By Step Approach for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-fine-tuning-soundtracks-with-garageband-expertise/"><u>2024 Approved Fine-Tuning Soundtracks with GarageBand Expertise</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-strategy-sketches-plotting-the-market-map/"><u>2024 Approved Strategy Sketches Plotting the Market Map</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/accelerated-norwegian-proficiency-minutes-only/"><u>Accelerated Norwegian Proficiency, Minutes Only</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/best-online-strategies-for-mastering-korean-language-skills/"><u>Best Online Strategies for Mastering Korean Language Skills</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/brain-boosting-techniques-transforming-language-learning-experience/"><u>Brain Boosting Techniques Transforming Language Learning Experience</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/breakneck-progress-toward-polyglot-status/"><u>Breakneck Progress Toward Polyglot Status</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-picart-privacy-filter-no-more-recognizable-faces/"><u>In 2024, PicArt Privacy Filter No More Recognizable Faces</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/in-2024-simplifying-image-reduction-creating-professional-thumbnails/"><u>In 2024, Simplifying Image Reduction Creating Professional Thumbnails</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719577897213-learn-catalan-quickly-just-minutes-a-day/"><u>Learn Catalan Quickly, Just Minutes a Day</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/new-windows-11-hacks-for-efficiency-experts/"><u>New Windows 11 Hacks for Efficiency Experts</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719578958498-tagalog-made-simple-learn-every-day-just-10-minutes/"><u>Tagalog Made Simple: Learn Every Day, Just 10 Minutes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581159179-the-days-of-the-week-in-french/"><u>The Days Of The Week In French</u></a></li>
-<li><a href="https://fox-that.techidaily.com/the-ultimate-guide-to-resolving-widespread-iphone-display-glitches/"><u>The Ultimate Guide to Resolving Widespread iPhone Display Glitches</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-ultimate-racing-game-compilation/"><u>[New] In 2024, Ultimate Racing Game Compilation</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-expertise-in-easel-alterations-color-command-for-2024/"><u>[Updated] Expertise in Easel Alterations - Color Command for 2024</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/eliminate-tarkov-graphics-hiccups-for-amd/"><u>Eliminate Tarkov Graphics Hiccups for AMD</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-pgsharp-legal-when-you-are-playing-pokemon-on-vivo-y36i-drfone-by-drfone-virtual-android/"><u>In 2024, Is pgsharp legal when you are playing pokemon On Vivo Y36i? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-oppo-a2-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Oppo A2? | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/inside-look-top-picks-for-live-webcam-capture/"><u>Inside Look Top Picks for Live WebCam Capture</u></a></li>
+<li><a href="https://fox-links.techidaily.com/instant-conferencing-zoom-in-the-eyes-of-gmail-for-2024/"><u>Instant Conferencing Zoom in the Eyes of Gmail for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/instant-guide-how-to-effortlessly-upgrade-your-mp4-files-to-crystal-clear-720p/"><u>Instant Guide: How to Effortlessly Upgrade Your MP4 Files to Crystal Clear 720P</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lingualeap-at-dubai-2020-the-next-language-era/"><u>LinguaLeap at Dubai 2020: The Next Language Era</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-lineage-the-genesis-of-the-dutch-language/"><u>Linguistic Lineage: The Genesis of the Dutch Language</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/quick-fixes-for-why-is-my-honor-100-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Honor 100 Black and White | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-a-native-in-just-minutes-each-day/"><u>Speak Like a Native in Just Minutes Each Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-majority-of-french-users-top-five-francophone-states-analyzed/"><u>The Majority of French Users: Top Five Francophone States Analyzed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukrainian-fluency-mastering-phrases-in-minutes-92-chars/"><u>Ukrainian Fluency: Mastering Phrases in Minutes (92 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-better-spelling-the-most-commonly-misspelled-vocabulary/"><u>Unlocking Better Spelling: The Most Commonly Misspelled Vocabulary</u></a></li>
 </ul></div>
 

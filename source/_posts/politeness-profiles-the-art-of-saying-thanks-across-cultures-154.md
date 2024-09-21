@@ -1,7 +1,7 @@
 ---
 title: "Politeness Profiles: The Art of Saying Thanks Across Cultures (154)"
-date: 2024-09-13T19:10:11.687Z
-updated: 2024-09-16T17:21:45.263Z
+date: 2024-09-16T16:37:52.787Z
+updated: 2024-09-21T17:59:16.405Z
 tags:
   - speak
   - english
@@ -111,33 +111,22 @@ thumbnail: https://thmb.techidaily.com/fae766879cd08ae756a7af9db37ac778f5fbfa89e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/-deep-dive-into-youtube-writers-workshop-space/"><u>[New] A Deep Dive Into YouTube’ Writers' Workshop Space</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-should-itop-screen-recorder-be-a-staple-in-your-kit/"><u>[New] Should ITop Screen Recorder Be a Staple in Your Kit?</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-hack-the-airwaves-mastering-a-viral-solo-podcast/"><u>2024 Approved Hack the Airwaves Mastering a Viral Solo Podcast</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/beginners-guide-to-hanzi/"><u>Beginner's Guide to Hanzi</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/deciding-on-a-more-useful-foreign-language-german-vs-french/"><u>Deciding on a More Useful Foreign Language: German vs French</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/education-elevated-mondlys-investment-in-apple-technology/"><u>Education Elevated: Mondly's Investment in Apple Technology</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/experience-enhanced-user-targeting-through-cookiebots-innovation/"><u>Experience Enhanced User Targeting Through Cookiebot's Innovation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/frequently-learned-overseas-dialects-in-the-usa/"><u>Frequently Learned Overseas Dialects in the USA</u></a></li>
-<li><a href="https://howto.techidaily.com/google-play-services-wont-update-12-fixes-are-here-on-vivo-s17-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Play Services Wont Update? 12 Fixes are Here on Vivo S17 Pro | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-motorola-moto-g04-drfone-by-drfone-virtual-android/"><u>How to Change Netflix Location to Get More Country Version On Motorola Moto G04 | Dr.fone</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-perfect-your-photos-with-text-tips-for-adding-titles-in-microsoft-photos/"><u>In 2024, Perfect Your Photos with Text Tips for Adding Titles in Microsoft Photos</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/italian-essentials-the-100-phrase-voyagers-companion/"><u>Italian Essentials: The 100-Phrase Voyager's Companion</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/selecting-the-most-versatile-european-language-germanfrench/"><u>Selecting the Most Versatile European Language: German/French</u></a></li>
-<li><a href="https://win-forum.techidaily.com/step-by-step-process-for-deleting-windows-10-accounts-with-revo-uninstaller/"><u>Step-by-Step Process for Deleting Windows 10 Accounts with Revo Uninstaller</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/why-mondly-is-your-essential-language-learning-ally/"><u>Why Mondly Is Your Essential Language Learning Ally</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-device-friendly-tutorial-inserting-your-shorts-into-youtube/"><u>[Updated] 2024 Approved Device-Friendly Tutorial Inserting Your Shorts Into YouTube</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-unlocking-audio-potential-download-plus-install-guide-for-vrecorder/"><u>[Updated] 2024 Approved Unlocking Audio Potential - Download + Install Guide for VRecorder</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-unplug-and-replay-twitch-livestream-techniques/"><u>2024 Approved Unplug and Replay Twitch Livestream Techniques</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-fix-errcachemiss-error-in-google-chrome/"><u>How to Fix ERR_CACHE_MISS Error in Google Chrome</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-spot-real-vs-sham-accounts-in-instagram-life/"><u>In 2024, Spot Real Vs. Sham Accounts in Instagram Life</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/languages-of-croatia/"><u>Languages of Croatia</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/meet-the-future-innovative-ai-for-discussion/"><u>Meet the Future: Innovative AI for Discussion</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/samsung-unveils-revolutionary-32gb-ddr5-ic-chips-enabling-future-1tb-memory-sticks/"><u>Samsung Unveils Revolutionary 32GB DDR5 IC Chips, Enabling Future 1TB Memory Sticks</u></a></li>
+<li><a href="https://media-tips.techidaily.com/three-easy-techniques-for-combining-tracks-with-illustrative-images/"><u>Three Easy Techniques for Combining Tracks with Illustrative Images</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-major-french-speakers-belt-worldwide/"><u>Unveiling Major French Speakers' Belt Worldwide</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

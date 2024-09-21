@@ -1,7 +1,7 @@
 ---
 title: Μόρφα Ευγνώμων Γκρεμάν Συστήμα
-date: 2024-09-12T16:22:43.360Z
-updated: 2024-09-16T19:24:14.490Z
+date: 2024-09-14T17:08:21.815Z
+updated: 2024-09-21T19:59:26.621Z
 tags:
   - speak
   - english
@@ -61,6 +61,13 @@ thumbnail: https://thmb.techidaily.com/d386a416e48c7407fcb7aac43bcc48ab905a8aa1d
 * Είμαι ευγνώμων. _(Eímai evgnómon.)_ – I am grateful/thankful.
 * Το εκτιμώ. _(To ektimó.)_ – I appreciate it.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to say ‘please’ and ‘you’re welcome’ in Greek
 
  Are you familiar with the German ‘_Bitte’_ or the Italian ‘_prego’_ that seem to mean everything from ‘please’ to ‘go ahead’ and ‘you’re welcome’?
@@ -70,10 +77,10 @@ thumbnail: https://thmb.techidaily.com/d386a416e48c7407fcb7aac43bcc48ab905a8aa1d
  But let’s not get ahead of ourselves and forget about the formal variation. To address someone older or a group of people, you should use the formal σας παρακαλούμε_(sas parakaloúme)_ . Did you recognize the_σας (sas)_ particle? If yes, then congratulations! That means you’re on the right track.
 
 <!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## When should you say ‘thank you’ in Greek?
@@ -84,19 +91,6 @@ thumbnail: https://thmb.techidaily.com/d386a416e48c7407fcb7aac43bcc48ab905a8aa1d
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<span id="1160850">
-					<video width="576" height="324" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## From 0 to conversational in Greek
 
@@ -128,16 +122,20 @@ thumbnail: https://thmb.techidaily.com/d386a416e48c7407fcb7aac43bcc48ab905a8aa1d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/updated-rev-up-your-mobile-vids-with-top-speed-apps/"><u>[Updated] Rev Up Your Mobile Vids with Top Speed Apps</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/10-minute-daily-dose-of-tagalog-fast-progress-for-busy-lives/"><u>10-Minute Daily Dose of Tagalog: Fast Progress for Busy Lives</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-exploring-5-engaging-book-promo-videos/"><u>2024 Approved Exploring 5 Engaging Book Promo Videos</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-profound-overview-a-full-look-at-bublcam-360-technology/"><u>2024 Approved Profound Overview A Full Look at Bublcam 360 Technology</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/beginners-insights-into-german-letter-forms/"><u>Beginners' Insights Into German Letter Forms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719578557554-beginning-your-second-tongue-get-95-off-and-start-now/"><u>Beginning Your Second Tongue? Get 95% Off and Start Now!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/beyond-bilingualism-reasons-for-embracing-multiple-languages-after-forty-years/"><u>Beyond Bilingualism: Reasons for Embracing Multiple Languages After Forty Years</u></a></li>
-<li><a href="https://solve-helper.techidaily.com/cookiebot-driven-solutions-for-enhanced-web-marketing/"><u>Cookiebot-Driven Solutions for Enhanced Web Marketing</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/easy-access-professional-csr-bluetooth-drivers-for-your-use/"><u>Easy Access: Professional CSR Bluetooth Drivers for Your Use</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/hd-data-rescuer-fixing-file-woes/"><u>HD Data Rescuer: Fixing File Woes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719575871474-quick-catalan-corner-learn-every-day/"><u>Quick Catalan Corner – Learn Every Day!</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-digital-pixels-at-your-command-curve-artfully-for-2024/"><u>[New] Digital Pixels at Your Command Curve Artfully for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/asus-ac88u-gaming-router-a-comprehensive-performance-assessment/"><u>Asus AC88U Gaming Router - A Comprehensive Performance Assessment</u></a></li>
+<li><a href="https://games-able.techidaily.com/bored-dive-into-this-collection-of-speedy-web-games/"><u>Bored? Dive Into This Collection of Speedy Web Games</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/breaking-down-whatsapps-voice-call-features/"><u>Breaking Down WhatsApp's Voice Call Features</u></a></li>
+<li><a href="https://fox-making.techidaily.com/creative-tims-complimentary-paper-dashboard-bootstrap-admin-layout-for-quick-website-development/"><u>Creative Tim's Complimentary Paper Dashboard Bootstrap Admin Layout for Quick Website Development</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-the-newest-drivers-for-epson-stylus-nx42n-windows-7-8-and-10-compatible-options/"><u>Get the Newest Drivers for Epson Stylus NX42n: Windows 7, 8 & 10 Compatible Options</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hello-in-portuguese-and-other-basic-portuguese-greetings-you-need-to-know/"><u>Hello in Portuguese and Other Basic Portuguese Greetings You Need to Know</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-vivo-v27-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On Vivo V27 Pro | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/interacting-with-global-teachers-at-bett-2022/"><u>Interacting with Global Teachers at BETT 2022</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-spanish-tenses-and-verb-patterns/"><u>Mastering Spanish: Tenses & Verb Patterns</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-the-digital-bridge-to-learning-and-growth-for-70-millionplus-users/"><u>Mondly: The Digital Bridge to Learning & Growth for 70 Million+ Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-toward-my-ideal-next-learning-lingual-journey/"><u>Navigating Toward My Ideal Next-Learning Lingual Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/refined-user-policies-for-modern-times/"><u>Refined User Policies for Modern Times</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-11-best-ww2-strategy-games-to-immerse-yourself-in-war/"><u>The 11 Best WW2 Strategy Games to Immerse Yourself in War</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-blueprint-to-climbing-your-way-up-in-youtube-ranks/"><u>The Blueprint to Climbing Your Way Up in YouTube Ranks</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Mondly Mastery: Your Complete User Manual"
-date: 2024-07-12T08:19:08.675Z
-updated: 2024-07-13T08:19:08.675Z
+date: 2024-09-14T19:38:02.496Z
+updated: 2024-09-21T19:21:38.553Z
 tags:
   - speak
   - english
@@ -108,6 +108,13 @@ thumbnail: https://thmb.techidaily.com/ae11f135f58753564eec93a4a8d775f2e6a724fb4
 
 ![language lessons](https://edge.mondly.com/blog/wp-content/uploads/2019/12/language-lessons-1.jpg "Here’s How To Use Mondly And Get The Best Out Of It 9")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  After “Categories”, the next section you can explore is “Lessons”.
 
  Tap on the**“Lessons”** section to see an overview of each lesson – including how much time you’ve spent on it, what’s the completion percentage, how many stars you’ve earned or how many lessons are left in the topic.
@@ -117,6 +124,13 @@ thumbnail: https://thmb.techidaily.com/ae11f135f58753564eec93a4a8d775f2e6a724fb4
 ### 9\. View statistics
 
 ![learning statistics](https://edge.mondly.com/blog/wp-content/uploads/2019/12/learning-statistics-1.jpg "Here’s How To Use Mondly And Get The Best Out Of It 10")
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Tap “Statistics” to see how much you’ve progressed.
 
@@ -153,6 +167,13 @@ Open your web browser and access <www.mondly.com>.
 ### 3\. Choose the language you want to learn
 
 ![mondly select language](https://edge.mondly.com/blog/wp-content/uploads/2019/12/mondly-select-language-2-1024x508.jpg "Here’s How To Use Mondly And Get The Best Out Of It 14")
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Choose one of the 33 languages available.
 
@@ -200,6 +221,13 @@ Now you ready to learn!
 ![mondly web language settings](https://edge.mondly.com/blog/wp-content/uploads/2019/12/mondly-web-language-settings-1024x508.jpg "Here’s How To Use Mondly And Get The Best Out Of It 18")
 
  All your settings in one place.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 7\. View statistics, lesson progress, and compete with the best
 
@@ -258,6 +286,13 @@ Now you ready to learn!
 ![conversation vocabulary](https://edge.mondly.com/blog/wp-content/uploads/2019/12/conversation-vocabulary.jpg "Here’s How To Use Mondly And Get The Best Out Of It 25")
 
  Practice what you’ve learned in the topic with a dedicated conversation and a vocabulary lesson.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Tips and tricks to help you get the best out of Mondly
 
@@ -370,8 +405,6 @@ Now you ready to learn!
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -379,6 +412,20 @@ Now you ready to learn!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-distinguishing-between-youtube-content-control-and-creative-commons-flexibility/"><u>[New] Distinguishing Between YouTube Content Control and Creative Commons Flexibility</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-seamless-screen-record-for-windows-11/"><u>[New] Seamless Screen Record for Windows 11</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-correcting-online-misrepresentation-seeing-yourself-elsewhere/"><u>[Updated] 2024 Approved Correcting Online Misrepresentation Seeing Yourself Elsewhere</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-premium-webcam-guide-5-best-options-with-mic-integration/"><u>[Updated] 2024 Approved Premium Webcam Guide 5 Best Options with Mic Integration</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-is-recording-youtube-videos-prohibited-by-law/"><u>2024 Approved Is Recording YouTube Videos Prohibited by Law?</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-prime-pixels-selecting-cameras-for-quality-slow-videos/"><u>2024 Approved Prime Pixels Selecting Cameras for Quality Slow Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gute-auftaktsatze-im-deutschen-ausgewahlt/"><u>Gute-Auftaktsätze Im Deutschen Ausgewählt</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hello-in-portuguese-all-the-portuguese-greetings-you-need-to-knowback-buttonfilter-button/"><u>Hello In Portuguese - All The Portuguese Greetings You Need To KnowBack ButtonFilter Button</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ring-the-art-and-size-game-your-guide-to-top-tier-yt-banners-for-2024/"><u>Mastering the Art & Size Game Your Guide to Top-Tier YT Banners for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/the-art-of-humor-in-gif-form-mastering-the-most-important-8-creation-methods/"><u>The Art of Humor in GIF Form Mastering the Most Important 8 Creation Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukraines-educational-revolution-mondly-provides-language-lessons-freely/"><u>Ukraine's Educational Revolution: Mondly Provides Language Lessons, Freely</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-choice-todays-apple-favorite/"><u>Worldwide Choice: Today's Apple Favorite</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-spring-celebration-dialogues/"><u>Worldwide Spring Celebration Dialogues</u></a></li>
+</ul></div>
 

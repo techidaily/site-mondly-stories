@@ -1,7 +1,7 @@
 ---
 title: "Dive Into French Idioms: Elevating Your Speech Quality"
-date: 2024-07-12T08:18:49.864Z
-updated: 2024-07-13T08:18:49.864Z
+date: 2024-09-14T16:18:42.243Z
+updated: 2024-09-21T17:58:35.567Z
 tags:
   - speak
   - english
@@ -93,6 +93,19 @@ _– Je ne sais pas si je dois accepter ou pas._ (“I don’t know if I should 
  –_Je pense que je_ _n_   _e parviendrai jamais à parler français comme un natif._ (“I don’t think I will ever manage to speak French like a native.”)
 
  –_Vouloir, c’est pouvoir._ (“Where there’s a will, there’s a way.”)
+
+<!-- affiliate ads begin -->
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### _6\. Impossible n’est pas français._
 
@@ -214,6 +227,13 @@ _–_   _Je suis tellement content que nous soyons arrivés en France en toute s
 
  –_L’appétit vient en mangeant._ (“Appetite comes with eating.”)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### _2\. Mangez bien, riez souvent, aimez beaucoup._
 
 **Literal translation:** “Eat well, laugh often, love a lot.”
@@ -222,7 +242,21 @@ _–_   _Je suis tellement content que nous soyons arrivés en France en toute s
 
 ![french proverbs](https://edge.mondly.com/blog/wp-content/uploads/2020/07/french-proverbs-960x540.jpg "27 French Sayings And Idioms That Will Make You Sound French-Born 4")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  “Take care of your own onions” by MILKOVÍ©
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### _3\. S’occuper de ses oignons._
 
@@ -320,6 +354,13 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
 
 **Actual meaning:** Talkers are not always doers. The one who talks the most is not always the smartest or the most resourceful.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### _7\. Peigner la girafe._
 
 **Literal translation:** “To comb the giraffe.”
@@ -355,8 +396,6 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -364,6 +403,19 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/new-asus-proart-pa-329q-evaluation-the-highest-quality-in-4k-professional-displays/"><u>[New] Asus ProArt PA 329Q Evaluation – The Highest Quality in 4K Professional Displays</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/resolved-mhw-crash-code-12-graphics-armageddon-ended/"><u>[Resolved] MHW Crash Code 12 - Graphics Armageddon Ended</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-gigglegif-genius/"><u>[Updated] GiggleGif Genius</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-10-leading-video-conferencing-software-for-phonespcs/"><u>[Updated] In 2024, 10 Leading Video Conferencing Software for Phones/PCs</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/complete-guide-blocking-spam-messages-on-your-iphone/"><u>Complete Guide: Blocking Spam Messages on Your iPhone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/crafting-powerful-hashtags-for-fb-brand-identity-for-2024/"><u>Crafting Powerful Hashtags for FB Brand Identity for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/honterus-championing-greatness-in-others/"><u>Honterus: Championing Greatness in Others</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-apple-iphone-se-to-chromecast-drfone-by-drfone-ios/"><u>In 2024, How to Cast Apple iPhone SE to Chromecast? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/recent-privacy-policy-shift-insights/"><u>Recent Privacy Policy Shift Insights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-your-life-through-hindi-discover-8-compelling-mondly-benefits/"><u>Transform Your Life Through Hindi: Discover 8 Compelling Mondly Benefits!</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/wave-seekers-guide-to-action-cams-of-2023-for-2024/"><u>Wave Seekers’ Guide to Action Cams of 2023 for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/which-foreign-language-offers-greater-utility-german-or-french/"><u>Which Foreign Language Offers Greater Utility: German or French</u></a></li>
+</ul></div>
 

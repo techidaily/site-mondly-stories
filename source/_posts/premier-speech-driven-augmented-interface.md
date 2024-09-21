@@ -1,7 +1,7 @@
 ---
 title: Premier Speech-Driven Augmented Interface
-date: 2024-09-15T19:18:32.669Z
-updated: 2024-09-16T19:23:00.779Z
+date: 2024-09-16T20:07:03.626Z
+updated: 2024-09-21T19:02:19.896Z
 tags:
   - speak
   - english
@@ -71,10 +71,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 * [Mondly Press Kit](https://www.dropbox.com/sh/vo4j5214zvwdxy5/AAC20VxIgpuiEe7ED2%5F37VNEa?dl=0)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Media mentions about Mondly
@@ -106,17 +106,14 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-unique-conversation-starters-for-streaming/"><u>[New] 2024 Approved Unique Conversation Starters for Streaming</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-8-free-online-courses-for-beginner-youtube-creators/"><u>2024 Approved 8 Free Online Courses for Beginner YouTube Creators</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/4-heritages-francais-un-souhait-de-grace/"><u>4 Héritages Français: Un Souhait De Grâce</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-compre-written-guide-to-germanys-most-common-thanks-expressions/"><u>A Compre Written Guide to Germany’s Most Common Thanks Expressions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/abordagem-do-portugues-cada-frase-conta-uma-historia/"><u>Abordagem Do Português: Cada Frase Conta Uma História</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cupids-conversations-crafting-charms-in-italian/"><u>Cupid’s Conversations: Crafting Charms in Italian</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-can-oppo-f25-pro-5gmirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Oppo F25 Pro 5GMirror Share to PC? | Dr.fone</u></a></li>
-<li><a href="https://video-capture.techidaily.com/in-2024-innovative-approaches-to-elevate-your-obs-studio-workflow/"><u>In 2024, Innovative Approaches to Elevate Your OBS Studio Workflow</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-7-phone-number-locators-to-track-sony-xperia-1-v-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Phone Number Locators To Track Sony Xperia 1 V Location | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-two-ways-to-track-my-boyfriends-samsung-galaxy-s23plus-without-him-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Two Ways to Track My Boyfriends Samsung Galaxy S23+ without Him Knowing | Dr.fone</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/ranking-the-leading-10-pixels-for-free-access-for-2024/"><u>Ranking the Leading 10 Pixels for Free Access for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/the-ultimate-guide-to-the-highest-rated-conference-recorders-for-2024/"><u>The Ultimate Guide to the Highest Rated Conference Recorders for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-enhancing-accuracy-tiktok-age-adjustment-for-2024/"><u>[Updated] Enhancing Accuracy TikTok Age Adjustment for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-enhanced-productivity-learn-to-record-your-mac-screen/"><u>[Updated] In 2024, Enhanced Productivity Learn to Record Your Mac Screen</u></a></li>
+<li><a href="https://fox-zaraz.techidaily.com/1-ultimate-angular-ui-toolkit-pro-advanced-bootstrap-compatible-frontend-framework-by-creative-tim/"><u>1. Ultimate Angular UI Toolkit Pro: Advanced Bootstrap-Compatible Frontend Framework by Creative Tim</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ddpai-mini3-dashcam-a-surprisingly-entertaining-journey-on-the-roads/"><u>DDPai Mini3 Dashcam - A Surprisingly Entertaining Journey on the Roads</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-spotify-location-after-moving-to-another-country-on-samsung-galaxy-a05s-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Spotify Location After Moving to Another Country On Samsung Galaxy A05s | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-a-lost-honor-x50i-for-free-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track a Lost Honor X50i for Free? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speed-up-your-understanding-of-numerical-japan/"><u>Speed-Up Your Understanding of Numerical Japan</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-francophiles-treasure-chest-of-104plus-travel-phrases/"><u>The Francophile's Treasure Chest of 104+ Travel Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-language-trends-globally/"><u>Top Language Trends Globally</u></a></li>
 </ul></div>
 

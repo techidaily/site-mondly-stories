@@ -1,7 +1,7 @@
 ---
 title: "Polite Pleas in China: Understanding Xièxiè and More"
-date: 2024-07-12T08:19:15.107Z
-updated: 2024-07-13T08:19:15.107Z
+date: 2024-09-14T18:19:41.991Z
+updated: 2024-09-21T20:10:35.620Z
 tags:
   - speak
   - english
@@ -80,6 +80,13 @@ Other variations include:
 
  In fact, Chinese culture is known for its preference for modesty and humility. Deflecting a compliment rather than accepting it with a plain “thank you” is much more appreciated. Thus, another way to deflect a compliment (while secretly enjoying it) is to say 没有没有_méiyǒu méiyǒu_ – meaning “no, no, that’s nonsense”.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## BONUS: You’re welcome in Chinese
 
  If you want to respond to someone’s thanks with “you’re welcome” in Chinese, you can say 不客气_bù kèqì._
@@ -92,6 +99,13 @@ Other variations include:
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Here’s how to speak Chinese in just 10 minutes a day
 
@@ -111,8 +125,6 @@ Other variations include:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -120,6 +132,19 @@ Other variations include:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-choosing-between-two-titans-obs-and-bandicam/"><u>[New] Choosing Between Two Titans OBS and Bandicam</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-exclusive-selection-of-8-online-sites-featuring-golden-text-in-3d/"><u>[Updated] Exclusive Selection of 8 Online Sites Featuring Golden Text in 3D</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1-revitalize-your-online-identity-top-5-indicators-its-time-to-update-your-email/"><u>1. Revitalize Your Online Identity: Top 5 Indicators It's Time to Update Your Email</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/best-free-cloud-options-get-unlimited-storage-1tbplus/"><u>Best Free Cloud Options Get Unlimited Storage (1TB+)</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/co-listening-is-it-possible-for-two-people-to-stream-on-spotify-at-once/"><u>Co-Listening: Is It Possible for Two People to Stream on Spotify at Once?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-say-happy-4th-of-july-in-different-languages/"><u>How to Say ‘Happy 4Th of July’ in Different Languages</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-honor-play-8t-phone-password-without-factory-reset-by-drfone-android/"><u>How to Unlock Honor Play 8T Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-constraints-the-grammar-factor/"><u>Learning Constraints: The Grammar Factor?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-new-languages-easier-with-mondly-the-top-app-of-2022/"><u>Navigating New Languages Easier with Mondly, the Top App of 2022</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/upgraded-legal-notice-on-our-platform/"><u>Upgraded Legal Notice on Our Platform</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/voice-dominance-in-asia-trimodal-popularity-spotlight/"><u>Voice Dominance in Asia: Trimodal Popularity Spotlight</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/what-is-the-role-of-hugbing-face-in-machine-learning-and-how-is-it-utilized/"><u>What Is the Role of Hugbing Face in Machine Learning and How Is It Utilized?</u></a></li>
+</ul></div>
 

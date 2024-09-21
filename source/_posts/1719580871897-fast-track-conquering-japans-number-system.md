@@ -1,7 +1,7 @@
 ---
 title: "Fast Track: Conquering Japan's Number System!"
-date: 2024-07-12T08:22:28.489Z
-updated: 2024-07-13T08:22:28.489Z
+date: 2024-09-16T19:39:18.146Z
+updated: 2024-09-21T17:54:17.034Z
 tags:
   - speak
   - english
@@ -144,6 +144,13 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
 ![numbers in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/11/numbers-in-japanese-960x647.jpeg "Counting In Japanese From 1 To 10000 9")
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Japanese Lucky Numbers
 
  The two main**Japanese lucky numbers are seven (なな, Nana) and eight (はち, Hachi).** Given this, do you think the names of two of the most popular Japanese animal characters in the world were merely coincidental? We’re talking, of course, about the cat Nana from_The Travelling Cat Chronicles_ by Hiro Arikawa and Hachi from_Hachiko: The True Story of a Loyal Dog_ by Pamela S. Turner.
@@ -166,15 +173,36 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
  o clearly indicate that you are referring to seconds, minutes, hours, months, or years, you must use specific counters in Japanese. Seconds are expressed with \~秒_(_ _byou)_ , minutes with \~分_(fun or pun)_ , hours with \~時_(ji)_ , months with \~月_(getsu)_ , and years with \~年_(nen)_ .
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Japanese counters for people
 
  To count people in Japanese, use the counter ひとり_(hitori)_ for one person, ふたり_(futari)_ for two people, and \~人_(nin)_ for three or more people.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Japanese objects counters
 
  Long and thin objects, such as pencils, bottles, chopsticks, umbrellas, rivers, train tracks, or roads, have their own Japanese counter: \~本_(hon)_ . When counting these objects, all numbers end in_\-hon_ , except for 3, which ends in –_bon_ , and the numbers 1, 6, 8, and 10, which end in_\-pon_ . Although this might seem overwhelming initially, practice will help you master these exceptions more quickly.
 
  To count small and round objects like apples or tennis balls, you must use the \~個_(ko)_ counter. Conversely, to count thin and flat objects (such as sheets of paper, plates, or articles of clothing), you should use the まい_(mai)_ counter.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Japanese counters for animals
 
@@ -191,6 +219,13 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
  If you’re not overwhelmed yet, for cars, machines, and all types of household appliances, the counter \~台_(dai)_ is necessary.
 
  Not ready to dive into**Japanese counters** yet? Then consider using the general-purpose counter based on the Native-Japanese reading (一つ_hitotsu ,_ 二つ_futatsu_ and so on). This system allows you to count almost any kind of object up to ten without worrying about using the incorrect counter.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Special Number Zero in Japanese
 
@@ -237,8 +272,6 @@ Before you go, make sure you check out these FAQs.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -246,6 +279,18 @@ Before you go, make sure you check out these FAQs.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-superior-commercial-cloud-vaulting/"><u>[Updated] 2024 Approved Superior Commercial Cloud Vaulting</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/authority-list-top-10-sports-and-football-streaming-applications-cutting-edge/"><u>Authority List Top 10 Sports & Football Streaming Applications, Cutting Edge</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/comprehensive-review-of-brother-wireless-hl-l2/"><u>Comprehensive Review of Brother Wireless HL-L2</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/engaging-with-locals-understanding-indonesian-salutations/"><u>Engaging with Locals: Understanding Indonesian Salutations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhanced-terms-and-policies-unveiled/"><u>Enhanced Terms and Policies Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/excellence-in-e-learning-mondly-sets-the-standard/"><u>Excellence in E-Learning: Mondly Sets the Standard</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-herzensbedauerndes-ausdrucken/"><u>German: Herzensbedauerndes Ausdrücken</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/hp-officejet-3830-printer-driver-download-for-windows/"><u>HP OfficeJet 3830 Printer Driver Download for Windows</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-screen-play-perfect-apples-no1-top-8-movie-app-guide/"><u>In 2024, Screen Play Perfect Apple's No.1, Top 8 Movie App Guide</u></a></li>
+<li><a href="https://extra-support.techidaily.com/mastering-color-grading-with-ease-a-compreranble-guide-for-pscc-users-for-2024/"><u>Mastering Color Grading with Ease A Compreranble Guide for PSCC Users for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/mastering-the-art-of-iphonegraphy-expert-techniques-for-efficiently-processing-and-resolving-photo-related-difficulties/"><u>Mastering the Art of iPhonegraphy: Expert Techniques for Efficiently Processing & Resolving Photo-Related Difficulties</u></a></li>
+</ul></div>
 

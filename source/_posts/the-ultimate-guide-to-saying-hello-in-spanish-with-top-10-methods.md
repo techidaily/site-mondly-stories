@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide To Saying 'Hello' In Spanish With Top 10 Methods
-date: 2024-09-11T18:40:03.047Z
-updated: 2024-09-16T16:43:27.832Z
+date: 2024-09-15T20:07:04.339Z
+updated: 2024-09-21T16:52:47.267Z
 tags:
   - speak
   - english
@@ -61,10 +61,10 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
 **¿Cómo va?** – it translates to “how is it going?” and you can also add “todo” at the end – ¿cómo va todo? – to expand its meaning to “how is it all going?
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## “Yes”, “please” and “thank you” in Spanish
@@ -79,19 +79,6 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
 * I’m sorry – Lo siento
 * I have/I don’t have – Tengo/No tengo
 * Nice to meet you – Encantado/Encantada de conocerte
-
-<!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Goodbye in Spanish
 
@@ -109,6 +96,13 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
  Or as The Terminator would say:**Hasta la vista, baby!**
 
 ![hasta la vista](https://media.giphy.com/media/2oVfyRHk1EuRy/giphy-downsized-large.gif "Hello In Spanish And Other Basic Spanish Greetings You Need To Know 4")
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Not sure you understand how Spanish accents work? Check out our [article on how to master them all](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
@@ -142,20 +136,18 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-keyboard-shortcuts-that-power-up-win11/"><u>[New] In 2024, Keyboard Shortcuts That Power Up Win11</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-mp4-file-capture-comparative-study-and-reviews/"><u>[New] MP4 File Capture Comparative Study & Reviews</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-top-picks-for-zero-cost-film-and-photography-resources/"><u>[New] Top Picks for Zero-Cost Film and Photography Resources</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-ultimate-list-premium-voice-modifiers-for-virtual-creators/"><u>[Updated] In 2024, Ultimate List Premium Voice Modifiers for Virtual Creators</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-tailoring-your-playstation-experience-with-sounds/"><u>[Updated] Tailoring Your PlayStation Experience with Sounds</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/affectionate-artistry-romeo-rhetoric/"><u>Affectionate Artistry: Romeo Rhetoric</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/aprende-el-calendario-semanal-espanol/"><u>Aprende El Calendario Semanal Español</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/aprendendo-gritos-de-alegria-em-portugues-conhecimento-essencial/"><u>Aprendendo Gritos De Alegria Em Português - Conhecimento Essencial</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/conquering-language-assessments-key-certifications-unveiled/"><u>Conquering Language Assessments: Key Certifications Unveiled</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/deciphering-similarities-in-uk-and-rus-linguistics/"><u>Deciphering Similarities in Uk & Rus Linguistics</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/easy-steps-to-speak-like-a-swede/"><u>Easy Steps to Speak Like a Swede</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719578582227-hello-in-german-10plus-german-greetings-beyond-hallo/"><u>Hello In German: 10+ German Greetings Beyond Hallo</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/nvidia-driver-update-geforce-gtx-1060-drivers-download-and-update/"><u>Nvidia Driver Update | GeForce GTX 1060 Drivers Download and Update</u></a></li>
-<li><a href="https://win-answers.techidaily.com/resolve-your-pc-issues-with-resident-evil-village-a-comprehensive-guide/"><u>Resolve Your PC Issues with Resident Evil Village: A Comprehensive Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/speed-vs-snapshots-unveiling-the-pros-and-cons-of-oneplus-8t-camera-capabilities/"><u>Speed Vs. Snapshots: Unveiling the Pros and Cons of OnePlus 8T Camera Capabilities</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-reacting-to-self-viewer-errors-on-popular-social-networks/"><u>[New] In 2024, Reacting to Self-Viewer Errors on Popular Social Networks</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/elite-circuit-experiences-best-five-titles-for-2024/"><u>Elite Circuit Experiences Best Five Titles for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-language-popularity-top-15-ranking/"><u>Global Language Popularity: Top 15 Ranking</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/greeting-the-weekdays-in-korean-with-ease/"><u>Greeting the Weekdays in Korean with Ease</u></a></li>
+<li><a href="https://win11.techidaily.com/guide-to-windows-11s-security-and-credentials-panel/"><u>Guide to Windows 11'S Security & Credentials Panel</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-mastering-facebook-page-visibility-key-techniques/"><u>In 2024, Mastering Facebook Page Visibility Key Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/russian-math-breakdown-for-beginners/"><u>Russian Math Breakdown for Beginners</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/starting-stronger-exploring-the-best-15-video-intros-for-2024/"><u>Starting Stronger Exploring the Best 15 Video Intros for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tempting-terms-a-multilingual-chocolate-lexicon/"><u>Tempting Terms: A Multilingual Chocolate Lexicon</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-ultimate-guide-essential-gadgets-and-accessories-for-summer-days-out/"><u>The Ultimate Guide: Essential Gadgets and Accessories for Summer Days Out</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-20-francophone-reads-for-aspiring-bookworms/"><u>Top 20 Francophone Reads for Aspiring Bookworms</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/troubleshooting-guide-resolving-issues-with-unresponsive-fire-stick-remote/"><u>Troubleshooting Guide: Resolving Issues with Unresponsive Fire Stick Remote</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/understanding-artificial-intelligence-chatbot-filtering-impact-on-users/"><u>Understanding Artificial Intelligence Chatbot Filtering: Impact on Users</u></a></li>
 </ul></div>
 

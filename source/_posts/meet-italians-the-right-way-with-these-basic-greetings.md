@@ -1,7 +1,7 @@
 ---
 title: Meet Italians the Right Way with These Basic Greetings
-date: 2024-09-11T18:36:01.321Z
-updated: 2024-09-16T17:14:08.581Z
+date: 2024-09-15T18:31:07.726Z
+updated: 2024-09-21T20:17:08.591Z
 tags:
   - speak
   - english
@@ -48,6 +48,13 @@ _Ciao_ is undeniably the most common Italian greeting. In fact, I’d say it is 
 **Good night in Italian** –_Buonanotte!_ (it isn’t used only as a bedtime expression. Italians say_Buonanotte_ when they meet someone in the late evening.)  
  All four of these greetings are safe to use in any kind of formal or informal interaction.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **3\. How to say** “**goodbye** ”**in Italian**
 
 **_Arrivederci_** is the most common way to say**“goodbye” in Italian.** The same as_Ciao_ , it can be used safely in all kinds of social contexts (formal or informal).  
@@ -61,13 +68,6 @@ _Ciao_ is undeniably the most common Italian greeting. In fact, I’d say it is 
 * See you tomorrow. –_A domani._
 * See you soon. –_A presto._
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4\. Other basic Italian phrases that you should know
 
  If you want to travel to Italy, you should know that this is where you’ll meet one of the kindest, friendliest and most talkative people in Europe. Don’t believe us? Well, hear this! If you are familiar enough, the Italians will even give you an_bacio sulla guancia_ (kiss on the cheek). Careful though! Not every social interaction calls for a cheek kiss. So don’t take the first step yet. In time, you will learn the proper Italian behavior.
@@ -75,10 +75,10 @@ _Ciao_ is undeniably the most common Italian greeting. In fact, I’d say it is 
  The bottom line is that one week in Italy is enough to fill yourself with positive energy and joy ![**Learn Italian**](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , book your trip and see for yourself.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123477/16836" target="_top" id="2123477">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123477" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123477/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Now let us go back to the point. Here are a few sentences you could use for a**basic conversation in Italian:**
@@ -141,17 +141,17 @@ _Ciao_ is undeniably the most common Italian greeting. In fact, I’d say it is 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-uploading-and-sharing-gifs-on-instagram-step-by-step-approach-for-2024/"><u>[New] Uploading & Sharing GIFs on Instagram Step-by-Step Approach for 2024</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-mend-facebook-story-playback-pauses/"><u>[Updated] 2024 Approved Mend Facebook Story Playback Pauses</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/accueils-charmants-en-langue-francaise/"><u>Accueils Charmants en Langue Française</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/breaking-down-the-language-learning-process-timeline/"><u>Breaking Down The Language Learning Process Timeline</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cognitive-rejuvenation-through-linguistics/"><u>Cognitive Rejuvenation Through Linguistics</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/deutschsprachige-wochen-namen-lernen/"><u>Deutschsprachige Wochen-Namen Lernen</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discover-global-communication-with-google-endorsed-language-tools-mondly/"><u>Discover Global Communication with Google-Endorsed Language Tools - Mondly</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-change-tecno-pova-5-pro-lock-screen-password-by-drfone-android/"><u>How To Change Tecno Pova 5 Pro Lock Screen Password?</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-navigating-the-clouds-and-crowds-stream-from-dji-to-facebook/"><u>In 2024, Navigating the Clouds and Crowds Stream From DJI to Facebook</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/the-startups-secret-weapon-kit-must-have-items-that-set-you-apart-for-2024/"><u>The Startup's Secret Weapon Kit Must-Have Items That Set You Apart for 2024</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/unlock-clear-zoom-video-2024s-camera-repair-guide/"><u>Unlock Clear Zoom Video - 2024'S Camera Repair Guide</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-infinix-note-30-vip-racing-edition-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On Infinix Note 30 VIP Racing Edition? | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-mastering-slow-motion-capture-with-android-a-beginners-guide-for-2024/"><u>[New] Mastering Slow-Motion Capture with Android A Beginner's Guide for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-how-to-leverage-longer-vids-on-instagram-effectively/"><u>[Updated] 2024 Approved How to Leverage Longer Vids on Instagram Effectively</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-become-a-pro-editor-in-seconds-canvas-essential-secrets/"><u>2024 Approved Become a Pro Editor in Seconds Canva's Essential Secrets</u></a></li>
+<li><a href="https://blog-min.techidaily.com/discover-the-top-3-free-solutions-as-alternates-to-windows-media-center-on-windows-11-systems/"><u>Discover the Top 3 Free Solutions as Alternates to Windows Media Center on Windows 11 Systems</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722976740161-get-your-hands-on-hp-elitebook-x360-1030-g2-compatible-driver-pack-available-now/"><u>Get Your Hands on HP EliteBook X360 (1030 G2) - Compatible Driver Pack Available Now!</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-capture-spectacular-video-on-youtube-top-webcam-picks/"><u>In 2024, Capture Spectacular Video on YouTube Top Webcam Picks</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/tart-your-youtube-channel-growth-with-key-editing-skills-from-sony-vegas/"><u>Jumpstart Your YouTube Channel Growth with Key Editing Skills From Sony Vegas</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leading-global-linguistic-studies-abroad/"><u>Leading Global Linguistic Studies Abroad</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-outshines-competitors-germanys-language-utopia/"><u>Mondly Outshines Competitors - Germany’s Language Utopia</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/overcoming-the-challenge-of-a-non-opening-realtek-audio-device-controller/"><u>Overcoming the Challenge of a Non-Opening Realtek Audio Device Controller</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/santa-speaks-many-language-lessons-unlocked/"><u>Santa Speaks Many: Language Lessons Unlocked</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-verb-conjugation-regular-and-irregular-verbs/"><u>Spanish Verb Conjugation: Regular and Irregular Verbs</u></a></li>
 </ul></div>
 

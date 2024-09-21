@@ -1,7 +1,7 @@
 ---
 title: Vermeidung Von Falschen Deutschen Entschuldigungen
-date: 2024-09-11T16:20:27.208Z
-updated: 2024-09-16T17:22:37.856Z
+date: 2024-09-18T16:50:33.708Z
+updated: 2024-09-21T17:06:16.458Z
 tags:
   - speak
   - english
@@ -47,10 +47,10 @@ Here are some practical examples of apologies in German:
  Hear the formal_Entschuldigen Sie_ in action in this basic conversation in German:
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Other ways to say sorry in German
@@ -96,10 +96,16 @@ Here are some practical examples of apologies in German:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### From 0 to conversational in German
@@ -133,17 +139,20 @@ Here are some practical examples of apologies in German:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-dial-up-your-digital-presence-tips-for-confident-video-creators/"><u>[New] 2024 Approved Dial Up Your Digital Presence Tips for Confident Video Creators</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-precision-and-speed-the-ultimate-guide-to-mac-srt-editing/"><u>[Updated] In 2024, Precision and Speed The Ultimate Guide to Mac Srt Editing</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/4-reasons-why-you-should-learn-a-language-in-your-forties/"><u>4 Reasons Why You Should Learn A Language In Your Forties</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/android-call-history-recovery-recover-deleted-call-logs-from-smart-8-plus-by-fonelab-android-recover-call-logs/"><u>Android Call History Recovery - recover deleted call logs from Smart 8 Plus</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bangla-basics-a-10-minute-daily-regimen/"><u>Bangla Basics: A 10-Minute Daily Regimen</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/budget-masterclass-review-caixuns-stellar-performance-on-a-4k-75-inch-android-tv-set/"><u>Budget Masterclass Review: Caixun's Stellar Performance on a 4K, 75-Inch Android TV Set</u></a></li>
-<li><a href="https://fox-http.techidaily.com/from-abrupt-shifts-to-serene-journeys-expert-crossfade-guidance-with-audacity-for-2024/"><u>From Abrupt Shifts to Serene Journeys Expert Crossfade Guidance with Audacity for 2024</u></a></li>
-<li><a href="https://driver-download.techidaily.com/how-to-install-corsair-k70-mouse-firmware-download-guide-and-steps/"><u>How to Install Corsair K70 Mouse Firmware: Download Guide and Steps</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/introducing-10-various-ways-to-communicate-hello-in-spanish/"><u>Introducing 10 Various Ways to Communicate 'Hello' In Spanish</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/joyful-latin-teaching-approaches/"><u>Joyful Latin Teaching Approaches</u></a></li>
-<li><a href="https://article-files.techidaily.com/luxury-makeup-techniques-unveiled-for-2024/"><u>Luxury Makeup Techniques Unveiled for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-merges-with-pearson-academic-consortium/"><u>Mondly Merges With Pearson Academic Consortium</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-essential-playgrounds-for-virtual-escapades/"><u>[New] 2024 Approved Essential Playgrounds for Virtual Escapades</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-transform-ideas-into-engaging-movies-using-youtube-editor/"><u>[Updated] In 2024, Transform Ideas Into Engaging Movies Using YouTube Editor</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grasping-german-is-it-tough-to-grasp/"><u>Grasping German: Is It Tough to Grasp?</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-pioneering-techniques-in-health-and-wellness-fb-campaigns/"><u>In 2024, Pioneering Techniques in Health & Wellness FB Campaigns</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-ultimate-action-camera-selection-under-100/"><u>In 2024, Ultimate Action Camera Selection Under $100</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-review-experience-with-ampaqs-new-andes-1500-mobile-power-unit/"><u>In-Depth Review: Experience with Ampaq's New Andes 1500 Mobile Power Unit</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/its-not-used-for-cad-design-processing-as-that-is-a-digital-task-unrelated-to-physical-welding-techniques/"><u>It's Not Used for CAD Design Processing, as that Is a Digital Task Unrelated to Physical Welding Techniques.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-languages-via-sound-science-effective-musical-methods/"><u>Learn Languages via Sound Science: Effective, Musical Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polyphonic-progress-embrace-language-mastery-via-virtual-realms/"><u>Polyphonic Progress: Embrace Language Mastery via Virtual Realms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sovac-slovaci-language-journey-unfolding-one-quick-lesson-daily/"><u>Sovac Slováci - Language Journey Unfolding, One Quick Lesson Daily!</u></a></li>
+<li><a href="https://techtrends.techidaily.com/step-by-step-guide-to-fixing-the-missing-advrcntr2dll-error-for-nero-users/"><u>Step-by-Step Guide to Fixing the Missing Advrcntr2.dll Error for Nero Users</u></a></li>
+<li><a href="https://windows11.techidaily.com/turbo-valorant-setup-escape-the-01kbs-download-drought/"><u>Turbo Valorant Setup: Escape the 0.1KB/S Download Drought</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-education-animation-is-useful-for-parents-teachers-and-students-check-it-for-you/"><u>Updated Education Animation Is Useful for Parents, Teachers and Students. Check It for You</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/your-step-by-step-spanish-verb-learning-journey/"><u>Your Step-by-Step Spanish Verb Learning Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/synapseis-eyxes-politikhs-gkreman/"><u>Συνάψεις Ευχές Πολιτικής Γκρεμάν</u></a></li>
 </ul></div>
 

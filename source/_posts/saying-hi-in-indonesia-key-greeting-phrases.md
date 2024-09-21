@@ -1,7 +1,7 @@
 ---
 title: "Saying Hi in Indonesia: Key Greeting Phrases"
-date: 2024-09-09T17:21:43.065Z
-updated: 2024-09-16T18:07:42.204Z
+date: 2024-09-18T17:25:20.675Z
+updated: 2024-09-21T20:19:01.998Z
 tags:
   - speak
   - english
@@ -46,13 +46,6 @@ thumbnail: https://thmb.techidaily.com/5f29ab47c82493b144af09fd3ee1e6f095ceaed40
 
 Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Indonesian greetings for different times of day
 
  Like [most languages](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , Indonesian also has some specific greetings dedicated to different times of the day. While in English, we begin every such greeting with “good”, in Indonesian_selamat_ is the word we use to wish people a “happy”, “peaceful” or “safe” day.
@@ -66,10 +59,10 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 ![indonesian words](https://edge.mondly.com/blog/wp-content/uploads/2022/07/indonesian-words.png "Hello In Indonesian: A Quick Guide To Indonesian Greetings 2")
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The same way we say “morning!’ in English, Indonesians sometimes drop the_selamat_ . This results in a very informal greeting that can be used with friends and family.
@@ -77,6 +70,13 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
  Determining the correct time of the day during which you should use a certain greeting is somehow tricky. However, most people will agree that_selamat pagi_ is best used until 11 p.m. and_selamat siang_ until 3 p.m._Selamat sore_ and_selamat malam_ highly depend on the daylight so it’s best to adjust your greetings on the spot.
 
  Naturally,_selamat tidur_ is only used when someone is retiring for the night.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to say goodbye
 
@@ -120,18 +120,13 @@ Get Mondly today and learn Indonesian naturally with the following:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-streamline-your-seminars-economical-tech-tips/"><u>[New] Streamline Your Seminars Economical Tech Tips</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/new-unleash-the-full-potential-of-discord-mastering-message-pinning-for-2024/"><u>[New] Unleash the Full Potential of Discord Mastering Message Pinning for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-blueprint-for-producing-high-impact-youtube-videos/"><u>[Updated] The Blueprint for Producing High-Impact YouTube Videos</u></a></li>
-<li><a href="https://apple-account.techidaily.com/3-ways-of-how-to-get-someones-apple-id-off-iphone-14-pro-without-password-by-drfone-ios/"><u>3 Ways of How to Get Someones Apple ID Off iPhone 14 Pro without Password</u></a></li>
-<li><a href="https://win11.techidaily.com/cm-3/"><u>動画素材中のCMパターンを見つけ出せ: 3つのスニファリティ方法</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579847747-a-beginners-guide-to-the-german-pronunciation-and-alphabet/"><u>A Beginner’s Guide to the German Pronunciation & Alphabet</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/belgian-babel-how-many-tongues-does-it-wield/"><u>Belgian Babel: How Many Tongues Does It Wield?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/breaking-language-barriers-oculus-quest-and-mondly/"><u>Breaking Language Barriers: Oculus Quest & 'Mondly'</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/echosphere-immersive-language-acquisition-in-vr/"><u>EchoSphere: Immersive Language Acquisition in VR</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-the-authoritative-guide-to-generating-srt-files-with-expert-tips/"><u>In 2024, The Authoritative Guide to Generating SRT Files with Expert Tips</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-xiaomi-redmi-note-13-5g-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For Xiaomi Redmi Note 13 5G Phones</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-depth-look-at-the-finest-free-srt-translation-tools-available-online-for-2024/"><u>In-Depth Look at the Finest Free SRT Translation Tools Available Online for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/understanding-fraudgpt-a-guide-on-staying-safe-from-this-hackers-bot/"><u>Understanding FraudGPT: A Guide on Staying Safe From This Hacker's Bot</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-analyzing-user-interface-and-features-in-youtube-mobile-app/"><u>[Updated] Analyzing User Interface and Features in YouTube Mobile App</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-how-to-pick-a-preferred-screen-recorder-app/"><u>2024 Approved How to Pick a Preferred Screen Recorder App</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/electric-chevy-blazer-launching-in-year-new-zero-emissions-suv-with-an-impressive-320-mile-range/"><u>Electric Chevy Blazer Launching in [Year] - New Zero-Emissions SUV with an Impressive 320-Mile Range</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/getting-your-redragon-usb-mic-up-and-running-on-windows-computers/"><u>Getting Your Redragon USB Mic Up & Running on Windows Computers</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-itel-a05s-drfone-by-drfone-virtual-android/"><u>In 2024, Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Itel A05s | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-as-an-aging-advantage/"><u>Language Learning as an Aging Advantage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/uk-slang-decoded-unveiling-the-local-language/"><u>UK Slang Decoded: Unveiling the Local Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-understanding-turkey-and-korea/"><u>Unlocking Understanding: Turkey & Korea</u></a></li>
 </ul></div>
 

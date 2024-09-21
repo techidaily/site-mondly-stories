@@ -1,7 +1,7 @@
 ---
 title: "Italian Dialogues: Key Phrases to Enhance Your Visit"
-date: 2024-09-09T17:19:03.003Z
-updated: 2024-09-16T19:28:00.249Z
+date: 2024-09-14T17:59:49.838Z
+updated: 2024-09-21T20:10:39.650Z
 tags:
   - speak
   - english
@@ -104,13 +104,6 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 * I would like a coffee. –_Vorrei un caffè._
 * Can I have some ice cream? –_Posso prendere il gelato?_
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123470/16836" target="_top" id="2123470">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123470" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123470/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4\. Basic Italian for tourists who need a place to spend the night
 
  Looking for the perfect accommodation can be a real headache sometimes. Well, imagine you did find it, but the hosts only speak Italian. How will you deal with that? Some**basic Italian** would surely be useful in this situation.
@@ -124,18 +117,18 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 * Very pleasant, thank you. –_Molto piacevole, grazie._
 * Here is your bill, please look it over. –_Ecco il suo conto, per favore lo controlli._
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 5\. Italian for tourists who want to have fun
 
  Going out is probably one of the best ways to explore and get to know new cultures. The same places you visited during the day may reveal themselves differently during the night. Take_**Fontana di Trevi**_ for example. Nothing is as majestic as this world-famous Baroque fountain at night.
 
 ![common italian phases](https://edge.mondly.com/blog/wp-content/uploads/2019/07/common-italian-phrases-1024x682.jpg "100+ Essential Italian Travel Phrases For Your Trip 4")
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  “Fontana di Trevi” by Ivan Bertona©
 
@@ -170,6 +163,13 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 ![basic italian phrases](https://edge.mondly.com/blog/wp-content/uploads/2019/07/basic-italian-phrases-1024x575.jpg "100+ Essential Italian Travel Phrases For Your Trip 5")
 
  “Vernazza, Italy” by Daniil Vnoutchkov
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 7\. Days of the week and numbers in Italian
 
@@ -217,10 +217,10 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Speak Italian fluently in just 10 minutes a day
@@ -248,16 +248,20 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-elevate-your-presence-online-capture-high-definition-webcam-footage-in-vlc/"><u>[New] 2024 Approved Elevate Your Presence Online Capture High-Definition Webcam Footage in VLC</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-directors-academy-youtube-channels-for-cinematic-innovation/"><u>[Updated] 2024 Approved Directors Academy YouTube Channels for Cinematic Innovation</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-unlocking-the-secrets-pro-level-iphone-landscape-tips-for-2024/"><u>[Updated] Unlocking the Secrets Pro-Level iPhone Landscape Tips for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/fixing-failed-attempts-at-installing-new-features-on-your-windows-11-system-update-1607/"><u>Fixing Failed Attempts at Installing New Features on Your Windows 11 System (Update 1607)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-italian-conversation-for-your-travel-adventure/"><u>Mastering Italian Conversation for Your Travel Adventure</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pirate-dialect-decoded-top-20-nautical-terms-explained/"><u>Pirate Dialect Decoded: Top 20 Nautical Terms Explained</u></a></li>
-<li><a href="https://techidaily.com/remove-google-frp-lock-on-poco-by-drfone-android-unlock-remove-google-frp/"><u>Remove Google FRP lock on Poco</u></a></li>
-<li><a href="https://extra-information.techidaily.com/snapseed-essentials-starting-your-editing-journey/"><u>Snapseed Essentials Starting Your Editing Journey</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/social-skills-and-cognitive-health-four-advantages-of-multilingualism-for-adults-over-40/"><u>Social Skills and Cognitive Health: Four Advantages of Multilingualism for Adults Over 40</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/streamlabs-obs-demystified-an-in-depth-guide/"><u>Streamlabs OBS Demystified An In-Depth Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/swiftlearnbangla-master-language-with-minutes/"><u>SwiftLearnBangla: Master Language with Minutes!</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-journey-from-gifs-to-stickers-perfect-instructions-for-all-chat-platforms/"><u>[Updated] Journey From GIFs to Stickers Perfect Instructions for All Chat Platforms</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-how-to-leverage-slug-lines-in-articles/"><u>2024 Approved How to Leverage Slug Lines in Articles</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/facebooks-vibe-todays-hot-ten-music-clips/"><u>Facebook’s Vibe Today’s Hot Ten Music Clips</u></a></li>
+<li><a href="https://fox-that.techidaily.com/identifying-and-correcting-common-iphone-screen-issues-top-7-fixes/"><u>Identifying and Correcting Common iPhone Screen Issues – Top 7 Fixes</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-remove-forgotten-pin-of-your-samsung-galaxy-a24-by-drfone-android/"><u>In 2024, How to Remove Forgotten PIN Of Your Samsung Galaxy A24</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-solutions-to-spy-on-poco-m6-pro-4g-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>In 2024, Solutions to Spy on Poco M6 Pro 4G with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-still-using-pattern-locks-with-xiaomi-tips-tricks-and-helpful-advice-by-drfone-android/"><u>In 2024, Still Using Pattern Locks with Xiaomi? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-urdu-must-know-words-and-phrases-collection/"><u>Introducing Urdu: Must-Know Words & Phrases Collection</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/living-a-legacy-honteruss-impact/"><u>Living a Legacy: Honterus’s Impact</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/mobile-stellar-eraser-pro-essential-data-wipe-tool-on-mac/"><u>Mobile Stellar Eraser Pro - Essential Data Wipe Tool on Mac</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-milestone-worldwide-education-network-expands-to-70-million/"><u>Mondly Milestone: Worldwide Education Network Expands to 70 Million</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/song-based-learning-for-language-proficiency-researched-techniques/"><u>Song-Based Learning for Language Proficiency - Researched Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spelling-slip-ups-in-everyday-english-essential-list-of-errors/"><u>Spelling Slip-Ups in Everyday English - Essential List of Errors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-into-easier-communication-enjoy-significant-savings-on-language-classes/"><u>Step Into Easier Communication – Enjoy Significant Savings on Language Classes!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-linguists-travel-companion-top-croatian-phrases-for-expat-success/"><u>The Linguist's Travel Companion: Top Croatian Phrases for Expat Success</u></a></li>
 </ul></div>
 

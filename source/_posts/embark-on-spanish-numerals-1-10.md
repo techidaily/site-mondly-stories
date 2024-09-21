@@ -1,7 +1,7 @@
 ---
 title: Embark on Spanish Numerals 1-10
-date: 2024-07-12T08:20:47.302Z
-updated: 2024-07-13T08:20:47.302Z
+date: 2024-09-20T18:06:40.546Z
+updated: 2024-09-21T16:59:59.891Z
 tags:
   - speak
   - english
@@ -99,6 +99,13 @@ thumbnail: https://thmb.techidaily.com/897a54d20c0fe274d0937962de97f84511515ba57
 * 84 –_ochenta y cuatro_
 * 98 –_noventa y ocho_
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Spanish numbers to 1000 and beyond
 
  Hundreds shouldn’t scare you either. They are just as simple. Once you know how the hundreds are, you’ll also know the numbers in between.
@@ -135,6 +142,13 @@ Here are some more examples:
 * 999 – _novecientos noventa y nueve_
 
 ![count in Spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/07/count-in-spanish-960x663.jpg "Spanish Numbers: How To Count Numbers In Spanish 4")
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Barcelona, Spain
 
@@ -176,8 +190,6 @@ Here are some more examples:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -185,6 +197,22 @@ Here are some more examples:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-enriching-mp4-soundtracks-with-srt-a-compreomedium-guide-for-2024/"><u>[New] Enriching MP4 Soundtracks with SRT – A Compreomedium Guide for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-how-to-easily-disableremove-youtube-shorts-permanently-in-2024/"><u>[New] How to Easily Disable/Remove YouTube Shorts Permanently, In 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-logic-pros-way-to-softly-diminish-loud-passages/"><u>[New] Logic Pro's Way to Softly Diminish Loud Passages</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-ideal-capturists-for-academic-presentations/"><u>[Updated] 2024 Approved Ideal Capturists for Academic Presentations</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-best-photo-and-video-display-apps-from-xi-to-x/"><u>[Updated] Best Photo & Video Display Apps From XI to X</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-unresponsive-touch-screen-on-motorola-moto-e13-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Touch Screen on Motorola Moto E13 | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-spotify-location-after-moving-to-another-country-on-oppo-reno-8t-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Spotify Location After Moving to Another Country On Oppo Reno 8T 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/majority-language-among-israeli-population/"><u>Majority Language Among Israeli Population?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-lithuanian-language-via-internet-methods/"><u>Mastering Lithuanian Language via Internet Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-unveils-ar-for-immersive-language-experiences/"><u>Mondly Unveils AR for Immersive Language Experiences</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saying-bonjour-the-elegant-way-to-express-happiness-and-goodwill/"><u>Saying 'Bonjour': The Elegant Way to Express Happiness & Goodwill</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tage-der-woche-deutsche-sprache-erweitern/"><u>Tage Der Woche: Deutsche Sprache Erweitern</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-legacy-of-10-ancient-human-communications/"><u>The Legacy of 10 Ancient Human Communications</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-whats-next-after-virtualdub-a-review-of-the-top-video-editing-alternatives-for-2024/"><u>Updated Whats Next After Virtualdub? A Review of the Top Video Editing Alternatives for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vr-verbal-voyage-conquer-global-languages-at-your-fingertips/"><u>VR Verbal Voyage: Conquer Global Languages at Your Fingertips</u></a></li>
+</ul></div>
 

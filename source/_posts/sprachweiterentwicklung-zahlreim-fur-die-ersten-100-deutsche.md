@@ -1,7 +1,7 @@
 ---
 title: "Sprachweiterentwicklung: Zählreim Für Die Ersten 100 Deutsche"
-date: 2024-07-12T08:20:19.273Z
-updated: 2024-07-13T08:20:19.273Z
+date: 2024-09-17T18:35:19.948Z
+updated: 2024-09-21T19:24:57.482Z
 tags:
   - speak
   - english
@@ -78,6 +78,13 @@ Here are the multiples of 10 in German:
 
 ![count in german](https://edge.mondly.com/blog/wp-content/uploads/2022/08/count-in-german.png "German Numbers: Learn How To Count From 1 To 100 In German 2")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to count from 1 to 100 in German
 
  Now that you have all the data (the numbers from 1 to 20 and multiples of 10), it’s time to explain how all the other numbers are formed. If you already know how to count in other languages, German numbers will be a piece of cake for you!
@@ -106,6 +113,13 @@ Now let’s look at some examples to make sure you got it:
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### From 0 to 100 and beyond in German
 
  Do you want to go beyond numbers and [speak German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) fluently? Try Mondly, the award-winning language app that is serious about making learning German fun.
@@ -128,8 +142,6 @@ Now let’s look at some examples to make sure you got it:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -137,6 +149,20 @@ Now let’s look at some examples to make sure you got it:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-information.techidaily.com/new-best-mobile-and-desktop-mkv-software/"><u>[New] Best Mobile and Desktop MKV Software</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-your-gateway-to-perfect-entries-everywhere/"><u>[New] Your Gateway to Perfect Entries, Everywhere</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-edunet-at-bett-2022-bridging-educator-communities-worldwide/"><u>Global Edunet at BETT 2022: Bridging Educator Communities Worldwide</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/how-to-track-apple-iphone-12-mini-by-phone-number-drfone-by-drfone-virtual-ios/"><u>How to Track Apple iPhone 12 mini by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-full-guide-to-unlock-your-tecno-pop-7-pro-by-drfone-android/"><u>In 2024, Full Guide to Unlock Your Tecno Pop 7 Pro</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-app-for-oculus-quest-mondlys-latest-feature/"><u>Language App for Oculus Quest - Mondly's Latest Feature</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-frame-by-frame-mastering-video-freeze-frames-for-2024/"><u>New Frame by Frame Mastering Video Freeze Frames for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/shanty-speak-for-the-swashbuckler-essential-pirate-words/"><u>Shanty-Speak for the Swashbuckler: Essential Pirate Words</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/split-screen-audio-logging-for-2024/"><u>Split Screen Audio Logging for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-international-gratitude-handbook-expressing-thank-you-in-30-languages-158-trimmed-to-fit/"><u>The International Gratitude Handbook: Expressing Thank You in 30 Languages (158) [Trimmed to Fit]</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-revolutionary-ai-chat-experience-has-arrived/"><u>The Revolutionary AI Chat Experience Has Arrived</u></a></li>
+<li><a href="https://media-tips.techidaily.com/the-ultimate-selection-top-7-ai-based-text-to-speech-solutions-for-windows-ios-and-android/"><u>The Ultimate Selection: Top 7 AI-Based Text-to-Speech Solutions for Windows, iOS and Android</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-mastering-german-is-a-smart-move-10-insights/"><u>Why Mastering German Is a Smart Move? (10 Insights)</u></a></li>
+</ul></div>
 

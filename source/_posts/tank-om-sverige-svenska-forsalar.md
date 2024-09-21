@@ -1,7 +1,7 @@
 ---
 title: "Tänk Om Sverige: Svenska Försalar"
-date: 2024-07-12T08:21:20.858Z
-updated: 2024-07-13T08:21:20.858Z
+date: 2024-09-17T17:42:58.975Z
+updated: 2024-09-21T16:50:32.272Z
 tags:
   - speak
   - english
@@ -34,6 +34,13 @@ thumbnail: https://thmb.techidaily.com/13fc80b5d967307ffa59212655cd04104762f09d1
 
  Even if you’re just visiting, you might have to answer the phone at the hotel or when you’re expecting a call from the embassy, for example. The easiest way to do this is to say “Hello” followed by introducing yourself. This sounds something like : **“** **Hallå! Det här är \[your name\].”**  This will not only impress the person on the other end, but they might mistake you for a local. That would be a good thing, but you need to let them know you don’t speak Swedish fluently before they start talking faster.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to say “Good Morning!” in Swedish
 
  At the restaurant, cafés, or when you enter a building, saying “Good Morning!” is a sign of respect and will help you establish a connection with those around you. The Swedish equivalent of the morning greeting is **“God morgon!”**  . It’s important to use all the common greetings, even as a foreigner because you will most likely make a good impression.
@@ -49,6 +56,13 @@ thumbnail: https://thmb.techidaily.com/13fc80b5d967307ffa59212655cd04104762f09d1
 ## How to say “What’s up?” in Swedish
 
  What better way to find out more about your Swedish friends’ day or how they’re feeling than asking “what’s up?”? **“Hur är det?”** or **“hur går det?”**  are what is used to ask “how is it?” and “how is it going?”. They are both informal ways of getting a conversation started and can be used when talking on the phone as well, just after you introduce yourself.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to say “Goodbye!” in Swedish
 
@@ -69,8 +83,6 @@ thumbnail: https://thmb.techidaily.com/13fc80b5d967307ffa59212655cd04104762f09d1
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -78,6 +90,21 @@ thumbnail: https://thmb.techidaily.com/13fc80b5d967307ffa59212655cd04104762f09d1
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-unlocking-your-audience-youtube-subscriber-insights/"><u>[Updated] In 2024, Unlocking Your Audience YouTube Subscriber Insights</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-the-screen-recorder-showdown-experts-take-on-popular-tools/"><u>2024 Approved The Screen Recorder Showdown Experts' Take on Popular Tools</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ring-video-realms-significant-post-vidcon-conclaves-for-2024/"><u>Exploring Video Realms Significant Post-VidCon Conclaves for 2024</u></a></li>
+<li><a href="https://driver-error.techidaily.com/fixing-driver-errors-for-your-windows-pc-windows-10-8-and-7-solved/"><u>Fixing Driver Errors for Your Windows PC (Windows 10, 8, and 7): Solved!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-leapfrogging-easiest-world-tongues-ranked/"><u>Linguistic Leapfrogging: Easiest World Tongues Ranked</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-teaching-techniques-unveiled/"><u>Mondly's Teaching Techniques Unveiled</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-adobe-premiere-elements-vs-the-rest-top-alternative-video-editors/"><u>New Adobe Premiere Elements Vs. The Rest Top Alternative Video Editors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quickly-grasp-ukrainian-effective-minute-long-study-methods-95-chars/"><u>Quickly Grasp Ukrainian: Effective Minute-Long Study Methods (95 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saying-hi-the-ultimate-japenese-greeting-guide/"><u>Saying Hi: The Ultimate Japenese Greeting Guide</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/step-by-step-process-for-making-a-stellar-podcast-launch-video-for-2024/"><u>Step-By-Step Process for Making a Stellar Podcast Launch Video for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/streamline-the-conversion-vimeo-videos-to-mp3-files-for-2024/"><u>Streamline the Conversion Vimeo Videos to MP3 Files for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/ultimate-windows-playback-system/"><u>Ultimate Windows Playback System</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/weaving-an-engaging-film-teaser-thread/"><u>Weaving an Engaging Film Teaser Thread</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/your-francophone-reading-journey-starts-with-these-novels/"><u>Your Francophone Reading Journey Starts with These Novels</u></a></li>
+</ul></div>
 

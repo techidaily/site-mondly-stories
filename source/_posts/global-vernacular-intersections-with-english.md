@@ -1,7 +1,7 @@
 ---
 title: Global Vernacular Intersections with English
-date: 2024-09-12T18:19:21.035Z
-updated: 2024-09-16T18:48:00.270Z
+date: 2024-09-18T18:03:44.378Z
+updated: 2024-09-21T17:59:36.486Z
 tags:
   - speak
   - english
@@ -113,6 +113,13 @@ thumbnail: https://thmb.techidaily.com/6eaa3e36b8ce62866baa3f0397f35b108aa431d0b
 
  Did you know that approximately**30% of the English vocabulary** consists of words that have their origins in**French and Latin** ? Considering that French was the language of the English king and his court for over 300 years, it’s no surprise. During that time, as many as 10,000 French loanwords came into English.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Spanish loanwords: English words that are actually Spanish
 
 | Chinchilla |
@@ -134,19 +141,6 @@ thumbnail: https://thmb.techidaily.com/6eaa3e36b8ce62866baa3f0397f35b108aa431d0b
 | Guacamole  |
 
  Unlike French loanwords which have been adapted into British English, most of the**Spanish loanwords entered English via the North American English route.** Cultural exchanges between [Spanish-speaking](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and English-speaking communities led to an influx of loanwords related to food and music in particular. For example, words like “guacamole”, “salsa” and “piñata” have been borrowed into English from Spanish due to the popularity of the Mexican culture in the United States.
-
-<!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Italian loanwords: English words that are actually Italian
 
@@ -177,10 +171,10 @@ thumbnail: https://thmb.techidaily.com/6eaa3e36b8ce62866baa3f0397f35b108aa431d0b
  Thanks to Italy’s cultural influence throughout history, especially during the Renaissance period, many languages borrowed its words. Italian words related to art, music, architecture and cuisine have an especially high predominance in the English vocabulary.
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## German loanwords: English words that are actually German
@@ -265,14 +259,18 @@ Coming Soon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-origami-inspired-best-minimalist-homes-in-minecraft-for-2024/"><u>[New] Origami Inspired Best Minimalist Homes in Minecraft for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/cheap-gaming-conquered-top-11-websites-for-low-cost-games/"><u>Cheap Gaming Conquered: Top 11 Websites for Low-Cost Games</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/discover-the-latest-free-wanderlust-helper-7-ai-chatgpt-tools-for-effortless-journey-organization/"><u>Discover the Latest Free Wanderlust Helper: 7 AI ChatGPT Tools for Effortless Journey Organization</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/explore-best-practices-for-mastering-finnish-virtually/"><u>Explore Best Practices for Mastering Finnish Virtually</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-tips-and-tricks-for-apple-id-locked-issue-on-apple-iphone-6s-plus-by-drfone-ios/"><u>In 2024, Tips and Tricks for Apple ID Locked Issue On Apple iPhone 6s Plus</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-learning-through-tv-and-film-effective-strategies-and-tips/"><u>Language Learning Through TV And Film: Effective Strategies And Tips</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-arabic-made-simple-explore-the-benefits-on-mondly-online/"><u>Mastering Arabic Made Simple: Explore the Benefits on Mondly Online</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/step-up-the-fun-top-new-wins11-games-unveiled/"><u>Step Up the Fun Top New Wins11 Games Unveiled</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/xristos-anoi3e-greek/"><u>Χριστός Ανοίξε! (Greek)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-flex-your-viewing-muscles-handling-multiple-youtube-videos/"><u>[New] 2024 Approved Flex Your Viewing Muscles Handling Multiple YouTube Videos</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-novel-nooks-in-mc-the-simplest-house-designs/"><u>[New] 2024 Approved Novel Nooks in MC The Simplest House Designs</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-step-by-step-guide-to-immerse-users-in-soundfilters-of-windows-10-photos/"><u>[New] Step-by-Step Guide to Immerse Users in Sound/Filters of Windows 10 Photos</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-top-10-flawless-web-based-vimeo-video-extractors-for-2024/"><u>[New] Top 10 Flawless Web-Based Vimeo Video Extractors for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-overwatch-gameplay-captured-step-by-step-guide/"><u>[Updated] Overwatch Gameplay Captured - Step by Step Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/google-play-acclaim-for-mondly-kids-childhood-nutrition-guide-of-2017/"><u>Google Play Acclaim for Mondly Kids - Childhood Nutrition Guide of 2017</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-looking-for-a-location-changer-on-infinix-zero-30-5g-look-no-further-drfone-by-drfone-virtual-android/"><u>In 2024, Looking For A Location Changer On Infinix Zero 30 5G? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/le-temps-de-la-france/"><u>Le Temps De La France</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lerne-deutsche-wochentage-inklusive-namen/"><u>Lerne Deutsche Wochentage Inklusive Namen</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-the-ultimate-guide-to-importing-and-exporting-videos-in-adobe-premiere/"><u>New In 2024, The Ultimate Guide to Importing and Exporting Videos in Adobe Premiere</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/resize-your-videos-perfectly-for-free-with-the-best-mp4-shrinker-software-guide/"><u>Resize Your Videos Perfectly for Free with the Best MP4 Shrinker Software Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sprachliche-wege-den-kontakt-abzubrechen/"><u>Sprachliche Wege, Den Kontakt Abzubrechen</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-effortless-video-trimming-on-mac-the-ultimate-guide/"><u>Updated 2024 Approved Effortless Video Trimming on Mac The Ultimate Guide</u></a></li>
 </ul></div>
 

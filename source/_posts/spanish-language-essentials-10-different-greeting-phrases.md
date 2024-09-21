@@ -1,7 +1,7 @@
 ---
 title: "Spanish Language Essentials: 10 Different Greeting Phrases"
-date: 2024-07-12T08:22:11.256Z
-updated: 2024-07-13T08:22:11.256Z
+date: 2024-09-19T18:05:30.718Z
+updated: 2024-09-21T17:40:53.489Z
 tags:
   - speak
   - english
@@ -60,6 +60,13 @@ thumbnail: https://thmb.techidaily.com/304e2f357860569a12cd2d51db7951faca7194234
 **¿Qué hay?** – generally used in Spain; it is used the same way we use “hey!” or “what’s up” in English  
 **¿Cómo va?** – it translates to “how is it going?” and you can also add “todo” at the end – ¿cómo va todo? – to expand its meaning to “how is it all going?
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## “Yes”, “please” and “thank you” in Spanish
 
  If you want to [learn Spanish colors](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , “yes”, “no”, “please” and “thank you” together with the above-mentioned greetings are the absolute basics you’ll need to master before moving forward. Here’s how to say these basic but at the same time crucial [Spanish words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) :
@@ -72,6 +79,13 @@ thumbnail: https://thmb.techidaily.com/304e2f357860569a12cd2d51db7951faca7194234
 * I’m sorry – Lo siento
 * I have/I don’t have – Tengo/No tengo
 * Nice to meet you – Encantado/Encantada de conocerte
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Goodbye in Spanish
 
@@ -113,8 +127,6 @@ thumbnail: https://thmb.techidaily.com/304e2f357860569a12cd2d51db7951faca7194234
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -122,6 +134,18 @@ thumbnail: https://thmb.techidaily.com/304e2f357860569a12cd2d51db7951faca7194234
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/new-convert-srt-fastly-a-compreenas-the-minute-blueprint-2023/"><u>[New] Convert SRT Fastly A Compreenas-the-Minute Blueprint 2023</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-the-complete-guide-to-downloading-and-enjoying-ifunny-memes/"><u>[New] The Complete Guide to Downloading and Enjoying iFunny Memes</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-garageband-strategies-for-perfect-podcast-editing/"><u>2024 Approved GarageBand Strategies for Perfect Podcast Editing</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/5-ways-to-track-motorola-moto-g34-5g-without-app-drfone-by-drfone-virtual-android/"><u>5 Ways to Track Motorola Moto G34 5G without App | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/from-watcher-to-writer-how-to-set-up-a-sports-channel-on-macos-for-2024/"><u>From Watcher to Writer How to Set Up a Sports Channel on macOS for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-daybreak-greetings-a-study-of-morning-phrases-in-10-languages/"><u>Global Daybreak Greetings: A Study of Morning Phrases in 10 Languages</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-activate-subdued-visuals-for-facebook/"><u>How to Activate Subdued Visuals for Facebook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/prime-foreign-tongue-education-in-america/"><u>Prime Foreign Tongue Education in America</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/russian-numeral-acquisition-for-language-proficiency/"><u>Russian Numeral Acquisition for Language Proficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-languages-with-movies-and-television-insights/"><u>Unlocking Languages with Movies & Television Insights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-young-minds-embrace-multilingualism-effortlessly/"><u>Why Young Minds Embrace Multilingualism Effortlessly</u></a></li>
+</ul></div>
 

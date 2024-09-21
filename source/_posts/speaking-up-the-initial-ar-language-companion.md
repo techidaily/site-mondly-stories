@@ -1,7 +1,7 @@
 ---
 title: "Speaking Up: The Initial AR Language Companion"
-date: 2024-09-10T18:05:11.422Z
-updated: 2024-09-16T16:52:44.361Z
+date: 2024-09-20T18:42:49.799Z
+updated: 2024-09-21T19:05:52.979Z
 tags:
   - speak
   - english
@@ -71,10 +71,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 * [Mondly Press Kit](https://www.dropbox.com/sh/vo4j5214zvwdxy5/AAC20VxIgpuiEe7ED2%5F37VNEa?dl=0)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Media mentions about Mondly
@@ -106,17 +106,21 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-crafting-compelling-youtube-content-through-split-screens/"><u>[New] Crafting Compelling YouTube Content Through Split-Screens</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-evaluation-of-fb-video-shapes/"><u>[Updated] In 2024, Evaluation of FB Video Shapes</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/chatgpt-jailbreaks-explored-are-they-safe-to-employ/"><u>ChatGPT Jailbreaks Explored - Are They Safe to Employ?</u></a></li>
-<li><a href="https://common-error.techidaily.com/easy-steps-to-enable-and-use-bluetooth-in-microsofts-latest-operating-systems/"><u>Easy Steps to Enable and Use Bluetooth in Microsoft's Latest Operating Systems</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fine-tune-your-tongue-top-100-accent-boosting-twisters/"><u>Fine-Tune Your Tongue: Top 100 Accent-Boosting Twisters</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-navigating-pexels-tips-for-discovering-striking-images/"><u>In 2024, Navigating Pexels Tips for Discovering Striking Images</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-unlock-your-earning-potential-maximizing-youtube-revenue-on-mobile/"><u>In 2024, Unlock Your Earning Potential Maximizing YouTube Revenue on Mobile</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/journey-through-vietnam-with-key-phrases-compiled/"><u>Journey Through Vietnam with Key Phrases Compiled</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/no-more-walls-mondly-bridges-linguistic-gaps-in-ukraine/"><u>No More Walls: Mondly Bridges Linguistic Gaps in Ukraine</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/saying-thanks-in-30-languages-an-intercultural-companion-154/"><u>Saying Thanks in 30 Languages: An Intercultural Companion (154)</u></a></li>
-<li><a href="https://windows11.techidaily.com/step-by-step-guide-adding-images-to-your-microsoft-excel-spreadsheet/"><u>Step-by-Step Guide: Adding Images to Your Microsoft Excel Spreadsheet</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/troubleshooting-ea-app-issues-quick-solutions-to-restore-functionality/"><u>Troubleshooting EA App Issues - Quick Solutions to Restore Functionality</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-how-to-find-the-good-iphone-photography-angles/"><u>[Updated] How to Find the Good iPhone Photography Angles</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/discovering-toms-tech-expert-insights-on-cutting-edge-hardware/"><u>Discovering Tom's Tech: Expert Insights on Cutting-Edge Hardware</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-change-location-on-yik-yak-for-your-realme-c67-5g-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>In 2024, Change Location on Yik Yak For your Realme C67 5G to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-oppo-reno-10-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Oppo Reno 10 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-rootjunky-apk-to-bypass-google-frp-lock-for-vivo-s18-pro-by-drfone-android/"><u>In 2024, Rootjunky APK To Bypass Google FRP Lock For Vivo S18 Pro</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-simple-procedure-modify-clownfish-tones-on-pc/"><u>In 2024, Simple Procedure Modify Clownfish Tones on PC</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lanatomie-de-base-devoilee-composants-corporels-en-francais/"><u>L'anatomie De Base Dévoilée: Composants Corporels en Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-evolution-top-10-centuries-old-systems/"><u>Language Evolution: Top 10 Centuries-Old Systems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leverage-linguistic-expertise-to-launch-your-business/"><u>Leverage Linguistic Expertise to Launch Your Business</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-japans-alphabet-a-compreranary-handbook/"><u>Navigating Japan's Alphabet: A Compreranary Handbook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-through-japans-social-language-landscape/"><u>Navigating Through Japan's Social Language Landscape</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/perfecting-stability-a-no-tripod-guide/"><u>Perfecting Stability A No-Tripod Guide</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/photo-editing-achieving-focus-with-distortions-for-2024/"><u>Photo Editing Achieving Focus with Distortions for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/quick-guide-get-your-ft232r-serial-to-usb-bridge-driver-instantly/"><u>Quick Guide: Get Your FT232R Serial to USB Bridge Driver Instantly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-beginners-essential-list-of-20-best-french-novels/"><u>The Beginner’s Essential List of 20 Best French Novels</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-learning-method-behind-mondly/"><u>The Learning Method Behind Mondly</u></a></li>
 </ul></div>
 

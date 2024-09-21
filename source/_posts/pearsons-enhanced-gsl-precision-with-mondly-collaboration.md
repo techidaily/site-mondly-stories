@@ -1,7 +1,7 @@
 ---
 title: Pearson's Enhanced GSL Precision with Mondly Collaboration
-date: 2024-07-12T08:19:14.054Z
-updated: 2024-07-13T08:19:14.054Z
+date: 2024-09-15T17:58:50.815Z
+updated: 2024-09-21T19:51:28.870Z
 tags:
   - speak
   - english
@@ -42,6 +42,13 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 
  Building on the GSE, our research team at Pearson decided to prove that this scale could also be transferable to other languages. The study’s results were not only encouraging but groundbreaking. The research confirmed that the GSE is directly transferable to other languages, making it possible for Pearson to develop the new GSL framework.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **Why the GSL stands out**
 
 * **Unparalleled insights:**  Going a step beyond traditional language measurement tools like the CEFR, the GSL provides a more detailed understanding of a learner’s skills through extensive global research.
@@ -67,6 +74,13 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **Fast-track your progress with Mondly by Pearson**
 
  Whether you’re passionate about French, Spanish, Italian or English, Mondly now offers an enhanced learning journey backed by the precision of the GSL. Celebrate this European Day of Languages by diving into the world of languages with newfound clarity and insight.
@@ -79,8 +93,6 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -88,6 +100,19 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-finding-the-sweet-spot-optimal-youtube-video-upload-rates-for-growth/"><u>[New] 2024 Approved Finding the Sweet Spot Optimal YouTube Video Upload Rates for Growth</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-how-to-live-stream-to-facebook-from-dji-drone/"><u>[Updated] In 2024, How to Live Stream to Facebook From DJI Drone?</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-mastering-srt-file-playback-on-both-oses/"><u>2024 Approved Mastering SRT File Playback on Both OSes</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/evaluating-the-benefits-of-auto-gpt-a-comparison-with-expected-gpt-4-features/"><u>Evaluating the Benefits of Auto-GPT: A Comparison with Expected GPT-4 Features</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/free-backdrops-for-sustainable-cinema-for-2024/"><u>Free Backdrops for Sustainable Cinema for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gsl-revolutionized-by-pearson-and-mondly-together/"><u>GSL Revolutionized by Pearson and Mondly Together</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-still-using-pattern-locks-with-oneplus-nord-n30-5g-tips-tricks-and-helpful-advice-by-drfone-android/"><u>In 2024, Still Using Pattern Locks with OnePlus Nord N30 5G? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/modern-talk-decoded-english-slang-and-their-uses/"><u>Modern Talk Decoded: English Slang and Their Uses</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-belgiums-multicultural-linguistic-terrain/"><u>Navigating Belgium’s Multicultural Linguistic Terrain</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/nexus-of-cultures-strategies-for-connecting-worlds/"><u>Nexus of Cultures: Strategies for Connecting Worlds</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/personalizing-the-perfect-pixel-rhythm-for-2024/"><u>Personalizing the Perfect Pixel Rhythm for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/step-by-step-guide-to-instagram-livestreaming-using-obs/"><u>Step-by-Step Guide to Instagram Livestreaming Using OBS</u></a></li>
+</ul></div>
 

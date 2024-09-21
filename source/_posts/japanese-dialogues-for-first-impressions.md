@@ -1,7 +1,7 @@
 ---
 title: Japanese Dialogues for First Impressions
-date: 2024-09-13T16:05:22.763Z
-updated: 2024-09-16T16:16:41.820Z
+date: 2024-09-16T16:58:04.123Z
+updated: 2024-09-21T20:06:33.253Z
 tags:
   - speak
   - english
@@ -87,16 +87,10 @@ This greeting is used both as a “hello” and as a “goodbye”.
  “See you soon, human” by Alain Pham©
 
 <!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. “Thank you” in Japanese and other polite phrases that you should know
@@ -124,26 +118,13 @@ This greeting is used both as a “hello” and as a “goodbye”.
 ![arigato](https://edge.mondly.com/blog/wp-content/uploads/2019/08/arigato-1024x706.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 5")
 
 <!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
+  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  “Kyoto, Japan” by Andre Benz©
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115930/19272" target="_top" id="2115930">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115930" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115930/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Don’t forget about the Japanese bow
 
@@ -160,6 +141,13 @@ This greeting is used both as a “hello” and as a “goodbye”.
  – 30-degree bows are for people you just met or are of a higher social status than you;
 
  – 45-degree bows are used for greetings only if you meet a very important person like the Emperor or the Prime Minister.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Bonus: basic conversation in Japanese
 
@@ -214,21 +202,12 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-high-definition-mastery-best-hd-screen-recorder-selections-for-2024/"><u>[New] High Definition Mastery Best HD Screen Recorder Selections for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-framefinder-top-picks-for-screen-capturing/"><u>[New] In 2024, FrameFinder Top Picks for Screen Capturing</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-gaining-momentum-how-igtv-hashtags-drive-fan-base-expansion/"><u>[Updated] Gaining Momentum How IGTV Hashtags Drive Fan Base Expansion</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-back-track-technique-reverse-video-in-ios-devices/"><u>2024 Approved Back-Track Technique Reverse Video in iOS Devices</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-techniques-to-transfer-data-from-xiaomi-14-pro-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Techniques to Transfer Data from Xiaomi 14 Pro to iPhone 15/14/13/12 | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-primer-on-german-speech-sounds-for-beginners/"><u>A Primer on German Speech Sounds for Beginners</u></a></li>
-<li><a href="https://facebook.techidaily.com/authenticate-with-meta-us-edition/"><u>Authenticate with Meta – US Edition</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/boosting-bilingualism-top-3-cognitive-routines/"><u>Boosting Bilingualism: Top 3 Cognitive Routines</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/boosting-teams-top-languages-for-workplace-success/"><u>Boosting Teams: Top Languages for Workplace Success</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dialects-spoken-in-croatia/"><u>Dialects Spoken in Croatia</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dive-into-new-tongues-for-just-055-per-lesson-this-year/"><u>Dive Into New Tongues for Just $0.55 Per Lesson This Year</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dreaming-in-diversity-mondly-languages-two-year-odyssey/"><u>Dreaming in Diversity: Mondly Languages' Two-Year Odyssey</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embracing-english-for-personal-growth/"><u>Embracing English for Personal Growth</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/harmonizing-your-music-a-youtube-playlist-journey-for-2024/"><u>Harmonizing Your Music A YouTube Playlist Journey for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-free-photos-for-every-project-an-exclusive-list-of-top-12-online-sources/"><u>In 2024, Free Photos for Every Project - An Exclusive List of Top 12 Online Sources</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-best-android-sim-unlock-code-generators-unlock-your-nubia-red-magic-8s-proplus-phone-hassle-free-by-drfone-android/"><u>The Best Android SIM Unlock Code Generators Unlock Your Nubia Red Magic 8S Pro+ Phone Hassle-Free</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-quick-guide-uploading-tiktoks-directly-to-facebook/"><u>[New] In 2024, Quick Guide Uploading TikToks Directly to Facebook</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-the-best-ways-to-captivate-an-audience-on-snapchat/"><u>[New] The Best Ways to Captivate an Audience on Snapchat</u></a></li>
+<li><a href="https://article-files.techidaily.com/beneath-the-oceans-veil-tips-for-recording-top-notch-underwater-gopro-videos/"><u>Beneath the Ocean’s Veil Tips for Recording Top-Notch Underwater GoPro Videos</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-remove-flashlight-from-apple-iphone-x-lock-screen-drfone-by-drfone-ios/"><u>How To Remove Flashlight From Apple iPhone X Lock Screen | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-languages-after-40-unveil-4-advantages/"><u>Mastering Languages After 40: Unveil 4 Advantages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-advantages-of-learning-a-foreign-language/"><u>The Advantages Of Learning A Foreign Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-for-fluent-germans-25-idioms-explained/"><u>The Ultimate Guide for Fluent Germans: 25 Idioms Explained</u></a></li>
 </ul></div>
 

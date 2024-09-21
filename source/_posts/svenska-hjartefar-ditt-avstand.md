@@ -1,7 +1,7 @@
 ---
 title: "Svenska Hjärtefär: Ditt Avstånd"
-date: 2024-09-14T19:58:00.155Z
-updated: 2024-09-16T16:39:09.344Z
+date: 2024-09-14T16:41:12.759Z
+updated: 2024-09-21T16:36:26.578Z
 tags:
   - speak
   - english
@@ -34,37 +34,31 @@ thumbnail: https://thmb.techidaily.com/987e27a7892f02906f099613af94ad907edd8b772
 
  Even if you’re just visiting, you might have to answer the phone at the hotel or when you’re expecting a call from the embassy, for example. The easiest way to do this is to say “Hello” followed by introducing yourself. This sounds something like : **“** **Hallå! Det här är \[your name\].”**  This will not only impress the person on the other end, but they might mistake you for a local. That would be a good thing, but you need to let them know you don’t speak Swedish fluently before they start talking faster.
 
-<!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to say “Good Morning!” in Swedish
 
  At the restaurant, cafés, or when you enter a building, saying “Good Morning!” is a sign of respect and will help you establish a connection with those around you. The Swedish equivalent of the morning greeting is **“God morgon!”**  . It’s important to use all the common greetings, even as a foreigner because you will most likely make a good impression.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to say “Good evening!” in Swedish
 
 **“God kväll!”** is a rather formal greeting in [Swedish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  , but you might hear this in theaters, or when the evening news show starts. Usually, this greeting is not used between family and friends. “Kväll” is pronounced _kvell_ and the “g” can be silent.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to say “Goodnight!” in Swedish
 
  After getting acquainted with Swedes, you will most likely enjoy late night talks and drinks, so a proper Goodnight is needed to end the day properly. **“Godnatt!”** , often pronounced _goo-natt_  is the way to wish locals a good night’s rest and let them know you can’t wait to hang out again soon.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to say “What’s up?” in Swedish
 
@@ -98,12 +92,18 @@ thumbnail: https://thmb.techidaily.com/987e27a7892f02906f099613af94ad907edd8b772
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-stream.techidaily.com/new-premier-earnings-prodigy-on-youtube/"><u>[New] Premier Earnings Prodigy on YouTube</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-secrets-to-acquiring-unblemished-image-libraries/"><u>[New] Secrets to Acquiring Unblemished Image Libraries</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-reactivate-lost-chatter-in-social-media-clips-for-2024/"><u>[Updated] Reactivate Lost Chatter in Social Media Clips for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/age-defying-wisdom-the-many-rewards-of-multilingualism-after-forty-years/"><u>Age-Defying Wisdom: The Many Rewards of Multilingualism After Forty Years</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cultural-bridges-built-with-these-italian-welcoming-expressions/"><u>Cultural Bridges Built with These Italian Welcoming Expressions</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/discover-books-with-intelligence-top-5-ai-book-finder-tools-and-apps/"><u>Discover Books with Intelligence: Top 5 AI Book Finder Tools & Apps</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/verbal-virtuosity-charming-strategies-with-spanish-words/"><u>Verbal Virtuosity: Charming Strategies with Spanish Words</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-effortless-fb-stream-setup-using-obs-on-laptops-mac-and-pc/"><u>[New] Effortless FB Stream Setup Using OBS on Laptops, Mac & PC</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-expert-tips-for-crafting-immersive-soundscapes-in-youtube-for-2024/"><u>[New] Expert Tips for Crafting Immersive Soundscapes in YouTube for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-fueling-audience-interaction-crafting-intriguing-fb-giving-announcements/"><u>[New] Fueling Audience Interaction Crafting Intriguing FB Giving Announcements</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-deciphering-authenticity-in-your-facebook-brand-community/"><u>[New] In 2024, Deciphering Authenticity in Your Facebook Brand Community</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unlocking-superior-sound-recordings-minus-the-mic/"><u>[New] Unlocking Superior Sound Recordings Minus the Mic</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/forgotten-the-voicemail-password-of-honor-90-pro-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Honor 90 Pro? Try These Fixes</u></a></li>
+<li><a href="https://common-error.techidaily.com/from-broken-to-secure-fixing-problematic-windows-update-processes/"><u>From Broken to Secure: Fixing Problematic Windows Update Processes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-sorgfaltig-formales-bedauern-sagen/"><u>German: Sorgfältig Formales Bedauern Sagen</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-unlock-apple-id-activation-lock-from-apple-iphone-12-by-drfone-ios/"><u>How to Unlock Apple ID Activation Lock From Apple iPhone 12?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-unlock-nokia-xr21-phone-forgot-password-by-drfone-android-unlock-android-unlock/"><u>How to Unlock Nokia XR21 Phone Forgot Password</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-a-next-level-faq-experience-with-mondly/"><u>Introducing a Next-Level FAQ Experience with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-brazilian-and-european-pt-buttons-effectively/"><u>Navigating Brazilian & European PT Buttons Effectively</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/resolve-to-speak-diverse-tongues-in-24/"><u>Resolve to Speak Diverse Tongues in '24</u></a></li>
 </ul></div>
 

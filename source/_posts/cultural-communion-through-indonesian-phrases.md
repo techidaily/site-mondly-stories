@@ -1,7 +1,7 @@
 ---
 title: Cultural Communion Through Indonesian Phrases
-date: 2024-07-12T08:19:49.909Z
-updated: 2024-07-13T08:19:49.909Z
+date: 2024-09-17T19:45:08.433Z
+updated: 2024-09-21T18:19:27.259Z
 tags:
   - speak
   - english
@@ -46,6 +46,13 @@ thumbnail: https://thmb.techidaily.com/de1e2dcf5aeceec6efa479819bb7032cddf48c949
 
 Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Indonesian greetings for different times of day
 
  Like [most languages](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , Indonesian also has some specific greetings dedicated to different times of the day. While in English, we begin every such greeting with “good”, in Indonesian_selamat_ is the word we use to wish people a “happy”, “peaceful” or “safe” day.
@@ -75,6 +82,13 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Start learning Indonesian today
 
  If learning how to say ‘hello’ in Indonesian made you realize you want to become fluent in Indonesian, this is your lucky day. Award-winning language app Mondly is one of the few solutions available that offers Indonesian courses made by experts.
@@ -97,8 +111,6 @@ Get Mondly today and learn Indonesian naturally with the following:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -106,6 +118,19 @@ Get Mondly today and learn Indonesian naturally with the following:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-google-collage-made-fast-and-easy-essential-tips-unveiled/"><u>[New] Google Collage Made Fast & Easy - Essential Tips Unveiled</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-seamlessly-explore-facebooks-past-content/"><u>[New] Seamlessly Explore Facebook's Past Content</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-hook-up-guide-scripts-to-seduce-listeners/"><u>2024 Approved The Hook-Up Guide Scripts to Seduce Listeners</u></a></li>
+<li><a href="https://fox-that.techidaily.com/6-common-fixes-for-when-apples-live-photo-feature-wont-open-on-your-iphone/"><u>6 Common Fixes for When Apple's Live Photo Feature Won't Open on Your iPhone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ing-engaging-stream-content-shorts/"><u>Creating Engaging Stream Content Shorts</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-activate-and-use-life360-ghost-mode-on-poco-x6-pro-drfone-by-drfone-virtual-android/"><u>How To Activate and Use Life360 Ghost Mode On Poco X6 Pro | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-basic-numbers-in-spanish/"><u>Mastering Basic Numbers in Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-launches-virtual-reality-for-learning-languages-powered-by-chatbots/"><u>Mondly Launches Virtual Reality for Learning Languages, Powered by Chatbots</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pinnacle-languages-certifications-and-effective-preparation/"><u>Pinnacle Languages Certifications & Effective Preparation</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/professional-insights-io-screen-capturing-demystified/"><u>Professional Insights IO Screen Capturing Demystified</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/snowy-serenity-top-pick-winter-backgrounds-for-videos/"><u>Snowy Serenity Top Pick Winter Backgrounds for Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/soviet-era-influences-on-uk-and-rus-speech/"><u>Soviet-Era Influences on Uk & Rus Speech</u></a></li>
+</ul></div>
 

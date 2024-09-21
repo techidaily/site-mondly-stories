@@ -1,7 +1,7 @@
 ---
 title: Essential Spanish Verbal Grammar for Beginners
-date: 2024-07-12T08:23:43.820Z
-updated: 2024-07-13T08:23:43.820Z
+date: 2024-09-15T18:00:29.420Z
+updated: 2024-09-21T19:52:56.043Z
 tags:
   - speak
   - english
@@ -139,6 +139,13 @@ And the conjugation of comer will look like this:
 * _Vosotros / Vosotras escrib**iréis**_
 * _Ellos / Ellas / Ustedes escrib**irán**_
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Spanish verbs: how to master irregular Spanish verbs
 
  Remember how you managed to learn**irregular English verbs** ? Well, there are tricks that you can use, but the truth is that, in time,**irregular Spanish verbs** will just… come to you. No joke. Once you get used to the language and use it all the time, your brain will start making connections.
@@ -223,6 +230,19 @@ _Adquirir_ (to acquire) and_inquirir_ (to inquire) are just as rebellious becaus
  –_dar_ (to give) –_Yo doy_ ,_Tú das_
  –_ver_ (to see) –_Yo veo_ ,_Tú ves_
 
+<!-- affiliate ads begin -->
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Spanish verbs conjugation examples –_ser, estar, ir_
 
  Now that we managed to paint the big picture for both**regular and irregular Spanish verbs** , let’s finish this lesson with some eloquent examples of the most “rebel” verbs of the Spanish language:_ser_ (to be),_estar_ (to be, to be situated) and_ir_ (to go). Here’s the**present tense** ,**preterite tense** , and**future tense conjugation** for each and every one of them:
@@ -305,8 +325,6 @@ Well… this is it! This is our full lesson on**Spanish verbs.**
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -314,6 +332,22 @@ Well… this is it! This is our full lesson on**Spanish verbs.**
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/updated-top-10-strategies-for-crafting-engaging-podcast-graphics-for-2024/"><u>[Updated] Top 10 Strategies for Crafting Engaging Podcast Graphics for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-simplify-curating-create-a-flawless-youtube-playlist-today/"><u>2024 Approved Simplify Curating Create a Flawless YouTube Playlist Today</u></a></li>
+<li><a href="https://win-blog.techidaily.com/battlefront-ii-not-starting-solve-the-crash-issues-on-your-pc/"><u>Battlefront II Not Starting? Solve the Crash Issues on Your PC!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhancing-pronunciation-and-expression-in-english-talk/"><u>Enhancing Pronunciation & Expression in English Talk</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-spanish-verb-patterns-and-usage/"><u>Essential Spanish Verb Patterns & Usage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/experience-unparalleled-learning-in-one-app-mondly/"><u>Experience Unparalleled Learning in One App - Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-the-best-language-learning-apps-for-business-grow-your-teams-skills/"><u>Explore The Best Language Learning Apps For Business | Grow Your Team's Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-asia-mastering-vietnamese-language-skills/"><u>Exploring Asia: Mastering Vietnamese Language Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/express-yourself-in-italian-the-most-common-greetings-explained/"><u>Express Yourself in Italian: The Most Common Greetings Explained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressive-french-greetings-for-social-success-in-business-and-beyond/"><u>Expressive French Greetings for Social Success in Business & Beyond</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/gsmwav-movavi/"><u>GSMからWAVへの無料変換: オンラインツールとその便利さ - Movavi</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-game-changer-exploring-ais-role-in-transforming-the-gaming-industry/"><u>The Game Changer: Exploring AI's Role in Transforming the Gaming Industry</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-ultimate-composition-crafting-memorable-podcast-covers-for-2024/"><u>The Ultimate Composition Crafting Memorable Podcast Covers for 2024</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/tiktoks-viral-video-wave-twitters-top-10-rankings-for-2024/"><u>TikTok's Viral Video Wave Twitter's Top 10 Rankings for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/transform-your-podcast-ideas-into-proficient-scriptwriting-techniques-samples-for-2024/"><u>Transform Your Podcast Ideas Into Proficient Scriptwriting (Techniques, Samples) for 2024</u></a></li>
+</ul></div>
 

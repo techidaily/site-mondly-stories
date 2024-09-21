@@ -1,7 +1,7 @@
 ---
 title: "Inspiring Lives: Johannes Honterus"
-date: 2024-07-12T08:21:45.044Z
-updated: 2024-07-13T08:21:45.044Z
+date: 2024-09-15T17:17:36.465Z
+updated: 2024-09-21T18:58:09.207Z
 tags:
   - speak
   - english
@@ -67,8 +67,6 @@ Get Mondly now and speak any language like you never dreamed you would ![Get Mon
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -76,6 +74,30 @@ Get Mondly now and speak any language like you never dreamed you would ![Get Mon
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-hyperfast-picture-explorer-on-windows-11/"><u>[New] Hyperfast Picture Explorer on Windows 11</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-pro-gif-designers-picks-online-vs-desktop-platforms/"><u>2024 Approved Pro-Gif Designers' Picks Online vs Desktop Platforms</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/avoiding-pitfalls-securing-your-skype-recordings-in-obs/"><u>Avoiding Pitfalls Securing Your Skype Recordings in OBS</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expert-tips-for-fixing-the-ghost-runner-catastrophic-malfunction-in-windows-11-environment/"><u>Expert Tips for Fixing the 'Ghost Runner' Catastrophic Malfunction in Windows 11 Environment</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fast-frame-rates-and-uninterrupted-play-a-guide-to-fixing-lag-issues-in-warzone/"><u>Fast Frame Rates and Uninterrupted Play: A Guide to Fixing Lag Issues in Warzone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-honor-x50-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Honor X50 Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-samsung-galaxy-a05s-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On Samsung Galaxy A05s | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-most-asked-questions-about-pokemon-go-battle-league-rewards-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Most Asked Questions about Pokemon Go Battle League Rewards On Apple iPhone 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/is-there-a-charlimit-on-answers-from-chatgpt/"><u>Is There a CharLimit on Answers From ChatGPT?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jumpstart-your-2023-save-big-and-gain-lifetime-access-to-mondly-premium/"><u>Jumpstart Your 2023: Save Big & Gain Lifetime Access to Mondly Premium!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leading-3-platforms-for-quick-and-seamless-language-learning/"><u>Leading 3 Platforms for Quick & Seamless Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-japanese-etiquette-key-phrases/"><u>Mastering Japanese Etiquette - Key Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-mission-for-millions-in-ukraine/"><u>Mondly's Mission for Millions in Ukraine</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/quickdvd-master-elite-edition-lightning-speed-hd-content-conversion-for-securely-ripping-encrypted-discs-on-windows-11/"><u>QuickDVD Master Elite Edition: Lightning Speed HD Content Conversion for Securely Ripping Encrypted Discs on Windows 11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-for-the-curious-childs-mind/"><u>Spanish for the Curious Child's Mind</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/techniques-for-temporarily-integrating-new-information-into-chatgpt/"><u>Techniques for Temporarily Integrating New Information Into ChatGPT</u></a></li>
+</ul></div>
 
-
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
