@@ -1,7 +1,7 @@
 ---
 title: The Worldwide Hispanic Voice Network
-date: 2024-09-17T17:31:48.855Z
-updated: 2024-09-21T16:04:06.166Z
+date: 2024-09-21T17:37:14.231Z
+updated: 2024-09-26T17:03:36.001Z
 tags:
   - speak
   - english
@@ -52,9 +52,23 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 
 !['How many people speak Spanish' by Cecy Alvarado©](https://edge.mondly.com/blog/wp-content/uploads/2022/11/how-many-people-speak-spanish-960x640.jpg "Full List Of Spanish-Speaking Countries — How Many People Speak Spanish? 2")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  In addition to the 20 countries, Spanish is also the official language of several international organizations. These include the United Nations, the European Union, the Organization of American States, the Union of South American Nations, the Community of Latin American and Caribbean States, the [African](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) Union and many other international organizations.
 
  Now let’s go into a little more detail and split the countries into continents.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Spanish-speaking countries in South America
 
@@ -85,13 +99,6 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 
  \* the number represents the percentage of the population who speak Spanish.
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Spanish-speaking countries in North America
 
  Considering that the Spanish language came here from Europe a few centuries back, it’s fascinating that Mexico is the world’s most populous Hispanophone country. In addition to Spanish, the Mexican government recognizes 68 national languages, 63 of which are indigenous. Examples include Nahuatl, Yucatec Maya, Zapotec, Mixtec, Mayo, Yaqui, Tzeltal, Tzotzil, Chol, Totonac, Purépecha and more.
@@ -112,6 +119,19 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 
 * Spain — 92% (percentage of the entire population speaking Spanish)
 
+<!-- affiliate ads begin -->
+<span id="1424533">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Spanish-speaking countries in Africa
 
  The one and only Spanish-speaking country in Africa is Equatorial Guinea. While unexpected, a bit of history reading will reveal that Equatorial Guinea was a Spanish colony, hence the official status of the language all the way here.
@@ -121,10 +141,10 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 !['Spanish speakers' by Florian Wehde©](https://edge.mondly.com/blog/wp-content/uploads/2022/11/spanish-speakers-960x640.jpg "Full List Of Spanish-Speaking Countries — How Many People Speak Spanish? 3")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Countries where Spanish is spoken although it’s not an official language
@@ -134,13 +154,6 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
  One reason is that Spain was once a very powerful empire and its influence can still be seen in many parts of the world. Another reason is that many people from Spanish-speaking countries have migrated and brought their language with them. Probably the best example is **the United States where more than 41 million people speak Spanish as a native language.**
 
  Other countries with large minorities of Spanish speakers are Belize, the Philippines (Spanish was an official language here from 1565 to 1973), Gibraltar and Andorra.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## A brief history of the Spanish language
 
@@ -190,5 +203,21 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-harmonizing-with-instagram-a-songwriters-legal-framework/"><u>[New] In 2024, Harmonizing with Instagram A Songwriter’s Legal Framework</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-vlc-recorder-functionality-check/"><u>[Updated] 2024 Approved VLC Recorder Functionality Check</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-tailoring-snaps-the-science-behind-compelling-advertising/"><u>2024 Approved Tailoring Snaps The Science Behind Compelling Advertising</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cognitive-clout-through-cross-cultural-communication/"><u>Cognitive Clout Through Cross-Cultural Communication</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/elite-selection-of-iphone-malware-defenders-discover-the-best-antivirus-options/"><u>Elite Selection of iPhone Malware Defenders: Discover the Best Antivirus Options</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/googles-educational-leader-for-2017-mondly-kids-treats-guide/"><u>Google's Educational Leader for 2017 - Mondly Kids Treats Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-people-speak-in-croatia/"><u>How People Speak in Croatia</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-remove-and-reset-face-id-on-iphone-12-pro-max-by-drfone-ios/"><u>In 2024, How to Remove and Reset Face ID on iPhone 12 Pro Max</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-oneplus-11r-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On OnePlus 11R | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jumpstart-your-culinary-adventure-key-strategies-from-seasoned-chefs/"><u>Jumpstart Your Culinary Adventure: Key Strategies From Seasoned Chefs</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/keep-up-with-the-world-on-roku-even-when-youre-away-at-hotels-or-university/"><u>Keep Up with the World on Roku, Even When You're Away at Hotels or University</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-pledge-for-the-new-year/"><u>Language Learning Pledge for the New Year</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/remote-recording-excellence-best-9-webmicrone-capture-systems-23/"><u>Remote Recording Excellence Best 9 Webmicrone Capture Systems ('23)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-your-voice-mondlys-free-courses-offered/"><u>Unlock Your Voice: Mondly's Free Courses Offered</u></a></li>
+</ul></div>
 

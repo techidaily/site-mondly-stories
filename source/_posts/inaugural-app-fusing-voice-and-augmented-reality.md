@@ -1,7 +1,7 @@
 ---
 title: Inaugural App Fusing Voice & Augmented Reality
-date: 2024-09-15T16:39:08.556Z
-updated: 2024-09-21T18:08:02.446Z
+date: 2024-09-21T16:45:17.660Z
+updated: 2024-09-26T16:45:36.650Z
 tags:
   - speak
   - english
@@ -42,6 +42,13 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 > _We started working on Mondly AR in August 2017 and by the time [Blade Runner 2049](http://www.imdb.com/title/tt1856101/) was released, we already had a working demo. Watching Blade Runner 2049 made me realize that we were beginning to build the future. To me, Joi (the holographic companion of officer K) looked like a super advanced version of Mondly – the character we were creating. They can both understand speech, reply with a human voice and change outfits. Of course, Mondly is not as smart and realistic as Joi. Yet. But she can teach you 7 languages. And this is just the beginning._
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Here’s what you should know about Mondly AR
 
 * Is available on [Google Play](https://play.google.com/store/apps/details?id=com.atistudios.mondlyar.languages&hl=en)
@@ -57,6 +64,13 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
+  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Facts and figures about Mondly
 
 * 30 million downloads, in over 190 countries
@@ -71,10 +85,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 * [Mondly Press Kit](https://www.dropbox.com/sh/vo4j5214zvwdxy5/AAC20VxIgpuiEe7ED2%5F37VNEa?dl=0)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Media mentions about Mondly
@@ -104,5 +118,16 @@ Alex Iliescu, our CEO, spoke about the launch:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-unblock-your-youtube-experience-easy-solutions-for-chromefirefox/"><u>[New] 2024 Approved Unblock Your YouTube Experience Easy Solutions for Chrome/Firefox</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-revive-lost-media-icons-on-facebook-users/"><u>[Updated] 2024 Approved Revive Lost Media Icons on Facebook Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhance-communication-skills-in-hindi-discover-7-powerful-mondly-advantages/"><u>Enhance Communication Skills in Hindi - Discover 7 Powerful Mondly Advantages!</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-movie-buffs-secret-2023-recommendations/"><u>In 2024, Movie Buffs' Secret 2023 Recommendations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576425842-must-learn-croatian-dialogues-for-smooth-expat-experiences/"><u>Must-Learn Croatian Dialogues for Smooth Expat Experiences!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-pathways-to-mastering-language-barriers/"><u>Quick Pathways to Mastering Language Barriers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579211674-start-with-croatian-find-out-the-top-7-reasons-for-today/"><u>Start with Croatian: Find Out the Top 7 Reasons for Today</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-videos-from-oppo-k11-5g-by-fonelab-android-recover-video/"><u>The way to get back lost videos from Oppo K11 5G</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-and-repairing-pc-microphone-issues-with-zoom/"><u>Troubleshooting and Repairing PC Microphone Issues with Zoom</u></a></li>
+</ul></div>
 

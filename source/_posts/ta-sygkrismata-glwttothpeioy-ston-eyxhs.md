@@ -1,7 +1,7 @@
 ---
 title: Τα Συγκρίσματα Γλωττοτηπειού Στον Ευχής
-date: 2024-09-10T16:24:14.058Z
-updated: 2024-09-16T17:18:18.981Z
+date: 2024-09-21T20:33:20.750Z
+updated: 2024-09-26T18:52:15.499Z
 tags:
   - speak
   - english
@@ -38,6 +38,13 @@ thumbnail: https://thmb.techidaily.com/117606e709c16601f4ab8cc26b0c9a6396939e54d
 
  If you are especially thankful to them, you can also say ευχαριστώ πολύ_(efcharistó poli)_ which means ‘thanks a lot’. Or even ευχαριστώ πάρα πολύ_(efcharistó para poli)_ meaning ‘thank you very much’.
 
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
+  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The formal ‘thank you’ in Greek
 
  When it comes to formality, everything you have to do is to switch to the plural form. If you are talking to someone older, someone you don’t know or maybe even a group of people, you can say **σας ευχαριστώ_(sas efcharistó)_ .** Since English doesn’t have any formal pronouns, there’s no easy way to literally translate this, but it would mean something along the lines of “thank you to all of you”.
@@ -48,14 +55,20 @@ thumbnail: https://thmb.techidaily.com/117606e709c16601f4ab8cc26b0c9a6396939e54d
 
 ![taverna in Greece](https://edge.mondly.com/blog/wp-content/uploads/2021/10/thanks-in-greek-960x720.jpg "All The Best Ways To Say Thank You In Greek 3")
 
- “Mýkonos, Greece” by Johnny Chen©
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ “Mýkonos, Greece” by Johnny Chen©
 
 ## Examples of Greek thanks
 
@@ -69,16 +82,10 @@ thumbnail: https://thmb.techidaily.com/117606e709c16601f4ab8cc26b0c9a6396939e54d
 * Το εκτιμώ. _(To ektimó.)_ – I appreciate it.
 
 <!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to say ‘please’ and ‘you’re welcome’ in Greek
@@ -97,6 +104,13 @@ thumbnail: https://thmb.techidaily.com/117606e709c16601f4ab8cc26b0c9a6396939e54d
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## From 0 to conversational in Greek
 
@@ -126,5 +140,26 @@ thumbnail: https://thmb.techidaily.com/117606e709c16601f4ab8cc26b0c9a6396939e54d
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/rucial-info-every-asmr-viewer-should-absorb-for-2024/"><u>[New] Crucial Info Every ASMR Viewer Should Absorb for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-delving-into-backward-image-analysis-techniques-for-fb-users/"><u>[New] Delving Into Backward Image Analysis Techniques for FB Users</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-creating-striking-channel-imagery-best-practices-for-success-for-2024/"><u>[Updated] Creating Striking Channel Imagery Best Practices for Success for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-photography-and-captioning-a-guide-to-dynamic-text/"><u>[Updated] Photography & Captioning A Guide to Dynamic Text</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-top-picks-for-personalizing-mbp-screens-with-skins/"><u>2024 Approved Top Picks for Personalizing MBP Screens with Skins</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-your-complete-path-to-crafting-perfect-srt-files/"><u>2024 Approved Your Complete Path to Crafting Perfect SRT Files</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/amd-radeon-r9-comprehensive-download-and-setup-of-windows-compatible-graphics-drivers/"><u>AMD Radeon R9: Comprehensive Download and Setup of Windows-Compatible Graphics Drivers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579667558-basic-anatomy-the-parts-of-the-body-in-french/"><u>Basic Anatomy: The Parts Of The Body In French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-the-genesis-of-dutch-speech/"><u>Decoding the Genesis of Dutch Speech</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-location-on-facebook-dating-for-your-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>How to Change Location On Facebook Dating for your Sony Xperia 10 V | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-best-10-mock-location-apps-worth-trying-on-vivo-v30-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Best 10 Mock Location Apps Worth Trying On Vivo V30 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-easiest-guide-how-to-clone-samsung-galaxy-m34-5g-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Easiest Guide How to Clone Samsung Galaxy M34 5G Phone? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-english-communication-skills/"><u>International English Communication Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/japanese-salutations-key-phrases-for-perfect-greeting/"><u>Japanese Salutations: Key Phrases for Perfect Greeting</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/playful-pathways-in-modern-latin-studies/"><u>Playful Pathways in Modern Latin Studies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/reach-new-heights-in-company-communication-skills/"><u>Reach New Heights in Company Communication Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-challenge-extremely-long-words-unveiled/"><u>The Ultimate Challenge: Extremely Long Words Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-the-role-of-accents-in-spanish-pronunciation/"><u>Understanding the Role of Accents in Spanish Pronunciation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unfolding-a-new-chapter-mondlys-tenth-year/"><u>Unfolding a New Chapter: Mondly's Tenth Year</u></a></li>
+</ul></div>
 

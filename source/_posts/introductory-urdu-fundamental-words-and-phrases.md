@@ -1,7 +1,7 @@
 ---
 title: "Introductory Urdu: Fundamental Words & Phrases"
-date: 2024-09-17T17:35:30.559Z
-updated: 2024-09-21T17:37:33.388Z
+date: 2024-09-20T17:53:11.018Z
+updated: 2024-09-26T21:15:11.451Z
 tags:
   - speak
   - english
@@ -107,6 +107,13 @@ thumbnail: https://thmb.techidaily.com/5003aae1e7f947a598bd55077396c6a7704237963
 * unique — _منفرد (munfarid)_
 * hope — _امید (umeed)_
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Urdu words related to food and drink
 
  Did you know that the [Urdu language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) was one of the premier languages of poetry in South Asia for centuries? And rightly so. Just listen to the music of its words and you’ll understand.
@@ -163,6 +170,13 @@ thumbnail: https://thmb.techidaily.com/5003aae1e7f947a598bd55077396c6a7704237963
 * medicine — _دوا (dawa)_
 * pharmacy — _دواخانہ (dawakhana)_
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Urdu words related to transportation and places
 
  While this crash course in Urdu words will get you from zero to beginner in as little as 15 minutes, these words will get you to the other hemisphere if you need it so.
@@ -183,16 +197,10 @@ thumbnail: https://thmb.techidaily.com/5003aae1e7f947a598bd55077396c6a7704237963
  Now that you’ve mastered some of the most basic Urdu vocabulary words, you can dive into the practical phrases that’ll help you ease into real-world conversations.
 
 <!-- affiliate ads begin -->
-<span id="1983475">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The most common Urdu phrases
@@ -228,10 +236,10 @@ thumbnail: https://thmb.techidaily.com/5003aae1e7f947a598bd55077396c6a7704237963
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Learn Urdu in just 10 minutes a day
@@ -261,5 +269,21 @@ thumbnail: https://thmb.techidaily.com/5003aae1e7f947a598bd55077396c6a7704237963
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-close-up-a-guide-to-richer-minecraft-imagery/"><u>[New] 2024 Approved Close-Up A Guide to Richer Minecraft Imagery</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-this-years-most-engrossing-channel-list-youtube-storytellers/"><u>[New] 2024 Approved This Year’s Most Engrossing Channel List YouTube Storytellers</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-foundations-in-digital-visual-narratives/"><u>[New] In 2024, Foundations in Digital Visual Narratives</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-depth-assessment-comprehensive-camstudio-toolkit-for-2024/"><u>[New] In-Depth Assessment Comprehensive CamStudio Toolkit for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-elite-women-gaming-leaders-top-10-on-yt/"><u>[Updated] 2024 Approved Elite Women Gaming Leaders Top 10 On YT</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-perfect-every-moment-incorporating-captions-in-instagram-footage/"><u>2024 Approved Perfect Every Moment Incorporating Captions in Instagram Footage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accelerated-pathways-to-fluency-in-foreign-tongues/"><u>Accelerated Pathways to Fluency in Foreign Tongues</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-music-from-motorola-moto-g73-5g-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Music from Motorola Moto G73 5G to iPod | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/milestones-ten-years-of-mondlyback-button-innovation/"><u>Milestones: Ten Years of MondlyBack Button Innovation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/shared-heritage-in-slavic-languages-uk-and-rus/"><u>Shared Heritage in Slavic Languages: Uk & Rus</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essential-uk-speak-compendium/"><u>The Essential UK Speak Compendium</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-mondly-user-guide-for-optimal-experience/"><u>The Ultimate Mondly User Guide for Optimal Experience</u></a></li>
+<li><a href="https://win11.techidaily.com/troubleshooting-enterprise-controlled-chromeedge-browsers-on-pcs/"><u>Troubleshooting Enterprise-Controlled Chrome/Edge Browsers on PCs</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/winning-windows-sound-engineers/"><u>Winning Windows Sound Engineers</u></a></li>
+</ul></div>
 

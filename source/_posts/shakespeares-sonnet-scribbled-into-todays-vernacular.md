@@ -1,7 +1,7 @@
 ---
 title: Shakespeare’s Sonnet Scribbled Into Today's Vernacular
-date: 2024-09-20T18:32:46.751Z
-updated: 2024-09-21T16:04:13.214Z
+date: 2024-09-21T18:07:49.685Z
+updated: 2024-09-26T17:30:40.569Z
 tags:
   - speak
   - english
@@ -65,9 +65,23 @@ _To invent new words, or not to invent new words?_ Clearly, William Shakespeare 
 
 _Henry V_ , Act I, Scene II
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **2\. Arch-villain**
 
 _Timon of Athens_ , Act V, Scene I
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **3\. Bandit**
 
@@ -81,6 +95,13 @@ _King John_ , Act III, Scene I
 
 _King Henry VI_ , Part III, Act III, Scene III
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **6\. Fashionable**
 
 _Troilus and Cressida_ , Act III, Scene III
@@ -89,19 +110,6 @@ _Troilus and Cressida_ , Act III, Scene III
 
 _Hamlet_ , Act I, Scene V
 
-<!-- affiliate ads begin -->
-<span id="1982485">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **8\. (to) Gossip**
 
 _The Comedy of Errors_ , Act V, Scene I
@@ -109,6 +117,13 @@ _The Comedy of Errors_ , Act V, Scene I
 ### **9\. Hint**
 
 _Othello_ , Act I, Scene III
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **10.** Laughable
 
@@ -126,16 +141,16 @@ _As You Like It_ , Act I, Scene II
 
 _A Midsummer Night’s Dream_ , Act III, Scene II
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **14.** Monumental
 
 _Troilus and Cressida_ , Act III, Scene III
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **15.** Obscene
 
@@ -145,13 +160,6 @@ _Love’s Labour’s Lost_ , Act I, Scene I
 
 _Love’s Labour’s Lost_ , Act IV, Scene III
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **17.** Olympian
 
 _King Henry VI_ , Part III, Act II, Scene III
@@ -159,6 +167,19 @@ _King Henry VI_ , Part III, Act II, Scene III
 ### **18.** Outbreak
 
 _Hamlet_ , Act II, Scene I
+
+<!-- affiliate ads begin -->
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **19\. Puking (disputed)**
 
@@ -172,13 +193,6 @@ _All’s Well That Ends Well_ , Act I, Scene I
 
 _Hamlet_ , Act V, Scene I
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **22\. (to) Swagger**
 
 _A Midsummer Night’s Dream_ , Act III, Scene I
@@ -187,16 +201,16 @@ _A Midsummer Night’s Dream_ , Act III, Scene I
 
 _Othello_ , Act III, Scene III
 
-<!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **24.** Unreal
 
 _Macbeth_ , Act III, Scene IV
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **25\. Zany**
 
@@ -208,6 +222,13 @@ _Love’s Labour’s Lost_ , Act V, Scene II
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Improve thy English with speed
 
@@ -238,5 +259,24 @@ _Love’s Labour’s Lost_ , Act V, Scene II
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-comprehensive-picsart-breakdown-for-2024/"><u>[New] Comprehensive PicsArt Breakdown for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-selecting-androids-best-youtube-video-extractors/"><u>[Updated] In 2024, Selecting Android's Best YouTube Video Extractors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/boost-your-czech-skills-with-easy-digital-methods/"><u>Boost Your Czech Skills with Easy Digital Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-the-complexities-of-spanish-verbs/"><u>Decoding the Complexities of Spanish Verbs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dubai-2020-expo-transforming-language-education/"><u>Dubai 2020 Expo: Transforming Language Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-on-calls-for-japanese-enthusiasts/"><u>Essential On-Calls for Japanese Enthusiasts</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-hidefake-snapchat-location-on-your-tecno-pop-7-pro-drfone-by-drfone-virtual-android/"><u>How to Hide/Fake Snapchat Location on Your Tecno Pop 7 Pro | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-3-ways-to-change-location-on-facebook-marketplace-for-samsung-galaxy-s21-fe-5g-2023-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Change Location on Facebook Marketplace for Samsung Galaxy S21 FE 5G (2023) | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-languages-with-mondlys-updated-guide/"><u>Master Languages with Mondly's Updated Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-french-social-interactions-a-guide-to-common-greetings/"><u>Navigating French Social Interactions: A Guide to Common Greetings</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/quantifiable-quirks-yearly-graphed-tidbits-from-yt-2017-for-2024/"><u>Quantifiable Quirks Yearly Graphed Tidbits From YT (2017) for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-beginners-guide-to-establishing-an-additional-gmail-identity/"><u>The Beginner's Guide to Establishing an Additional Gmail Identity</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/toms-tech-reviews-in-depth-insights-on-computer-hardware/"><u>Tom's Tech Reviews: In-Depth Insights on Computer Hardware</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/um-preciso-guia-ao-falar-em-portugal-frases-de-cunho-amigavel/"><u>Um Préciso Guia Ao Falar Em Portugal - Frases De Cunho Amigável</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/update-or-install-new-drivers-on-epson-scanners-with-these-direct-downloads/"><u>Update or Install New Drivers on Epson Scanners with These Direct Downloads</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/what-you-want-to-know-about-two-factor-authentication-for-icloud-from-your-apple-iphone-xs-max-by-drfone-ios/"><u>What You Want To Know About Two-Factor Authentication for iCloud From your Apple iPhone XS Max</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/wordplay-wins-the-seductive-language-of-spanish/"><u>Wordplay Wins: The Seductive Language of Spanish</u></a></li>
+</ul></div>
 

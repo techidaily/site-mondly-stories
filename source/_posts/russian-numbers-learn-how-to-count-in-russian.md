@@ -1,7 +1,7 @@
 ---
 title: Russian Numbers – Learn How to Count in Russian
-date: 2024-09-18T17:40:38.174Z
-updated: 2024-09-21T18:18:19.252Z
+date: 2024-09-21T18:53:18.176Z
+updated: 2024-09-26T20:01:50.862Z
 tags:
   - speak
   - english
@@ -36,6 +36,13 @@ thumbnail: https://thmb.techidaily.com/50b8c0240239aa64db52b1f5d6c9798f04334cb3a
 * feminine: одна _(odna)_ ; две _(dve)_
 * neuter: одно _(odno)_ ; два _(dva)_
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Learn how to count to 20 in Russian
 
  Did you manage to learn the Russian pronunciation for the first ten numbers? If you are having issues with the accent, you can [get Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4729&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4729?mother%5Flang=en%5Fus?target%5Flang=ru&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4729?mother%5Flang=en%5Fus?target%5Flang=ru) now and hear them pronounced by professional Russian speakers.
@@ -56,6 +63,13 @@ If you did manage, good job! You must be a natural.
 
 ![russian numbers](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-numbers-600x424.jpg "Russian Numbers - Learn How To Count In Russian 4")
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Russian tens
 
 Here are some examples:
@@ -72,6 +86,13 @@ And guess what! It works the same with the hundreds.
 
 ![russian hundreds](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-hundreds-600x424.jpg "Russian Numbers - Learn How To Count In Russian 5")
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Russian hundreds
 
  For example, if you want to say 146, you say сто сорок шесть_(sto sorok shest)_ .
@@ -79,10 +100,10 @@ And guess what! It works the same with the hundreds.
 Not as hard as you’d expect, is it?
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Russian ordinal numbers
@@ -128,5 +149,24 @@ Not as hard as you’d expect, is it?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/updated-how-video-testimonials-shape-perception-and-trust/"><u>[Updated] How Video Testimonials Shape Perception and Trust</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/communications-kings-in-asia-top-3-languages/"><u>Communication's Kings in Asia: Top 3 Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultivate-communication-skills-with-pearson/"><u>Cultivate Communication Skills with Pearson</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/effortlessly-merge-gpt-4-with-your-current-chatgpt-use/"><u>Effortlessly Merge GPT-4 with Your Current ChatGPT Use</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/elite-aerial-camera-assistants-for-gopro-enthusiasts/"><u>Elite Aerial Camera Assistants for GoPro Enthusiasts</u></a></li>
+<li><a href="https://fox-that.techidaily.com/fast-solutions-resolve-issues-with-predictive-emojis-on-your-iphoneipad/"><u>Fast Solutions: Resolve Issues with Predictive Emojis on Your iPhone/iPad</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/fixing-the-infamous-video-dxgkrnl-bsod-issue-in-windows-11-step-by-step-guide/"><u>Fixing the Infamous Video Dxgkrnl BSOD Issue in Windows 11: Step-by-Step Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-competency-the-edge-of-being-bilingualmultilingual/"><u>Global Competency: The Edge Of Being Bilingual/Multilingual</u></a></li>
+<li><a href="https://change-location.techidaily.com/home-button-not-working-on-xiaomi-redmi-note-13-pro-5g-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on Xiaomi Redmi Note 13 Pro 5G? Here Are Real Fixes | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/romantic-revelations-love-verses-in-multiple-dialects/"><u>Romantic Revelations: Love Verses in Multiple Dialects</u></a></li>
+<li><a href="https://common-error.techidaily.com/solving-the-application-failed-to-load-error-code-0xc000007b-a-complete-guide/"><u>Solving the 'Application Failed to Load Error Code 0xC000007B' – A Complete Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/supercharge-your-second-language-skills-fast/"><u>Supercharge Your Second Language Skills, Fast!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-learning-croatian-top-7-reasons-explored/"><u>The Ultimate Guide to Learning Croatian – Top 7 Reasons Explored</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-5-apps-for-language-teachers/"><u>Top 5 Apps For Language Teachers</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-final-cut-pro-tutorial-reversing-video-clips-made-easy-for-2024/"><u>Updated Final Cut Pro Tutorial Reversing Video Clips Made Easy for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/usb-audio-driver-updates-a-step-by-step-guide-for-windows-11107-users/"><u>USB Audio Driver Updates: A Step-by-Step Guide for Windows 11/10/7 Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-choose-german-herere-10-key-points/"><u>Why Choose German? Here're 10 Key Points</u></a></li>
+</ul></div>
 

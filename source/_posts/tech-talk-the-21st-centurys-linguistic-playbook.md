@@ -1,7 +1,7 @@
 ---
 title: "Tech Talk: The 21St Century's Linguistic Playbook"
-date: 2024-09-16T20:09:24.850Z
-updated: 2024-09-21T19:02:31.330Z
+date: 2024-09-19T18:08:56.574Z
+updated: 2024-09-26T20:54:57.706Z
 tags:
   - speak
   - english
@@ -30,6 +30,19 @@ thumbnail: https://thmb.techidaily.com/70cafb81e97d380bf1f55403cf595cebfeb242757
 
 ![pexels photo 46274](https://edge.mondly.com/blog/wp-content/uploads/2017/05/pexels-photo-46274.jpg "The Best Way To Learn A Foreign Language In The 21St Century 2")
 
+<!-- affiliate ads begin -->
+<span id="1982457">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Learning a foreign language with the help of technology
 
  Times have changed. Learning has changed. Nowadays, with the boom of technology, methods of learning a language have become more diverse. While the classic teacher-to-student approach is still the norm, other methods have made their way into our world. Technological advancements are now filling the gaps in the regular type of learning.
@@ -50,24 +63,24 @@ thumbnail: https://thmb.techidaily.com/70cafb81e97d380bf1f55403cf595cebfeb242757
 
 ![Language learning with Mondly VR, nominated for Best Education Startup of 2017 at The Europas](https://edge.mondly.com/blog/wp-content/uploads/2017/05/Mondly-VR-Learn-languages-free-online-Feature-Graphic.png "The Best Way To Learn A Foreign Language In The 21St Century 3")
 
- The movie Matrix opened the gates to a world where you just plug your brain into a computer and immediately acquire a new language or skill. Elon Musk is one of the most-talked-about names in tech nowadays! What does he have in common with learning languages? Well, he’s developing devices that can be implanted into the human brain, and their end purpose would be to help humans “ [merge with software and keep pace with advancements in artificial intelligence](https://www.theverge.com/2017/3/27/15077864/elon-musk-neuralink-brain-computer-interface-ai-cyborgs)  ”. This could open doors for developers to bring lessons straight into your brain! Take a second to let that sink in – at the click of a button, a language would be merged with your brain! (Matrix, anyone?)
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ The movie Matrix opened the gates to a world where you just plug your brain into a computer and immediately acquire a new language or skill. Elon Musk is one of the most-talked-about names in tech nowadays! What does he have in common with learning languages? Well, he’s developing devices that can be implanted into the human brain, and their end purpose would be to help humans “ [merge with software and keep pace with advancements in artificial intelligence](https://www.theverge.com/2017/3/27/15077864/elon-musk-neuralink-brain-computer-interface-ai-cyborgs)  ”. This could open doors for developers to bring lessons straight into your brain! Take a second to let that sink in – at the click of a button, a language would be merged with your brain! (Matrix, anyone?)
 
 ## 10 best ways to learn a language
 
  Learning a new language seems easier than ever, so, regardless of your age and occupation, it’s worth it to take some time and devotion. Here are some ways to [learn a language on your own](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , at home, or with a group of friends:
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Make time
@@ -80,29 +93,29 @@ thumbnail: https://thmb.techidaily.com/70cafb81e97d380bf1f55403cf595cebfeb242757
 
 ![young people socializing](https://edge.mondly.com/blog/wp-content/uploads/2017/05/young-people-socializing-960x640.jpg "The Best Way To Learn A Foreign Language In The 21St Century 4")
 
- Socializing is crucial.
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Socializing is crucial.
 
 ### 3\. Socialize
 
  One of the best ways to learn something new is to expose yourself through practice. When learning a new language, developing the speaking skills is crucial, so try to socialize with people who speak the language at a proficiency level.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. Allow yourself to make mistakes
 
  When children learn, everybody encourages them to make mistakes and find the right path. As adults, we start feeling embarrassed, we become frustrated and give up. Allow yourself to make mistakes, ask to be corrected, and accept that learning takes time.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5\. Be consistent
 
@@ -122,22 +135,22 @@ You might be interested in [learning a new language](https://shop.mondly.com/aff
 
 ![young woman learning on laptop](https://edge.mondly.com/blog/wp-content/uploads/2017/05/young-woman-learning-on-laptop-960x640.jpg "The Best Way To Learn A Foreign Language In The 21St Century 5")
 
-<!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Learn anytime, anywhere.
 
 [Start with Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  and discover how you can learn a language fluently with little effort.
+
+<!-- affiliate ads begin -->
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 9\. Choose books you already read
 
@@ -177,5 +190,22 @@ You might be interested in [learning a new language](https://shop.mondly.com/aff
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-videos.techidaily.com/new-detailed-analysis-of-youtubes-versus-dailymentions/"><u>[New] Detailed Analysis of YouTubes Versus DailyMentions</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-simplify-virtual-collaboration-a-zoom-setup-overview/"><u>[New] In 2024, Simplify Virtual Collaboration A Zoom Setup Overview</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-perfecting-iphone-images-in-dim-light/"><u>[Updated] Perfecting iPhone Images in Dim Light</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-from-airwaves-to-e-readers-how-to-save-web-tv-shows/"><u>2024 Approved From Airwaves To E-Readers How to Save Web TV Shows</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-pioneering-play-integrating-vr-in-recreation/"><u>2024 Approved Pioneering Play Integrating VR in Recreation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/guide-to-the-top-120-vietnamese-expressions/"><u>Guide to the Top 120 Vietnamese Expressions</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-tecno-spark-go-2024-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Tecno Spark Go (2024) | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/imessages-changing-to-texts-is-being-blocked-the-cause/"><u>IMessages Changing to Texts: Is Being Blocked the Cause?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/joyeux-noel-french/"><u>Joyeux Noël (French)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-year-diverse-linguistic-dreams/"><u>New Year, Diverse Linguistic Dreams</u></a></li>
+<li><a href="https://win-able.techidaily.com/1723003669713-resolve-microsoft-edge-stability-issues-in-windows-11-with-these-tips/"><u>Resolve Microsoft Edge Stability Issues in Windows 11 with These Tips!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tagalog-learning-effortless-for-busy-individuals-every-day/"><u>Tagalog Learning: Effortless for Busy Individuals Every Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-10-reasons-to-start-learning-a-foreign-language/"><u>Top 10 Reasons To Start Learning A Foreign Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transnational-tongues-turkish-korean-twine/"><u>Transnational Tongues: Turkish-Korean Twine</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-israels-charms-invaluable-travel-tips-and-phrases/"><u>Unlock Israel's Charms: Invaluable Travel Tips & Phrases</u></a></li>
+</ul></div>
 

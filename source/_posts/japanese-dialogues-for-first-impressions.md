@@ -1,7 +1,7 @@
 ---
 title: Japanese Dialogues for First Impressions
-date: 2024-09-16T16:58:04.123Z
-updated: 2024-09-21T20:06:33.253Z
+date: 2024-09-23T18:02:32.021Z
+updated: 2024-09-26T19:32:41.124Z
 tags:
   - speak
   - english
@@ -49,6 +49,13 @@ thumbnail: https://thmb.techidaily.com/a297ffbc354d264eb1493e128ad67218845cfbc00
 
  Unlike English, which uses the same “hello” for a lot of different social contexts, the Japanese language has a dedicated “hello” for answering the phone:**moshi moshi (もしもし).** Doesn’t that sound cute?
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Good morning in Japanese and other relevant greetings
 
 **Good morning in Japanese**   **– O_hayō gozaimasu_**  (おはよう ございます) is the best choice for greeting someone in the early morning hours (before 10:00 a.m.). Unlike_Konnichiwa_ ,   **O_hayō gozaimasu_**  a little more formal, so it’s safe to use it with people you don’t know or when you are meeting people in a position of authority (such as your boss or your teacher).
@@ -64,6 +71,13 @@ This greeting is used both as a “hello” and as a “goodbye”.
 **Bonus tip:** Morning and evening are more carefully delimited in the Japanese culture than in the West. So it’s important to know your**_Konnichiwa_** and never use it instead of**_Konbanwa_** or**_Oyasuminasai._**
 
 ![hi in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-japanese-960x639.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 3")
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  “Meguro River, Matsuno, Japan” by Sora Sagano©
 
@@ -87,10 +101,10 @@ This greeting is used both as a “hello” and as a “goodbye”.
  “See you soon, human” by Alain Pham©
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. “Thank you” in Japanese and other polite phrases that you should know
@@ -117,14 +131,14 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![arigato](https://edge.mondly.com/blog/wp-content/uploads/2019/08/arigato-1024x706.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 5")
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
-  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “Kyoto, Japan” by Andre Benz©
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Don’t forget about the Japanese bow
 
@@ -141,13 +155,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
  – 30-degree bows are for people you just met or are of a higher social status than you;
 
  – 45-degree bows are used for greetings only if you meet a very important person like the Emperor or the Prime Minister.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Bonus: basic conversation in Japanese
 
@@ -200,5 +207,22 @@ This greeting is used both as a “hello” and as a “goodbye”.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-the-ultimate-hunt-cut-to-7-fps-giants/"><u>[New] The Ultimate Hunt Cut to 7 FPS Giants</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-ultimate-guide-to-top-16-free-video-players-for-2024/"><u>[New] Ultimate Guide to Top 16 Free Video Players for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-beijings-frigid-triumph-in-winter-sports-2022/"><u>[Updated] Beijing's Frigid Triumph in Winter Sports, 2022</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-forge-viral-content-adobe-memes/"><u>2024 Approved Forge Viral Content Adobe Memes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/arabic-for-beginners-a-step-by-step-guide/"><u>Arabic For Beginners: A Step By Step Guide</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-counteract-failed-imports-of-iphone-photos-in-windows-os/"><u>How To Counteract Failed Imports of iPhone Photos in Windows OS</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-explore-androids-best-moba-experiences-in-10/"><u>In 2024, Explore Android's Best MOBA Experiences in #10</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-through-italy-a-linguistically-powerful-guide/"><u>Journey Through Italy: A Linguistically Powerful Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-through-spanish-verb-forms/"><u>Navigating Through Spanish Verb Forms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/parisian-cupids-guide-to-sweet-talking/"><u>Parisian Cupid's Guide to Sweet Talking</u></a></li>
+<li><a href="https://techtrends.techidaily.com/step-by-step-guide-upgrading-your-ps5-with-an-ssd/"><u>Step-by-Step Guide: Upgrading Your PS5 with an SSD</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-power-and-potential-of-claude-2/"><u>The Power and Potential of Claude 2</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ultimate-strategy-for-speedy-mastery-of-czech-skills-online/"><u>Ultimate Strategy for Speedy Mastery of Czech Skills Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-the-lexicon-of-vietnamese-travel/"><u>Unlocking the Lexicon of Vietnamese Travel</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/witchcraft-and-pumpkins-across-borders/"><u>Witchcraft & Pumpkins Across Borders</u></a></li>
+</ul></div>
 

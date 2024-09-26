@@ -1,7 +1,7 @@
 ---
 title: Salutations Françaises Pour Accueillir
-date: 2024-09-19T18:43:55.870Z
-updated: 2024-09-21T17:24:01.580Z
+date: 2024-09-23T18:06:30.536Z
+updated: 2024-09-26T21:15:58.901Z
 tags:
   - speak
   - english
@@ -46,6 +46,13 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
 
 ![de rien](https://edge.mondly.com/blog/wp-content/uploads/2021/05/de-rien-960x540.jpg "4 Popular Ways To Say You’re Welcome In French 2")
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  “Strasbourg, France” by Patrick Robert Doyle©
 
 ## 2\. The informal “you’re welcome”:_je t’en prie_
@@ -53,6 +60,13 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
  Like_‘de rien’_ , which is certainly the most casual way to say you’re welcome in French, ‘_je t’en prie’_ is another informal way to respond to someone who expressed their gratitude towards you.
 
  It is most common amongst very close friends and family members. This particular form is most appropriate when you want to express a higher level of gratitude than_‘de rien’_ , but with somebody close to you, with whom your relationship is casual.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### The literal translation of_‘je t’en prie’_
 
@@ -86,25 +100,25 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
 
 ![you're welcome](https://edge.mondly.com/blog/wp-content/uploads/2021/05/youre-welcome-960x640.jpg "4 Popular Ways To Say You’re Welcome In French 3")
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “Southern France, Toulouse” by DAT VO©
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. The easiest to remember:_pas de problème_
 
  When you’re in the early stages of [learning French](https://travel-lingual.com/how-long-take-to-learn-french/) , sometimes the most sensible thing to do is use what you can remember. The word_‘problème’_ in this particular French expression resembles the English word ‘problem’ and should not be too difficult for you to learn. Be cautious of the [French grave accent](https://travel-lingual.com/french-accent-marks/) on the_‘e’_ as this alters the pronunciation of the word.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### The literal translation of_‘pas de problème’_
 
@@ -119,13 +133,6 @@ Example:
  B:_Non, desolé, aucune idée !_ (“No, sorry. No idea!”)
 
  A:_Pas de problème. Merci._ (“No problem. Thanks.”)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Bonus: Less common ways to say “you’re welcome” in French
 
@@ -179,5 +186,19 @@ _Th_ _is post is delivered to you by James A. Smith._
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-strategies-to-have-your-video-embrace-by-vimeo-experts/"><u>[New] 2024 Approved Strategies to Have Your Video Embrace by Vimeo Experts</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-twitters-reaction-reel-a-comprehensive-guide-for-23/"><u>[New] In 2024, Twitter's Reaction Reel A Comprehensive Guide for '23</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-behind-the-smile-the-deeper-story-in-each-snapchat-emoji/"><u>[Updated] 2024 Approved Behind the Smile The Deeper Story in Each Snapchat Emoji</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-easy-steps-to-record-skype-on-both-platforms/"><u>[Updated] 2024 Approved Easy Steps to Record Skype on Both Platforms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/adapting-classroom-practices-to-non-native-speakers/"><u>Adapting Classroom Practices to Non-Native Speakers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grasping-the-essentials-of-english-grammar-a-focus-on-contractions/"><u>Grasping the Essentials of English Grammar: A Focus on Contractions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-enters-alliance-with-pearson-institute/"><u>Mondly Enters Alliance with Pearson Institute</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-launched-the-first-ever-language-app-on-oculus-quest/"><u>Mondly Launched the First-Ever Language App on Oculus Quest</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-greetings-compendium/"><u>Multilingual Greetings Compendium</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-oppo-find-x6-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Oppo Find X6? | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/switch-webm-media-to-wma-audio-and-video-seamlessly-use-convertify-for-no-cost-upgrade/"><u>Switch WebM Media to WMA Audio & Video Seamlessly - Use Convertify for No-Cost Upgrade!</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/vmix-alternative-for-mac-and-windows/"><u>VMix Alternative for Mac and Windows</u></a></li>
+</ul></div>
 

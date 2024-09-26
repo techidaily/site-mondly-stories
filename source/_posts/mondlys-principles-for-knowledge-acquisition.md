@@ -1,7 +1,7 @@
 ---
 title: Mondly's Principles for Knowledge Acquisition
-date: 2024-09-19T17:11:38.382Z
-updated: 2024-09-21T18:21:47.594Z
+date: 2024-09-22T19:34:44.081Z
+updated: 2024-09-26T19:57:55.832Z
 tags:
   - speak
   - english
@@ -42,6 +42,13 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
 
  Basically, what happens in the app is that new and more difficult words or phrases will be shown together with older and less difficult ones. But as you progress, the old information will be shown less and less frequently than the new one. This technique makes sure that the information you learned is well-cemented in your brain before moving on to new concepts.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Lexical coverage: focus on the most common words
 
  Improving your vocabulary is, without a doubt, one of the key aspects of language learning. The more words you’ll know, the closer you’ll be to fluency. But keep in mind that not all words are equally important.
@@ -49,6 +56,13 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
 [Studies](https://academic.oup.com/applij/article-abstract/34/4/457/199564?redirectedFrom=fulltext) have shown that knowing as little as 100 words helps you understand 50% of any text in the language you’re learning. Surprising as it may seem, it’s true. Knowing 1,000 words will give you a high coverage of 75% of any text. Here’s how much lexical coverage you need to reach fluency in almost any language:
 
 ![lexical coverage](https://edge.mondly.com/blog/wp-content/uploads/2021/10/lexical-coverage-960x761.png "The Learning Method Behind Mondly 5")
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lexical coverage overview
 
@@ -60,6 +74,13 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Take Mondly for a test drive
 
@@ -84,12 +105,23 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-easy-youtube-introduction-design-tips-and-tricks/"><u>2024 Approved Easy YouTube Introduction Design Tips and Tricks</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/best-ways-on-how-to-unlockbypassswiperemove-poco-x5-pro-fingerprint-lock-by-drfone-android/"><u>Best Ways on How to Unlock/Bypass/Swipe/Remove Poco X5 Pro Fingerprint Lock</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/break-the-ice-with-indonesian-social-phrases/"><u>Break the Ice with Indonesian Social Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-indonesian-chit-chat-starts-here/"><u>Discovering Indonesian Chit-Chat Starts Here</u></a></li>
+<li><a href="https://win-able.techidaily.com/elevate-your-horizon-zero-dawn-adventure-how-to-achieve-higher-fps-rates-effortlessly/"><u>Elevate Your Horizon Zero Dawn Adventure: How to Achieve Higher FPS Rates Effortlessly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-uks-colloquialisms-a-slang-guidebook/"><u>Embrace UK's Colloquialisms: A Slang Guidebook</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/free-electronic-signatures-for-word-2021-by-ldigisigner-sign-a-word-sign-a-word/"><u>Free electronic signatures for Word 2021</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-troubleshooting-error-connecting-to-the-apple-id-server-from-iphone-12-mini-by-drfone-ios/"><u>In 2024, Troubleshooting Error Connecting to the Apple ID Server From iPhone 12 mini</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-infinix-smart-8-hd-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For Infinix Smart 8 HD Phones</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/navigate-a-2023-hack-steps-to-regain-fb-access-for-2024/"><u>Navigate a 2023 Hack Steps to Regain FB Access for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/proficiency-in-global-communication-german-or-french/"><u>Proficiency in Global Communication: German Or French?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-swift-polsk-learners-handbook/"><u>The Swift Polsk Learner's Handbook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-top-10-italian-greetings-how-to-say-hello-in-italian/"><u>The Top 10 Italian Greetings: How To Say Hello In Italian</u></a></li>
+<li><a href="https://media-tips.techidaily.com/top-10-gif-generators-ranked-discover-the-best-applications-for-making-engaging-animated-images/"><u>Top 10 GIF Generators Ranked: Discover the Best Applications for Making Engaging Animated Images</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/troubleshooting-unavailable-display-modes/"><u>Troubleshooting Unavailable Display Modes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-french-skills-from-your-living-room/"><u>Unlock French Skills From Your Living Room</u></a></li>
+</ul></div>
 

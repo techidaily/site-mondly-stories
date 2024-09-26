@@ -1,7 +1,7 @@
 ---
 title: "Politeness Profiles: The Art of Saying Thanks Across Cultures (154)"
-date: 2024-09-16T16:37:52.787Z
-updated: 2024-09-21T17:59:16.405Z
+date: 2024-09-22T18:24:25.558Z
+updated: 2024-09-26T20:42:57.426Z
 tags:
   - speak
   - english
@@ -58,6 +58,13 @@ thumbnail: https://thmb.techidaily.com/fae766879cd08ae756a7af9db37ac778f5fbfa89e
 
  “Thanks” by Hanny Naibaho©
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044582/7443" target="_top" id="2044582">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044582" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044582/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The origin of saying “thank you”
 
  The mere act of expressing gratitude sits at the core of human interaction, so it should be interesting to analyze it a bit more. As the [Oxford Dictionaries](https://en.oxforddictionaries.com/definition/thank%5Fyou) explain, “thank you” is “a polite expression used when acknowledging a gift, service, or compliment, or accepting or refusing an offer”. “Thank you” is basically the general expression of gratitude or politeness to someone for an act of kindness that he or she has done.
@@ -80,6 +87,13 @@ thumbnail: https://thmb.techidaily.com/fae766879cd08ae756a7af9db37ac778f5fbfa89e
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
+  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## From 0 to conversational in over 40 languages
 
@@ -109,12 +123,19 @@ thumbnail: https://thmb.techidaily.com/fae766879cd08ae756a7af9db37ac778f5fbfa89e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-expand-your-instagram-skills-advanced-use-of-queries-for-2024/"><u>[New] Expand Your Instagram Skills Advanced Use of Queries for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-affordable-devices-customized-obs-tweaks/"><u>[New] In 2024, Affordable Devices Customized OBS Tweaks</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-the-best-compact-audio-capturers-for-ipads-and-macs/"><u>[New] In 2024, The Best Compact Audio Capturers for iPads and Macs</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-efficient-look-up-table-techniques-for-movies/"><u>[Updated] In 2024, Efficient Look-Up Table Techniques for Movies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-languages-spanish-por-que-and-english-why/"><u>Bridging Languages: Spanish 'Por Que' And English 'Why'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-kids-world-safely-mondlys-back-and-filter-features/"><u>Discover Kids’ World Safely - Mondly's Back and Filter Features</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/harnessing-hype-strategies-to-elevate-your-instagram-presence-for-2024/"><u>Harnessing Hype Strategies to Elevate Your Instagram Presence for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-improve-english-speaking-9-tips-and-tricks/"><u>How To Improve English Speaking: 9 Tips And Tricks</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-a-detailed-vpna-fake-gps-location-free-review-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed VPNa Fake GPS Location Free Review On Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-community-cinema-collector-pro/"><u>In 2024, Community Cinema Collector Pro</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-and-pearson-unite-for-next-gen-filtering-tools/"><u>Mondly and Pearson Unite for Next-Gen Filtering Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-transformation-from-frankish-to-nederlands/"><u>The Transformation From Frankish to Nederlands</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Latin Lingo for Leaders: Best 50 Expressions to Impress All"
-date: 2024-09-20T17:10:29.862Z
-updated: 2024-09-21T16:11:25.314Z
+date: 2024-09-22T16:16:23.885Z
+updated: 2024-09-26T16:03:37.360Z
 tags:
   - speak
   - english
@@ -30,9 +30,23 @@ These are nearly as famous as Julius Caesar himself.
 
  Another Latin phrase said by Julius Caesar upon crossing the Rubicon to enter Italy and begin the long civil war against Pompey and the Optimates. The meaning of this phrase refers to the point of no return.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **Carpe diem. —** _Seize the day._
 
  Probably the most popular Latin phrase of modern times. Luckily, we have an even better one:_carpe vinum_ . Literally ‘seize the wine’. The only Latin phrase you’ll ever need on a Friday night out. And speaking of night, you should also remember the_carpe noctem_ variation which literally translates to ‘seize the night’. Either way, the general meaning is to make the most of everything.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087262/19272" target="_top" id="2087262">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087262" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087262/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **Cogito, ergo sum. —** _I think, therefore I am._
 
@@ -40,22 +54,15 @@ These are nearly as famous as Julius Caesar himself.
 
  What Descartes doesn’t know is that nowadays people prefer the_bibo, ergo sum_ version which literally means “I drink, therefore I am”.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **In vino veritas. —_In wine, there is truth._**
 
  Be careful if you_carpe vinum_ on that Friday night out we talked about. This Latin saying suggests that you’ll probably spill all your secrets if you drink too much alcohol.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **Et tu, Brute? —** _“And you, Brutus?”_
@@ -65,22 +72,15 @@ These are nearly as famous as Julius Caesar himself.
  That scene is very tragic indeed, but nowadays, the phrase can be used jokingly to condemn a friend’s change of heart.
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **Acta, non verba. —** _Deeds, not words._
 
  Similar to_res, non verba_ , the English equivalent of this phrase is “actions speak louder than words”. In other words, act upon it or always follow your declarations with actions.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **Carthago delenda est. —** _Carthage must be destroyed._
 
@@ -89,6 +89,13 @@ These are nearly as famous as Julius Caesar himself.
 ![latin phrases](https://edge.mondly.com/blog/wp-content/uploads/2021/07/latin-phrases.jpg "50 Popular Latin Phrases To Impress Your Friends 6")
 
  Using some Latin phrases here and there will automatically make you look smarter.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Common Latin Words & Sayings
 
@@ -183,6 +190,13 @@ Get ready to bring your Roman alter ego to life in 3… 2… 1\. Go!
  Or so Lucretius said. Originally meaning “work is required to succeed”, the modern reinterpretation suggests that “everything has its origins in something”.
 
 ![common latin phrases](https://edge.mondly.com/blog/wp-content/uploads/2021/07/common-latin-phrases-960x720.jpg "50 Popular Latin Phrases To Impress Your Friends 8")
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  “Laughing” by Peter Lloyd©
 
@@ -282,6 +296,13 @@ Different phrase, same story. You’re welcome.
 
 ![latin words](https://edge.mondly.com/blog/wp-content/uploads/2021/07/latin-words-960x640.jpg "50 Popular Latin Phrases To Impress Your Friends 9")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  “Roman statue” by engin akyurt©
 
 ## Latin Words and Phrases for Love
@@ -315,13 +336,6 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
  Besides, Latin can prepare you for many professions or simply discussions with scholarly people. These fields include law, medicine, science, music, theology, philosophy, art, and literature. Many scholars believe that learning Latin also sharpens the mind and cultivates analysis and attention.
 
  Furthermore, the Latin language is rich in life lessons, mottos and words to live by. By learning these sayings, you’ll not only improve your vocabulary but also your life experience.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Why are Latin words used in law?
 
@@ -361,5 +375,23 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-elevate-traffic-with-these-top-11-facebook-video-tactics/"><u>[New] 2024 Approved Elevate Traffic with These Top 11 Facebook Video Tactics</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-unleash-your-vision-the-best-tiktok-editing-guide/"><u>[New] Unleash Your Vision The Best TikTok Editing Guide</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-capture-your-gameplay-essential-webcams-for-twitch-enthusiasts-for-2024/"><u>[Updated] Capture Your Gameplay Essential Webcams For Twitch Enthusiasts for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-from-shoots-to-screens-dslr-setup-for-youtubefacebook-live/"><u>[Updated] In 2024, From Shoots to Screens DSLR Setup for YouTube/Facebook Live</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-ultimate-review-of-lg-bp350-for-home-theaters/"><u>[Updated] Ultimate Review of LG BP350 for Home Theaters</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-major-firstrow-pursuits-that-arent-games/"><u>2024 Approved Major Firstrow Pursuits That Aren't Games</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-riddle-me-this-the-ultimate-room-conundrums/"><u>2024 Approved Riddle Me This The Ultimate Room Conundrums</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-germanys-favorite-ways-to-show-appreciation/"><u>Explore Germany's Favorite Ways to Show Appreciation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-monday-morning-rushes-to-sunday-slumbers/"><u>From Monday Morning Rushes to Sunday Slumbers</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/logitech-k400plus-wireless-keyboard-software-and-drivers-install-now/"><u>Logitech K400+ Wireless Keyboard Software and Drivers: Install Now</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/make-learning-a-new-language-your-2024-new-years-resolution/"><u>Make Learning A New Language Your 2024 New Year's Resolution</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-pearson-alliance-for-advanced-filtering-buttons/"><u>Mondly-Pearson Alliance for Advanced Filtering Buttons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-language-leap-with-10-minute-method/"><u>Quick Language Leap with 10-Minute Method</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rethinking-the-role-of-grammar-in-language-acquisition/"><u>Rethinking the Role of Grammar in Language Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-norse-narratives-vikings-linguistic-legacy/"><u>Unlocking Norse Narratives: Vikings' Linguistic Legacy</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/virtualdub-review-pros-cons-and-top-competitors-you-should-know-for-2024/"><u>Virtualdub Review Pros, Cons, and Top Competitors You Should Know for 2024</u></a></li>
+</ul></div>
 

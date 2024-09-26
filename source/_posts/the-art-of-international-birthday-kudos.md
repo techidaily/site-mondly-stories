@@ -1,7 +1,7 @@
 ---
 title: The Art of International Birthday Kudos
-date: 2024-09-16T16:18:20.595Z
-updated: 2024-09-21T18:04:37.798Z
+date: 2024-09-19T21:05:57.961Z
+updated: 2024-09-26T19:35:35.127Z
 tags:
   - speak
   - english
@@ -30,9 +30,23 @@ Have you ever thought about how people from other cultures sing birthday songs? 
 
 ![Happy Birthday in French Bon Anniversaire](https://edge.mondly.com/blog/wp-content/uploads/2018/12/Happy-Birthday-in-French-Bon-Anniversaire.png "How To Say &Quot;Happy Birthday&Quot; In Different Languages 2")
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Image source: <http://www.manutention-dauphine.fr>
 
 Joyeux Anniversaire or Bon Anniversaire are the standard ways to wish someone a happy birthday in French. But if you are speaking Canadian French or Quebec, you should say Bonne fête, meaning “Good party/Birthday”. French and English birthdays are often alike. Celebrations include party time, cake, gifts and songs like ‘Joyeux Anniversaire’. Most birthday parties are thrown on Wednesdays as French have their Wednesdays off.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Happy Birthday in Chinese:** **生日快** **乐** **(Shēngrì Kuàilè)**
 
@@ -49,22 +63,15 @@ Image source: <https://tops.ua>
 If you want to say “happy birthday” in Russian, you say “S Dnem Rozhdeniya”. And if you feel like memorizing a longer phrase, add “pozdravlyayu” in the start and it will transform to “I congratulate you on your birthday”. Russians have a funny tradition of celebrating. The guests pull the celebrated’s ears for a number of times equal to his or her age. The phrase “Grow up – don’t be noodles,” is considered as a sign of good omen for the growth of children. It means the child will grow up strong and healthy. Birthday songs are not common am0ng them, but if the person has survived after a severe accident, that day is celebrated as another birthday.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Happy Birthday in Dutch: Gefeliciteerd Met Je Verjaardag**
 
 “Gefeliciteerd Met Je Verjaardag” means “Congratulations on your birthday!” in the Netherlands. An interesting custom here is that they mark their calendars for everyone’s birthday and keep that calendar by their toilet. It acts as a reminder for birthdays since forgetting one’s birthday is a major offense to your loved ones. The 50th birthday is celebrated with full bliss and cheer because it is thought that at the age of 50, men see Abraham and women see Sarah – the biblical couple who gave birth to a child at a very old age.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Happy Birthday in Swedish: Grattis På Födelsedagen**
 
@@ -73,6 +80,13 @@ If you want to say “happy birthday” in Russian, you say “S Dnem Rozhdeniya
 Image source: <https://trivselkort.com>
 
 “Grattis På Födelsedagen” is translated to “Birthday congratulations!” in Swedish. The Swedish culture has a lot of love for celebrating birthdays. They often surprise the celebrated with birthday gifts and breakfast in bed while singing “Ja, ma du leva” meaning “Yes, may you live”. Their traditional party has a cake coated in green marzipan with gifts wrapped in blue and gold sheets – the colors of the Swedish flag.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Happy Birthday in Hindi: जन्मदिन की शुभकामनाएं (Janmadin Kee Shubhakaamanaen)
 
@@ -113,5 +127,18 @@ Start using Mondly for free on your computer or tablet or, better yet, download 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-twitch-content-integration-boosting-engagement-with-fb-sharing/"><u>[New] Twitch Content Integration Boosting Engagement with FB Sharing</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-starlight-strategies-dos-and-donts-for-perfect-nightscape-portraits/"><u>[Updated] In 2024, Starlight Strategies Do's & Don'ts for Perfect Nightscape Portraits</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accelerate-your-urdu-learning-journey/"><u>Accelerate Your Urdu Learning Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/blueprint-for-excelling-in-global-languages-tests/"><u>Blueprint for Excelling in Global Languages Tests</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-does-find-my-friends-work-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>In 2024, Does find my friends work on Apple iPhone 6 | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-samsung-galaxy-a14-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Samsung Galaxy A14 4G? | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-stream-your-audiovid-creations-here/"><u>In 2024, Stream Your AudioVid Creations Here</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581767154-mastering-urdu-fast-one-short-session-daily/"><u>Mastering Urdu Fast: One Short Session Daily!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-enhanced-help-center-a-new-beginning/"><u>Mondly's Enhanced Help Center: A New Beginning</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/successful-huion-tablet-installation-find-download-and-keep-your-windows-drivers-updated-today/"><u>Successful Huion Tablet Installation: Find, Download, and Keep Your Windows Drivers Updated Today!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sultry-syntax-mastering-the-language-of-love-in-spanish/"><u>Sultry Syntax: Mastering the Language of Love in Spanish</u></a></li>
+</ul></div>
 

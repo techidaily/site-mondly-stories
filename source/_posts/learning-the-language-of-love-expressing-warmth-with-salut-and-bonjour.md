@@ -1,7 +1,7 @@
 ---
 title: "Learning the Language of Love: Expressing Warmth with 'Salut' & 'Bonjour'"
-date: 2024-09-15T17:25:10.078Z
-updated: 2024-09-21T17:09:08.758Z
+date: 2024-09-25T20:02:21.969Z
+updated: 2024-09-26T20:00:23.671Z
 tags:
   - speak
   - english
@@ -32,6 +32,13 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  Meaning “hi”, “hello” or sometimes even “bye”,_Salut_ is the informal French greeting you can use with family and friends but not with your boss or teacher.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. “Good morning” in French –_Bon matin!_
 
  European French doesn’t have an equivalent for “good morning”. So it’s good to know that while in France you shouldn’t use Bon matin. But if you happen to spend a charming morning in Paris, you can safely use – you guessed it –_Bonjour!_
@@ -48,13 +55,6 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  The same as the_clasique Bonjour_ ,_Bonsoir_ is a universal greeting suitable for most social contexts. The only restriction is the moment of the day. So once the twilight settles in, it is safe to switch from_Bonjour_ to_Bonsoir_ !
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 5\. “Good night” in French –_Bonne nuit!_
 
  Literally meaning “good night”,_Bonne nuit_ is used more as a “goodbye” than as a “hello”. So if you are spending time with your French friends,_Bonne nuit_ is a great way to let them them know you are retiring.
@@ -62,13 +62,6 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 ![french greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/11/french-greetings-scaled-722x960.jpg "How To Say Hello In French: 12 Useful French Greetings 2")
 
  “French fashion” by Charles 🇵🇭©
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 6\. Hello? –_Allô?_
 
@@ -80,6 +73,13 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  Looking for a polite way to get someone’s attention in French? Maybe there’s someone blocking your way in the store or maybe you want to get noticed by the office clerk. In these situations, a classic greeting would be a bit redundant. So instead you could use this “question-like”_Excusez-moi?_ that has a double meaning and works as both a greeting and a way to get someone’s attention.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 8\. “How are you” in French –_Comment ça va?_
 
  Almost equally as notorious as_Bonjour_ ,_Comment ça va?_ can be used the same way we use the English “how are you?”: directly on its own or together with another greeting. For example, you can simply say_Comment ça va?_ (“How are you?) or_Bonjour! Comment ça va?_ (”Hello! How are you?“).
@@ -87,6 +87,13 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
  If someone says_Comment ça va?_ to you, you can respond with_Ça va bien, merci!_ (“I’m good, thanks!”),_Ça va bien. Et toi?_ (“I’m good. And you?”) or_Pas mal_ (“Not bad”).
 
  Or you can play it simple, follow the lead of the French speakers and answer directly with_Et toi?_ (“And you?”) since the_Ça va bien_ (“I’m good”) answer is usually implied.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 9\. What’s up? –_Ça va?_
 
@@ -99,10 +106,10 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
  Want to spice up and diversify your “ça-va”s? Go with the informal_Quoi de neuf_ that translates to “what’s up?” or “what’s new?”.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 11\. The cute Bonjour:_Coucou!_
@@ -112,19 +119,6 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
  Although extremely cute, you shouln’t use_Coucou_ in formal contexts. It would be a bit weird to greet your boss using_Coucou_ , wouldn’t it?
 
 ![bonjour](https://edge.mondly.com/blog/wp-content/uploads/2019/11/bonjour-scaled-960x641.jpg "How To Say Hello In French: 12 Useful French Greetings 3")
-
-<!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  “Coucou! Is me! The Frenchie!” by Graham Holtshausen©
 
@@ -138,10 +132,10 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Here’s how to learn French in just 10 minutes a day
@@ -171,5 +165,26 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-vimeo-at-a-glance-digital-home-for-quality-videos/"><u>[New] 2024 Approved Vimeo at a Glance Digital Home for Quality Videos</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-expert-advice-choosing-exceptional-videographers/"><u>[New] Expert Advice Choosing Exceptional Videographers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-dance-of-diction-creating-bounce-with-text/"><u>[New] The Dance of Diction Creating Bounce with Text</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-finding-out-if-someone-hides-you-on-snapchat/"><u>[Updated] In 2024, Finding Out if Someone Hides You on Snapchat</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-vocalizing-video-content-tunes-for-instagram-stories-for-2024/"><u>[Updated] Vocalizing Video Content Tunes for Instagram Stories for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-ultrafine-a-deep-dive-into-lgs-elite-4k-display-features/"><u>2024 Approved UltraFine A Deep Dive Into LG's Elite 4K Display Features</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/3-multilingual-marvels-transforming-your-linguistic-journey-today/"><u>3 Multilingual Marvels Transforming Your Linguistic Journey Today</u></a></li>
+<li><a href="https://howto.techidaily.com/android-screen-stuck-general-tecno-spark-10-pro-partly-screen-unresponsive-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Screen Stuck General Tecno Spark 10 Pro Partly Screen Unresponsive | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daily-catalan-drills-for-speed-learning/"><u>Daily Catalan Drills for Speed Learning</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-and-update-amd-rx-480-gpu-drivers-with-simple-steps/"><u>Download and Update AMD RX 480 GPU Drivers with Simple Steps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dual-language-repertoire-boosts-6-beneficial-traits/"><u>Dual Language Repertoire Boosts: 6 Beneficial Traits</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/fast-tracking-music-in-spotify-efficiency-and-security-in-harmony/"><u>Fast-Tracking Music in Spotify Efficiency & Security in Harmony</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-master-become-proficient-in-german-via-netflix/"><u>From Novice to Master: Become Proficient in German Via Netflix</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-gourmandise-guide-decoding-chocolate-in-30-languages/"><u>Global Gourmandise Guide: Decoding Chocolate in 30 Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilanguage-mosaic-korean-turkish-tapestry/"><u>Multilanguage Mosaic: Korean-Turkish Tapestry</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-through-russian-numerals-and-operations/"><u>Navigating Through Russian Numerals & Operations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/norgeenas-skill-spurt-daily-ten-minutes/"><u>Norge'enas Skill Spurt - Daily Ten Minutes</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/panasonics-value-videoplusfeatures-marriage/"><u>Panasonic's Value: Video+Features Marriage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sensual-syntax-fashioning-flirtatious-sentences-in-spanish/"><u>Sensual Syntax: Fashioning Flirtatious Sentences in Spanish</u></a></li>
+</ul></div>
 

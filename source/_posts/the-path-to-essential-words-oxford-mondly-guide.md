@@ -1,7 +1,7 @@
 ---
 title: "The Path to Essential Words: Oxford-Mondly Guide"
-date: 2024-09-18T18:56:44.243Z
-updated: 2024-09-21T18:16:44.712Z
+date: 2024-09-22T18:51:52.612Z
+updated: 2024-09-26T20:08:25.077Z
 tags:
   - speak
   - english
@@ -33,6 +33,13 @@ thumbnail: https://thmb.techidaily.com/8fc83bbaf6617e7676315028cdd620caacb6dd10b
  As [Oxford University Press](https://elt.oup.com/feature/global/expert/oxford-3000?cc=ro&selLanguage=en) explains, _the original list was compiled by looking at word frequency information from the British National Corpus, a large database of English texts (100 million words) composed of a wide range of written and spoken genres which can be seen as representing language usage in general. While frequency was the main guiding principle in compiling the list, raw frequency data can throw up a number of anomalies that make little sense from a teaching perspective. For example, some words that are clearly useful for learners, such as “passport” and “apple”, are not very high frequency in a general corpus. For this reason, compilers took into account not just frequency, but also familiarity (…) as judged by a panel of 70 teachers._
 
  Since its inception, the Oxford 3000 has been revised to reflect the language in daily use that has changed a lot due to the growth of the internet and social media.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The most important words in English and their relation to CEFR levels
 
@@ -83,12 +90,26 @@ thumbnail: https://thmb.techidaily.com/8fc83bbaf6617e7676315028cdd620caacb6dd10b
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/updated-the-ultimate-instructions-for-prolonged-iphone-shots/"><u>[Updated] The Ultimate Instructions for Prolonged iPhone Shots</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brainpower-boost-bilingualisms-six-key-assets/"><u>Brainpower Boost: Bilingualism's Six Key Assets</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breathless-brilliance-practice-with-eng-twisters/"><u>Breathless Brilliance: Practice With Eng Twisters</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-videos-from-realme-c67-5g-by-fonelab-android-recover-video/"><u>Easy steps to recover deleted videos from Realme C67 5G</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enriching-life-at-sixty-by-learning-languages/"><u>Enriching Life at Sixty by Learning Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/get-ahead-of-the-game-snag-a-lifetime-savings-deal-with-mondly/"><u>Get Ahead of the Game: Snag a Lifetime Savings Deal with Mondly!</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-your-organization-can-regulate-windows-setup-and-fixes-applied/"><u>How Your Organization Can Regulate Windows Setup & Fixes Applied</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-remove-screen-lock-pin-on-motorola-defy-2-like-a-pro-5-easy-ways-by-drfone-android/"><u>In 2024, How To Remove Screen Lock PIN On Motorola Defy 2 Like A Pro 5 Easy Ways</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-the-best-methods-to-unlock-the-iphone-locked-to-owner-for-iphone-14-plus-by-drfone-ios/"><u>In 2024, The Best Methods to Unlock the iPhone Locked to Owner for iPhone 14 Plus</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-vivo-y200e-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Vivo Y200e 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/la-habilidad-verbal-convierte-a-colores/"><u>La Habilidad Verbal Convierte a Colores</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-social-dynamics-with-these-iconic-50-latin-expressions/"><u>Master Social Dynamics with These Iconic 50 Latin Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/redesigned-sites-legalese-guide/"><u>Redesigned Site's Legalese Guide</u></a></li>
+<li><a href="https://techidaily.com/repair-video-tool-repair-all-your-damaged-video-files-of-realme-gt-neo-5-se-by-stellar-video-repair-mobile-video-repair/"><u>Repair Video Tool - Repair all your damaged video files of Realme GT Neo 5 SE</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-a-local-australian-slang-for-you/"><u>Speak Like a Local: Australian Slang for You</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-the-world-the-power-of-multilingualism-explored/"><u>Speak the World: The Power of Multilingualism Explored</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-samsung-galaxy-f15-5g-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Samsung Galaxy F15 5G | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/unlock-iphone-6-plus-with-forgotten-passcode-different-methods-you-can-try-drfone-by-drfone-ios/"><u>Unlock iPhone 6 Plus With Forgotten Passcode Different Methods You Can Try | Dr.fone</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-the-easiest-way-to-convert-4k-video-to-mp4-for-offline-viewing/"><u>Updated 2024 Approved The Easiest Way to Convert 4K Video to MP4 for Offline Viewing</u></a></li>
+</ul></div>
 

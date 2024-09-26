@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide To Saying 'Hello' In Spanish With Top 10 Methods
-date: 2024-09-15T20:07:04.339Z
-updated: 2024-09-21T16:52:47.267Z
+date: 2024-09-22T19:35:30.491Z
+updated: 2024-09-26T18:46:05.468Z
 tags:
   - speak
   - english
@@ -46,7 +46,21 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
 
 ![hi in spanish](https://edge.mondly.com/blog/wp-content/uploads/2019/04/hi-in-spanish-600x463.jpg "Hello In Spanish And Other Basic Spanish Greetings You Need To Know 3")
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  ¡Hola, señor! by Bruce Jastrow©
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## “How are you?” in Spanish
 
@@ -61,10 +75,10 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
 **¿Cómo va?** – it translates to “how is it going?” and you can also add “todo” at the end – ¿cómo va todo? – to expand its meaning to “how is it all going?
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## “Yes”, “please” and “thank you” in Spanish
@@ -79,6 +93,19 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
 * I’m sorry – Lo siento
 * I have/I don’t have – Tengo/No tengo
 * Nice to meet you – Encantado/Encantada de conocerte
+
+<!-- affiliate ads begin -->
+<span id="1982457">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Goodbye in Spanish
 
@@ -96,13 +123,6 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
  Or as The Terminator would say:**Hasta la vista, baby!**
 
 ![hasta la vista](https://media.giphy.com/media/2oVfyRHk1EuRy/giphy-downsized-large.gif "Hello In Spanish And Other Basic Spanish Greetings You Need To Know 4")
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Not sure you understand how Spanish accents work? Check out our [article on how to master them all](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
@@ -134,5 +154,22 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-decoding-the-cost-per-thousand-views-on-youtube-for-successful-earning/"><u>[New] In 2024, Decoding the Cost Per Thousand Views on YouTube for Successful Earning</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-crafting-your-weekly-schedule-with-google-meet-for-2024/"><u>[Updated] Crafting Your Weekly Schedule with Google Meet for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-from-imagination-to-illustration-ranking-the-best-8-iphone-drawing-software/"><u>[Updated] In 2024, From Imagination to Illustration Ranking the Best 8 iPhone Drawing Software</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-say-no-to-unsolicited-content-on-insta-for-2024/"><u>[Updated] Say No to Unsolicited Content on Insta for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-how-to-promote-instagram-post-successfully/"><u>2024 Approved How to Promote Instagram Post Successfully</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/avi-mp4/"><u>转换 AVI 文件为 MP4 的四个无成本方法 - 最有效的指南</u></a></li>
+<li><a href="https://fake-location.techidaily.com/best-10-mock-location-apps-worth-trying-on-xiaomi-redmi-note-12-pro-4g-drfone-by-drfone-virtual-android/"><u>Best 10 Mock Location Apps Worth Trying On Xiaomi Redmi Note 12 Pro 4G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cocoa-conversations-learn-and-speak-chocolate-worldwide/"><u>Cocoa Conversations: Learn and Speak Chocolate Worldwide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-french-phonetics-a-beginners-approach/"><u>Decoding French Phonetics: A Beginner's Approach</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-apple-iphone-13-pro-max-with-a-mask-on-by-drfone-ios/"><u>How to Unlock Apple iPhone 13 Pro Max with a Mask On</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/identifying-the-israeli-vernacular/"><u>Identifying the Israeli Vernacular?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revealing-the-methodology-of-mondly/"><u>Revealing the Methodology of Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speeding-up-ukrainian-mastery-quick-daily-routine-98-chars/"><u>Speeding Up Ukrainian Mastery: Quick Daily Routine (98 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-language-acquisition-through-scientifically-backed-melodies/"><u>The Art of Language Acquisition Through Scientifically Backed Melodies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-core-of-russian-numbers-foundation-skills/"><u>The Core of Russian Numbers - Foundation Skills</u></a></li>
+</ul></div>
 

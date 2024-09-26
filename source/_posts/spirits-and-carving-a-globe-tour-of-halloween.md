@@ -1,7 +1,7 @@
 ---
 title: "Spirits and Carving: A Globe Tour of Halloween"
-date: 2024-09-16T19:34:22.532Z
-updated: 2024-09-21T17:10:44.954Z
+date: 2024-09-24T16:28:22.453Z
+updated: 2024-09-26T19:47:01.575Z
 tags:
   - speak
   - english
@@ -26,6 +26,13 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
 
 ## Halloween-like Traditions Worldwide
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Mexico: Día de Muertos (Day of the Dead)
 
  Inscribed in the UNESCO Representative List of the Intangible Cultural Heritage of Humanity,_Día de los Muertos_ is celebrated yearly on October 31, November 1, and November 2 to coincide with the celebration the Allhallowtide: All Saints’ Eve, All Saints’ Day, and All Souls’ Day.
@@ -34,15 +41,22 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
 
 ![Colorful ofrendas and calaveras during Día de Muertos in Mexico](https://edge.mondly.com/blog/wp-content/uploads/2019/09/dia-de-muertos-960x639.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 6")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  “Calaveras” by Valeria Almaraz©
 
  As you probably already know, the main symbols of [_Día de Muertos_](https://ich.unesco.org/en/RL/indigenous-festivity-dedicated-to-the-dead-00054) are [_ofrendas_](https://en.wikipedia.org/wiki/Ofrenda) (altars),[_calaveras_](https://en.wikipedia.org/wiki/Calavera) (representations of a human skull often applied to edible or decorative skulls) and people wearing the colorful_calaveras_ makeup known all over the world. During the Day of the Dead, families will visit the graves of their loved ones and bring gifts and the favorite foods and beverages of the departed.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### China: The Hungry Ghost Festival
@@ -63,13 +77,6 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
 
  Fourteen days after the festival, to make sure spirits will find their way back to hell, people set lotus flower-shaped lanterns on paper boats outside their homes. When these lanterns go out, it means the ghosts have found their way back.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Italy: Tutti i Morti / Giorno dei Morti (All Souls’ Day)
 
  Moving to Europe, we discover that although American Halloween is even more notorious here than in other parts of the world, people still have their own traditional ways of celebrating the afterlife. For example, Italy has_Tutti i Morti,_ a public day celebrated on the 1st and 2nd of November by remembering and praying for the deceased.
@@ -81,6 +88,19 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
  “Halloween party” by NeONBRAND©
 
  Contrary to what you may believe, pumpkins and asking for candy and gifts are traditions of the past that were popular in many Italian regions before the American Halloween became so notorious.
+
+<!-- affiliate ads begin -->
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Romania: Saint Andrew’s Day
 
@@ -128,5 +148,23 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-easy-effective-and-accurate-method-to-download-fb-gifs-anywhere/"><u>[New] In 2024, Easy, Effective and Accurate Method to Download FB GIFs Anywhere</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-selecting-the-finest-screen-recorders-1-to-5-android-for-2024/"><u>[Updated] Selecting the Finest Screen Recorders, #1 to #5 (Android) for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unlocking-the-potential-of-your-footage-uploading-4k-content-to-youtube/"><u>[Updated] Unlocking the Potential of Your Footage Uploading 4K Content to YouTube</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breaking-the-age-barrier-for-language-learners/"><u>Breaking the Age Barrier for Language Learners</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/climb-the-fame-hierarchy-on-instagram-discovering-9-game-changing-tips-for-2024/"><u>Climb the Fame Hierarchy on Instagram Discovering #9 Game-Changing Tips for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/fixes-for-when-google-chrome-fails-to-start-up/"><u>Fixes for When Google Chrome Fails to Start Up</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/forsok-till-svensk-grev-att-gora/"><u>Försök Till Svensk: Grev Att Göra</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-google-chrome-from-tracking-your-location-on-zte-blade-a73-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Google Chrome from Tracking Your Location On ZTE Blade A73 5G? | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-ultimate-free-screen-cast-tools-for-windows-ranked-1-5/"><u>In 2024, Ultimate Free Screen Cast Tools for Windows, Ranked #1-5</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/macau-a-linguistic-kaleidoscope/"><u>Macau: A Linguistic Kaleidoscope</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/multi-file-converter-merge-videos-into-single-iso-format/"><u>Multi-File Converter: Merge Videos Into Single ISO Format</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/navigate-through-tech-specs-masterclass-tutorials-by-toms-hardware-experts/"><u>Navigate Through Tech Specs: Masterclass Tutorials by Tom's Hardware Experts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pasos-faciles-para-entender-la-hora-digital/"><u>Pasos Fáciles Para Entender La Hora Digital</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/simplifying-spanish-verb-forms-and-tenses/"><u>Simplifying Spanish Verb Forms & Tenses</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-power-of-two-tongues-essential-bilingual-gains/"><u>The Power of Two Tongues: Essential Bilingual Gains</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vielschichtigkeit-der-sprache-deutsche-begrussungen-die-nicht-hallo-lauten/"><u>Vielschichtigkeit Der Sprache: Deutsche Begrüßungen, Die Nicht Hallo Lauten</u></a></li>
+</ul></div>
 

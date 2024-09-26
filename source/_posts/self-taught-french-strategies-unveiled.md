@@ -1,7 +1,7 @@
 ---
 title: Self-Taught French Strategies Unveiled
-date: 2024-09-18T19:00:02.010Z
-updated: 2024-09-21T20:00:56.870Z
+date: 2024-09-20T17:00:52.194Z
+updated: 2024-09-26T16:24:06.761Z
 tags:
   - speak
   - english
@@ -40,6 +40,13 @@ thumbnail: https://thmb.techidaily.com/e703390679e2e9d8302a199135d745cf8f0f1e644
 
  It worked for millions of other people that learned French at home with Mondly. And now it will work for you.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Read books in French
 
  Now that you know quite a few [French words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and phrases, it’s time to move to the next level. **Continue learning French on your [language learning app](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-3480&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-3480?mother%5Flang=en%5Fus?target%5Flang=fr&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-3480?mother%5Flang=en%5Fus?target%5Flang=fr) , but also expand your vocabulary by reading books in French.** You don’t really like to read? Find something you are really passionate about and try reading about that particular subject in French. Whether we are talking about movies, mechanics, drama, history or music, you will surely find an interesting article about it on the world wide web.
@@ -50,6 +57,13 @@ thumbnail: https://thmb.techidaily.com/e703390679e2e9d8302a199135d745cf8f0f1e644
 
 ![learn french](https://edge.mondly.com/blog/wp-content/uploads/2019/10/learn-french-1024x709.jpg "The Best Way To Learn French At Home 3")
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  “Jardin des Curiosités, Lyon, France” by Léonard Cotte©
 
 ## 3\. Use flashcards for those French words that don’t stick
@@ -58,6 +72,13 @@ thumbnail: https://thmb.techidaily.com/e703390679e2e9d8302a199135d745cf8f0f1e644
 
  Start by identifying the words or [phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) that won’t stick and write them down on sticky notes (ironic!). Then put them by the bed, in the kitchen, in the bathroom or wherever you spend the most time during a day. Next thing you know, the same French words you used to forget will now follow you everywhere.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4\. Train your ears with French movies, music or videos
 
  Has it ever happened to you to spend time in another country and then hear people at home speak the foreign language you got used to although they weren’t doing so? Strangely enough, that was your brain after it got used to the language you kept hearing. After it accommodates, your brain changes its expectations regarding the sounds that surround you. Isn’t that amazing?
@@ -65,6 +86,13 @@ thumbnail: https://thmb.techidaily.com/e703390679e2e9d8302a199135d745cf8f0f1e644
  Well, it’s high time you used this to your advantage. Train your ears to hear the French language – watch [French movies](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and listen to French music! Luckily, the French cinema has produced some superb films, so you’ll never get bored. What more could you ask for?
 
  Need some French music ideas? Here’s one from [Mommy](https://www.imdb.com/title/tt3612616/) , a brilliant film partially spoken in French:
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. Talk to yourself in French
 
@@ -78,13 +106,6 @@ thumbnail: https://thmb.techidaily.com/e703390679e2e9d8302a199135d745cf8f0f1e644
 
 ![best way to learn French online](https://edge.mondly.com/blog/wp-content/uploads/2019/10/best-way-to-learn-french-online-1024x554.jpg "The Best Way To Learn French At Home 4")
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “Valloire, France” by Marc Guellerin
 
  And finally… book your trip to France already! What better ways to celebrate becoming conversational in French than traveling to a country where it is spoken? Oh, you’ve been to Paris? No problem. There’s even more to see. The beauty of the French lands is endless. Many people argue that traveling is expensive, but that’s not entirely true. If you plan ahead, you will definitely be able to find an affordable deal. Just keep your eyes on the offers!
@@ -95,13 +116,6 @@ thumbnail: https://thmb.techidaily.com/e703390679e2e9d8302a199135d745cf8f0f1e644
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Ready to get your French to the next level?
 
@@ -124,5 +138,20 @@ _Bonne chance!_
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-skills.techidaily.com/new-seamless-image-superimposition-for-desktop/"><u>[New] Seamless Image Superimposition for Desktop</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-introduction-to-plot-and-character-dynamics/"><u>[Updated] In 2024, Introduction to Plot and Character Dynamics</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/command-prompt-shortcut-for-quick-folder-navigation-explained/"><u>Command Prompt Shortcut for Quick Folder Navigation Explained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-fluency-beyond-fifty-the-upside-of-learning-a-second-language/"><u>Cultural Fluency Beyond Fifty: The Upside of Learning a Second Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daily-10-minutes-ukraine-language-achieved-87-chars/"><u>Daily 10-Minutes, Ukraine Language Achieved! (87 Chars)</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/elite-selection-7-superior-fps-games-for-2024/"><u>Elite Selection 7 Superior FPS Games for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fully-functioning-again-toshiba-laptop-key-malfunctions-repair-complete/"><u>Fully Functioning Again: Toshiba Laptop Key Malfunctions Repair Complete</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fundamental-russian-greetings-a-practical-guidebook/"><u>Fundamental Russian Greetings: A Practical Guidebook</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-breaking-down-the-fundamentals-of-lut-design/"><u>In 2024, Breaking Down the Fundamentals of LUT Design</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-imageimprint-tips-for-insta-size-customization/"><u>In 2024, ImageImprint Tips for Insta Size Customization</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-revolutionized-by-mondly-2022-winner/"><u>Language Learning Revolutionized by Mondly, 2022 Winner</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-and-german-an-unbeatable-combination-for-learning/"><u>Mondly & German - An Unbeatable Combination for Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukranian-expedited-learning-for-busy-individuals-102-chars/"><u>Ukranian Expedited Learning for Busy Individuals (102 Chars)</u></a></li>
+</ul></div>
 

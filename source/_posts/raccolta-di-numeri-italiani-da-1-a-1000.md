@@ -1,7 +1,7 @@
 ---
 title: Raccolta Di Numeri Italiani (Da 1 a 1000)
-date: 2024-09-18T19:15:36.512Z
-updated: 2024-09-21T18:14:24.749Z
+date: 2024-09-21T20:59:12.472Z
+updated: 2024-09-26T21:02:29.515Z
 tags:
   - speak
   - english
@@ -52,6 +52,13 @@ Here’s how to write and pronounce the Italian numbers 1-10:
 
 **Good to know:**Italian cardinal numbers don’t change suffixes according to the gender of the noun they determine. The only exception is 1_(uno)_. Thus, when you talk about a feminine noun, you’ll say_una_instead of_uno_:_Ho comprato una casa_(“I bought a house.”)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Italian numbers 11-20
 
  Imagine this: you are on the famous Amalfi Coast. The weather is perfect. And let’s say you want to buy 12 slices of the yummiest Italian pizza you’ve ever seen: two slices for you and each one of your friends. The problem is you only have 10 fingers to sign to the lady at the counter. Wouldn’t it be easier if you knew some [Italian expressions](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ?
@@ -88,6 +95,13 @@ Let’s see some examples:
 * to say “18 years”, you’ll say_diciotto anni_
 * to say “20 children”, you’ll say_venti bambini_
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Italian numbers to 30 and beyond
 
  Essentially, Italian numbers are very similar to English numbers. Once you get to 20, you just put together the tens with the single numbers (units). The best part is that Italian doesn’t even require spaces or hyphens. For example, if you want to say 22 (“twenty-two”), in Italian you say venti (20) + due (2) = _**venti** due_ (22).
@@ -101,10 +115,10 @@ Let’s see some examples:
  See how easy Italian numbers are? The only thing you have to remember is that the final vowel of the tens disappears when you add 1_(uno)_ or 8_(otto)_ . Thus, you’ll say _**vent** uno_ and not “ventiuno”. Additionally, number 3_(tre)_ gains an accent mark on the final vowel. For example, 33 will be_trentatré_ and 83 will be_ottantatré._
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Count tens in Italian
@@ -169,10 +183,10 @@ Let’s see some examples:
 ![italian numbers pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2020/05/italian-numbers-pronunciation-960x640.jpg "Italian Numbers Made Easy - Count To 1000 And Beyond In Italian 3")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  “The Amalfi Coast” by Gregory Smirnov©
@@ -244,5 +258,22 @@ Let’s see some examples:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-files.techidaily.com/new-crafty-impostors-exposed-spotting-fabricated-followers-for-2024/"><u>[New] Crafty Impostors Exposed Spotting Fabricated Followers for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-unveiling-secrets-of-effortless-screen-sharing-in-meet-for-2024/"><u>[New] Unveiling Secrets of Effortless Screen Sharing in Meet for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-creating-a-captivating-experience-with-your-first-facebook-live/"><u>[Updated] 2024 Approved Creating a Captivating Experience with Your First Facebook Live</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-complete-insights-into-utilizing-the-full-potential-of-macs-preview-features/"><u>[Updated] Complete Insights Into Utilizing the Full Potential of Mac's Preview Features</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-the-fundamentals-of-creating-breathtaking-canon-time-lapses/"><u>[Updated] The Fundamentals of Creating Breathtaking Canon Time-Lapses</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-navigating-the-path-to-profitable-snapchat-ventures/"><u>2024 Approved Navigating the Path to Profitable Snapchat Ventures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-ks-the-language-of-squid-games-culture/"><u>Dive Into KS: The Language of Squid Game's Culture</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579063199-epic-discount-lifetime-language-access-at-black-friday/"><u>Epic Discount: Lifetime Language Access at Black Friday</u></a></li>
+<li><a href="https://extra-information.techidaily.com/from-novice-to-maestro-professional-photography-and-cinematography-techniques/"><u>From Novice to Maestro Professional Photography & Cinematography Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-phonetics-101-alphabet-and-sound-rules/"><u>German Phonetics 101: Alphabet & Sound Rules</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576809217-learn-the-days-of-the-week-in-german/"><u>Learn The Days Of The Week In German</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-era-of-language-learning-with-mondlys-fresh-phrases/"><u>New Era of Language Learning with Mondly's Fresh Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/prepare-for-your-next-chat-companion-the-ai-revolution/"><u>Prepare for Your Next Chat Companion: The AI Revolution</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-by-step-a-novices-guide-to-arabic/"><u>Step by Step: A Novice's Guide to Arabic</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-nokia-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Nokia IMEI without Root A Comprehensive Guide</u></a></li>
+</ul></div>
 

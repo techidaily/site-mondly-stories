@@ -1,7 +1,7 @@
 ---
 title: Introducing the First Augmented Reality Language App with Speech Recognition
-date: 2024-09-13T19:55:34.486Z
-updated: 2024-09-16T18:30:21.625Z
+date: 2024-09-20T18:12:46.139Z
+updated: 2024-09-26T17:53:51.121Z
 tags:
   - speak
   - english
@@ -42,6 +42,13 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 > _We started working on Mondly AR in August 2017 and by the time [Blade Runner 2049](http://www.imdb.com/title/tt1856101/) was released, we already had a working demo. Watching Blade Runner 2049 made me realize that we were beginning to build the future. To me, Joi (the holographic companion of officer K) looked like a super advanced version of Mondly – the character we were creating. They can both understand speech, reply with a human voice and change outfits. Of course, Mondly is not as smart and realistic as Joi. Yet. But she can teach you 7 languages. And this is just the beginning._
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Here’s what you should know about Mondly AR
 
 * Is available on [Google Play](https://play.google.com/store/apps/details?id=com.atistudios.mondlyar.languages&hl=en)
@@ -57,6 +64,13 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Facts and figures about Mondly
 
 * 30 million downloads, in over 190 countries
@@ -71,10 +85,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 * [Mondly Press Kit](https://www.dropbox.com/sh/vo4j5214zvwdxy5/AAC20VxIgpuiEe7ED2%5F37VNEa?dl=0)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Media mentions about Mondly
@@ -104,5 +118,23 @@ Alex Iliescu, our CEO, spoke about the launch:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-quick-guide-to-record-google-meet-in-your-browser/"><u>[Updated] In 2024, Quick Guide to Record Google Meet in Your Browser</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-innovative-frameworks-for-efficient-iptv-recording-for-2024/"><u>[Updated] Innovative Frameworks for Efficient IPTV Recording for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-upgrading-minecraft-stability-via-ram-adjustment-for-2024/"><u>[Updated] Upgrading Minecraft Stability via RAM Adjustment for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-vimeos-gratis-editing-guide-enhance-videos-on-budget-for-2024/"><u>[Updated] Vimeo's Gratis Editing Guide Enhance Videos on Budget for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/childrens-superiority-in-acquiring-second-languages/"><u>Children's Superiority in Acquiring Second Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-linguistic-evolution-beyond-grammatrancial-boundaries/"><u>Exploring Linguistic Evolution Beyond Grammatrancial Boundaries</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-remove-a-previously-synced-google-account-from-your-lenovo-by-drfone-android/"><u>How to Remove a Previously Synced Google Account from Your Lenovo</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-to-stream-games-from-nintendo-switch-on-your-tv-a-complete-tutorial/"><u>How To Stream Games From Nintendo Switch on Your TV - A Complete Tutorial</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-hindi-like-a-native-speaker-explore-7-compelling-benefits-from-mondly-online-study/"><u>Learn Hindi Like a Native Speaker: Explore 7 Compelling Benefits From Mondly Online Study</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lettura-di-numeri-italiani-la-via-da-1-a-1000/"><u>Lettura Di Numeri Italiani: La Via Da 1 a 1000</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/modern-warfare-aturbs-in-play-investigating-the-causes-behind-call-of-dutys-frame-rate-drops/"><u>Modern Warfare Aturbs in Play: Investigating the Causes Behind Call of Duty's Frame Rate Drops</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-sony-vegas-not-your-cup-of-tea-discover-top-alternatives-for-windows/"><u>New Sony Vegas Not Your Cup of Tea? Discover Top Alternatives for Windows</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-numbering-1-10-the-basics-made-simple/"><u>Spanish Numbering 1-10: The Basics Made Simple</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-a-pro-unlocking-squid-game-dialogues-in-korean/"><u>Speak Like a Pro: Unlocking Squid Game Dialogues in Korean</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-pictures-from-oppo-f23-5g-by-fonelab-android-recover-pictures/"><u>Undelete lost pictures from Oppo F23 5G.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/young-learners-and-their-quick-language-fluency/"><u>Young Learners and Their Quick Language Fluency</u></a></li>
+</ul></div>
 

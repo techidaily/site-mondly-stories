@@ -1,7 +1,7 @@
 ---
 title: Understanding and Using Spanish Verb Endings
-date: 2024-09-15T18:35:46.739Z
-updated: 2024-09-21T19:50:43.873Z
+date: 2024-09-23T21:07:58.227Z
+updated: 2024-09-26T19:42:28.694Z
 tags:
   - speak
   - english
@@ -107,6 +107,13 @@ And the conjugation of comer will look like this:
 
  Keep in mind the fact that the first person singular (_yo_), third person singular (_él, ella_), and second person formal singular (_usted_) forms use tildes on the final letters of the verb endings. And one little tilde can make all the difference in the world! If you don’t know yet how accents work, take a look at our article on **[Spanish accents and how to master them all](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .**
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Spanish Simple Future Tense – Regular Simple Future Verb Endings
 
  In Spanish, there are two ways to form the future tense:**the informal future tense** (the verb_ir_ \+ a + infinitive ->_voy a comer_) and**the simple future tense,** which we will illustrate in this article.
@@ -140,10 +147,10 @@ And the conjugation of comer will look like this:
 * _Ellos / Ellas / Ustedes escrib**irán**_
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Spanish verbs: how to master irregular Spanish verbs
@@ -153,10 +160,10 @@ And the conjugation of comer will look like this:
  As you already know,**irregular verbs** are “rebel” verbs that follow no regular set of rules. Statistically, in Spanish, almost all verbs ending in_\-ar_ are regular, almost all verbs ending in_\-er_ are irregular and less than half of all verbs ending in_\-ir_ are irregular. So, let’s disentangle this complicated situation of**irregular Spanish verbs** and look for some patterns to help us learn faster.
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
-  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Stem-Changing Verbs in Spanish
@@ -236,6 +243,13 @@ _Adquirir_ (to acquire) and_inquirir_ (to inquire) are just as rebellious becaus
  –_salir_ (to exit) –_Yo salgo_ ,_Tú sales_
  –_dar_ (to give) –_Yo doy_ ,_Tú das_
  –_ver_ (to see) –_Yo veo_ ,_Tú ves_
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Spanish verbs conjugation examples –_ser, estar, ir_
 
@@ -326,5 +340,26 @@ Well… this is it! This is our full lesson on**Spanish verbs.**
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-peeking-behind-the-screen-instagram-audience-explorer/"><u>[New] In 2024, Peeking Behind the Screen Instagram Audience Explorer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/16-classic-german-thanks-that-never-fail/"><u>16 Classic German Thanks That Never Fail</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-grammatical-journey-from-lisbon-to-brasilia/"><u>A Grammatical Journey From Lisbon to Brasília</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bring-your-chat-home-mondly-on-huawei/"><u>Bring Your Chat Home: Mondly on Huawei</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-oppo-reno-10-pro-5g-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Oppo Reno 10 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-10-best-classic-family-vacation-movie-for-summer/"><u>In 2024, 10 Best Classic Family Vacation Movie for Summer</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-realme-v30-by-phone-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Realme V30 by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/inaugural-vocal-augmented-communication-tool/"><u>Inaugural Vocal-Augmented Communication Tool</u></a></li>
+<li><a href="https://techidaily.com/is-your-oppo-find-n3-working-too-slow-heres-how-you-can-hard-reset-it-drfone-by-drfone-reset-android-reset-android/"><u>Is your Oppo Find N3 working too slow? Heres how you can hard reset it | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-document-and-picture-scanner-technologies-of-2024-unveiled/"><u>Leading Document and Picture Scanner Technologies of 2024 Unveiled!</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/locked-out-of-iphone-11-pro-5-ways-to-get-into-a-locked-iphone-11-pro-by-drfone-ios/"><u>Locked Out of iPhone 11 Pro? 5 Ways to get into a Locked iPhone 11 Pro</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-the-marauders-tongue-20-expressions-for-elders/"><u>Master the Marauder’s Tongue: 20 Expressions for Elders</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/mastering-3gp-video-cutting-tips-and-tricks/"><u>Mastering 3GP Video Cutting Tips and Tricks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-associates-with-pearson-learning-consortium/"><u>Mondly Associates With Pearson Learning Consortium</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/strategies-for-dominating-the-worlds-toughest-language-tests/"><u>Strategies for Dominating the World's Toughest Language Tests</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-effective-communicators-choice-german-vs-french/"><u>The Effective Communicator's Choice: German Vs French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-lifelong-learners-guide-to-new-languages/"><u>The Lifelong Learner's Guide to New Languages</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unveiling-the-asrock-pg2nqft2a-a-180hz-monitor-for-gamers-speed-quality-and-value-evaluation/"><u>Unveiling the ASRock PG2nQFT2a - A 180Hz Monitor for Gamers: Speed, Quality & Value Evaluation</u></a></li>
+<li><a href="https://facebook.techidaily.com/vague-narratives-explored-a-digital-phenomenons-analysis/"><u>Vague Narratives Explored: A Digital Phenomenon's Analysis</u></a></li>
+</ul></div>
 

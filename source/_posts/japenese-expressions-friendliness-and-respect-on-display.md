@@ -1,7 +1,7 @@
 ---
 title: "Japenese Expressions: Friendliness & Respect on Display"
-date: 2024-09-15T16:46:42.863Z
-updated: 2024-09-16T17:34:30.394Z
+date: 2024-09-21T19:03:14.587Z
+updated: 2024-09-26T17:11:06.982Z
 tags:
   - speak
   - english
@@ -45,6 +45,13 @@ thumbnail: https://thmb.techidaily.com/e5643a5ff8d74b4fe59c3561d40554a2f62dd8947
 
  Curious about why there are multiple types of characters in Japanese? Here’s everything there is to know about the [Japanese writing system](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
+  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **How to say “hello” on the phone in Japanese: moshi moshi (もしもし)**
 
  Unlike English, which uses the same “hello” for a lot of different social contexts, the Japanese language has a dedicated “hello” for answering the phone:**moshi moshi (もしもし).** Doesn’t that sound cute?
@@ -68,10 +75,10 @@ This greeting is used both as a “hello” and as a “goodbye”.
  “Meguro River, Matsuno, Japan” by Sora Sagano©
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3.“Goodbye” in Japanese
@@ -91,14 +98,14 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![goodbye in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/goodbye-in-japanese-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 4")
 
- “See you soon, human” by Alain Pham©
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120865/26400?prodsku=mercury" target="_top" id="2120865">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120865/26400?prodsku=mercury" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ “See you soon, human” by Alain Pham©
 
 ## 4\. “Thank you” in Japanese and other polite phrases that you should know
 
@@ -164,10 +171,10 @@ This greeting is used both as a “hello” and as a “goodbye”.
 ![sayonara](https://edge.mondly.com/blog/wp-content/uploads/2019/08/sayonara-1024x680.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 6")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  “Tenryu-ji Temple, Kyōto-shi, Japan” by Masaaki Komori©
@@ -200,5 +207,24 @@ This greeting is used both as a “hello” and as a “goodbye”.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-how-to-make-facebook-videos-full-screen/"><u>[New] 2024 Approved How to Make Facebook Videos Full Screen?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-convert-twitter-vids-to-customized-soundtracks-for-2024/"><u>[New] Convert Twitter Vids to Customized Soundtracks for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-ultimate-guide-to-charging-up-your-video-empire/"><u>[New] The Ultimate Guide to Charging Up Your Video Empire</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-turning-twitter-video-into-engaging-customizable-gifs-for-2024/"><u>[Updated] Turning Twitter Video Into Engaging Customizable GIFs for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apex-communicator-the-business-linguistic-blueprint/"><u>Apex Communicator: The Business Linguistic Blueprint</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/capturing-your-gaming-adventures-best-practices-reviewed-for-2024/"><u>Capturing Your Gaming Adventures Best Practices Reviewed for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciding-on-the-next-ideal-linguistic-journey-to-pursue/"><u>Deciding on the Next Ideal Linguistic Journey to Pursue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hablar-de-semana-en-espanol-descubrimiento-desde-lunes-al-domingo/"><u>Hablar De Semana en Español: Descubrimiento Desde Lunes Al Domingo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-youthful-minds-conquer-linguistic-barriers/"><u>How Youthful Minds Conquer Linguistic Barriers</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-maximize-your-experience-with-key-iphone-x-hacks/"><u>In 2024, Maximize Your Experience with Key iPhone X Hacks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leading-non-native-language-curriculum-for-us-students/"><u>Leading Non-Native Language Curriculum for U.S. Students</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/manejo-de-horas-un-principio-de-lectura-en-espanol/"><u>Manejo De Horas: Un Principio De Lectura En Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/may-the-words-be-with-you-exploring-the-fascinating-languages-of-star-wars/"><u>May The Words Be With You: Exploring The Fascinating Languages Of Star Wars</u></a></li>
+<li><a href="https://techidaily.com/1723808223748-moving-chrome-bookmarks-to-firefox-made-simple-fast-and-stress-free-tutorial/"><u>Moving Chrome Bookmarks to Firefox Made Simple - Fast and Stress-Free Tutorial!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-slang-lexicon-common-expressions-in-todays-tongue/"><u>The Slang Lexicon: Common Expressions in Today's Tongue</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/top-8-best-book-reader-applications-your-ultimate-guide/"><u>Top 8 Best Book Reader Applications : Your Ultimate Guide</u></a></li>
+<li><a href="https://some-skills.techidaily.com/ultimate-avi-player-the-perfect-match-for-pcmobile-for-2024/"><u>Ultimate AVi Player The Perfect Match for PC/Mobile for 2024</u></a></li>
+</ul></div>
 

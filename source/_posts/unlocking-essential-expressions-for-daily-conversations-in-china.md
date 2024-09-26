@@ -1,7 +1,7 @@
 ---
 title: Unlocking Essential Expressions for Daily Conversations in China
-date: 2024-09-14T17:00:09.532Z
-updated: 2024-09-21T17:30:54.782Z
+date: 2024-09-19T17:54:03.240Z
+updated: 2024-09-26T21:14:07.485Z
 tags:
   - speak
   - english
@@ -34,6 +34,13 @@ thumbnail: https://thmb.techidaily.com/bcbc51157c352644194c600920e499191baf99c44
 
  Now that you know the easiest and most popular way to say “hello” in Chinese, let’s move on to more advanced Mandarin Chinese greetings that are guaranteed to make you sound fluent.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 1\. 早！(zǎo) – “Morning!” in Chinese
 
  早 (zǎo) is short for 早上好 (zǎo shang hǎo), which means “good morning” in Chinese. The same as our English “good morning”, 早 (zǎo) can be used safely in all kinds of social interactions as long as it is… you’ve guessed it: morning.
@@ -43,6 +50,13 @@ thumbnail: https://thmb.techidaily.com/bcbc51157c352644194c600920e499191baf99c44
 Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
  This expression is generally used as a response to a greeting, but it can also work as a “how are you?”.
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. 你怎么样? (nǐ zěnmeyàng) – “What’s up?” in Chinese
 
@@ -55,10 +69,10 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
  To answer to this greeting, you can say “chī le, nǐ ne?” which means “I’ve eaten, how about you?”.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. 久仰 (jiǔyǎng) – a very formal Chinese greeting
@@ -73,6 +87,13 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
 ![hi in chinese](https://edge.mondly.com/blog/wp-content/uploads/2019/12/hi-in-chinese-1024x682.jpg "How To Say Hello In Chinese: A Quick Guide To Chinese Greetings 3")
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  “Hello there!” by Theodor Lundqvist©
 
 ## 7\. 大家好 (dàjiā hǎo) – say “hello” to a crowd in Chinese
@@ -83,23 +104,9 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
  Want to diversify the way you greet people in Chinese? Then you can go with 下午好 (xiàwǔ hǎo) when it’s the right time of the day.
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 9\. 晚上好 (wǎnshàng hǎo) – “Good evening” in Chinese
 
  Staying up late to meet with your friends? Then this your chance to show them how well you’ve mastered the Mandarin greetings!
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 10\. 喂 (wèi) – answer your phone like a fluent speaker
 
@@ -135,5 +142,22 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-expert-tips-for-selecting-video-control-software-for-2024/"><u>[New] Expert Tips for Selecting Video Control Software for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-the-ultimate-camera-duel-sj6-against-xiaomis-yi-visionary/"><u>[New] In 2024, The Ultimate Camera Duel SJ6 Against Xiaomi's Yi Visionary</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-retro-cinema-a-look-at-the-goofy-adventure-for-2024/"><u>[Updated] Retro Cinema A Look at 'The Goofy Adventure' For 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-advanced-workshop-naming-service-2023/"><u>2024 Approved Advanced Workshop Naming Service 2023</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/automatic-repair-solutions-for-windows-11-systems/"><u>Automatic Repair Solutions for Windows 11 Systems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-english-across-the-globe-through-pearson/"><u>Explore English Across the Globe Through Pearson</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/gentle-echoes-mac-and-windows-sound-controls/"><u>Gentle Echoes Mac and Windows Sound Controls</u></a></li>
+<li><a href="https://techtrends.techidaily.com/how-to-navigate-the-termination-of-a-paramountplus-account-effectively/"><u>How to Navigate the Termination of a Paramount+ Account Effectively</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/mapping-out-your-ideal-tiktok-conclusion/"><u>Mapping Out Your Ideal TikTok Conclusion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-presents-its-revamped-question-answer-center/"><u>Mondly Presents Its Revamped Question Answer Center</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-influence-on-my-multilingual-journey-the-essential-10-tips/"><u>Mondly's Influence on My Multilingual Journey – The Essential 10 Tips</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/premier-ar-voice-interpreter-app/"><u>Premier AR Voice Interpreter App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/reconnaitre-en-francais-la-delivrance-dun-merci/"><u>Reconnaître en Français La Délivrance D'Un 'Merci'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/semaine-francaise-weekdays-translated/"><u>Semaine Française: Weekdays Translated</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swedish-letters-and-sound-practice-manual/"><u>Swedish Letters & Sound Practice Manual</u></a></li>
+</ul></div>
 

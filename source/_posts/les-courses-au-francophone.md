@@ -1,7 +1,7 @@
 ---
 title: Les Courses Au Francophone
-date: 2024-09-19T19:09:38.353Z
-updated: 2024-09-21T18:35:21.618Z
+date: 2024-09-21T19:45:32.235Z
+updated: 2024-09-26T17:00:07.017Z
 tags:
   - speak
   - english
@@ -73,6 +73,13 @@ The days of the week in French are:
 
  Planning to spend an entire week in France? Dont stop at_les jours de la semaine en français_ . French people are known to be proud of their language and heritage. Surprise them with your French skills and go beyond “Friday” in French with these [100+ French travel phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . You’ll thank me later.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Usage rules
 
  One more thing before you go. To make sure you are using your newly acquired French days of the week correctly, don’t forget that:
@@ -115,18 +122,24 @@ The days of the week in French are:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1899850">
-					<video width="486" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-a-step-by-step-process-for-twitch-streamers/"><u>[New] In 2024, A Step-by-Step Process for Twitch Streamers</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-advanced-microphone-recorders-for-mac-users-our-five-superstar-picks-for-2024/"><u>[Updated] Advanced Microphone Recorders for Mac Users Our Five Superstar Picks for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-elite-brain-teasers-general-knowledge/"><u>[Updated] Elite Brain Teasers - General Knowledge</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-peek-into-innovation-with-microsofts-hololens-review/"><u>[Updated] In 2024, Peek Into Innovation with Microsoft's HoloLens Review</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/adopt-a-romanian-heart-through-our-app/"><u>Adopt a Romanian Heart Through Our App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ancient-lexicons-ranking-the-worlds-time-tested-tongues/"><u>Ancient Lexicons: Ranking the World’s Time-Tested Tongues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579200830-best-language-learning-management-systems-for-efficient-study/"><u>Best Language Learning Management Systems for Efficient Study</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/bring-sound-effects-into-premiere-pro/"><u>Bring Sound Effects Into Premiere Pro</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/browse-and-learn-any-language-all-year-round/"><u>Browse & Learn Any Language, All-Year Round</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-on-tecno-camon-20-premier-5g-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location on Tecno Camon 20 Premier 5G | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-connecting-twitter-videos-with-facebook-friends/"><u>In 2024, Connecting Twitter Videos with Facebook Friends</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-a-locked-xiaomi-14-ultra-phone-by-drfone-android/"><u>In 2024, How to Reset a Locked Xiaomi 14 Ultra Phone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-global-lexicon-of-inspiring-teaching-voices/"><u>The Global Lexicon of Inspiring Teaching Voices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-turkish-script-decoded-simplified-alphabet-and-sound-guide/"><u>The Turkish Script Decoded: Simplified Alphabet & Sound Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/turkish-korean-linguistics-unveiled/"><u>Turkish-Korean Linguistics Unveiled</u></a></li>
+<li><a href="https://some-tips.techidaily.com/ultimate-guide-to-gopro-max-or-hero-11-in-2024/"><u>Ultimate Guide to GoPro Max or Hero 11, In 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unleash-the-power-of-croatian-language-with-these-top-7-benefits/"><u>Unleash the Power of Croatian Language with These Top 7 Benefits!</u></a></li>
+</ul></div>
 

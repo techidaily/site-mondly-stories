@@ -1,7 +1,7 @@
 ---
 title: "International Eloquence: Expressing Thanks Worldwide (152) [Trimmed to Fit]"
-date: 2024-09-18T17:36:09.224Z
-updated: 2024-09-21T17:29:02.111Z
+date: 2024-09-23T16:30:00.487Z
+updated: 2024-09-26T16:47:58.010Z
 tags:
   - speak
   - english
@@ -58,6 +58,13 @@ thumbnail: https://thmb.techidaily.com/ebdad2a840dec3c1268566b70a55752afebf36210
 
  “Thanks” by Hanny Naibaho©
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The origin of saying “thank you”
 
  The mere act of expressing gratitude sits at the core of human interaction, so it should be interesting to analyze it a bit more. As the [Oxford Dictionaries](https://en.oxforddictionaries.com/definition/thank%5Fyou) explain, “thank you” is “a polite expression used when acknowledging a gift, service, or compliment, or accepting or refusing an offer”. “Thank you” is basically the general expression of gratitude or politeness to someone for an act of kindness that he or she has done.
@@ -80,6 +87,13 @@ thumbnail: https://thmb.techidaily.com/ebdad2a840dec3c1268566b70a55752afebf36210
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## From 0 to conversational in over 40 languages
 
@@ -109,12 +123,22 @@ thumbnail: https://thmb.techidaily.com/ebdad2a840dec3c1268566b70a55752afebf36210
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/updated-audiophiles-collection-of-drama-writing-for-2024/"><u>[Updated] Audiophile's Collection of Drama Writing for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unifying-your-digital-storytelling-via-merged-youtube-media-for-2024/"><u>[Updated] Unifying Your Digital Storytelling via Merged YouTube Media for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/100-tongue-twisters-to-perfect-pronunciation-in-english/"><u>100 Tongue Twisters to Perfect Pronunciation in English</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/compare-device-performance-using-the-latest-geekbench-assessment/"><u>Compare Device Performance Using the Latest Geekbench Assessment</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/crossing-borders-with-words-immersion-made-simple/"><u>Crossing Borders with Words: Immersion Made Simple</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/discover-the-charm-of-switchbot-mini-k10plus-your-ideal-little-helper-in-robotic-vacuum-cleans-up-small-spaces-with-ease/"><u>Discover the Charm of SwitchBot Mini K10+: Your Ideal Little Helper in Robotic Vacuum Cleans Up Small Spaces with Ease</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/encore-engagement-reinvent-learning-through-vr-languages/"><u>Encore Engagement: Reinvent Learning Through VR Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/melodic-memory-enhance-languages-with-harmonious-sounds/"><u>Melodic Memory: Enhance Languages with Harmonious Sounds</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/most-common-english-slang-words-and-their-meaning/"><u>Most Common English Slang Words And Their Meaning</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/navigating-the-nuances-of-networked-notebooks-with-toms-hardware-guidance/"><u>Navigating the Nuances of Networked Notebooks with Tom's Hardware Guidance</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-10-best-podcasting-audio-to-text-transcription-software-freeandpaid/"><u>New 10 Best Podcasting Audio to Text Transcription Software FREE&PAID</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/overcoming-chatgpt-hurdles-refining-google-news-content-delivery-and-securing-top-tier-mobile-internet-access-on-holidays/"><u>Overcoming ChatGPT Hurdles, Refining Google News Content Delivery & Securing Top-Tier Mobile Internet Access on Holidays</u></a></li>
+<li><a href="https://fox-access.techidaily.com/perfect-ringtones-leading-download-pages/"><u>Perfect Ringtones Leading Download Pages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-guide-to-turkish-alphabet-an-essential-reading-companion/"><u>Quick Guide To Turkish Alphabet: An Essential Reading Companion</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/relaxation-reigns-top-pc-titles-for-2024/"><u>Relaxation Reigns Top PC Titles for 2024</u></a></li>
+</ul></div>
 

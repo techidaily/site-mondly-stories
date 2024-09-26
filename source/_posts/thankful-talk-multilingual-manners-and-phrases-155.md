@@ -1,7 +1,7 @@
 ---
 title: "Thankful Talk: Multilingual Manners and Phrases (155)"
-date: 2024-09-19T16:34:26.308Z
-updated: 2024-09-21T20:02:51.245Z
+date: 2024-09-19T19:09:34.084Z
+updated: 2024-09-26T16:42:11.722Z
 tags:
   - speak
   - english
@@ -58,6 +58,13 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
 
  “Thanks” by Hanny Naibaho©
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The origin of saying “thank you”
 
  The mere act of expressing gratitude sits at the core of human interaction, so it should be interesting to analyze it a bit more. As the [Oxford Dictionaries](https://en.oxforddictionaries.com/definition/thank%5Fyou) explain, “thank you” is “a polite expression used when acknowledging a gift, service, or compliment, or accepting or refusing an offer”. “Thank you” is basically the general expression of gratitude or politeness to someone for an act of kindness that he or she has done.
@@ -80,6 +87,13 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## From 0 to conversational in over 40 languages
 
@@ -109,12 +123,20 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-digital-design-trends-to-avoid-in-your-youtube-banners/"><u>[New] 2024 Approved Digital Design Trends to Avoid in Your YouTube Banners</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-the-essential-guide-to-muting-intruders-on-google-video-chats-for-2024/"><u>[New] The Essential Guide to Muting Intruders on Google Video Chats for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-top-ranked-text-enhancers-for-after-effects/"><u>[Updated] Top-Ranked Text Enhancers for After Effects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/becoming-multilingual-via-visual-media/"><u>Becoming Multilingual via Visual Media</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-daily-gesture-lingo-in-italy/"><u>Decoding Daily Gesture Lingo in Italy</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/enhancing-web-experiences-through-smart-analytics-unveiling-the-benefits-of-cookiebot-systems/"><u>Enhancing Web Experiences Through Smart Analytics: Unveiling the Benefits of Cookiebot Systems</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-iphone-11-ios-system-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair iPhone 11 iOS System? | Dr.fone</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/mastering-soundscapes-expert-insights-on-audio-post-production-in-garageband-for-2024/"><u>Mastering Soundscapes Expert Insights on Audio Post-Production in GarageBand for 2024</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/preventing-nuisance-automated-calls-tips-for-android-users/"><u>Preventing Nuisance Automated Calls: Tips for Android Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-spelling-blunder-index-for-english-proficiency/"><u>The Ultimate Spelling Blunder Index for English Proficiency</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-lost-ark-pc-crashes-a-comprehensive-guide-to-a-smooth-gaming-experience/"><u>Troubleshooting Lost Ark PC Crashes: A Comprehensive Guide to a Smooth Gaming Experience</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-persistent-lag-in-overwatch-solutions-proven-effective/"><u>Troubleshooting Persistent Lag in Overwatch - Solutions Proven Effective</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/uncovering-the-realities-behind-effective-language-education/"><u>Uncovering the Realities Behind Effective Language Education</u></a></li>
+</ul></div>
 
