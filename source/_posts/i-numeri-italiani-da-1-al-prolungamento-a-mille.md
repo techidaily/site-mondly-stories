@@ -1,7 +1,7 @@
 ---
 title: "I Numeri Italiani: Da 1 Al Prolungamento a Mille"
-date: 2024-09-05T04:37:55.144Z
-updated: 2024-09-06T04:37:55.144Z
+date: 2024-09-27T21:02:54.443Z
+updated: 2024-10-01T20:32:02.753Z
 tags:
   - speak
   - english
@@ -14,12 +14,6 @@ keywords: Italian Numeral Guide,Numero Italiano (Italian Number),Istruzione Nume
 thumbnail: https://thmb.techidaily.com/69ee34b64cf92db1f2232edf38c3580f65ba5a6c1e5baa6cfa6ccd73ff711508.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## I Numeri Italiani: Da 1 Al Prolungamento a Mille
 
  Lucky for us, language learners, most languages use Arabic numerals (0, 1, 2, 3, 4, 5, 6, 7, 8, 9) in writing. The challenging parts are pronunciation and spelling. When you start [learning Italian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , you will, of course, need to learn numbers. Italian numbers are easy to remember and pronounce because they follow a simple and predictable pattern. Once you know the Italian numbers to 10, counting to 100 and even 1000 is easy.
@@ -59,11 +53,12 @@ Here’s how to write and pronounce the Italian numbers 1-10:
 **Good to know:**Italian cardinal numbers don’t change suffixes according to the gender of the noun they determine. The only exception is 1_(uno)_. Thus, when you talk about a feminine noun, you’ll say_una_instead of_uno_:_Ho comprato una casa_(“I bought a house.”)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Italian numbers 11-20
 
  Imagine this: you are on the famous Amalfi Coast. The weather is perfect. And let’s say you want to buy 12 slices of the yummiest Italian pizza you’ve ever seen: two slices for you and each one of your friends. The problem is you only have 10 fingers to sign to the lady at the counter. Wouldn’t it be easier if you knew some [Italian expressions](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ?
@@ -101,17 +96,12 @@ Let’s see some examples:
 * to say “20 children”, you’ll say_venti bambini_
 
 <!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Italian numbers to 30 and beyond
 
  Essentially, Italian numbers are very similar to English numbers. Once you get to 20, you just put together the tens with the single numbers (units). The best part is that Italian doesn’t even require spaces or hyphens. For example, if you want to say 22 (“twenty-two”), in Italian you say venti (20) + due (2) = _**venti** due_ (22).
@@ -125,11 +115,12 @@ Let’s see some examples:
  See how easy Italian numbers are? The only thing you have to remember is that the final vowel of the tens disappears when you add 1_(uno)_ or 8_(otto)_ . Thus, you’ll say _**vent** uno_ and not “ventiuno”. Additionally, number 3_(tre)_ gains an accent mark on the final vowel. For example, 33 will be_trentatré_ and 83 will be_ottantatré._
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Count tens in Italian
 
  Except for 10_(dieci)_ and 20_(venti)_ , all tens digits in Italian are based on their roots. Once you know all of them, you’ll know how to count to 100 – which is_cento_ – in Italian.
@@ -164,11 +155,12 @@ Let’s see some examples:
 * 98 – _novant**otto**_
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Italian numbers 100 to 1000 and beyond
 
  The same rules apply to bigger numbers as well. Add the suffix_cento_ to the multiplier digit and here are your hundreds:
@@ -197,12 +189,6 @@ Let’s see some examples:
 
 ![italian numbers pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2020/05/italian-numbers-pronunciation-960x640.jpg "Italian Numbers Made Easy - Count To 1000 And Beyond In Italian 3")
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
-  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  “The Amalfi Coast” by Gregory Smirnov©
 
  Back to counting, from 100 and beyond, the bigger the number is, the longer its written form. Italian doesn’t isolate hundreds, tens and ones. They become one long word with no hyphens or spaces. For example:
@@ -265,8 +251,6 @@ Let’s see some examples:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -274,4 +258,22 @@ Let’s see some examples:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-precision-capturing-the-art-of-ps4-gaming-recordings-with-obs/"><u>[New] In 2024, Precision Capturing The Art of PS4 Gaming Recordings with OBS</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-ultimate-web-compendium-alarm-rhythms-guidebook-for-2024/"><u>[Updated] Ultimate Web Compendium Alarm Rhythms Guidebook for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprendre-lanatomie-de-base-les-segments-corporels-en-francais/"><u>Comprendre L'Anatomie De Base : Les Segments Corporels en Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/continental-verbal-prowess-leading-triad-of-asian-languages/"><u>Continental Verbal Prowess: Leading Triad of Asian Languages</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-and-install-brother-l2700dw-printer-drivers-on-windows/"><u>Download & Install Brother L2700DW Printer Drivers on Windows</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-pictures-from-motorola-moto-g34-5g-by-fonelab-android-recover-pictures/"><u>How to recover deleted pictures from Motorola Moto G34 5G.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577334805-how-to-say-i-love-you-in-hungarian/"><u>How to Say I Love You in Hungarian</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-6-ways-to-change-spotify-location-on-your-samsung-galaxy-m34-drfone-by-drfone-virtual-android/"><u>In 2024, 6 Ways to Change Spotify Location On Your Samsung Galaxy M34 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/online-learning-learn-bengali-daily/"><u>Online Learning: Learn Bengali Daily</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pioneering-proto-dutch-a-linguistic-map/"><u>Pioneering Proto-Dutch: A Linguistic Map</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essentials-of-pinyin-alphabet/"><u>The Essentials of Pinyin Alphabet</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-ultimate-roadmap-to-proficiency-in-lut-construction-for-2024/"><u>The Ultimate Roadmap to Proficiency in LUT Construction for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-lives-with-arabic-and-mondly-top-6-benefits-await/"><u>Transform Lives with Arabic & Mondly: Top 6 Benefits Await!</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unlocking-creative-potential-in-lyric-videos-with-lyric-video-maker-for-2024/"><u>Unlocking Creative Potential in Lyric Videos with Lyric Video Maker for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/aifc-movavi/"><u>무료 AIFC 웹 매디어를 사용하여: Movavi 구현 방법</u></a></li>
+</ul></div>
 

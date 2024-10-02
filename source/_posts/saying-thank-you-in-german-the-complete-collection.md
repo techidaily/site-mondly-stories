@@ -1,7 +1,7 @@
 ---
 title: "Saying 'Thank You' In German: The Complete Collection"
-date: 2024-09-05T04:37:56.696Z
-updated: 2024-09-06T04:37:56.696Z
+date: 2024-09-25T00:33:05.041Z
+updated: 2024-10-02T00:08:07.892Z
 tags:
   - speak
   - english
@@ -20,28 +20,10 @@ thumbnail: https://thmb.techidaily.com/d3785013298563f1830795a92fde8d1efce201ea3
 
  Saying “thank you” to someone is one of the first things we learned when we were little – “say thank you for the chocolate to the kind gentleman!”. We all remember that ![Learning German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) – or any other language – is just slightly different from learning to speak. You start with the basics – like**thank you** and**you’re welcome** – and you continue with more advanced vocabulary like variations of the same expressions you already mastered. In English, we have multiple variations for expressing gratitude. “Thanks”, “thank you”, “thanks a bunch” or even “I’m eternally grateful to you” are just a few of them. Naturally, the German language makes no exception. Let’s discover**the absolute best ways to say thank you in German.**
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![woman receiving a flower](https://edge.mondly.com/blog/wp-content/uploads/2019/05/how-to-say-thank-you-in-german-1024x682.png "The 16 Best Ways To Say Thank You In German 2")
 
  “Thank you!” by Dayne Topkin©
 
-<!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **1._Danke!_ — The universal “Thank you” in German**
 
 _**Danke**_ translates to “thank you” or “thanks” and it is probably the best and certainly**most common way to say thank you in German.** If you already interacted with the German language, you probably heard “Danke!” before. It’s sweet, short, easy to remember, and suitable for both formal and informal contexts.
@@ -56,97 +38,71 @@ _**Danke**_ translates to “thank you” or “thanks” and it is probably the
 
  This is a more formal variation of_Danke schön_ , but both expressions can be used interchangeably. Like I said: trust your gut. It’s very important to take into consideration your way to talk to other people and your personality.
 
-<!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **4._Vielen Dank!_ — Many thanks!**
 
  Do you know that moment when you are really grateful to someone because they helped you a lot? Well, that’s the perfect moment to thank them in German using “Vielen Dank!”.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **5._Tausend Dank!_ — Thousand thanks!**
 
 _Tausend Dank!_ is**the** **German equivalent of our** **“Thanks a million!”** and it is generally used in informal situations like talking to friends or relatives.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2030375/7443" target="_top" id="2030375">
-  <img src="//a.impactradius-go.com/display-ad/7443-2030375" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030375/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **6._Danke vielmals!_ – Many thanks!**
 
  This is a variation of_**Vielen Dank!**_ and it can also translate to “thanks very much!”. While “Danke” means “thanks”, “vielmals” translates to “very much.”
 
 <!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **7._Vergelt’s Gott!_ – God will reward you!**
 
  As I said, there are multiple and different ways to say thank you in German._**Vergelt’s Gott**_ is a regional expression used mainly in the southern region of Germany.
 
-<!-- affiliate ads begin -->
-<span id="1983584">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **8._(Danke!) Sehr aufmerksam._ — (Thank you!) That is very kind of you.**
 
  We all have moments in our lives when we need to thank the extraordinary people that helped when we were in trouble. Well, “Sehr aufmerksa” is for one of those situations. It’s a heartfelt way of thanking someone that has done something kind for you.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **9._Ich bin dir dankbar._ — I’m thankful to you.**
 
  Good to know, but very rarely used. Depending on whom you are talking to, use “dir” and “euch” for friends and colleagues or “Ihnen” for those who you don’t know too well. The key is to use the right pronoun.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **10._Ich sage dir vielen Dank._ – I say many thanks to you.**
 
  Rarely used, but still useful if you want the complete list of ways to say thank you in German.
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **11._Danke, gleichfalls!_ — Thank you, the same to you!**
 
  “Gleichfalls” is what you should add to your “Danke!” when someone wishes you “Guten Appetit!” (“Good appetite” or “Enjoy your meal”) or something similar.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **12._Ich danke Ihnen!_ – I give you my thanks!**
 
@@ -164,9 +120,29 @@ _Tausend Dank!_ is**the** **German equivalent of our** **“Thanks a million!”
 
  Well, you’ll probably need this one at some point, won’t you? This is especially useful when you make a request.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **16._Ich bin Ihnen sehr dankbar für…_ – I am very grateful to you for…**
 
  Last but not least, use this standard expression by adding what are you thankful for at the end of it. But use it only with intangible things like**“I’m grateful for your help”** and not objects. Here’s an example:**“I’m thankful that you take care of me”** in German will be **“Ich bin Ihnen sehr dankbar dafür, dass du dich um mich kümmerst”** .
+
+<!-- affiliate ads begin -->
+<span id="1975503">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **17\. Bonus: How to say you’re welcome in German**
 
@@ -175,17 +151,12 @@ _Tausend Dank!_ is**the** **German equivalent of our** **“Thanks a million!”
 ![you're welcome in German](https://edge.mondly.com/blog/wp-content/uploads/2019/05/youre-welcome-in-german.png "The 16 Best Ways To Say Thank You In German 3")
 
 <!-- affiliate ads begin -->
-<span id="1983473">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 * **_Bitte_ — You’re welcome**
 * **_Bitte schön / Bitte sehr_ — You’re very welcome**
 * **_Kein Problem_ — No problem**
@@ -212,25 +183,11 @@ _Tausend Dank!_ is**the** **German equivalent of our** **“Thanks a million!”
 
 Get Mondly now and speak German like you never dreamed you would ![Learn German now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-2929&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-2929%26utm%5Fsource%3Dblog-post-id-2929&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-2929%26utm%5Fsource%3Dblog-post-id-2929&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-2929%26utm%5Fsource%3Dblog-post-id-2929&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-2929%26mt%3D8 "Learn German now")
 
-<!-- affiliate ads begin -->
-<span id="1983551">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -239,4 +196,22 @@ Get Mondly now and speak German like you never dreamed you would ![Learn German 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-the-biggest-tweet-waves-of-2023-decoded/"><u>[New] 2024 Approved The Biggest Tweet Waves of 2023 Decoded</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-fusing-live-streams-combining-cameras-plus-monitors/"><u>[New] Fusing Live Streams Combining Cameras + Monitors</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-smart-tips-for-gif-lovers-iphone-edition/"><u>[Updated] Smart Tips for GIF Lovers IPhone Edition</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-lava-agni-2-5g-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Lava Agni 2 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/authentic-australian-english-the-definitive-list/"><u>Authentic Australian English: The Definitive List</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beginners-blueprint-for-speedy-polsk/"><u>Beginner's Blueprint for Speedy Polsk</u></a></li>
+<li><a href="https://fox-that.techidaily.com/bypassing-itunes-easy-ways-to-perform-a-fresh-start-on-your-iphone/"><u>Bypassing iTunes: Easy Ways to Perform a Fresh Start on Your iPhone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-the-richness-of-german-language-top-25-idioms/"><u>Discover the Richness of German Language - Top 25 Idioms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-japanese-greeting-culture/"><u>Dive Into Japanese Greeting Culture</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-romance-saying-i-love-you-in-different-languages/"><u>Embrace Romance: Saying I Love You in Different Languages</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-life360-shows-wrong-location-on-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Life360 Shows Wrong Location On Lava Yuva 2? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-fake-gps-location-spoofer-a-good-choice-on-honor-90-drfone-by-drfone-virtual-android/"><u>In 2024, Is Fake GPS Location Spoofer a Good Choice On Honor 90? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-realme-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Realme 11 5G? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579705874-learn-the-basics-of-urdu-with-key-terms-and-phrases/"><u>Learn the Basics of Urdu with Key Terms and Phrases</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/the-way-of-the-warrior-game-lineup-mirroring-ghost-of-tsushima-for-2024/"><u>The Way of the Warrior Game Lineup Mirroring Ghost of Tsushima for 2024</u></a></li>
+</ul></div>
 

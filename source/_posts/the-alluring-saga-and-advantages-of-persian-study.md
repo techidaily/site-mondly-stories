@@ -1,7 +1,7 @@
 ---
 title: The Alluring Saga and Advantages of Persian Study
-date: 2024-09-05T04:37:56.547Z
-updated: 2024-09-06T04:37:56.547Z
+date: 2024-09-29T19:20:20.204Z
+updated: 2024-10-01T23:34:05.382Z
 tags:
   - speak
   - english
@@ -20,12 +20,6 @@ thumbnail: https://thmb.techidaily.com/843a2530bd30cf31b24741cc2e56b474bee5d065d
 
  Here’s a quick guide to all the basics you need to know about Persian before deciding whether you want to learn Persian or not.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Is Persian a language?
 
  **Yes, Persian is very much a language. Known to its native speakers as Farsi, Persian is the official language of modern-day Iran.** Additionally, two varieties of Persian known as Dari and Tajik are the official languages of parts of Afghanistan and the central Asian republic of Tajikistan. Having over 70 million native speakers, Persian is one of the most important members of the Indo-Iranian branch of the [Indo-European family of languages](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
@@ -33,6 +27,13 @@ thumbnail: https://thmb.techidaily.com/843a2530bd30cf31b24741cc2e56b474bee5d065d
  While this may seem like a bizarre question for some, it’s totally understandable why people ask, “is Persian a language?” or “is Persian still a language?”.**Previously called Persia, Iran adopted its current name in 1935.** Naturally, many would believe the name of the language itself would change is as well. However, the national language of modern-day Iran is known as Persian to the outside world and as Farsi to its native speakers.
 
  In other words, the confusion arises from the fact that there’s currently no country on Earth named Persia in the same way there’s no language we can call the ‘Iranian language’. Persian does belong to the Iranian languages, but the Iranian languages are a branch of the Indo-Iranian languages in the Indo-European language family. So they are not an individual language.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The Persian language – history and facts
 
@@ -42,12 +43,6 @@ thumbnail: https://thmb.techidaily.com/843a2530bd30cf31b24741cc2e56b474bee5d065d
 
  Old Persian then developed into**Middle Persian,** which existed from around 300 BCE until 800 CE. Evidence of Middle Persian exists mainly in the religious texts of the Zoroastrian religion. However, **Middle Persian entered a new stage when the Islamic conquest in 651 AD happened.** The following 200 years are referred to as “the two centuries of silence” because there is very little to almost no literature available from this time period.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
-  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### The Arab rule
 
  It seems that during the Muslim conquest of Persia, the Persian language was in danger of being lost and replaced by Arabic. Luckily, Persia was one of the few places where the Arabic language did not replace the local language. However, Arabic was used by the elite and it definitely had a big impact on the vocabulary of the**Modern Persian** that was emerging.
@@ -61,29 +56,24 @@ thumbnail: https://thmb.techidaily.com/843a2530bd30cf31b24741cc2e56b474bee5d065d
  Today, there still are a significant number of [Arabic words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) in Persian, but not as many as there could have been.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Persian influence on other languages
 
  During this Persian cultural resurgence, the Persian language and culture impacted a wide geographic area. For this reason, Persian has left its influence on many different languages, including a heavy influence on the [vocabulary of Urdu](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and Turkish. To this day, words of Persian origin can be found as far as Malaysia.
 
  As a matter of fact, there are even some English words of Persian origin. Some of them came directly into English from Persian, but most of them came indirectly into English via a different language. Some examples include bronze, jackal, lemon, mogul, mummy, scarlet, serendipity, shawl, tulip, turban, typhoon, khaki, caravan, and paradise. Probably the most interesting borrowing is the word “checkmate,” which comes from the Persian_Shah Mat_ , meaning “the king is dead”.
 
-<!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Persian vs Farsi: Is Farsi the same as Persian?
 
  The short answer is yes, Farsi and Persian are the same language. The confusion comes from the fact that ‘Persian’ is the term used by English speakers and ‘Farsi’ is the term used by Iranian speakers to refer to Persian, the official language of Iran.
@@ -94,12 +84,6 @@ thumbnail: https://thmb.techidaily.com/843a2530bd30cf31b24741cc2e56b474bee5d065d
 
  According to the [Academy of Persian Language and Literature](https://iranicaonline.org/articles/farhangestan) , the endonym ‘Farsi’ should be avoided in foreign languages. Instead, ‘Persian’ should be the appropriate designation in English, as it has the longest tradition in western languages and is better suited to convey the language’s role as a national and cultural continuity symbol.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Persian vs Arabic: Is Persian similar to Arabic?
 
  Considering their shared history presented above, Persian and Arabic developed to become somehow similar, but not as similar as many think.
@@ -113,11 +97,12 @@ thumbnail: https://thmb.techidaily.com/843a2530bd30cf31b24741cc2e56b474bee5d065d
  All in all, Persian and Arabic can’t be considered mutually intelligible. A speaker of either Persian or Arabic with no knowledge of the other could recognize some basic words in writing, but conversations are a whole other story.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## The benefits of learning Farsi/Persian
 
  If you’re a language learner at heart, you already know that learning any language will broaden your horizons. There’s no such thing as a ‘waste of time’ when you [learn a new language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Be it Persian, Arabic, Urdu or a more popular language such as Spanish or German – all languages are equally important.
@@ -137,6 +122,13 @@ Other benefits of learning Persian include:
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Learn Persian online with Mondly
 
@@ -160,8 +152,6 @@ Other benefits of learning Persian include:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -169,4 +159,19 @@ Other benefits of learning Persian include:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-essential-accessories-10-ps5-hard-drive-mods/"><u>[Updated] 2024 Approved Essential Accessories #10 PS5 Hard Drive Mods</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-beat-writers-block-learning-ms-words-voice-transcription-techniques/"><u>[Updated] Beat Writer’s Block Learning MS Word's Voice Transcription Techniques</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-manual-how-to-turn-off-igtv/"><u>[Updated] In 2024, Manual How to Turn Off IGTV</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-comprehensive-list-of-germanys-most-common-thank-you-sayings/"><u>A Comprehensive List of Germany’s Most Common 'Thank You' Sayings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accelerate-learning-latin-online-naturally/"><u>Accelerate Learning Latin Online, Naturally</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effortlessly-enhance-your-urdu-skills-in-minutes/"><u>Effortlessly Enhance Your Urdu Skills in Minutes</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-send-and-fake-live-location-on-facebook-messenger-of-your-honor-90-pro-drfone-by-drfone-virtual-android/"><u>How to Send and Fake Live Location on Facebook Messenger Of your Honor 90 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-download-friends-share-and-connect-effortlessly-online/"><u>In 2024, Download Friends, Share & Connect Effortlessly Online</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-can-i-use-a-fake-gps-without-mock-location-on-oneplus-12r-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Use a Fake GPS Without Mock Location On OnePlus 12R? | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/speedy-setup-guide-instant-download-of-usb-to-rs2n32-serial-communication-driver/"><u>Speedy Setup Guide: Instant Download of USB-to-RS2n32 Serial Communication Driver</u></a></li>
+<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-vivo-t2x-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Vivo T2x 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578897201-zap-up-your-skills-speed-up-slovak-learning-with-micro-lessons/"><u>Zap Up Your Skills: Speed up Slovak Learning with Micro Lessons!</u></a></li>
+</ul></div>
 

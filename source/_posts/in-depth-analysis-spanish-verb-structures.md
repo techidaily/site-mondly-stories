@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Analysis: Spanish Verb Structures"
-date: 2024-09-01T00:31:43.808Z
-updated: 2024-09-02T00:31:43.808Z
+date: 2024-09-29T18:09:24.643Z
+updated: 2024-10-01T21:19:45.335Z
 tags:
   - speak
   - english
@@ -108,8 +108,12 @@ And the conjugation of comer will look like this:
  Keep in mind the fact that the first person singular (_yo_), third person singular (_él, ella_), and second person formal singular (_usted_) forms use tildes on the final letters of the verb endings. And one little tilde can make all the difference in the world! If you don’t know yet how accents work, take a look at our article on **[Spanish accents and how to master them all](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .**
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Spanish Simple Future Tense – Regular Simple Future Verb Endings
 
  In Spanish, there are two ways to form the future tense:**the informal future tense** (the verb_ir_ \+ a + infinitive ->_voy a comer_) and**the simple future tense,** which we will illustrate in this article.
@@ -142,9 +146,6 @@ And the conjugation of comer will look like this:
 * _Vosotros / Vosotras escrib**iréis**_
 * _Ellos / Ellas / Ustedes escrib**irán**_
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ## Spanish verbs: how to master irregular Spanish verbs
 
  Remember how you managed to learn**irregular English verbs** ? Well, there are tricks that you can use, but the truth is that, in time,**irregular Spanish verbs** will just… come to you. No joke. Once you get used to the language and use it all the time, your brain will start making connections.
@@ -152,8 +153,12 @@ And the conjugation of comer will look like this:
  As you already know,**irregular verbs** are “rebel” verbs that follow no regular set of rules. Statistically, in Spanish, almost all verbs ending in_\-ar_ are regular, almost all verbs ending in_\-er_ are irregular and less than half of all verbs ending in_\-ir_ are irregular. So, let’s disentangle this complicated situation of**irregular Spanish verbs** and look for some patterns to help us learn faster.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 1\. Stem-Changing Verbs in Spanish
 
  The easiest type of**irregular verbs in Spanish** are the ones that require stem-changing but keep the regular endings. By the way, the stem of a verb is the result you get when you remove the infinitive suffix (meaning the_\-ar_ ,_\-er_ , or_\-ir_) from the infinitive form. For example, the stems of_deber_ ,_hablar_ and_vivir_ are “deb-“, “habl-” and “viv-“.
@@ -209,9 +214,18 @@ And the conjugation of comer will look like this:
 _Adquirir_ (to acquire) and_inquirir_ (to inquire) are just as rebellious because to the final letter “i” of their stem, we will need to add an “e”. Thus, “I acquire” will be “Yo adquiero”.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<span id="1982508">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 2\. Spanish verbs with an irregular “yo” form
 
  This category includes two types of verbs:  
@@ -237,8 +251,12 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
  –_ver_ (to see) –_Yo veo_ ,_Tú ves_
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Spanish verbs conjugation examples –_ser, estar, ir_
 
  Now that we managed to paint the big picture for both**regular and irregular Spanish verbs** , let’s finish this lesson with some eloquent examples of the most “rebel” verbs of the Spanish language:_ser_ (to be),_estar_ (to be, to be situated) and_ir_ (to go). Here’s the**present tense** ,**preterite tense** , and**future tense conjugation** for each and every one of them:
@@ -321,8 +339,6 @@ Well… this is it! This is our full lesson on**Spanish verbs.**
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -330,4 +346,26 @@ Well… this is it! This is our full lesson on**Spanish verbs.**
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-the-ultimate-guide-to-respecting-musicians-rights-on-ig/"><u>[New] 2024 Approved The Ultimate Guide to Respecting Musicians' Rights on IG</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-from-playtime-to-peak-time-top-gaming-women-in-the-digital-space/"><u>[New] In 2024, From Playtime to Peak Time Top Gaming Women in the Digital Space</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-amp-up-the-sound-beat-downloads-on-fb/"><u>2024 Approved Amp Up the Sound Beat Downloads on FB</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/elite-selection-of-text-motion-packages/"><u>Elite Selection of Text Motion Packages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/eng-speaks-other-languages-a-lexical-mosaic/"><u>ENG Speaks Other Languages: A Lexical Mosaic</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/engaging-students-with-dynamic-spanish-learning/"><u>Engaging Students with Dynamic Spanish Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/eternal-savings-on-mondly-ultimate-plan/"><u>Eternal Savings on Mondly Ultimate Plan</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-language-bonds-turkey-and-korea/"><u>Exploring Language Bonds: Turkey and Korea</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressive-french-greetings-for-every-occasion-and-setting/"><u>Expressive French Greetings for Every Occasion & Setting</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/first-augmented-reality-language-app-with-speech-recognition/"><u>First Augmented Reality Language App With Speech Recognition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/foraying-into-the-realm-of-arabic-language/"><u>Foraying Into the Realm of Arabic Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-conversationalist-essential-chinese-greeting-skills/"><u>From Novice to Conversationalist: Essential Chinese Greeting Skills</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-ways-to-track-honor-magic-5-pro-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Track Honor Magic 5 Pro without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/mastery-over-windows-taskmanager-on-top-techniques/"><u>Mastery Over Windows: TaskManager on Top Techniques</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-3gp-file-cutter-extract-specific-parts-of-your-video-for-2024/"><u>New 3GP File Cutter Extract Specific Parts of Your Video for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/reviving-your-smart-tv-a-comprehhrenous-guide-to-samsung-tv-resets/"><u>Reviving Your Smart TV: A Comprehhrenous Guide to Samsung TV Resets</u></a></li>
+<li><a href="https://win11.techidaily.com/unveiling-windows-11s-next-gen-phone-integration/"><u>Unveiling Windows 11'S Next-Gen Phone Integration</u></a></li>
+<li><a href="https://driver-download.techidaily.com/up-to-date-guide-on-acquiring-and-updating-canon-mg3600-printing-drivers/"><u>Up-to-Date Guide on Acquiring and Updating Canon MG3600 Printing Drivers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/eygnwmwn-glwttothpeio-gkreman/"><u>Ευγνώμων Γλωττοτηπειό Γκρεμάν</u></a></li>
+</ul></div>
 

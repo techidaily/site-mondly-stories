@@ -1,7 +1,7 @@
 ---
 title: "Ukraine and Russia: A Comparative Language Study"
-date: 2024-09-01T00:32:57.131Z
-updated: 2024-09-02T00:32:57.131Z
+date: 2024-09-24T16:52:28.581Z
+updated: 2024-10-01T23:04:39.880Z
 tags:
   - speak
   - english
@@ -25,8 +25,6 @@ thumbnail: https://thmb.techidaily.com/6308ca1326b9f5602e19bd1098908b4cdc545e2ea
 ``
 
  Contrary to what some people believe, Ukrainian and Russian are not the same language. Despite sharing a common ancestor and the Cyrillic script, Ukrainian and Russian are two distinct languages. They are somehow similar, yes, but not one and the same. To help you understand the relationship between the two, we are going to look at their shared history and both their differences and similarities.
-
-
 
 ## Was Ukrainian really called Little Russian?
 
@@ -52,14 +50,12 @@ thumbnail: https://thmb.techidaily.com/6308ca1326b9f5602e19bd1098908b4cdc545e2ea
  As a result of Ukraine’s centuries-long political subordination, Ukrainian had almost no literary expression until de 18th century when the modern literary Ukrainian language was born.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## The Russian language – a short history
 
  Russian, known as Русский язык (romanized:_Russkiy yazyk_) to Russians, is the official language of Russia, Belarus, Kazakhstan, and Kyrgyzstan and it is also used as a second language in other former Soviet countries. Additionally, Russian is one of the six official United Nations languages and the 8th most spoken language in the world with a total of 260 million speakers.
@@ -73,8 +69,12 @@ thumbnail: https://thmb.techidaily.com/6308ca1326b9f5602e19bd1098908b4cdc545e2ea
  Later, the Soviet period brought Russian worldwide prestige which declined after the 1991 collapse. Despite each USSR constituent republic having its own official language, Russian had a unified role and superior status. This is why there are so many people speaking Russian outside Russia.
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How similar are Ukrainian and Russian?
 
  The misconception that Russian and Ukrainian are the same sometimes stems from the fact that Russian is widely spoken in Ukraine. The numbers can differ slightly according to various sources, but it’s generally agreed that 60% of Ukrainians consider Ukrainian their native language, while 15% consider Russian to be their native language. Moreover, 22% consider both to be their native languages.
@@ -85,39 +85,25 @@ thumbnail: https://thmb.techidaily.com/6308ca1326b9f5602e19bd1098908b4cdc545e2ea
 
 !['Russian language' by Dimitry B©](https://edge.mondly.com/blog/wp-content/uploads/2022/03/russian-language-960x639.jpg "Ukrainian And Russian: How Similar Are These Two Languages? 5")
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Since most Ukrainian speakers also speak Russian or have extensive exposure to it, ‘asymmetric intelligibility’ is the best term to describe the relationship between the two languages. In other words, Ukrainian speakers can often understand Russian, while Russian speaker doesn’t understand Ukrainian, especially Russian speakers from outside Ukraine.
 
  However, all three languages – Ukrainian, Russian and Belarusian – are in part mutually intelligible, and already knowing one can help a lot if you want to learn one of the others.
 
 <!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How different are Ukrainian and Russian?
 
  Now that we’ve explained the history behind Ukrainian and Russian, it’s time to look at some more practical examples. A 62% lexical similarity may sound like a lot, but these two languages are not as similar as many might think. Here are some of the most important differences between Russian and Ukrainian.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Alphabet
 
  Both Ukrainian and Russian use the 33-letter [Cyrillic alphabet](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , but there are four letters in Ukrainian missing from Russian (ґ, є, і, ї), and four letters in Russian missing from Ukrainian (ё, ъ, ы, э).
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Vocabulary
 
  Learning Russian thinking you will easily understand Ukrainian it’s not a great strategy. While they share a lot of words, some of them are ‘false friends’ and can mean completely different things:
@@ -170,6 +156,13 @@ thumbnail: https://thmb.techidaily.com/6308ca1326b9f5602e19bd1098908b4cdc545e2ea
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Learn Ukrainian, Russian and more in just 10 minutes a day
 
  Do you want to learn languages fast? Get Mondly, the award-winning language app that will help you speak Ukrainian, Russian and more from day 1.
@@ -190,8 +183,6 @@ thumbnail: https://thmb.techidaily.com/6308ca1326b9f5602e19bd1098908b4cdc545e2ea
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -199,4 +190,22 @@ thumbnail: https://thmb.techidaily.com/6308ca1326b9f5602e19bd1098908b4cdc545e2ea
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-freenoweb-cam-app-assessment-and-comparison-guide/"><u>[New] In 2024, FreenoWeb Cam App Assessment & Comparison Guide</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-re-evaluating-video-streamers-for-maximum-impact-for-2024/"><u>[New] Re-Evaluating Video Streamers for Maximum Impact for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-low-cost-pc-performance-monitoring-programs/"><u>[Updated] 2024 Approved Low-Cost PC Performance Monitoring Programs</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-seamlessly-scaling-photos-and-videos-via-iphone-features/"><u>[Updated] In 2024, Seamlessly Scaling Photos & Videos via iPhone Features</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-crafting-excellent-canon-time-lapse-visuals/"><u>2024 Approved Crafting Excellent Canon Time-Lapse Visuals</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprendendo-a-falar-portugues-com-todas-as-variedades-de-saudacoes/"><u>Aprendendo a Falar Português Com Todas as Variedades De Saudações</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/best-5-multilingual-learning-tools-for-educators/"><u>Best 5 Multilingual Learning Tools for Educators</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/black-flag-banter-understanding-pirate-language-basics/"><u>Black Flag Banter: Understanding Pirate Language Basics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/communicating-thanks-a-language-explorer-point-of-view-148-under-156-but-original-concept/"><u>Communicating Thanks: A Language Explorer' Point of View (148) [Under 156 but Original Concept]</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-easy-conversation-with-mondlys-updated-vocabulary/"><u>Dive Into Easy Conversation with Mondly’s Updated Vocabulary</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/diving-into-dialect-a-look-at-ubiquitous-slang-terms/"><u>Diving Into Dialect: A Look at Ubiquitous Slang Terms</u></a></li>
+<li><a href="https://fox-web3.techidaily.com/enhanced-gui-designs-for-advanced-installation-software/"><u>Enhanced GUI Designs for Advanced Installation Software</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-life360-on-windows-pc-for-xiaomi-mix-fold-3-drfone-by-drfone-virtual-android/"><u>How to Use Life360 on Windows PC For Xiaomi Mix Fold 3? | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-easysnap-win11-no-hassle-just-screenshots/"><u>In 2024, EasySnap Win11 No Hassle, Just Screenshots</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579855799-mondlys-lifetime-plan-zero-price/"><u>Mondly's Lifetime Plan: Zero Price!</u></a></li>
+</ul></div>
 

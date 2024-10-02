@@ -1,7 +1,7 @@
 ---
 title: Numerals for New Spanish Speakers
-date: 2024-09-05T04:37:56.188Z
-updated: 2024-09-06T04:37:56.188Z
+date: 2024-09-25T17:08:42.348Z
+updated: 2024-10-01T18:56:31.015Z
 tags:
   - speak
   - english
@@ -14,24 +14,12 @@ keywords: Basic Numeral Concepts,Spanish Numbers Introduction,Numeral Learning f
 thumbnail: https://thmb.techidaily.com/22dc377b14c8750c75c360ab6d9b7d702e69a18c8a5a08c607e9cd26432f995f.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Numerals for New Spanish Speakers
 
  Just like [days of the week](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and [greetings](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , Spanish numbers are essential if you are working on getting that basic [Spanish vocabulary](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5393&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5393?mother%5Flang=en%5Fus?target%5Flang=es&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5393?mother%5Flang=en%5Fus?target%5Flang=es) of yours in shape. Fortunately, learning how to count in Spanish is much easier than going to the gym because Spanish numbers follow a simple and predictable pattern that doesn’t make every muscle in your body sore. Once you know how to count to 10 in Spanish, counting to 20, 30, 100, and beyond is easy.
 
  Learning how to count is crucial if you decide to [learn Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Although we may not always acknowledge it, numbers or_números_ (as you’d call them in Spanish) are essential to our day-to-day lives. From shopping to setting up a meeting, telling time, or giving someone your phone number – they really are one of the most basic and important language lessons. So let’s crack the mystery and discover what comes after_uno_ ,_dos,_ and_tres_ . Because Pitbull only gets us so far.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Spanish numbers 1 to 30
 
  One of my Danish friends discovered how important Spanish numbers actually are when he needed to tell someone [the time in Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and had no idea that “five” is_cinco_ in Spanish. So this is a great piece of advice: don’t move to Barcelona without knowing one of the most basic [Spanish lessons](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) first. Especially when it takes just 10 minutes to master it.
@@ -49,17 +37,12 @@ thumbnail: https://thmb.techidaily.com/22dc377b14c8750c75c360ab6d9b7d702e69a18c8
 **Good to know:** _uno_becomes an article and changes to_un_if it’s in front of a noun. For example,_un cerdo_translates to “a pig” in English.
 
 <!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Spanish numbers to 40
 
  Shopping is great especially when there are sales. But what if you need to ask for the price and the seller says_“sólo cuesta veinte euros”_ ? What do you do if you don’t know that_veinte_ is twenty? For a shirt, that may be cheap, but you probably don’t want to pay twenty euros for a rubber duck. Random example, but you got the point: knowing the bigger Spanish numbers can save the valuable contents of your wallet.
@@ -95,11 +78,12 @@ thumbnail: https://thmb.techidaily.com/22dc377b14c8750c75c360ab6d9b7d702e69a18c8
  As you can see, up to 30 (“thirty”), the numbers are bound together, but from there on they part ways to make counting in Spanish even easier for you. Basically, you won’t say “thirty-one”, but “thirty**and** one”:_treinta y uno_ .
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Count to 100 in Spanish
 
  As we already settled, counting in Spanish is all about mastering the basics. Now that you know how to count to 40, counting to 100 in Spanish is a piece of cake. Just learn the tens and you are ready to go.
@@ -130,11 +114,12 @@ thumbnail: https://thmb.techidaily.com/22dc377b14c8750c75c360ab6d9b7d702e69a18c8
 * 98 –_noventa y ocho_
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Spanish numbers to 1000 and beyond
 
  Hundreds shouldn’t scare you either. They are just as simple. Once you know how the hundreds are, you’ll also know the numbers in between.
@@ -173,17 +158,12 @@ Here are some more examples:
 ![count in Spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/07/count-in-spanish-960x663.jpg "Spanish Numbers: How To Count Numbers In Spanish 4")
 
 <!-- affiliate ads begin -->
-<span id="1424528">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
+  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Barcelona, Spain
 
  If you want to go even further, thousands and millions work exactly like in English: number +_mil_ (“thousand”) or_millón_ (“million”). Here are some examples:
@@ -224,8 +204,6 @@ Here are some more examples:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -233,4 +211,19 @@ Here are some more examples:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-elite-selection-top-downloader-apps-for-vimeo-videos/"><u>[New] 2024 Approved Elite Selection Top Downloader Apps for Vimeo Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultivating-chinese-etiquette-saying-thank-you/"><u>Cultivating Chinese Etiquette: Saying Thank You</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-fluency-for-the-mature-mind-four-reasons-to-learn-languages-in-your-forties/"><u>Cultural Fluency for the Mature Mind: Four Reasons to Learn Languages in Your Forties</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-squid-game-through-language-study/"><u>Decoding Squid Game Through Language Study</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-the-ultimate-way-learning-languages-on-the-web/"><u>Discover the Ultimate Way: Learning Languages on the Web</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/diy-french-fluency-ideal-strategies-and-aids/"><u>DIY French Fluency: Ideal Strategies & Aids</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-oppo-k11-5g-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change Oppo K11 5G Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/how-to-make-a-gif-from-vimeo-video-for-2024/"><u>How to Make a GIF From Vimeo Video for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-do-i-stop-someone-from-tracking-my-oppo-reno-10-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Do I Stop Someone From Tracking My Oppo Reno 10 Pro+ 5G? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 6 | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-samsung-galaxy-f15-5g-drfone-by-drfone-virtual-android/"><u>Read This Guide to Find a Reliable Alternative to Fake GPS On Samsung Galaxy F15 5G | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/top-10-metodos-para-alterar-el-tamano-de-tu-video-sin-perdida-de-calidad-guia-libre-de-marcado-de-agua/"><u>Top 10 Métodos Para Alterar El Tamaño De Tu Video Sin Pérdida De Calidad: Guía Libre De Marcado De Agua</u></a></li>
+</ul></div>
 

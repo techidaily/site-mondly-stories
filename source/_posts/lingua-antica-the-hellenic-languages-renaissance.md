@@ -1,7 +1,7 @@
 ---
 title: "Lingua Antica: The Hellenic Language's Renaissance"
-date: 2024-09-09T18:47:53.376Z
-updated: 2024-09-16T20:06:41.507Z
+date: 2024-09-25T18:12:25.810Z
+updated: 2024-10-02T00:29:44.054Z
 tags:
   - speak
   - english
@@ -80,6 +80,13 @@ Other literary works of art representative of this period include:
 
  However, the earliest attested form of the Greek language is a clay tablet written in the Linear B script. Historians claim that it dates to between 1450 and 1350 BC. Unrelated to the Greek alphabet, which emerged around the 8th century BC, Linear B last appeared in the 13th century BC. The centuries between the two writing scripts, where no Greek writings have been found, is referred to as the Greek Dark Ages.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Cultural Influences of Ancient Greek on the Western Civilization
 
  Ancient Greece’s influence on Western civilization is undeniable, and you’ll soon see why. For example, where do you think the Olympic Games came from? Or where did democracy originate? They’re both products of Ancient Greece, of course!
@@ -102,19 +109,6 @@ Other literary works of art representative of this period include:
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Ancient Greek Language Influence On Modern Languages 7")
 
-<!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Learn the language of the Greek gods
 
  If Zeus needed to improve his Modern Greek, he’d probably choose Mondly. Why not you?
@@ -130,10 +124,10 @@ Other literary works of art representative of this period include:
  Just as significant for the modern world are the ancient Greek art and architecture. The principles of symmetry, harmony, and proportionality influenced Western architectural designs, including the construction of monuments and public buildings. The Greek column, for example, is a beloved element we’ve seen even in fashion!
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
+  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Ancient Greek influence on science and mathematics
@@ -145,6 +139,26 @@ Other literary works of art representative of this period include:
  As you can see, Ancient Greece’s cultural influence is a treasure trove of wisdom that continues to inspire and shape the Western world to this day. These were only a few of the ideas and personalities that persisted through the ages. If you care to study the entire period of Ancient Greece, you’ll discover that many more people thought, said, or did great things during this time. So many that we start to wonder whether they had access to a magical fountain of endless inspiration!
 
 ![ancient Greek vs modern Greek](https://edge.mondly.com/blog/wp-content/uploads/2023/10/ancient-greek-vs-modern-greek.jpg "Ancient Greek Language Influence On Modern Languages 8")
+
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Ancient Greek Language Influence on Modern Languages
 
@@ -188,6 +202,13 @@ Other literary works of art representative of this period include:
 | cardiology       | from ‘kardiā’ (heart) + ‘logia’ (study)                                                                   |
 | technology       | from ‘tekhnē’ (art, craft) + ‘logia’ (study)                                                              |
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Expressions that originated from Greek
 
  Apart from [Latin phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , the only thing that can make you sound like a true erudite without much work are the expressions that originated from Greek.
@@ -199,6 +220,13 @@ Other literary works of art representative of this period include:
 _Describes a weakness in spite of overall great strength or resilience._
 
  According to the legend, Achilles’ mother, Thetis, dipped him into the River Styx to prevent his foretold death. However, she held him by the heel, making it his vulnerability later in life. Achilles was ultimately killed during the Trojan War from wounds to his heel, ankle, and torso.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Pandora’s box
 
@@ -213,13 +241,6 @@ _Describes a weakness in spite of overall great strength or resilience._
  Hercules, a hero born from Zeus and a human mother, was renowned for his immense strength. According to the legend, Hera, Zeus’ wife, cast a spell on Hercules that drove him mad and caused him to kill his wife and their two children. Remorseful and devastated, Hercules sought out Apollo, the god of truth and healing and another son of Zeus, pleading to be penalized for his actions.
 
  Thus, he was tasked with completing twelve extremely challenging “labors”. These labors included daunting tasks such as retrieving the guardian dog from the underworld and defeating the multi-headed Hydra. Hence, the term ‘Herculean’ describes any job or task that is incredibly difficult and requires enormous strength.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\. The Midas Touch
 
@@ -236,6 +257,13 @@ _Refers to a person who has good fortune._
  These are just a few of the witty expressions Greek myths left us with. So, feel free to expand your search and use them wisely in your day-to-day conversations. Not only are they a fun way to sound cooler, but they will also broaden your knowledge of the world. I mean, you definitely can not call someone a ‘narcissist’ without knowing Narcissus’ legend, right?
 
 ![what is greece's language](https://edge.mondly.com/blog/wp-content/uploads/2023/10/what-is-greeces-language.jpg "Ancient Greek Language Influence On Modern Languages 9")
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Differences Between Ancient Greek and Modern Greek
 
@@ -264,10 +292,16 @@ _Refers to a person who has good fortune._
  The earliest attested writing system used by ancient Greeks is a clay tablet written in the Linear B script. It is hypothesized to be descended from the older Linear A script which is undeciphered. However, around the 8th century BCE, Greeks adopted the Greek alphabet used today.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123467/16836" target="_top" id="2123467">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123467" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123467/16836" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982457">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How can I learn to speak ancient Greek?
@@ -278,13 +312,6 @@ _Refers to a person who has good fortune._
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Speak Greek like a true philosopher
 
@@ -309,5 +336,26 @@ _Refers to a person who has good fortune._
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-dominating-the-digital-space-with-trending-content/"><u>[New] 2024 Approved Dominating the Digital Space with Trending Content</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-exploring-the-best-free-video-editing-tools-of-this-year/"><u>[New] 2024 Approved Exploring the Best Free Video Editing Tools of This Year</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-six-websites-where-youtube-imagery-breaks-the-mould/"><u>[New] 2024 Approved Six Websites Where YouTube Imagery Breaks the Mould</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-amateur-to-expert-15-must-knows-in-tiktok-video-edits/"><u>2024 Approved From Amateur to Expert 15 Must-Knows in TikTok Video Edits</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-beginners-pathway-to-proper-spanish-accent-and-typography/"><u>A Beginner's Pathway to Proper Spanish Accent and Typography</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/alphabetization-in-chinese-writing-systems/"><u>Alphabetization in Chinese Writing Systems</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/apple-iphone-8-backup-password-never-set-but-still-asking-heres-the-fix-drfone-by-drfone-ios/"><u>Apple iPhone 8 Backup Password Never Set But Still Asking? Heres the Fix | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/digital-strategies-efficient-czech-studies-start-here/"><u>Digital Strategies: Efficient Czech Studies Start Here</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-advanced-dialogue-introducing-new-ai/"><u>Embrace Advanced Dialogue: Introducing New AI</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-educators-celebration-multilingual-homage/"><u>Global Educators Celebration: Multilingual Homage</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-delete-icloud-account-from-iphone-6s-without-password-by-drfone-ios/"><u>In 2024, How to Delete iCloud Account From iPhone 6s without Password?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-unlock-software-for-lava-blaze-2-5g-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>In 2024, The Best Android Unlock Software For Lava Blaze 2 5G Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lovely-french-one-liners-explained/"><u>Lovely French One-Liners Explained</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/rookie-recommendations-simple-profitable-youtube-purchases-for-2024/"><u>Rookie Recommendations Simple, Profitable YouTube Purchases for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/take-your-portuguese-skills-to-new-heights-discover-6-effective-methods/"><u>Take Your Portuguese Skills to New Heights: Discover 6 Effective Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-top-3-for-rapid-linguistic-proficiency/"><u>The Ultimate Top 3 for Rapid Linguistic Proficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unity-in-diversity-mastering-cultural-exchange-techniques/"><u>Unity in Diversity: Mastering Cultural Exchange Techniques</u></a></li>
+<li><a href="https://some-tips.techidaily.com/unveiling-the-latest-innovation-by-abbyy-enhanced-ocr-software-development-kit-sdk-with-finereader-engine-v12-features/"><u>Unveiling the Latest Innovation by ABBYY - Enhanced OCR Software Development Kit (SDK) with FineReader Engine V.12 Features</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/windows-11-how-to-resolve-black-screen-issues-in-your-camera-application-top-7-solutions/"><u>Windows 11: How to Resolve Black Screen Issues in Your Camera Application - Top 7 Solutions</u></a></li>
+</ul></div>
 

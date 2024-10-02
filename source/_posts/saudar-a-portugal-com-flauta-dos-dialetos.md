@@ -1,7 +1,7 @@
 ---
 title: Saudar a Portugal Com Flauta Dos Dialetos
-date: 2024-09-23T17:53:40.295Z
-updated: 2024-09-26T20:55:27.146Z
+date: 2024-09-25T21:27:54.574Z
+updated: 2024-10-01T21:03:44.795Z
 tags:
   - speak
   - english
@@ -24,13 +24,6 @@ thumbnail: https://thmb.techidaily.com/fb9dc69321147c58e76f643c816e11fbbc732b6fd
 
  “Hello” is a [powerful word](https://www.merriam-webster.com/words-at-play/the-origin-of-hello) . It opens doors. It makes people smile. And said the right way and at the right time, “hello” can impact someone’s day and you wouldn’t even know it. So here are the right ways to say “hello” in Portuguese and open doors everywhere you go.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### “Hello” in Portuguese – Olá
 
 _Olá_ is the best choice for most social situations regardless of the person you are addressing. It’s somehow formal, but also friendly.
@@ -43,20 +36,13 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ![hi in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-portuguese-1024x658.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 2")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “Lisbon, Portugal” by Diego García©
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### “How are you” in Portuguese – Tudo bem?
@@ -73,6 +59,13 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 * **_Beleza?_ – What’s up?** – universally informal and perfect for greeting close friends. It literally translates to “what’s going on with your life?”
 * **_Quanto tempo!_ – Long time no see!** – Used the same as in English.
 * **_Como foi o seu dia?_ – How’s your day?** – Used the same as in English.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 2\. “Bom dia!” and other Portuguese greetings for certain moments of the day
 
@@ -128,6 +121,13 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ![obrigado](https://edge.mondly.com/blog/wp-content/uploads/2019/08/obrigado-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 5")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  “Gruta do Lago Azul, Brazil” by Ademir Alves©
 
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fhello-in-portuguese-basic-portuguese-greetings-you-need%2F&t=Hello+in+Portuguese+and+Other+Basic+Portuguese+Greetings+You+Need+to+Know "Share on Facebook")
@@ -136,10 +136,16 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Here’s how to speak Portuguese in 10 minutes a day
@@ -173,17 +179,16 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-a-complete-breakdown-of-what-pfp-means-on-tiktok/"><u>[New] 2024 Approved A Complete Breakdown of What PFP Means on TikTok</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-expert-recommendations-best-windows-11-cam-recorder-tech/"><u>[New] In 2024, Expert Recommendations Best Windows 11 Cam Recorder Tech</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-streamlined-social-integration-linktree-and-tiktok-profiles-united/"><u>[New] Streamlined Social Integration Linktree and TikTok Profiles United</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-discovering-the-top-screen-grabber-software-win11/"><u>[Updated] Discovering the Top Screen Grabber Software Win11</u></a></li>
-<li><a href="https://article-helps.techidaily.com/2024-approved-how-to-announce-your-first-social-giving-drive/"><u>2024 Approved How to Announce Your First Social Giving Drive</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-how-to-create-stunning-mosaic-photo-collage/"><u>2024 Approved How to Create Stunning Mosaic Photo Collage</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-week-in-korea-one-hangul-at-a-time/"><u>A Week in Korea, One Hangul at a Time</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-english-100-words-that-often-go-awry/"><u>Essential English: 100 Words That Often Go Awry</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/how-do-i-sign-a-jpeg-document-electronically-by-ldigisigner-sign-a-jpg-sign-a-jpg/"><u>How do i sign a .jpeg document electronically</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/how-many-languages-does-santa-fluent-in/"><u>How Many Languages Does Santa Fluent In?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-partners-up-enhanced-buttonfiltration-with-pearson/"><u>Mondly Partners Up: Enhanced ButtonFiltration With Pearson</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/new-words-new-year-save-on-linguistic-adventures-with-our-deal/"><u>New Words, New Year: Save on Linguistic Adventures with Our Deal!</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-tailoring-your-vimeo-experience-from-free-to-pro/"><u>[New] In 2024, Tailoring Your Vimeo Experience From Free to Pro</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-honor-70-lite-5g-phone-without-password-by-drfone-android/"><u>In 2024, How To Unlock Honor 70 Lite 5G Phone Without Password?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-growth-beyond-grammar-constraints/"><u>Linguistic Growth Beyond Grammar Constraints</u></a></li>
+<li><a href="https://win-forum.techidaily.com/master-your-system-settings-a-step-by-step-tutorial-on-editing-registry-entries-via-revo-uninstaller/"><u>Master Your System Settings: A Step-by-Step Tutorial on Editing Registry Entries via Revo Uninstaller</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-kids-the-ultimate-guide-to-kid-friendly-snacks-2017s-best-app/"><u>Mondly Kids: The Ultimate Guide to Kid-Friendly Snacks, 2017'S Best App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-magic-unleashed-mondly-and-oculus-quest/"><u>Multilingual Magic Unleashed: Mondly and Oculus Quest</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-in-2024-best-5-reaction-video-makers-you-should-try/"><u>New In 2024, Best 5 Reaction Video Makers You Should Try</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-a-native-in-latvia-the-ten-minute-method/"><u>Speak Like a Native in Latvia: The Ten-Minute Method</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-french-romance-banter/"><u>The Art of French Romance Banter</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/understanding-chatgpts-information-gathering-potential-plagiarism-issues-explored/"><u>Understanding ChatGPT's Information Gathering: Potential Plagiarism Issues Explored</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/vocal-intelligence-on-wheels-mercedes-blends-gpt-with-cars/"><u>Vocal Intelligence on Wheels: Mercedes Blends GPT with Cars</u></a></li>
 </ul></div>
 

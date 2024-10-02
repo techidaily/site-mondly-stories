@@ -1,7 +1,7 @@
 ---
 title: "Um Compêndio Do Português: Saudações a Todas as Hora"
-date: 2024-09-12T19:47:21.382Z
-updated: 2024-09-16T19:27:28.820Z
+date: 2024-09-26T20:45:40.180Z
+updated: 2024-10-01T23:33:24.920Z
 tags:
   - speak
   - english
@@ -30,6 +30,13 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
  Be careful with your Portuguese pronunciation though! A lot of people accidentally mistake Portuguese for Spanish. You don’t want to do that. Just say “OH-lah” and everybody from Brazil to Mozambique will understand that you are saying “hello” in Portuguese.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### “Hi” in Portuguese – Oi
 
  Friendly and very informal,_Oi!_ is one of the most common ways to greet your friends in Brazil (people from Portugal use it as well, but not as much as_olá)_ . This is how you could greet your mates and close colleagues, but never the people you don’t really know. Don’t stress it tough! When the time comes, you will feel and just know what’s the required Portuguese greeting for that particular situation.
@@ -37,13 +44,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ![hi in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-portuguese-1024x658.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 2")
 
  “Lisbon, Portugal” by Diego García©
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### “How are you” in Portuguese – Tudo bem?
 
@@ -88,7 +88,21 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ![portuguese greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/08/portuguese-greetings-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 4")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  “Ruínas da Fortaleza de Arrifana, Aljezur, Portugal” by Ferhat Deniz Fors©
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Bonus: other basic Portuguese phrases that you should know
 
@@ -115,10 +129,10 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ![obrigado](https://edge.mondly.com/blog/wp-content/uploads/2019/08/obrigado-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 5")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  “Gruta do Lago Azul, Brazil” by Ademir Alves©
@@ -127,13 +141,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Here’s how to speak Portuguese in 10 minutes a day
 
@@ -164,5 +171,24 @@ _Olá_ is the best choice for most social situations regardless of the person yo
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-revamped-dialogue-strategies-for-engaging-podcasters/"><u>[New] 2024 Approved Revamped Dialogue Strategies for Engaging Podcasters</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-high-ranking-nintendo-switch-brawlers-index-max-156/"><u>[Updated] 2024 Approved High-Ranking Nintendo Switch Brawlers Index (Max 156)</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-cutting-edge-video-techniques-for-windows-11-users/"><u>2024 Approved Cutting-Edge Video Techniques for Windows 11 Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/acoustic-adventures-from-american-broadband-to-british-cockney/"><u>Acoustic Adventures: From American Broadband to British Cockney</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/become-effortless-essential-17-natural-spanish-sayings/"><u>Become Effortless: Essential 17 Natural Spanish Sayings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brain-boost-in-your-fifties-with-foreign-languages-learning/"><u>Brain Boost in Your Fifties with Foreign Languages Learning</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/crafting-captivating-stories-embedding-melodies-into-visual-narratives/"><u>Crafting Captivating Stories Embedding Melodies Into Visual Narratives</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/hack-your-way-to-instant-signature-bg-elimination/"><u>Hack Your Way to Instant Signature BG Elimination</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/e-investigation-the-streamlined-3-part-method-to-assess-your-youtube-income-levels/"><u>Income Investigation The Streamlined 3-Part Method to Assess Your YouTube Income Levels</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/mixing-masterclass-elevate-drone-audio-with-20-complimentary-luts/"><u>Mixing Masterclass - Elevate Drone Audio with 20 Complimentary LUTs</u></a></li>
+<li><a href="https://program-issues.techidaily.com/no-more-freezing-how-to-repair-phoenix-point-game-crashes-easily/"><u>No More Freezing - How to Repair Phoenix Point Game Crashes Easily</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/resolving-comctl32dll-file-not-found-effective-troubleshooting-steps/"><u>Resolving 'comctl32.dll' File Not Found: Effective Troubleshooting Steps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/santas-secretive-speech-skills-exposed/"><u>Santa's Secretive Speech Skills Exposed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-smart-stand-out-elite-english-coaching/"><u>Speak Smart, Stand Out: Elite English Coaching</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-joy-of-language-acquisition-beyond-50/"><u>The Joy of Language Acquisition Beyond 50</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579252516-this-innovative-virtual-reality-app-helps-you-learn-a-foreign-language/"><u>This Innovative Virtual Reality App Helps You Learn A Foreign Language!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-mondly-is-your-essential-language-learning-ally/"><u>Why Mondly Is Your Essential Language Learning Ally</u></a></li>
+</ul></div>
 

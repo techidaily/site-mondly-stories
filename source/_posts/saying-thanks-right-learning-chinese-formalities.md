@@ -1,7 +1,7 @@
 ---
 title: "Saying Thanks Right: Learning Chinese Formalities"
-date: 2024-09-05T04:37:57.760Z
-updated: 2024-09-06T04:37:57.760Z
+date: 2024-09-29T21:54:27.765Z
+updated: 2024-10-01T23:23:04.851Z
 tags:
   - speak
   - english
@@ -14,12 +14,6 @@ keywords: Chinese Etiquette Guidelines,Mastering Polite Expressions in Mandarin,
 thumbnail: https://thmb.techidaily.com/09bf8f46c612c175c9c1b70882f85f23e4a357208766fb885709ca7e3c676924.png
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2024351/7443" target="_top" id="2024351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2024351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024351/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Saying Thanks Right: Learning Chinese Formalities
 
  Politeness is a greatly complex phenomenon that can differ in meaning depending on the culture. What is polite in one country, can be considered rude in another. However, there are a few rules that keep the same interpretation everywhere in the world. For example, a heartfelt thanks is timely in every corner of the world. And the Chinese culture makes no exception. If there is one phrase you should absolutely master before traveling to China, it’s 谢谢_(xièxiè)_ – meaning “thank you” in Chinese. Like [James Allen](https://en.wikipedia.org/wiki/James%5FAllen%5F%28author%29) once said – “no duty is more urgent than that of returning thanks”.
@@ -28,12 +22,6 @@ thumbnail: https://thmb.techidaily.com/09bf8f46c612c175c9c1b70882f85f23e4a357208
 
  **So here are 12 of the most important ways to say thank you in Chinese.**
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 1\. Xièxiè – the most common Chinese thanks
 
  As already mentioned, **the most common way to say “thanks” or “thank you” in Chinese is_xièxiè_ (谢谢) or_xièxie._**  A rough [Chinese pronunciation](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) of that is_syeh-syeh,_ but while it sounds like the same words repeated twice, there is actually a very subtle difference between the two. Because the first syllable is a fourth tone and the second is a neutral, you should start the pronunciation high with the first syllable and then say the second one more lightly and without any emphasis.
@@ -50,13 +38,14 @@ thumbnail: https://thmb.techidaily.com/09bf8f46c612c175c9c1b70882f85f23e4a357208
 
 ![thanks in chinese](https://edge.mondly.com/blog/wp-content/uploads/2019/10/thanks-in-chinese-1024x682.jpg "Thank You In Chinese: Xièxiè And 12 Other Thank You Chinese Phrases 2")
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
-  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  “Xiangxi, China” by Theodor Lundqvist©
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 2\. Thank you very much in Chinese
 
@@ -76,11 +65,12 @@ Other variations include:
 * Thank you SO much! – 太谢谢你了! –_Tài xiè xiè nǐ le!_
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 3\. Thank you for… in Chinese
 
  Just as important as the simple, plain “thank you” is the “thank you for something” thank you. Because sometimes you need to be more specific. What are you thanking them for? So here’s how to thank someone in Chinese for the gift they gave you and some more [Chinese phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) that might come in handy next time you visit China.
@@ -99,29 +89,18 @@ Other variations include:
  “Jiaxing, China” by Jay©
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 4\. Other ways to express your gratitude in Chinese
 
  Depending on the social context, in some cases, you might want to vary your answers. For example, when someone compliments you, instead of saying 谢谢_xièxiè_ – which may sound a little arrogant, you could say 哪里哪里_nǎlǐ nǎlǐ_ . In English, that translates to “no, no” or “where, where” as in “you’re flattering me” or “you’re too kind”.
 
  In fact, Chinese culture is known for its preference for modesty and humility. Deflecting a compliment rather than accepting it with a plain “thank you” is much more appreciated. Thus, another way to deflect a compliment (while secretly enjoying it) is to say 没有没有_méiyǒu méiyǒu_ – meaning “no, no, that’s nonsense”.
 
-<!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## BONUS: You’re welcome in Chinese
 
  If you want to respond to someone’s thanks with “you’re welcome” in Chinese, you can say 不客气_bù kèqì._
@@ -134,6 +113,13 @@ Other variations include:
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Here’s how to speak Chinese in just 10 minutes a day
 
@@ -153,8 +139,6 @@ Other variations include:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -162,4 +146,24 @@ Other variations include:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-decoding-t-series-online-earnings-stream/"><u>[New] In 2024, Decoding T-Series' Online Earnings Stream</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-understanding-fair-use-and-infringement-on-youtube/"><u>[New] Understanding Fair Use and Infringement on YouTube</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-photo-pace-crafting-time-lapse-videos-on-your-galaxy-phone/"><u>[Updated] Photo Pace Crafting Time-Lapse Videos on Your Galaxy Phone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-starting-off-determining-your-creative-passion/"><u>[Updated] Starting Off Determining Your Creative Passion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/6-exciting-reasons-to-learn-arabic-online-with-mondly/"><u>6 Exciting Reasons To Learn Arabic Online With Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-dedicated-decade-mondlybacks-filter-success/"><u>A Dedicated Decade: MondlyBack's Filter Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577475324-accelerated-tagalog-learning-a-simple-daily-routine/"><u>Accelerated Tagalog Learning - A Simple Daily Routine!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brazilians-vs-europeans-the-subtleties-of-pt-shortcuts/"><u>Brazilians vs Europeans: The Subtleties of PT Shortcuts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bring-international-communication-within-your-home-mondly-vr-language-program/"><u>Bring International Communication Within Your Home: Mondly VR Language Program</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/converse-with-australians-mastering-local-idioms/"><u>Converse with Australians: Mastering Local Idioms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-the-german-language-phonetics-and-script-basics/"><u>Decoding the German Language: Phonetics and Script Basics</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/easy-steps-on-how-to-create-a-new-apple-id-account-on-apple-iphone-xs-by-drfone-ios/"><u>Easy Steps on How To Create a New Apple ID Account On Apple iPhone XS</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-fb-cover-videos-demystified-what-everyone-should-know/"><u>In 2024, FB Cover Videos Demystified What Everyone Should Know</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581279462-make-it-a-memorable-year-enjoy-unbeatable-savings-with-free-mondly-pro/"><u>Make It a Memorable Year: Enjoy Unbeatable Savings with Free Mondly Pro!</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-unlock-new-dimensions-a-beginners-guide-to-video-resizing/"><u>New 2024 Approved Unlock New Dimensions A Beginners Guide to Video Resizing</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-10-tecno-pop-8-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 Tecno Pop 8 Android SIM Unlock APK</u></a></li>
+<li><a href="https://solve-luxury.techidaily.com/troubleshooting-post-update-cplusplus-runtime-issues-a-guide/"><u>Troubleshooting Post-Update C++ Runtime Issues: A Guide</u></a></li>
+</ul></div>
 

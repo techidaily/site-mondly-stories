@@ -1,7 +1,7 @@
 ---
 title: "Linguistic Mosaic: How Other Languages Enhance English"
-date: 2024-09-01T00:30:14.851Z
-updated: 2024-09-02T00:30:14.851Z
+date: 2024-09-24T16:37:46.680Z
+updated: 2024-10-01T17:12:20.355Z
 tags:
   - speak
   - english
@@ -27,8 +27,6 @@ thumbnail: https://thmb.techidaily.com/1c29d979a20696d19bd8c5c3e9d947157133fd882
  When the English language started to expand its vocabulary, the process seemed like a wedding ceremony. Do you know how they say brides need something old, something new, something borrowed and something blue? Well, English had all of that except the blue. Anglo-Saxon words were old,[Shakespeare’s words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) were new and all the loanwords from other languages were borrowed. If you can’t put your finger on the **English words borrowed from other languages, think_café, ballet, fiancé, spaghetti, espresso, pretzel._**  You got the point.
 
  Of course, this story is far from true, but that doesn’t mean it won’t help you remember how the modern English vocabulary came to be. Unexpected connections are a good strategy for remembering new things. Anyway, enough storytelling for now. Let’s see what common words English “took” from other languages.
-
-
 
 ## Where did English Come From?
 
@@ -83,13 +81,31 @@ thumbnail: https://thmb.techidaily.com/1c29d979a20696d19bd8c5c3e9d947157133fd882
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "100+ English Words Borrowed From Other Languages 5")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Improve your English fast 🚀
 
  With Mondly, English mastery is at your fingertips – and in your native tongue. Start today ![Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-9827&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-9827%26mt%3D8)
 
 <!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## French loanwords: English words that are actually French
 
 | Ballet       |
@@ -118,9 +134,6 @@ thumbnail: https://thmb.techidaily.com/1c29d979a20696d19bd8c5c3e9d947157133fd882
 
  Did you know that approximately**30% of the English vocabulary** consists of words that have their origins in**French and Latin** ? Considering that French was the language of the English king and his court for over 300 years, it’s no surprise. During that time, as many as 10,000 French loanwords came into English.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Spanish loanwords: English words that are actually Spanish
 
 | Chinchilla |
@@ -143,9 +156,6 @@ thumbnail: https://thmb.techidaily.com/1c29d979a20696d19bd8c5c3e9d947157133fd882
 
  Unlike French loanwords which have been adapted into British English, most of the**Spanish loanwords entered English via the North American English route.** Cultural exchanges between [Spanish-speaking](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and English-speaking communities led to an influx of loanwords related to food and music in particular. For example, words like “guacamole”, “salsa” and “piñata” have been borrowed into English from Spanish due to the popularity of the Mexican culture in the United States.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Italian loanwords: English words that are actually Italian
 
 | Zucchini  |
@@ -174,10 +184,6 @@ thumbnail: https://thmb.techidaily.com/1c29d979a20696d19bd8c5c3e9d947157133fd882
 
  Thanks to Italy’s cultural influence throughout history, especially during the Renaissance period, many languages borrowed its words. Italian words related to art, music, architecture and cuisine have an especially high predominance in the English vocabulary.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## German loanwords: English words that are actually German
 
 | Pretzel      |
@@ -203,8 +209,12 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  Some of the first German words were borrowed into English during the interactions between Germanic-speaking tribes and English-speaking communities in early medieval Europe. Words related to everyday life, family, and community were among the earliest borrowings. Later, thanks to Germany’s influence in various fields, English borrowed German words related to science and technology, music, philosophy, literature and engineering.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Understanding the Size of the English Vocabulary
 
  How many words are there in English? Many sources agree that**the English language consists of roughly 470,000 words.** However, most linguists advise to take that with a pinch of salt. While some words have become obsolete, new additions are always making their way into the English vocabulary, so it’s difficult to put our finger on an exact number. Then, there’s also the question of different variations of a single word like “go”, “went”, “gone”. Do we count that as a single word or as three separate ones?
@@ -254,8 +264,6 @@ Coming Soon
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -263,4 +271,18 @@ Coming Soon
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-mobile-markup-mastery-iosandroid-leaders/"><u>[New] In 2024, Mobile Markup Mastery IOS/Android Leaders</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-snap-a-caption-seamless-integration-of-text-on-windows-and-mac-pics-for-2024/"><u>[New] Snap a Caption Seamless Integration of Text on Windows & Mac Pics for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/7-ways-to-unlock-a-locked-realme-c51-phone-by-drfone-android/"><u>7 Ways to Unlock a Locked Realme C51 Phone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-crafting-engaging-live-streamed-gaming-experiences/"><u>In 2024, Crafting Engaging Live-Streamed Gaming Experiences</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-motorola-moto-g14-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Motorola Moto G14? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-improved-support-mondlys-updated-faq-resources/"><u>Introducing Improved Support: Mondly's Updated FAQ Resources</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-catalan-quickly-just-minutes-a-day/"><u>Learn Catalan Quickly, Just Minutes a Day!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/make-2023-your-best-save-96-on-mondly-premium/"><u>Make 2023 Your Best: Save $96 on Mondly Premium!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-english-language-skills-with-mondly/"><u>Mastering English Language Skills with Mondly</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/revolutionary-rider-helmet-cams-top-picks-for-23-for-2024/"><u>Revolutionary Rider Helmet Cams - Top Picks for '23 for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-top-12-best-meme-makers-online-for-free-for-2024/"><u>Updated Top 12 Best Meme Makers Online for FREE for 2024</u></a></li>
+</ul></div>
 

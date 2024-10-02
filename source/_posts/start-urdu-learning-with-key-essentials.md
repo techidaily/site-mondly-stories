@@ -1,7 +1,7 @@
 ---
 title: Start Urdu Learning with Key Essentials
-date: 2024-09-01T00:29:57.608Z
-updated: 2024-09-02T00:29:57.608Z
+date: 2024-09-30T22:28:32.885Z
+updated: 2024-10-01T16:51:13.689Z
 tags:
   - speak
   - english
@@ -17,8 +17,6 @@ thumbnail: https://thmb.techidaily.com/4c1b7ae799c3eb4ebbe55615e8284400f0c118d4f
 ## Start Urdu Learning with Key Essentials
 
  Improving your Urdu vocabulary is one of the key aspects of [learning Urdu](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6589&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6589?mother%5Flang=en%5Fus?target%5Flang=ur&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6589?mother%5Flang=en%5Fus?target%5Flang=ur) . The more Urdu words you’ll know, the closer you’ll be to fluency. But keep in mind that not all words are equally important. In the beginning, you have to focus on basic, high-frequency words – words that make up the majority of everything we say on a daily basis.
-
-
 
 [Studies](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) have shown that knowing as little as 100 words will help you understand 50% of any text in Urdu. Surprising as it may seem, it’s true. The most common 1,000 words in Urdu will give you a high coverage of 75% of any Urdu text. Isn’t that amazing?
 
@@ -87,6 +85,13 @@ thumbnail: https://thmb.techidaily.com/4c1b7ae799c3eb4ebbe55615e8284400f0c118d4f
 * who — _کون (kon)_
 * stop — _رکو (ruko)_
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The most popular Urdu words searches
 
  While we’re at it, why not also learn some of the most popular words for which people want an Urdu translation? If they are so popular in searches, I’m sure they can also be useful to you on your way to speaking Urdu.
@@ -109,18 +114,12 @@ thumbnail: https://thmb.techidaily.com/4c1b7ae799c3eb4ebbe55615e8284400f0c118d4f
 * unique — _منفرد (munfarid)_
 * hope — _امید (umeed)_
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ## Urdu words related to food and drink
 
  Did you know that the [Urdu language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) was one of the premier languages of poetry in South Asia for centuries? And rightly so. Just listen to the music of its words and you’ll understand.
 
 ![words in urdu by Sumeet B©](https://edge.mondly.com/blog/wp-content/uploads/2022/03/words-in-urdu-960x735.jpg "100+ Core Urdu Words – Learn The Most Common Words In Urdu 3")
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Meanwhile, let’s add some flavor to your Urdu vocabulary. What are the best words to learn if not the words related to food and drink?
 
 * water — _پانی (pani)_
@@ -146,18 +145,6 @@ thumbnail: https://thmb.techidaily.com/4c1b7ae799c3eb4ebbe55615e8284400f0c118d4f
 * sugar — _شکر (shakar)_
 * pepper — _مرچ (mirch)_
 
-<!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Urdu words related to body and health
 
  The names of the body parts in Urdu are some of the most basic and useful words you can learn. Whether you are in a clothing store, or at the doctor’s office, various parts of the body can come up in conversation more often than you think.
@@ -184,8 +171,12 @@ thumbnail: https://thmb.techidaily.com/4c1b7ae799c3eb4ebbe55615e8284400f0c118d4f
 * pharmacy — _دواخانہ (dawakhana)_
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Urdu words related to transportation and places
 
  While this crash course in Urdu words will get you from zero to beginner in as little as 15 minutes, these words will get you to the other hemisphere if you need it so.
@@ -206,8 +197,18 @@ thumbnail: https://thmb.techidaily.com/4c1b7ae799c3eb4ebbe55615e8284400f0c118d4f
  Now that you’ve mastered some of the most basic Urdu vocabulary words, you can dive into the practical phrases that’ll help you ease into real-world conversations.
 
 <!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<span id="1982457">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## The most common Urdu phrases
 
  The following phrases in Urdu are a great place to start learning. Simple phrases like ‘good morning’, ‘how are you’ or ‘you’re welcome’ are the most effective way to get from 0 to conversational fast. Learn these phrases today and make Urdu-speaking friends tomorrow!
@@ -241,8 +242,18 @@ thumbnail: https://thmb.techidaily.com/4c1b7ae799c3eb4ebbe55615e8284400f0c118d4f
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Learn Urdu in just 10 minutes a day
 
  Do you want to see the Urdu words in action? Get Mondly, the award-winning language learning app that will help you speak Urdu from day 1.
@@ -263,8 +274,6 @@ thumbnail: https://thmb.techidaily.com/4c1b7ae799c3eb4ebbe55615e8284400f0c118d4f
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -272,4 +281,17 @@ thumbnail: https://thmb.techidaily.com/4c1b7ae799c3eb4ebbe55615e8284400f0c118d4f
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-transforming-team-meeting-aesthetics-the-prepost-customization-angle/"><u>[New] 2024 Approved Transforming Team Meeting Aesthetics The Pre/Post Customization Angle</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-optimal-media-transfer-top-free-youtube-mp3-apps-revealed/"><u>[Updated] 2024 Approved Optimal Media Transfer Top Free YouTube-MP3 Apps Revealed</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-premier-free-android-recording-apps-no-ads/"><u>[Updated] 2024 Approved Premier Free Android Recording Apps (No Ads)</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/illuminating-brilliance-photoshops-best-hdr-methods-for-2024/"><u>Illuminating Brilliance Photoshop's Best HDR Methods for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-japanese-numbers-in-just-10-minutes/"><u>Learn Japanese Numbers In Just 10 Minutes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingualism-in-middle-age-the-cognitive-and-social-benefits-that-make-it-worthwhile/"><u>Multilingualism in Middle Age: The Cognitive and Social Benefits That Make It Worthwhile</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/resolving-the-mfc42ddll-file-not-present-a-step-by-step-guide/"><u>Resolving the MFC42D.dll File Not Present: A Step-by-Step Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seafaring-slang-survival-kit-mastering-piratical-vernacular/"><u>Seafaring Slang Survival Kit: Mastering Piratical Vernacular</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-easy-way-to-progressively-reduce-sound-levels-in-lumafusion-for-2024/"><u>The Easy Way to Progressively Reduce Sound Levels in Lumafusion for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-tongue-of-truth-learning-hangul-for-ks/"><u>The Tongue of Truth: Learning Hangul for KS</u></a></li>
+</ul></div>
 

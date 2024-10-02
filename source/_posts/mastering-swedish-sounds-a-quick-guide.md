@@ -1,7 +1,7 @@
 ---
 title: "Mastering Swedish Sounds: A Quick Guide"
-date: 2024-09-01T00:33:13.936Z
-updated: 2024-09-02T00:33:13.936Z
+date: 2024-09-29T19:43:16.268Z
+updated: 2024-10-01T17:14:10.752Z
 tags:
   - speak
   - english
@@ -28,6 +28,13 @@ thumbnail: https://thmb.techidaily.com/b60c1fc9251ee88631c28dd2623940b69aaa41245
 
  The current alphabet is considered modern because it arrived in Sweden together with the Christianization of Scandinavia that took place between the 8th and the 12th centuries. As a matter of fact, the translation of the New Testament into Swedish in 1526 actually marks the beginning of modern Swedish.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How was Swedish written before the Latin script?
 
  **Swedish used runes before the arrival of the Latin script in Scandinavia.** The [runic alphabet](https://www.britannica.com/topic/runic-alphabet) , also known as Futhark, was the first writing system the Norse and other Germanic people used for centuries. As it happens, isolated communities in a remote part of Sweden only [stopped using runes](https://sciencenordic.com/language-linguistics-runes/isolated-people-in-sweden-only-stopped-using-runes-100-years-ago/1418110) 100 years ago. To this day, the runic alphabet is considered a writing system of uncertain origin as scholars cannot find solid proof to support its ancestry.
@@ -36,18 +43,32 @@ thumbnail: https://thmb.techidaily.com/b60c1fc9251ee88631c28dd2623940b69aaa41245
 
 ![swedish runes on stones](https://edge.mondly.com/blog/wp-content/uploads/2021/11/swedish-runic-alphabet-960x686.jpg "Quick Introduction To The Swedish Alphabet And Its Fascinating History 2")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  “Swedish runes” by petr sidorov©
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## The Swedish language in a nutshell
 
  Known in Swedish as**Svenska,** the [Swedish language](https://www.britannica.com/topic/Swedish-language) belongs to the East Scandinavian group of North Germanic languages and is the official language of Sweden and Finland. According to Ethnologue, the total number of Swedish speakers worldwide is over 13 million (both native and non-native speakers).
 
 <!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Mutual intelligibility with the other Scandinavian languages
 
  Because Sweden ruled Finland from the 12th century until 1809, you’d think Swedish and Finnish are very much alike. Instead, Finnish is probably the most different from Swedish.
@@ -56,9 +77,6 @@ thumbnail: https://thmb.techidaily.com/b60c1fc9251ee88631c28dd2623940b69aaa41245
 
  Similar to the transformation the [Romance languages](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) went through over time, Old East Norse dialects were influenced by numerous factors. For example, between 800 and 1100 AD, Runic Swedish was only slightly different from Runic Danish, but they began to diverge during the 12th century. However, some aspects stayed the same. That’s why is easier to learn Swedish when you already know Danish and vice versa.
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Pronunciation rules and usage
 
  Being a Germanic language makes Swedish one of the easiest languages to learn by native English speakers. In fact, according to the FSI (Foreign Service Institute) of the US government, an English speaker would need about [575 hours](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) or 23 weeks of practice to become fluent in Swedish. That makes Swedish even easier to learn than any Romance language such as Spanish, French or Italian.
@@ -67,9 +85,6 @@ thumbnail: https://thmb.techidaily.com/b60c1fc9251ee88631c28dd2623940b69aaa41245
 
  Would you like to have access to more content like this? Get Mondly and master the Swedish pronunciation in no time with real-life conversations recorded by fluent voice actors.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Uncommon letters
 
  Before jumping to pronunciation rules, you should know that**Swedes don’t really use the letters Q, W and Z.** So, in truth, the Swedish alphabet has the same number of letters as English: 26.
@@ -79,9 +94,18 @@ thumbnail: https://thmb.techidaily.com/b60c1fc9251ee88631c28dd2623940b69aaa41245
  Though officially in the Swedish alphabet, there are two other letters you’ll probably see in Swedish: ü and è. But again, these letters are only common in some loanwords.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### General pronunciation rules
 
  As you already know, the pronunciation of the names of the letters in Swedish wouldn’t really help you learn how to read Swedish. On the other hand, general pronunciation rules can come in handy:
@@ -102,9 +126,6 @@ thumbnail: https://thmb.techidaily.com/b60c1fc9251ee88631c28dd2623940b69aaa41245
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<!-- affiliate ads end -->
 ### From 0 to conversational in Swedish
 
  Do you want to see the Swedish alphabet in action? Get Mondly, the award-winning language learning app that will help you speak Swedish as if you were born in Stockholm.
@@ -126,8 +147,6 @@ thumbnail: https://thmb.techidaily.com/b60c1fc9251ee88631c28dd2623940b69aaa41245
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -135,4 +154,26 @@ thumbnail: https://thmb.techidaily.com/b60c1fc9251ee88631c28dd2623940b69aaa41245
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-revolutionize-your-podcasts-rankings-with-effective-seo-methods/"><u>[Updated] 2024 Approved Revolutionize Your Podcast's Rankings with Effective SEO Methods</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-high-quality-game-recordings-methods-and-tools-for-2024/"><u>[Updated] High-Quality Game Recordings Methods and Tools for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-simplify-your-schedule-using-free-clocks-wisely/"><u>[Updated] Simplify Your Schedule Using FREE Clocks Wisely</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-top-video-editors-for-youtube-on-the-houseno-cost-included/"><u>[Updated] Top Video Editors for YouTube on the House—No Cost Included</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/17-spanish-sayings-that-will-make-you-sound-like-a-native/"><u>17 Spanish Sayings That Will Make You Sound Like a Native</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/baffle-bergamo-natives-learn-italys-colorful-language/"><u>Baffle Bergamo Natives: Learn Italy's Colorful Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breaking-barriers-one-word-at-a-time-mondlys-ukrainian-offerings/"><u>Breaking Barriers, One Word at a Time – Mondly's Ukrainian Offerings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/chinese-courtesy-mastering-the-art-of-xiexie/"><u>Chinese Courtesy: Mastering the Art of Xièxiè</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-portuguese-with-ease-explore-our-top-6-tips-and-tricks/"><u>Conquer Portuguese with Ease - Explore Our Top 6 Tips and Tricks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/curated-list-of-top-danish-movies-for-better-diction/"><u>Curated List of Top Danish Movies for Better Diction</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-languages-through-augmented-reality-mondlys-way/"><u>Discover Languages Through Augmented Reality - Mondly's Way</u></a></li>
+<li><a href="https://win-blog.techidaily.com/essential-tips-for-fixing-ue4-gobi-map-fatal-bugs-in-arma-iii-mod-back-cuarteros-back/"><u>Essential Tips for Fixing 'UE4 - Gobi' Map Fatal Bugs in Arma III Mod: Back Cuarteros Back.</u></a></li>
+<li><a href="https://discover-dash.techidaily.com/free-conversion-guide-transforming-dvds-into-mp4-files-on-windows-11/"><u>Free Conversion Guide: Transforming DVDs Into MP4 Files on Windows 11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719575464700-learn-languages-unlock-potential-start-with-slovak-in-a-days-work/"><u>Learn Languages, Unlock Potential: Start with Slovak in a Day's Work</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solving-apex-legends-simple-fixes-for-the-anti-cheat-issue/"><u>Solving Apex Legends: Simple Fixes for the Anti-Cheat Issue</u></a></li>
+<li><a href="https://fox-access.techidaily.com/srt-to-sub-guide-practical-conversion-methods-for-2024/"><u>SRT to SUB Guide Practical Conversion Methods for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580623309-swiftly-learn-urdu-online-every-day/"><u>Swiftly Learn Urdu Online, Every Day</u></a></li>
+<li><a href="https://techtrends.techidaily.com/understanding-car-electrification-a-comparison-of-bevs-phevs-fcevs-and-hybrid-powertrains/"><u>Understanding Car Electrification: A Comparison of BEVs, PHEVs, FCEVs & Hybrid Powertrains</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-the-ultimate-list-best-apps-to-turn-yourself-into-a-cartoon/"><u>Updated The Ultimate List Best Apps to Turn Yourself Into a Cartoon</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Várias Maneiras De Fazer O Olho Direito Em PT
-date: 2024-09-01T00:30:09.742Z
-updated: 2024-09-02T00:30:09.742Z
+date: 2024-09-28T23:33:30.654Z
+updated: 2024-10-01T19:25:04.506Z
 tags:
   - speak
   - english
@@ -30,23 +30,14 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
  Be careful with your Portuguese pronunciation though! A lot of people accidentally mistake Portuguese for Spanish. You don’t want to do that. Just say “OH-lah” and everybody from Brazil to Mozambique will understand that you are saying “hello” in Portuguese.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ### “Hi” in Portuguese – Oi
 
  Friendly and very informal,_Oi!_ is one of the most common ways to greet your friends in Brazil (people from Portugal use it as well, but not as much as_olá)_ . This is how you could greet your mates and close colleagues, but never the people you don’t really know. Don’t stress it tough! When the time comes, you will feel and just know what’s the required Portuguese greeting for that particular situation.
 
 ![hi in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-portuguese-1024x658.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 2")
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  “Lisbon, Portugal” by Diego García©
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### “How are you” in Portuguese – Tudo bem?
 
  Asking someone how they are doing is probably just as important as saying “hello”. Sometimes you don’t even expect an answer. This is just an even nicer way to greet someone. So let’s see the many ways Portuguese-speaking people ask someone how they are doing depending on the context.
@@ -62,6 +53,13 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 * **_Quanto tempo!_ – Long time no see!** – Used the same as in English.
 * **_Como foi o seu dia?_ – How’s your day?** – Used the same as in English.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. “Bom dia!” and other Portuguese greetings for certain moments of the day
 
 ![good morning in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/good-morning-in-portuguese-1024x642.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 3")
@@ -76,9 +74,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
  All three of these are safe to use in any kind of interaction (formal or informal).
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ## 3.“Goodbye” in Portuguese – Adeus
 
  The most common way to say “Goodbye” in Portuguese is_Adeus_ , but you can also use_Tchau_ which simply translates to “bye”.
@@ -94,9 +89,20 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ![portuguese greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/08/portuguese-greetings-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 4")
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  “Ruínas da Fortaleza de Arrifana, Aljezur, Portugal” by Ferhat Deniz Fors©
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Bonus: other basic Portuguese phrases that you should know
 
@@ -122,6 +128,13 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ![obrigado](https://edge.mondly.com/blog/wp-content/uploads/2019/08/obrigado-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 5")
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
+  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  “Gruta do Lago Azul, Brazil” by Ademir Alves©
 
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fhello-in-portuguese-basic-portuguese-greetings-you-need%2F&t=Hello+in+Portuguese+and+Other+Basic+Portuguese+Greetings+You+Need+to+Know "Share on Facebook")
@@ -129,9 +142,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Here’s how to speak Portuguese in 10 minutes a day
 
  Do you want to practice what you’ve learned and maybe learn some more Portuguese? **Check Mondly, the revolutionary language learning platform that makes language learning fun, fast and easy!**
@@ -154,8 +164,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -163,4 +171,20 @@ _Olá_ is the best choice for most social situations regardless of the person yo
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-channel-control-center-creator-studio-essentials/"><u>[New] 2024 Approved Channel Control Center Creator Studio Essentials</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-thriving-in-zoom-chats-key-techniques-for-engaging-online-conversations/"><u>[New] 2024 Approved Thriving in Zoom Chats Key Techniques for Engaging Online Conversations</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-box-by-strategy-market-success-blueprints/"><u>[New] Box by Strategy Market Success Blueprints</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-10-awesome-ideas-for-igtv-videos-brands-shouldnt-miss-out-on/"><u>2024 Approved 10 Awesome Ideas for IGTV Videos Brands Shouldn't Miss Out On</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-taming-high-quality-streams-obs/"><u>2024 Approved Taming High-Quality Streams (OBS)</u></a></li>
+<li><a href="https://article-helps.techidaily.com/directorsuite-analysis-rigorous-assessment-for-2024/"><u>DirectorSuite Analysis – Rigorous Assessment for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fast-frame-rates-and-uninterrupted-play-a-guide-to-fixing-lag-issues-in-warzone/"><u>Fast Frame Rates and Uninterrupted Play: A Guide to Fixing Lag Issues in Warzone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jumpstart-your-2023-save-big-and-gain-lifetime-access-to-mondly-premium/"><u>Jumpstart Your 2023: Save Big & Gain Lifetime Access to Mondly Premium!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-mission-for-millions-in-ukraine/"><u>Mondly's Mission for Millions in Ukraine</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-puzzles-turkey-and-koreas-verbal-ties/"><u>Multilingual Puzzles: Turkey & Korea's Verbal Ties</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/optimal-methods-for-learning-lithuanian-virtually/"><u>Optimal Methods for Learning Lithuanian Virtually</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-for-the-curious-childs-mind/"><u>Spanish for the Curious Child's Mind</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/ways-to-stop-parent-tracking-your-oppo-a78-5g-drfone-by-drfone-virtual-android/"><u>Ways to stop parent tracking your Oppo A78 5G | Dr.fone</u></a></li>
+</ul></div>
 

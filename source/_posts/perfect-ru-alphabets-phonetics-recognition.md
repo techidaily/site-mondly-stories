@@ -1,7 +1,7 @@
 ---
 title: Perfect RU Alphabets' Phonetics Recognition
-date: 2024-09-23T20:25:14.159Z
-updated: 2024-09-26T16:00:20.437Z
+date: 2024-09-27T17:10:58.261Z
+updated: 2024-10-01T22:26:39.238Z
 tags:
   - speak
   - english
@@ -28,13 +28,6 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 
  Russian has been greatly influenced by Old Church Slavonic and – since the westernizing policies of Tsar Peter I the Great in the 18 century – by the [languages of western Europe](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Then, the 19th-century poet Aleksandr Pushkin determined the further development of the [Russian language we know](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) today. His writings, in which he combined the colloquial and Church Slavonic styles, were decisive in establishing the best style for literary use.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### The Cyrillic script
 
 [The Cyrillic script](https://en.wikipedia.org/wiki/Cyrillic%5Fscript) is the national script in various Slavic-, Turkic- and Iranic-speaking countries in Eastern Europe, the Caucasus, Central Asia, and Northern Asia.
@@ -55,6 +48,13 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 
  If we were to compare the Russian alphabet to the English alphabet, we would have four groups of letters: letters that look and sound (almost) the same as in English, letters that sound the same but look different, letters that look the same but sound different and letters that have no English equivalent whatsoever.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Russian letters that are (almost) the same as in English
 
 * **А а** sounds like “a” in “father” or “after”,
@@ -65,10 +65,10 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 * **Т т** sounds like “t” in “top” or “task”.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Russian letters that sound the same as in English (but look different)
@@ -90,13 +90,6 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 * **Ю ю** sounds like “you” or “use”,
 * **Я я** sounds like “yu” in yummy or “ya” in “yard”.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Russian letters that look the same as in English (but sound different)
 
 * **В в** sounds like “v” in “van” or “voice”,
@@ -110,10 +103,10 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 * **Ы ы** sounds like “i” in “ill” but with a “rounder” pronunciation (said with your tongue slightly back in your mouth).
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
-  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Russian letter with no English equivalent
@@ -149,6 +142,19 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 
 ---
 
+<!-- affiliate ads begin -->
+<span id="1977032">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Study Russian in just 10 minutes a day
 
  It can be really tricky to master Russian pronunciation if you don’t actively live in Russia. But with Mondly, the award-winning language learning app, you’ll teach yourself Russian using a unique, fast and highly efficient learning method.
@@ -174,22 +180,20 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/updated-action-cam-reimagined-an-extensive-review-of-the-sj-cam-s6-for-2024/"><u>[Updated] Action Cam Reimagined An Extensive Review of the SJ-CAM S6 for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/updated-capture-perfection-iphone-camera-skills-guide/"><u>[Updated] Capture Perfection IPhone Camera Skills Guide</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/beware-of-harmful-software-avoid-downloading-google-bard-as-it-contains-malware/"><u>Beware of Harmful Software: Avoid Downloading Google Bard as It Contains Malware</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/building-bridges-dannys-colombian-aid-initiative/"><u>Building Bridges: Danny's Colombian Aid Initiative</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/effective-solutions-to-reactivate-a-non-responsive-corsair-hs70-mic/"><u>Effective Solutions to Reactivate a Non-Responsive Corsair HS70 Mic</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-phrases-and-words-for-urdu-beginners/"><u>Essential Phrases and Words for Urdu Beginners</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/express-thanks-in-german-ranked-16-best-ways/"><u>Express Thanks In German: Ranked 16 Best Ways</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/fixing-the-missing-propsysdll-error-on-windows-systems-easily/"><u>Fixing the Missing PropSys.dll Error on Windows Systems Easily</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/gratitude-unleashed-the-ultimate-multilingual-guide-152/"><u>Gratitude Unleashed: The Ultimate Multilingual Guide (152)</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/guida-esclusiva-come-master-copying-dvd-su-un-mac-big-sur-senza-compromettere-la-qualita/"><u>Guida Esclusiva: Come Master Copying DVD Su Un Mac Big Sur Senza Compromettere La Qualità</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/guide-to-completely-erase-data-on-iphone-6s-plus-to-avoid-privacy-leak-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Guide to Completely Erase Data on iPhone 6s Plus to Avoid Privacy Leak | Stellar</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-google-pixel-8-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Google Pixel 8 to Other Android devices | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/iberian-differences-spanish-and-portuguese-language-study/"><u>Iberian Differences: Spanish and Portuguese Language Study</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-changing-up-the-sound-how-to-customize-your-iphone-tunes/"><u>In 2024, Changing Up the Sound How to Customize Your iPhone Tunes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/new-year-language-learning-goal/"><u>New Year, Language Learning Goal</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/uniting-technologies-mondly-plus-pearson-buttons-fusion/"><u>Uniting Technologies: Mondly + Pearson Buttons Fusion</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/why-select-arabic-6-insights-on-mondlys-online-platform/"><u>Why Select Arabic: 6 Insights on Mondly's Online Platform</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-comprehensive-walkthrough-of-wmps-cd-handling/"><u>[New] 2024 Approved Comprehensive Walkthrough of WMP's CD Handling</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-elevating-your-vlogs-a-list-of-the-top-12-professional-cameras/"><u>[Updated] In 2024, Elevating Your Vlogs A List of the Top 12 Professional Cameras</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-dividing-drama-how-to-split-vimeo-videos/"><u>2024 Approved Dividing Drama How to Split Vimeo Videos</u></a></li>
+<li><a href="https://blog-min.techidaily.com/6-ways-to-transfer-contacts-from-gionee-f3-pro-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>6 Ways To Transfer Contacts From Gionee F3 Pro to iPhone | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-frp-from-motorola-edge-40-by-drfone-android/"><u>How to Bypass FRP from Motorola Edge 40?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-honor-magic-vs-2-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Honor Magic Vs 2? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-iphone-is-disabled-here-is-the-way-to-unlock-disabled-iphone-xs-max-drfone-by-drfone-ios/"><u>In 2024, iPhone Is Disabled? Here Is The Way To Unlock Disabled iPhone XS Max | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-the-precision-of-the-global-scale-of-languages-by-pearson-to-mondly/"><u>Introducing the Precision of the Global Scale of Languages by Pearson to Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jumpstart-your-turkish-learning-an-essential-phonetics-guidebook/"><u>Jumpstart Your Turkish Learning: An Essential Phonetics Guidebook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-lightning-strike-fast-track-language-guide/"><u>Linguistic Lightning Strike: Fast-Track Language Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/o-poder-da-palavra-em-portugues-melhores-expressoes-para-amigos/"><u>O Poder Da Palavra Em Português: Melhores Expressões Para Amigos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-introduction-to-the-swedish-alphabet-and-its-fascinating-history/"><u>Quick Introduction to the Swedish Alphabet and Its Fascinating History</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transcending-language-gaps-for-lasting-bonds/"><u>Transcending Language Gaps for Lasting Bonds</u></a></li>
+<li><a href="https://program-issues.techidaily.com/ultimate-guide-solving-the-roblox-launch-issue/"><u>Ultimate Guide: Solving the Roblox Launch Issue</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/unlocking-hidden-outlook-folders-on-pc-a-step-by-step-guide/"><u>Unlocking Hidden Outlook Folders on PC: A Step-by-Step Guide</u></a></li>
 </ul></div>
 

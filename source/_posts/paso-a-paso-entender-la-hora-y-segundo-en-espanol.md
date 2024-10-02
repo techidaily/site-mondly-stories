@@ -1,7 +1,7 @@
 ---
 title: "Paso a Paso: Entender La Hora Y Segundo en Español"
-date: 2024-09-20T16:58:47.584Z
-updated: 2024-09-26T21:25:57.262Z
+date: 2024-09-30T22:34:26.418Z
+updated: 2024-10-01T22:13:38.865Z
 tags:
   - speak
   - english
@@ -32,13 +32,6 @@ But first things first.
 
  In addition to the now well-known_**¿que hora es?**_ which literally translates to “what hour is it?”, you can also ask_**¿tiene hora?**_ which is literally “do you have the hour?”. Easy enough!
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## The basics of Spanish time
 
  To_decir la hora_ (“tell the time”) in Spanish, there are a few simple rules you’ll have to know.
@@ -64,6 +57,19 @@ But first things first.
 
 _**Nota bene:**_ If you prefer to use the 24-hour clock, you should say**_son las dieciséis_** **(“it’s 16:00”)** instead of **_son las cuatro_ (“it’s 4 o’clock p.m.”).** But that will require a little more studying on your part. Don’t worry though. Spanish numbers are just as easy as learning how to tell the time. You can master them with Mondly faster than you can say Jack Robinson. You can get started [here](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5345&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5345?mother%5Flang=en%5Fus?target%5Flang=es&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5345?mother%5Flang=en%5Fus?target%5Flang=es) .
 
+<!-- affiliate ads begin -->
+<span id="1484963">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How do you say the time in Spanish after 30?
 
  Now, the time is not always on the hour. So how do you say “half past”, “quarter past” and “quarter to” in Spanish? There are only two new words you need to remember:_**media**_ and_**cuarto**_ .
@@ -83,10 +89,10 @@ Here are some examples:
  Telling time in Spanish – a visual guide
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Hour + minutes in Spanish time
@@ -101,10 +107,10 @@ Here are some examples:
 * _Son las ocho y quince._ (“it’s eight and fifteen minutes”)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Different ways of telling time in Spanish
@@ -116,13 +122,6 @@ Here are some examples:
 * _es/son_ +_las_ \+ hour + con + number of minutes –**_Son las tres con diez_**
 
  Which one do you prefer? Additionally, if we also count it_cuarto_ and_media_ , there are no less than four different ways to tell the time in Spanish. And you’ve just mastered them all!
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to indicate the time of day in Spanish
 
@@ -173,6 +172,13 @@ Here are some examples:
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Speak Spanish fluently in just 10 minutes a day
 
  Do you want to [speak Spanish fluently](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) fast? Get Mondly, the award-winning language learning app that will help you speak Spanish as if you were Spanish-born.
@@ -198,24 +204,24 @@ Here are some examples:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-a-step-by-step-guide-to-autoplaying-youtube-in-facebook-groups-and-pages/"><u>[New] A Step-by-Step Guide to Autoplaying Youtube in Facebook Groups and Pages</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-the-best-equipment-for-precise-zoom-recording/"><u>[New] In 2024, The Best Equipment for Precise Zoom Recording</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/4-effective-methods-for-capturing-screenshots-on-crunchyroll-updated-guide-2024/"><u>4 Effective Methods for Capturing Screenshots on Crunchyroll (Updated Guide - 2024)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/conquer-the-french-conversation-vocabulary-for-travelers/"><u>Conquer the French Conversation: Vocabulary for Travelers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/crafting-goals-that-lead-to-real-change/"><u>Crafting Goals That Lead To Real Change</u></a></li>
-<li><a href="https://win-answers.techidaily.com/easily-overcome-deathloops-pc-crashes-a-step-by-step-solution/"><u>Easily Overcome Deathloop's PC Crashes: A Step-by-Step Solution</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embrace-new-languages-with-mondly-1-of-2022s-apps/"><u>Embrace New Languages with Mondly - #1 of 2022'S Apps</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhanced-user-experience-with-automated-conversion-tracking-the-power-of-cookiebot/"><u>Enhanced User Experience with Automated Conversion Tracking - The Power of Cookiebot</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expand-your-reach-mondly-support-on-oculus-quest-now/"><u>Expand Your Reach: Mondly Support on Oculus Quest Now</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-novice-to-numerical-fluency-spanish-numbers/"><u>From Novice to Numerical Fluency: Spanish Numbers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/german-language-acquisition-how-hardcore-is-it/"><u>German Language Acquisition: How Hardcore Is It?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-french-speakers-distribution-and-leading-nations/"><u>Global French Speakers: Distribution & Leading Nations</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-10-best-fake-gps-location-spoofers-for-motorola-moto-g04-drfone-by-drfone-virtual-android/"><u>In 2024, 10 Best Fake GPS Location Spoofers for Motorola Moto G04 | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-top-10-password-cracking-tools-for-poco-x6-by-drfone-android/"><u>In 2024, Top 10 Password Cracking Tools For Poco X6</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-in-2024-best-ios-and-android-apps-you-can-use-to-create-animoji-and-memoji-videos/"><u>New In 2024, Best iOS and Android Apps You Can Use to Create Animoji and Memoji Videos</u></a></li>
-<li><a href="https://driver-download.techidaily.com/step-by-step-guide-updating-your-wd-ses-drive-with-the-latest-usb-drivers-from-2011-onwards/"><u>Step-by-Step Guide: Updating Your WD SES Drive with the Latest USB Drivers From 2011 Onwards</u></a></li>
-<li><a href="https://article-files.techidaily.com/the-quest-for-codec-perfection-is-av1-surpassing-vp9-for-2024/"><u>The Quest for Codec Perfection Is AV1 Surpassing VP9 for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/uniting-languages-cultures-through-multiplayer-vr-sessions/"><u>Uniting Languages, Cultures Through Multiplayer VR Sessions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/vernacular-voices-ukraine-vs-russia/"><u>Vernacular Voices: Ukraine Vs Russia</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-capturing-content-the-leading-online-television-recordings/"><u>[New] Capturing Content The Leading Online Television Recordings</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-unveiling-5-best-non-samsung-camera-picks-for-gear-enthusiasts/"><u>[New] Unveiling 5 Best Non-Samsung Camera Picks for Gear Enthusiasts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-sounding-off-on-channel-titling-tips-from-experienced-filmmakers/"><u>[Updated] Sounding Off on Channel Titling Tips From Experienced Filmmakers</u></a></li>
+<li><a href="https://blog-min.techidaily.com/comparacion-de-dvd-blu-ray-y-archivos-digitales-que-opcion-es-la-mejor-para-ti/"><u>Comparación De DVD, Blu-Ray Y Archivos Digitales: ¿Qué Opción Es La Mejor Para Ti?</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/enhance-your-broadcasts-using-manycam-the-ultimate-live-video-and-webcam-application/"><u>Enhance Your Broadcasts Using ManyCam - The Ultimate Live Video and Webcam Application</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/failed-to-play-hevc-files-on-xiaomi-redmi-a2-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Failed to play HEVC files on Xiaomi Redmi A2</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-erase-iphone-13-pro-max-data-permanently-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>How To Erase iPhone 13 Pro Max Data Permanently | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-say-good-morning-in-10-different-languages/"><u>How To Say Good Morning In 10 Different Languages</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-network-locked-sim-card-inserted-on-your-oppo-k11x-phone-unlock-it-now-by-drfone-android/"><u>In 2024, Network Locked SIM Card Inserted On Your Oppo K11x Phone? Unlock It Now</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-premium-avi-playback-software-for-computers/"><u>In 2024, Premium Avi Playback Software for Computers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/indonesian-greetings-decoded-for-travelers-and-locals-alike/"><u>Indonesian Greetings Decoded for Travelers and Locals Alike</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/iniciar-tu-primer-viaje-a-la-hora-en-espanol/"><u>Iniciar Tu Primer Viaje a La Hora en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-rhythms-an-energetic-learning-approach/"><u>Latin Rhythms: An Energetic Learning Approach</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-latvian-fast-ten-minute-online-lessons-each-day/"><u>Master Latvian Fast: Ten-Minute Online Lessons Each Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-the-updated-tandu-with-ease/"><u>Navigating the Updated T&U with Ease</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/prepare-to-engage-with-the-ultimate-ai-friend/"><u>Prepare to Engage with the Ultimate AI Friend</u></a></li>
+<li><a href="https://howto.techidaily.com/solved-warning-camera-failed-on-oneplus-nord-3-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Solved Warning Camera Failed on OnePlus Nord 3 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-top-francophone-countries-and-their-linguistic-statistics/"><u>The Top Francophone Countries and Their Linguistic Statistics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-9-linguistic-quandaries-and-strategies-for-success/"><u>Top 9 Linguistic Quandaries & Strategies for Success</u></a></li>
 </ul></div>
 

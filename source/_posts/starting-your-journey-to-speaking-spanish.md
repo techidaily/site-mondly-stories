@@ -1,7 +1,7 @@
 ---
 title: Starting Your Journey to Speaking Spanish
-date: 2024-09-15T16:26:25.057Z
-updated: 2024-09-16T16:14:20.090Z
+date: 2024-09-30T17:28:34.660Z
+updated: 2024-10-01T20:44:35.644Z
 tags:
   - speak
   - english
@@ -35,6 +35,13 @@ thumbnail: https://thmb.techidaily.com/3d0c7b28b7640277a83e56148652cb264b53fd3e0
  Until then, here’s cool audio of a fluent speaker pronouncing the Spanish numbers 1 to 10:
 
 **Good to know:** _uno_becomes an article and changes to_un_if it’s in front of a noun. For example,_un cerdo_translates to “a pig” in English.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Spanish numbers to 40
 
@@ -70,6 +77,13 @@ thumbnail: https://thmb.techidaily.com/3d0c7b28b7640277a83e56148652cb264b53fd3e0
 
  As you can see, up to 30 (“thirty”), the numbers are bound together, but from there on they part ways to make counting in Spanish even easier for you. Basically, you won’t say “thirty-one”, but “thirty**and** one”:_treinta y uno_ .
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Count to 100 in Spanish
 
  As we already settled, counting in Spanish is all about mastering the basics. Now that you know how to count to 40, counting to 100 in Spanish is a piece of cake. Just learn the tens and you are ready to go.
@@ -100,10 +114,10 @@ thumbnail: https://thmb.techidaily.com/3d0c7b28b7640277a83e56148652cb264b53fd3e0
 * 98 –_noventa y ocho_
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Spanish numbers to 1000 and beyond
@@ -144,10 +158,10 @@ Here are some more examples:
 ![count in Spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/07/count-in-spanish-960x663.jpg "Spanish Numbers: How To Count Numbers In Spanish 4")
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Barcelona, Spain
@@ -197,5 +211,23 @@ Here are some more examples:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-introduction-to-interactive-graphic-design/"><u>[New] 2024 Approved Introduction to Interactive Graphic Design</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-game-modders-and-tutorial-content-leaders/"><u>2024 Approved Game Modders & Tutorial Content Leaders</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/agoras-articulation-greek-language-through-ages/"><u>Agora's Articulation: Greek Language Through Ages</u></a></li>
+<li><a href="https://article-helps.techidaily.com/discovering-your-iphones-top-free-photo-arrangement-and-editing-tools/"><u>Discovering Your iPhone's Top Free Photo Arrangement & Editing Tools</u></a></li>
+<li><a href="https://extra-information.techidaily.com/elevate-your-media-experience-with-top-phone-videos/"><u>Elevate Your Media Experience with Top Phone Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-8-best-free-3d-video-player-for-window-and-mac/"><u>In 2024, 8 Best Free 3D Video Player for Window and Mac</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-capturing-authenticity-voice-overs-that-resonate-with-audiences/"><u>In 2024, Capturing Authenticity Voice Overs That Resonate with Audiences</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Watch Hulu Outside US On Apple iPhone 6s Plus | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/key-danish-films-to-elevate-your-danish-comprehension/"><u>Key Danish Films to Elevate Your Danish Comprehension</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lingual-interactions-international-contribution-to-english/"><u>Lingual Interactions: International Contribution to English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/salutations-francaises-la-reponse-idyllique/"><u>Salutations Françaises: La Réponse Idyllique</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spell-success-the-most-common-english-language-gaffes-listed/"><u>Spell Success! The Most Common English Language Gaffes Listed</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/strategies-for-perfecting-igtv-video-titles-for-2024/"><u>Strategies for Perfecting IGTV Video Titles for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-9-insights-on-english-grammar-by-a-pro-esl-speaker/"><u>Top 9 Insights on English Grammar by a Pro ESL Speaker</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-mysteries-of-spanish-accents-and-types/"><u>Unveiling the Mysteries of Spanish Accents and Types</u></a></li>
+</ul></div>
 

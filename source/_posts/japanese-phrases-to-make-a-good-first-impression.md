@@ -1,7 +1,7 @@
 ---
 title: Japanese Phrases to Make a Good First Impression
-date: 2024-09-01T00:31:15.087Z
-updated: 2024-09-02T00:31:15.087Z
+date: 2024-09-28T19:14:02.411Z
+updated: 2024-10-01T20:14:17.378Z
 tags:
   - speak
   - english
@@ -45,13 +45,17 @@ thumbnail: https://thmb.techidaily.com/f795cb8f05b5f5e2a9428472b69cf514c64baf04e
 
  Curious about why there are multiple types of characters in Japanese? Here’s everything there is to know about the [Japanese writing system](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **How to say “hello” on the phone in Japanese: moshi moshi (もしもし)**
 
  Unlike English, which uses the same “hello” for a lot of different social contexts, the Japanese language has a dedicated “hello” for answering the phone:**moshi moshi (もしもし).** Doesn’t that sound cute?
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 2\. Good morning in Japanese and other relevant greetings
 
 **Good morning in Japanese**   **– O_hayō gozaimasu_**  (おはよう ございます) is the best choice for greeting someone in the early morning hours (before 10:00 a.m.). Unlike_Konnichiwa_ ,   **O_hayō gozaimasu_**  a little more formal, so it’s safe to use it with people you don’t know or when you are meeting people in a position of authority (such as your boss or your teacher).
@@ -69,9 +73,20 @@ This greeting is used both as a “hello” and as a “goodbye”.
 ![hi in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-japanese-960x639.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 3")
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  “Meguro River, Matsuno, Japan” by Sora Sagano©
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3.“Goodbye” in Japanese
 
@@ -90,15 +105,8 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![goodbye in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/goodbye-in-japanese-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 4")
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->
  “See you soon, human” by Alain Pham©
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 4\. “Thank you” in Japanese and other polite phrases that you should know
 
  We already settled that the Japanese culture is a culture of respect and politeness. Thus, learning to say**“thank you” in Japanese** is probably one of your most important tasks to complete before visiting Japan. Lucky for you, there’s nothing difficult about that.
@@ -126,8 +134,12 @@ This greeting is used both as a “hello” and as a “goodbye”.
  “Kyoto, Japan” by Andre Benz©
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Don’t forget about the Japanese bow
 
  Every**“hello” in Japanese** is usually accompanied by a bow, the Western world equivalent of a handshake. Our advice would be to not skip the bow if you really want to feel like you belong.
@@ -144,9 +156,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
  – 45-degree bows are used for greetings only if you meet a very important person like the Emperor or the Prime Minister.
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Bonus: basic conversation in Japanese
 
  If you don’t want to stop at just**“thank you” or “hello” in Japanese,** here are a few more**Japanese phrases** that are fairly easy to remember and will definitely make all the difference for your trip to Japan:
@@ -191,8 +200,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -200,4 +207,26 @@ This greeting is used both as a “hello” and as a “goodbye”.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-the-art-of-edible-media-recipe-tutorials/"><u>[New] 2024 Approved The Art of Edible Media Recipe Tutorials</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-optimal-techniques-for-recording-your-youtube-events/"><u>[New] Optimal Techniques for Recording Your YouTube Events</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-unraveling-top-hdr-camera-brands-and-features/"><u>[New] Unraveling Top HDR Camera Brands and Features</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-exploring-the-mechanisms-of-noteworthy-youtube-discussions/"><u>[Updated] Exploring the Mechanisms of Noteworthy YouTube Discussions</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-perfect-habits-to-embrace-with-podcasts-playing/"><u>[Updated] Perfect Habits to Embrace with Podcasts Playing</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-tunefab-revolutionizing-the-art-of-video-capture-for-2024/"><u>[Updated] Tunefab Revolutionizing the Art of Video Capture for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/endless-joy-for-mondly-premium-users/"><u>Endless Joy for Mondly Premium Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/engage-in-authentic-conversations-anywhere-mondly-vr-for-language-mastery/"><u>Engage in Authentic Conversations Anywhere - Mondly VR for Language Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/engage-in-worldwide-english-pearson-edition/"><u>Engage in Worldwide English: Pearson Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-ingredients-in-culinary-education-top-15-steps-to-gourmet-expertise/"><u>Essential Ingredients in Culinary Education: Top 15 Steps to Gourmet Expertise</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fixing-foneazy-mockgo-not-working-on-infinix-hot-30-5g-drfone-by-drfone-virtual-android/"><u>Fixing Foneazy MockGo Not Working On Infinix Hot 30 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/foreign-vocabulary-infusion-into-english-speech/"><u>Foreign Vocabulary Infusion Into English Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-language-essentials-for-travelers-getting-it-right-on-arrival/"><u>French Language Essentials for Travelers: Getting It Right on Arrival</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/future-of-schooling-mondly-and-apple-join-forces/"><u>Future of Schooling: Mondly & Apple Join Forces</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/future-proofing-communication-upgrading-your-language-skills/"><u>Future-Proofing Communication: Upgrading Your Language Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-herzensbedauerndes-ausdrucken/"><u>German: Herzensbedauerndes Ausdrücken</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-spectacular-visual-spaces-for-live-videos/"><u>In 2024, Spectacular Visual Spaces for Live Videos</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/top-apps-and-online-tools-to-track-realme-gt-neo-5-se-phone-withwithout-imei-number-by-drfone-android/"><u>Top Apps and Online Tools To Track Realme GT Neo 5 SE Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://fox-that.techidaily.com/unlock-the-potential-methods-to-restart-your-dormant-apple-smartphonetablet/"><u>Unlock the Potential: Methods to Restart Your Dormant Apple Smartphone/Tablet</u></a></li>
+</ul></div>
 

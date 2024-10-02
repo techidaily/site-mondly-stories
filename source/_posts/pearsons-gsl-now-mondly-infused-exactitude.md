@@ -1,7 +1,7 @@
 ---
 title: "Pearson's GSL Now: Mondly-Infused Exactitude"
-date: 2024-09-23T16:47:03.907Z
-updated: 2024-09-26T19:59:59.235Z
+date: 2024-09-25T21:54:46.082Z
+updated: 2024-10-01T16:36:55.881Z
 tags:
   - speak
   - english
@@ -30,13 +30,6 @@ thumbnail: https://thmb.techidaily.com/6f4cdd66eb80d6b11b40dd91cdc2954ad9c9332b6
 
  Unlike other frameworks that describe language proficiency in broad bands, the GSE offers a finely-grained scale. It identifies what a learner can accomplish at each point across speaking, listening, reading, and writing skills. This unique approach motivates learners by offering a more detailed view of their progression.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Introducing the Global Scale of Languages (GSL)**
 
 Building on this solid foundation, **Pearson has now introduced the Global Scale of Languages (GSL).**
@@ -46,10 +39,10 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
  By placing languages on a common scale, underpinned by a common set of Learning Objectives, the GSL can ensure comparability across languages to bring greater clarity and simplicity to language learning.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **How Pearson created the GSL**
@@ -57,10 +50,10 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
  Building on the GSE, our research team at Pearson decided to prove that this scale could also be transferable to other languages. The study’s results were not only encouraging but groundbreaking. The research confirmed that the GSE is directly transferable to other languages, making it possible for Pearson to develop the new GSL framework.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **Why the GSL stands out**
@@ -70,10 +63,10 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 * **Personalized learning pathways:**  With clear objectives at each scale point, the GSL ensures a learning journey tailored to individual goals, making progression more efficient.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Why start with French, Spanish, and Italian?**
@@ -83,6 +76,13 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
  Moreover, the Romance languages, with their shared Latin roots and interconnected nuances, offer a fascinating study when approached with the precision of the GSL.
 
  As a Mondly user immersing in these languages, you can expect a fresh content approach, and a progressively structured layout.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Language learning backed by unparalleled global research**
 
@@ -116,19 +116,17 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-developing-optimal-canon-chrono-recordings/"><u>[New] 2024 Approved Developing Optimal Canon Chrono Recordings</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-effortless-share-of-igtv-on-your-stories-for-2024/"><u>[New] Effortless Share of IGTV on Your Stories for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-pioneering-simple-sound-shifts-in-pubg/"><u>[New] Pioneering Simple Sound Shifts in PUBG</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/break-language-limitations-oculus-quest-adds-multilingual-capabilities/"><u>Break Language Limitations: Oculus Quest Adds Multilingual Capabilities</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/can-i-recover-permanently-deleted-photos-from-htc-u23-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>Can I recover permanently deleted photos from HTC U23</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/closing-in-on-the-essence-of-cinematic-action/"><u>Closing in on the Essence of Cinematic Action</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/easy-guide-fresh-driver-downloads-and-upgrades-for-microsoft-surface-books/"><u>Easy Guide: Fresh Driver Downloads and Upgrades for Microsoft Surface Books</u></a></li>
-<li><a href="https://discover-guides.techidaily.com/free-2018-fifa-world-cup-hq-highlight-reels-full-matches-in-stunning-hd-quality/"><u>Free 2018 FIFA World Cup HQ Highlight Reels - Full Matches in Stunning HD Quality</u></a></li>
-<li><a href="https://extra-information.techidaily.com/from-idea-to-airwaves-crafting-compelling-podcast-scripts/"><u>From Idea to Airwaves Crafting Compelling Podcast Scripts</u></a></li>
-<li><a href="https://review-topics.techidaily.com/lava-data-retrieval-tool-restore-lost-data-from-lava-yuva-2-by-fonelab-android-recover-data/"><u>Lava Data Retrieval tool – restore lost data from Lava Yuva 2</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/romance-languages-a-cultural-overview/"><u>Romance Languages: A Cultural Overview</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/step-by-step-guide-learning-russian-arithmetic/"><u>Step-by-Step Guide: Learning Russian Arithmetic</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-german-lingua-online-platform-mondly-wins/"><u>Top German Lingua Online Platform - Mondly Wins</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/upgrade-to-cutting-edge-ai-chat-companions/"><u>Upgrade to Cutting-Edge AI Chat Companions</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-behind-the-scenes-what-does-an-unlisted-video-mean/"><u>[Updated] Behind the Scenes What Does an 'Unlisted' Video Mean?</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-aquatic-adventures-top-5-anglers-choice-cameras/"><u>2024 Approved Aquatic Adventures Top 5 Anglers' Choice Cameras</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/easy-conversion-techniques-for-upgrading-your-music-collection-from-cda-to-lossless-flac-files/"><u>Easy Conversion Techniques for Upgrading Your Music Collection From CDA to Lossless FLAC Files</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1722974745391-get-the-latest-msi-z370-a-pro-drivers-for-optimal-performance-download-now/"><u>Get the Latest MSI Z370-A Pro Drivers for Optimal Performance – Download Now!</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-gmail-password-on-oneplus-12-devices-by-drfone-android/"><u>In 2024, How to Reset Gmail Password on OnePlus 12 Devices</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-iphone-14-pro-by-drfone-ios/"><u>In 2024, Top 11 Free Apps to Check IMEI on iPhone 14 Pro</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-4-sim-location-trackers-to-easily-find-your-lost-motorola-moto-g84-5g-device-by-drfone-android/"><u>In 2024, Top 4 SIM Location Trackers To Easily Find Your Lost Motorola Moto G84 5G Device</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/memorable-pick-up-lines-in-german-for-every-occasion/"><u>Memorable Pick-Up Lines in German for Every Occasion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/milestone-1500-days-of-priceless-education/"><u>Milestone: 1,500 Days of Priceless Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-curiosity-of-turkish-korean-language-exploration/"><u>The Curiosity of Turkish-Korean Language Exploration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-rich-tapestry-of-african-linguistics/"><u>The Rich Tapestry of African Linguistics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-belgian-language-etiquette/"><u>Understanding Belgian Language Etiquette</u></a></li>
 </ul></div>
 

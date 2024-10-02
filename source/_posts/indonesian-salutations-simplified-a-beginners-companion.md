@@ -1,7 +1,7 @@
 ---
 title: "Indonesian Salutations Simplified: A Beginner's Companion"
-date: 2024-09-01T00:31:09.972Z
-updated: 2024-09-02T00:31:09.972Z
+date: 2024-09-24T17:30:28.970Z
+updated: 2024-10-01T17:58:20.065Z
 tags:
   - speak
   - english
@@ -32,6 +32,13 @@ thumbnail: https://thmb.techidaily.com/dbcd91d398192e490625be17ab539ce0390575e1c
 
  Last but not least, if someone greets you using the_wai_ gesture (slight bow with the palms put together in front of the chest), you can show respect towards their culture by returning the same gesture.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to say ‘hello’ in Indonesian
 
  **If you want to say ‘hello’ in Indonesian, you can simply say_halo_ .** It’s short, sweet and almost identical to the English ‘hello’ you already know and use. Besides, it’s friendly and works great in most social situations.
@@ -41,17 +48,18 @@ thumbnail: https://thmb.techidaily.com/dbcd91d398192e490625be17ab539ce0390575e1c
  On the other hand, if someone asks you how you are doing, you can say_kabar baik,_ which means “I am fine” or “I am well”. Here’s what a basic conversation in Indonesian sounds like:
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### ‘Hi’ in Indonesian
 
  Made some new friends during your trip to Bali? When you meet them, you can also use the more informal_hi,_ which is pronounced the same as the English “hi”.
 
 Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Indonesian greetings for different times of day
 
  Like [most languages](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , Indonesian also has some specific greetings dedicated to different times of the day. While in English, we begin every such greeting with “good”, in Indonesian_selamat_ is the word we use to wish people a “happy”, “peaceful” or “safe” day.
@@ -65,8 +73,12 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 ![indonesian words](https://edge.mondly.com/blog/wp-content/uploads/2022/07/indonesian-words.png "Hello In Indonesian: A Quick Guide To Indonesian Greetings 2")
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  The same way we say “morning!’ in English, Indonesians sometimes drop the_selamat_ . This results in a very informal greeting that can be used with friends and family.
 
  Determining the correct time of the day during which you should use a certain greeting is somehow tricky. However, most people will agree that_selamat pagi_ is best used until 11 p.m. and_selamat siang_ until 3 p.m._Selamat sore_ and_selamat malam_ highly depend on the daylight so it’s best to adjust your greetings on the spot.
@@ -74,8 +86,12 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
  Naturally,_selamat tidur_ is only used when someone is retiring for the night.
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to say goodbye
 
  Similarly, you can use_selamat tinggal_ if you’re ready to say ‘goodbye’ and leave. If you’re the one staying, you should say_selamat jalan,_ which has no direct translation in English.
@@ -87,9 +103,6 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Start learning Indonesian today
 
  If learning how to say ‘hello’ in Indonesian made you realize you want to become fluent in Indonesian, this is your lucky day. Award-winning language app Mondly is one of the few solutions available that offers Indonesian courses made by experts.
@@ -112,8 +125,6 @@ Get Mondly today and learn Indonesian naturally with the following:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -121,4 +132,17 @@ Get Mondly today and learn Indonesian naturally with the following:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-subtitled-quickly-converting-from-compressed-files/"><u>[New] In 2024, Subtitled Quickly! Converting From Compressed Files</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-innovative-approaches-for-mosaic-photography/"><u>[Updated] Innovative Approaches for Mosaic Photography</u></a></li>
+<li><a href="https://location-social.techidaily.com/3-things-you-must-know-about-fake-snapchat-location-on-samsung-galaxy-a34-5g-drfone-by-drfone-virtual-android/"><u>3 Things You Must Know about Fake Snapchat Location On Samsung Galaxy A34 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhance-your-language-skills-with-google-advised-mondly-tools/"><u>Enhance Your Language Skills with Google-Advised Mondly Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/epic-tales-of-making-latin-engaging-for-youths/"><u>Epic Tales of Making Latin Engaging for Youths</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/every-word-in-africa-the-language-mosaic/"><u>Every Word in Africa: The Language Mosaic</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-connoisseur-unveil-7-secrets-of-afrikaans-via-mondly/"><u>From Novice to Connoisseur: Unveil 7 Secrets of Afrikaans via Mondly</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-fix-steam-cannot-sign-in-a-step-by-step-guide/"><u>How to Fix 'Steam Cannot Sign In': A Step-by-Step Guide</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-infinix-smart-7-drfone-by-drfone-virtual-android/"><u>In 2024, How To Pause Life360 Location Sharing For Infinix Smart 7 | Dr.fone</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/uberprufung-des-anspruchelebenszyklusverfahrens-von-abbyy-effizienz-und-performance/"><u>Überprüfung Des Ansprüchelebenszyklusverfahrens Von ABBYY: Effizienz Und Performance</u></a></li>
+</ul></div>
 

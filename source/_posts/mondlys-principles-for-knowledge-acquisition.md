@@ -1,7 +1,7 @@
 ---
 title: Mondly's Principles for Knowledge Acquisition
-date: 2024-09-22T19:34:44.081Z
-updated: 2024-09-26T19:57:55.832Z
+date: 2024-09-26T18:58:51.766Z
+updated: 2024-10-01T22:53:39.013Z
 tags:
   - speak
   - english
@@ -43,10 +43,10 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
  Basically, what happens in the app is that new and more difficult words or phrases will be shown together with older and less difficult ones. But as you progress, the old information will be shown less and less frequently than the new one. This technique makes sure that the information you learned is well-cemented in your brain before moving on to new concepts.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Lexical coverage: focus on the most common words
@@ -58,10 +58,10 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
 ![lexical coverage](https://edge.mondly.com/blog/wp-content/uploads/2021/10/lexical-coverage-960x761.png "The Learning Method Behind Mondly 5")
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lexical coverage overview
@@ -76,10 +76,10 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Take Mondly for a test drive
@@ -107,21 +107,24 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-easy-youtube-introduction-design-tips-and-tricks/"><u>2024 Approved Easy YouTube Introduction Design Tips and Tricks</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/best-ways-on-how-to-unlockbypassswiperemove-poco-x5-pro-fingerprint-lock-by-drfone-android/"><u>Best Ways on How to Unlock/Bypass/Swipe/Remove Poco X5 Pro Fingerprint Lock</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/break-the-ice-with-indonesian-social-phrases/"><u>Break the Ice with Indonesian Social Phrases</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discovering-indonesian-chit-chat-starts-here/"><u>Discovering Indonesian Chit-Chat Starts Here</u></a></li>
-<li><a href="https://win-able.techidaily.com/elevate-your-horizon-zero-dawn-adventure-how-to-achieve-higher-fps-rates-effortlessly/"><u>Elevate Your Horizon Zero Dawn Adventure: How to Achieve Higher FPS Rates Effortlessly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embrace-uks-colloquialisms-a-slang-guidebook/"><u>Embrace UK's Colloquialisms: A Slang Guidebook</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/free-electronic-signatures-for-word-2021-by-ldigisigner-sign-a-word-sign-a-word/"><u>Free electronic signatures for Word 2021</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-troubleshooting-error-connecting-to-the-apple-id-server-from-iphone-12-mini-by-drfone-ios/"><u>In 2024, Troubleshooting Error Connecting to the Apple ID Server From iPhone 12 mini</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-infinix-smart-8-hd-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For Infinix Smart 8 HD Phones</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/navigate-a-2023-hack-steps-to-regain-fb-access-for-2024/"><u>Navigate a 2023 Hack Steps to Regain FB Access for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/proficiency-in-global-communication-german-or-french/"><u>Proficiency in Global Communication: German Or French?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-swift-polsk-learners-handbook/"><u>The Swift Polsk Learner's Handbook</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-top-10-italian-greetings-how-to-say-hello-in-italian/"><u>The Top 10 Italian Greetings: How To Say Hello In Italian</u></a></li>
-<li><a href="https://media-tips.techidaily.com/top-10-gif-generators-ranked-discover-the-best-applications-for-making-engaging-animated-images/"><u>Top 10 GIF Generators Ranked: Discover the Best Applications for Making Engaging Animated Images</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/troubleshooting-unavailable-display-modes/"><u>Troubleshooting Unavailable Display Modes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-french-skills-from-your-living-room/"><u>Unlock French Skills From Your Living Room</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-blend-soundscape-into-ppt-narratives/"><u>[New] 2024 Approved Blend Soundscape Into PPT Narratives</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-epic-recordings-the-best-timelapse-software/"><u>[Updated] Epic Recordings The Best Timelapse Software</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/expert-guidance-fixing-the-notorious-crashes-of-fifa-manager-2021-on-personal-computers/"><u>Expert Guidance: Fixing the Notorious Crashes of FIFA Manager 2021 on Personal Computers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-chatter-cheat-sheet-easy-languages-compendium/"><u>Global Chatter Cheat Sheet: Easy Languages Compendium</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-realme-narzo-n53-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Realme Narzo N53 | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/impressive-initiations-podcasting-prose-poems-for-2024/"><u>Impressive Initiations Podcasting Prose Poems for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-5-ways-to-track-samsung-galaxy-s23plus-without-app-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Ways to Track Samsung Galaxy S23+ without App | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-from-flat-to-360-comparing-googles-cardboard-and-samsungs-gear/"><u>In 2024, From Flat to 360 Comparing Google's Cardboard & Samsung's Gear</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-the-essential-guide-to-15-top-instagram-downloader-apps/"><u>In 2024, The Essential Guide to 15 Top Instagram Downloader Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/kickoff-2023-on-a-high-note-enjoy-free-mondly-pro-for-life/"><u>Kickoff 2023 on a High Note, Enjoy Free Mondly Pro for Life</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-the-romantic-lexicon-of-hungarian/"><u>Learning the Romantic Lexicon of Hungarian</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-the-lifelong-education-platform-now-with-70-million-members/"><u>Mondly: The Lifelong Education Platform Now With 70 Million Members</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-latvian-lessons-for-efficient-learning/"><u>Quick Latvian Lessons for Efficient Learning</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/sim-unlock-oppo-f23-5g-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>Sim Unlock Oppo F23 5G Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/simple-steps-to-chatting-with-a-chinese-friend/"><u>Simple Steps to Chatting with a Chinese Friend</u></a></li>
+<li><a href="https://extra-information.techidaily.com/strategies-for-secure-unmarked-photography-procurement/"><u>Strategies for Secure, Unmarked Photography Procurement</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tagalog-unlocked-quick-lessons-for-busy-lives/"><u>Tagalog Unlocked - Quick Lessons for Busy Lives</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-british-lingo-book-saying-it-right/"><u>The British Lingo Book: Saying It Right</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vocabulinas-the-top-ten-arguments-for-language-learning/"><u>Vocabulinas: The Top Ten Arguments for Language Learning</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "German Weekdays: Eine Sprachübung"
-date: 2024-09-05T04:37:56.583Z
-updated: 2024-09-06T04:37:56.583Z
+date: 2024-09-24T16:54:06.478Z
+updated: 2024-10-01T18:49:25.136Z
 tags:
   - speak
   - english
@@ -14,24 +14,12 @@ keywords: Sprachübung Für Deutsche,Kurs Deutsche Sprache,Gemeinsame Deutsche W
 thumbnail: https://thmb.techidaily.com/6c8487e0b404251fb12aeaebde28154ddd618ecb4b5d51b0cd4522eee48c4e1f.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## German Weekdays: Eine Sprachübung
 
  If someone asks_welchen Wochentag haben wir heute?_ (“which day of the week do we have today?”), what do you answer? The days of the week are probably one of the first things you learn not just in German but in any language. As a toddler, you probably started with “mom”, “dad”, “hello”, and “thank you”, then you probably advanced to counting, colors, and, naturally, the days of the week. So, if you are on your way to [learning German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , the days of the week in German are surely a good starting point.
 
  If you think about it, the_Tage_ (days) of the_Woche_ (week) is one of the most basic and important language lessons. Simply knowing these seven short words will help you set up meetings, and dates and create a weekly agenda that will decide your every social and professional move. After all, our entire life revolves around the concept of time and the many ways we keep track of it: seconds, minutes, hours, days, weeks, months, years, and so on. So let’s help you get started and see which are the weekdays in German.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The days of the week in German
 
 To go straight to the point, the days of the week in German are:
@@ -54,18 +42,6 @@ _**Mittwoch**_ , the only German weekday that doesn’t end in_tag_ , simply mea
 
 ![days of the week in German](https://edge.mondly.com/blog/wp-content/uploads/2020/08/days-of-the-week-in-german-960x960.jpg "Learn The Days Of The Week In German 2")
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  The days of the week in German
 
 **“Thursday”** which is_**Donnerstag**_ in German literally means “thunder’s day”. The day was originally named after Thor, the super awesome Norse god Marvel made famous. In German-speaking cultures, Thor was known as Donar so this is where_Donnerstag_ comes from. Obviously, the English word “Thursday” comes from “Thor’s day”.
@@ -79,17 +55,12 @@ _**Mittwoch**_ , the only German weekday that doesn’t end in_tag_ , simply mea
  As you can see, the German days of the week are very similar to English, so you shouldn’t have a hard time remembering them. But, if you do, you can always [get Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5415&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5415?mother%5Flang=en%5Fus?target%5Flang=de&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5415?mother%5Flang=en%5Fus?target%5Flang=de) , the award-winning language learning app that brings together crystal clear audios recorded by fluent voice actors, real conversations, and practical topics to make [German easy to learn](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5415&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5415?mother%5Flang=en%5Fus?target%5Flang=de&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5415?mother%5Flang=en%5Fus?target%5Flang=de) .
 
 <!-- affiliate ads begin -->
-<span id="1542129">
-					<video width="864" height="1152" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to use the German days of the week correctly
 
  If you want to get things even further, here are some basic rules to make sure you’ll use the German days of the week correctly in any situation.
@@ -121,8 +92,6 @@ _**Mittwoch**_ , the only German weekday that doesn’t end in_tag_ , simply mea
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -130,4 +99,23 @@ _**Mittwoch**_ , the only German weekday that doesn’t end in_tag_ , simply mea
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-introduction/"><u>[New] Introduction</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-snapchats-best-practices-for-image-and-video-zooming/"><u>[New] Snapchat's Best Practices for Image and Video Zooming</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/advanced-tips-for-animation-using-windows-movie-maker-for-2024/"><u>Advanced Tips for Animation Using Windows Movie Maker for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/begin-latin-mastery-at-your-fingertips-online/"><u>Begin Latin Mastery at Your Fingertips Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/belgiums-communication-tapestry-unveiled/"><u>Belgium's Communication Tapestry Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conocer-los-nombres-de-animales-hispanohablantes/"><u>Conocer Los Nombres De Animales Hispanohablantes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580036957-embark-on-a-new-language-expedition/"><u>Embark on a New Language Expedition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/empower-yourself-with-japan-education-for-free/"><u>Empower Yourself with Japan Education, For Free</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/essential-10-hd-android-video-player-apps-list/"><u>Essential 10 HD Android Video Player Apps List</u></a></li>
+<li><a href="https://driver-download.techidaily.com/free-download-for-brother-hl-l2380dw-dual-laser-all-in-one-printer-windows-compatible/"><u>Free Download for Brother HL-L2380DW Dual Laser All-in-One Printer - Windows Compatible</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579183296-germans-premier-learning-portal-mondly-emerges-victorious/"><u>German's Premier Learning Portal - Mondly Emerges Victorious!</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-how-to-master-real-time-video-sharing-on-facebook/"><u>In 2024, How to Master Real-Time Video Sharing on Facebook</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-introduction-to-kinetic-graphic-principles/"><u>In 2024, Introduction to Kinetic Graphic Principles</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/push-the-boundaries-of-snapchat-choose-from-these-best-edits/"><u>Push the Boundaries of Snapchat Choose From These Best Edits</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581512791-revolutionize-your-year-with-unlimited-lifetime-access-to-mondly-premium-at-no-cost/"><u>Revolutionize Your Year with Unlimited Lifetime Access to Mondly Premium at No Cost!</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/bes-first-visual-hook-creating-personalized-thumbnails/"><u>YouTube's First Visual Hook Creating Personalized Thumbnails</u></a></li>
+</ul></div>
 

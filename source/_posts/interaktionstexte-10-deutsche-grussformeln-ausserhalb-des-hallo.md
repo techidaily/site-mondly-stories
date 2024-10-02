@@ -1,7 +1,7 @@
 ---
 title: "Interaktionstexte: 10 Deutsche Grußformeln Außerhalb Des 'Hallo'"
-date: 2024-09-24T19:13:14.065Z
-updated: 2024-09-26T20:57:00.896Z
+date: 2024-09-26T21:08:39.819Z
+updated: 2024-10-01T20:47:35.848Z
 tags:
   - speak
   - english
@@ -28,6 +28,19 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 
  First, some good news! As it turns out, Germans use_hi_ too. Careful though: as you already know,_hi_ is more informal than_hallo_ so you should keep this one between friends.
 
+<!-- affiliate ads begin -->
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Hallöchen – ‘Hello’ (lit. ‘little hello’)
 
  If you want to avoid repetition and diversify your vocabulary, you can also say_hallöchen,_ which is literally a ‘little hello’. It’s best to use_hallöchen_ to greet… whoever says German is a harsh language 🤭.
@@ -35,6 +48,13 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
  Kidding, but you did get the point. This tiny, little hello is reserved for very informal situations.
 
  Since we’re discussing diminutives, let’s also mention that_tschüss_ (‘bye’) can become_tschüssi_ . How cute!
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. Guten Tag – “Hello” or “Good day”
 
@@ -52,13 +72,6 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 * _Tag!_
 * _Abend!_
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4\. Wie geht es dir? – “How’s it going?”
 
  Don’t we all sometimes throw in a “how are you” instead of “hello” just to mix things up? Well, Germans do the same.
@@ -66,13 +79,6 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
  Literally meaning “how does it go to you?”,_wie geht es dir?_ is an informal way of asking your friend how are things going. If you want to move up the formality scale, you can use the formal_wie geht es Ihnen_ ._Dir_ and_Ihnen_ both mean ‘you’, but unlike English, German uses formal and informal pronouns.
 
  If you want to be as word-efficient as a native, you can also just say the shortened_wie geht’s?_ version.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 5\. Alles klar? – “Everything alright?”
 
@@ -92,13 +98,6 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 
  Now that you have enough greetings to get by in the entire German-speaking world, it’s time to get into specifics. These next greetings are generally used in just a few regions.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. Na – “Hey, how are you?”
 
  Ok, here’s a tough one._Na_ literally means ‘well!’ in German, but as a greeting, it’s used like a contracted way of saying “hi, how are you doing?”. What’s more,_na_ can even be used as an answer to the greeting:
@@ -116,6 +115,13 @@ _– Na._ (“Fine. Thanks!”)
 
 **Localization:** mostly northern Germany.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Moin moin – “Hi”
 
  The ‘harsh’ German language strikes again. Imagine you’re in Hamburg and people are cheerfully saying_moin_ or_moin moin_ or even_moinsten_ to you. What do you do? You say_moin_ back, of course!
@@ -125,10 +131,10 @@ _– Na._ (“Fine. Thanks!”)
 **Localization:** northern Germany, especially in and around Hamburg.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Grüezi – “Hello”
@@ -193,22 +199,16 @@ _Tschüss!_ (‘Goodbye!’)
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-effective-strategies-for-exporting-photos-from-your-device-to-snapchat/"><u>[New] 2024 Approved Effective Strategies for Exporting Photos From Your Device to Snapchat</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-experience-transformative-text-design-with-these-leading-platforms/"><u>[New] Experience Transformative Text Design with These Leading Platforms</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-entering-income-territory-with-a-thousand-followers/"><u>[Updated] 2024 Approved Entering Income Territory with a Thousand Followers</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-the-art-of-xbox-playback-tips-for-clear-video-for-2024/"><u>[Updated] The Art of Xbox Playback Tips for Clear Video for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-top-fun-girl-games-for-kids-for-2024/"><u>[Updated] Top Fun Girl Games for Kids for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-vivo-y100-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On Vivo Y100 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/access-all-nba-games-effortlessly-top-15-streaming-methods-for-2024/"><u>Access All NBA Games Effortlessly Top 15 Streaming Methods for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/celebration-of-1500-accessible-lessons/"><u>Celebration of 1,500 Accessible Lessons</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ciclo-semanal-en-espanol-entendiendo-los-diez-nombres-desde-martes-a-domingo/"><u>Ciclo Semanal en Español: Entendiendo Los Diez Nombres Desde Martes a Domingo</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dissecting-brazilian-and-european-portoguese-buttons/"><u>Dissecting Brazilian and European Portoguese Buttons</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/echoes-of-elation-international-independence-day/"><u>Echoes of Elation: International Independence Day</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-catalyze-viewers-interest-tutorial-for-traffic-triumphs/"><u>In 2024, Catalyze Viewers' Interest Tutorial for Traffic Triumphs</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/liberating-education-mondly-lends-hands-in-ukrainian-linguistics/"><u>Liberating Education: Mondly Lends Hands in Ukrainian Linguistics</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-german-gratitude-the-most-commonly-used-expressions/"><u>Mastering German Gratitude: The Most Commonly Used Expressions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/saudacoes-portuguesas-as-frases-de-olho-neutro-em-pt/"><u>Saudações Portuguesas - As Frases De Olho Neutro Em PT</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-new-communication-abilities-at-age-50plus/"><u>Unlock New Communication Abilities at Age 50+</u></a></li>
-<li><a href="https://techidaily.com/use-device-manager-to-update-your-drivers-in-windows-11-and-10-and-7-by-drivereasy-guide/"><u>Use Device Manager to update your drivers in Windows 11 & 10 & 7</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-perfecting-fading-audio-tracks-through-audacitys-tools/"><u>[New] Perfecting Fading Audio Tracks Through Audacity's Tools</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-affordable-high-definition-top-mirrorless-cameras-(1k/"><u>[Updated] Affordable High-Definition Top Mirrorless Cameras (<$1K)</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-binge-on-savings-top-tiktok-items-now-at-bargain-prices-on-amazon/"><u>[Updated] Binge on Savings Top TikTok Items Now at Bargain Prices on Amazon</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-in-2024-deciphering-the-twitter-archive-a-beginners-tutorial/"><u>[Updated] In 2024, Deciphering the Twitter Archive A Beginner's Tutorial</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-mastering-skype-calls-on-pc-and-mac-free-vs-paid-recording-tips/"><u>2024 Approved Mastering Skype Calls on PC & Mac Free vs Paid Recording Tips</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-how-to-convert-twitter-videos-to-gifs/"><u>In 2024, How To Convert Twitter Videos To GIFS?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/informal-lingo-unveiled-definitions-of-everyday-terms/"><u>Informal Lingo Unveiled: Definitions of Everyday Terms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lexiconvr-the-new-era-of-learning-languages/"><u>LexiconVR: The New Era of Learning Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/modern-classroom-essentials-top-5-linguistic-tools/"><u>Modern Classroom Essentials: Top 5 Linguistic Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-sea-slang-the-ultimate-pirate-lexicon/"><u>Navigating Sea Slang: The Ultimate Pirate Lexicon</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/yarrr-phrases-for-true-buccaneers/"><u>Yarrr! Phrases for True Buccaneers</u></a></li>
 </ul></div>
 

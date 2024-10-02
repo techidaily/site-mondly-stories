@@ -1,7 +1,7 @@
 ---
 title: "Ukrainian And Russian: How Similar Are These Two Slavic Languages?"
-date: 2024-09-24T21:19:40.031Z
-updated: 2024-09-26T17:58:12.969Z
+date: 2024-09-29T23:09:23.556Z
+updated: 2024-10-01T18:26:15.673Z
 tags:
   - speak
   - english
@@ -33,6 +33,13 @@ thumbnail: https://thmb.techidaily.com/7ad836b78743150f7926162559e15271095acf4f6
  First, you should know that [Ukrainian](https://www.britannica.com/topic/Ukrainian-language) , the same as Russian, is an East Slavic language of the Indo-European language family. Its origins can be traced back to the Old East Slavic language used in Kievan Rus between the 10th and the 13th century. After the fall of the Kievan Rus, the language developed into what was called the Ruthenian language. Along with it, in the territory of modern Ukraine, the Kyiv version of Church Slavonic was also used in liturgical services.
 
  From here on, there are several theories regarding the development of the Ukrainian language and its divergence from Russian, but what’s most important is that their common ancestor, Old East Slavic, spanned a territory hundreds of kilometers wide. Considering how other languages came to be and how much migration influences the process, it’s obvious that the separation happened gradually.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### The development of the Ukrainian language after the 13th century
 
@@ -71,21 +78,22 @@ thumbnail: https://thmb.techidaily.com/7ad836b78743150f7926162559e15271095acf4f6
 
 !['Russian language' by Dimitry B©](https://edge.mondly.com/blog/wp-content/uploads/2022/03/russian-language-960x639.jpg "Ukrainian And Russian: How Similar Are These Two Languages? 5")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Since most Ukrainian speakers also speak Russian or have extensive exposure to it, ‘asymmetric intelligibility’ is the best term to describe the relationship between the two languages. In other words, Ukrainian speakers can often understand Russian, while Russian speaker doesn’t understand Ukrainian, especially Russian speakers from outside Ukraine.
 
  However, all three languages – Ukrainian, Russian and Belarusian – are in part mutually intelligible, and already knowing one can help a lot if you want to learn one of the others.
 
 <!-- affiliate ads begin -->
-<span id="1899850">
-					<video width="486" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
+  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How different are Ukrainian and Russian?
@@ -95,13 +103,6 @@ thumbnail: https://thmb.techidaily.com/7ad836b78743150f7926162559e15271095acf4f6
 ### Alphabet
 
  Both Ukrainian and Russian use the 33-letter [Cyrillic alphabet](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , but there are four letters in Ukrainian missing from Russian (ґ, є, і, ї), and four letters in Russian missing from Ukrainian (ё, ъ, ы, э).
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Vocabulary
 
@@ -124,10 +125,16 @@ thumbnail: https://thmb.techidaily.com/7ad836b78743150f7926162559e15271095acf4f6
  Showing 1 to 6 of 6 entries
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424533">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Sounds and pronunciation
@@ -140,13 +147,6 @@ thumbnail: https://thmb.techidaily.com/7ad836b78743150f7926162559e15271095acf4f6
 * Ukrainians always pronounce ‘o’ as it is heard whereas Russians pronounce it as \[a\] or an unclear schwa \[ə\] depending on the context;
 * Ukrainian uses more soft consonants compared to Russian;
 * Russian \[ы\] is deeper than Ukrainian \[и\] and Russian \[э\] is more open than Ukrainian \[е\].
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Grammar
 
@@ -198,24 +198,20 @@ thumbnail: https://thmb.techidaily.com/7ad836b78743150f7926162559e15271095acf4f6
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-essential-10-games-comparable-to-grand-theft-auto-v/"><u>[New] 2024 Approved Essential 10 Games Comparable to Grand Theft Auto V</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-essential-guide-utilizing-vimeo-record-for-screen-and-webcam-capture/"><u>[New] Essential Guide Utilizing Vimeo Record for Screen & Webcam Capture</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/outube-producers-favorite-cameras-and-lenses/"><u>[New] YouTube Producers' Favorite Cameras & Lenses</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-youtubes-high-stakes-hardware-showdown/"><u>[New] YouTube’s High-Stakes Hardware Showdown</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-flip-the-script-instagrams-video-trick/"><u>[Updated] Flip the Script Instagram's Video Trick</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-snapshot-sophistication-editing-to-dazzle-for-2024/"><u>[Updated] Snapshot Sophistication Editing to Dazzle for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/app-driven-romanian-local-insights-inside/"><u>App-Driven Romanian: Local Insights Inside</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bridging-communication-gaps-across-africa/"><u>Bridging Communication Gaps Across Africa</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dive-into-romanian-with-local-insight/"><u>Dive Into Romanian with Local Insight</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embrace-passion-italys-romantic-flirtations/"><u>Embrace Passion: Italy's Romantic Flirtations</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/german-speak-like-a-pro-the-top-25-essential-idioms-list/"><u>German Speak Like a Pro: The Top 25 Essential Idioms List</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-infinix-smart-7-device-by-drfone-android/"><u>In 2024, What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Infinix Smart 7 Device</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-updates-support-with-a-fresh-faq-section/"><u>Mondly Updates Support with a Fresh FAQ Section</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/pivoting-passions-into-profits-your-vlogs-revenue-roadmap/"><u>Pivoting Passions Into Profits Your Vlog's Revenue Roadmap</u></a></li>
-<li><a href="https://blog-min.techidaily.com/reach-out-to-artistry-explore-innovative-graphic-solutions-on-digiatrys-portal/"><u>Reach Out to Artistry: Explore Innovative Graphic Solutions on Digiatry's Portal</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-swashbuckling-lexicon-unveiled/"><u>The Swashbuckling Lexicon Unveiled</u></a></li>
-<li><a href="https://program-issues.techidaily.com/troubleshooting-guide-fixing-black-ops-cold-war-error-code-0xc0000005/"><u>Troubleshooting Guide: Fixing Black Ops Cold War Error Code 0xC0000005</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unveiling-the-usage-shift-por-que-vs-por-que/"><u>Unveiling the Usage Shift: Por Que vs Por Qué</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/vocal-variety-via-verse-harmonizing-education-with-hymns/"><u>Vocal Variety Via Verse: Harmonizing Education with Hymns</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-capturing-motion-in-4k-with-nikon-d500/"><u>[New] 2024 Approved Capturing Motion in 4K with Nikon D500</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyy-unveils-new-web-application-for-scanning-and-organizing-business-cards-in-the-cloud/"><u>ABBYY Unveils New Web Application for Scanning and Organizing Business Cards in the Cloud</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/comprehensive-troubleshooting-steps-for-computer-speaker-problems/"><u>Comprehensive Troubleshooting Steps for Computer Speaker Problems</u></a></li>
+<li><a href="https://techtrends.techidaily.com/download-asus-aura-lighting-and-gaming-software-compatible-with-windows-11/"><u>Download ASUS AURA Lighting & Gaming Software Compatible with Windows 11</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-7-ways-to-lock-apps-on-iphone-14-pro-max-and-ipad-securely-by-drfone-ios/"><u>In 2024, 7 Ways to Lock Apps on iPhone 14 Pro Max and iPad Securely</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-oppo-a38-location-by-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Oppo A38 Location by Number | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-vivo-y78plus-drfone-by-drfone-virtual-android/"><u>In 2024, How to Watch Hulu Outside US On Vivo Y78+ | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/iniciar-conversaciones-frescas-con-los-colores/"><u>Iniciar Conversaciones Frescas Con Los Colores</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/map-all-nations-with-latin-roots/"><u>Map: All Nations with Latin Roots</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolving-class-registration-issues-in-windows-11/"><u>Resolving Class Registration Issues in Windows 11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sign-up-now-enjoy-96-off-on-lifetime-mondly-access/"><u>Sign Up Now, Enjoy 96% OFF on Lifetime Mondly Access!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-latvian-like-a-pro-master-in-just-under-an-hour/"><u>Speak Latvian Like a Pro: Master in Just Under an Hour</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-english-second-language-acquisition/"><u>The Art of English Second Language Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-jargon-jungle-navigating-todays-casual-speech/"><u>The Jargon Jungle: Navigating Today's Casual Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transparency-boost-tandc-revisions-explained/"><u>Transparency Boost: T&C Revisions Explained</u></a></li>
 </ul></div>
 

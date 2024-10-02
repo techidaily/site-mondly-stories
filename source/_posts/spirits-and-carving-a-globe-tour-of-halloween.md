@@ -1,7 +1,7 @@
 ---
 title: "Spirits and Carving: A Globe Tour of Halloween"
-date: 2024-09-24T16:28:22.453Z
-updated: 2024-09-26T19:47:01.575Z
+date: 2024-09-27T22:26:00.390Z
+updated: 2024-10-01T19:11:35.237Z
 tags:
   - speak
   - english
@@ -27,10 +27,10 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
 ## Halloween-like Traditions Worldwide
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Mexico: Día de Muertos (Day of the Dead)
@@ -41,23 +41,9 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
 
 ![Colorful ofrendas and calaveras during Día de Muertos in Mexico](https://edge.mondly.com/blog/wp-content/uploads/2019/09/dia-de-muertos-960x639.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 6")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “Calaveras” by Valeria Almaraz©
 
  As you probably already know, the main symbols of [_Día de Muertos_](https://ich.unesco.org/en/RL/indigenous-festivity-dedicated-to-the-dead-00054) are [_ofrendas_](https://en.wikipedia.org/wiki/Ofrenda) (altars),[_calaveras_](https://en.wikipedia.org/wiki/Calavera) (representations of a human skull often applied to edible or decorative skulls) and people wearing the colorful_calaveras_ makeup known all over the world. During the Day of the Dead, families will visit the graves of their loved ones and bring gifts and the favorite foods and beverages of the departed.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### China: The Hungry Ghost Festival
 
@@ -66,6 +52,13 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
  Celebrated yearly during the seventh month in the lunar calendar (September, also known as the Ghost Month) with a peak on the 15th day (also known as Ghost Day), one of the most interesting traditions of the Hungry Ghost Festival is serving meals (often vegetarian) with empty seats for each deceased in the family and treating the deceased as if they are still living.
 
 ![Traditional practices during the Hungry Ghost Festival in China](https://edge.mondly.com/blog/wp-content/uploads/2019/09/9609227445_5a2c7c2f90_o-960x640.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 7")
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  “The Hungry Ghost Festival” by Matthew Kang©
 
@@ -85,28 +78,35 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
 
 ![halloween in different countries](https://edge.mondly.com/blog/wp-content/uploads/2019/09/neonbrand-A59lWOrZVnw-unsplash-1024x682.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 8")
 
+<!-- affiliate ads begin -->
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  “Halloween party” by NeONBRAND©
 
  Contrary to what you may believe, pumpkins and asking for candy and gifts are traditions of the past that were popular in many Italian regions before the American Halloween became so notorious.
-
-<!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Romania: Saint Andrew’s Day
 
  Thanks to Dracula, Romania is now one of the most well-known Halloween destinations. Everyone dreams of partying at Dracula’s Castle. In reality, both Catholic and Orthodox churches in Romania discourage Halloween celebrations. Instead, they advocate for the celebrations of the Day of the Dead on 1 November, when special religious ceremonies are held for the souls of the deceased.
 
 ![dracula's castle](https://edge.mondly.com/blog/wp-content/uploads/2019/09/draculas-castle-1024x682.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 9")
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  “Dracula’s Castle in Romania” by Nomadic Julien©
 
@@ -150,21 +150,22 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-easy-effective-and-accurate-method-to-download-fb-gifs-anywhere/"><u>[New] In 2024, Easy, Effective and Accurate Method to Download FB GIFs Anywhere</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-selecting-the-finest-screen-recorders-1-to-5-android-for-2024/"><u>[Updated] Selecting the Finest Screen Recorders, #1 to #5 (Android) for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-unlocking-the-potential-of-your-footage-uploading-4k-content-to-youtube/"><u>[Updated] Unlocking the Potential of Your Footage Uploading 4K Content to YouTube</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/breaking-the-age-barrier-for-language-learners/"><u>Breaking the Age Barrier for Language Learners</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/climb-the-fame-hierarchy-on-instagram-discovering-9-game-changing-tips-for-2024/"><u>Climb the Fame Hierarchy on Instagram Discovering #9 Game-Changing Tips for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/fixes-for-when-google-chrome-fails-to-start-up/"><u>Fixes for When Google Chrome Fails to Start Up</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/forsok-till-svensk-grev-att-gora/"><u>Försök Till Svensk: Grev Att Göra</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-google-chrome-from-tracking-your-location-on-zte-blade-a73-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Google Chrome from Tracking Your Location On ZTE Blade A73 5G? | Dr.fone</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-ultimate-free-screen-cast-tools-for-windows-ranked-1-5/"><u>In 2024, Ultimate Free Screen Cast Tools for Windows, Ranked #1-5</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/macau-a-linguistic-kaleidoscope/"><u>Macau: A Linguistic Kaleidoscope</u></a></li>
-<li><a href="https://dvd-bd.techidaily.com/multi-file-converter-merge-videos-into-single-iso-format/"><u>Multi-File Converter: Merge Videos Into Single ISO Format</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/navigate-through-tech-specs-masterclass-tutorials-by-toms-hardware-experts/"><u>Navigate Through Tech Specs: Masterclass Tutorials by Tom's Hardware Experts</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pasos-faciles-para-entender-la-hora-digital/"><u>Pasos Fáciles Para Entender La Hora Digital</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/simplifying-spanish-verb-forms-and-tenses/"><u>Simplifying Spanish Verb Forms & Tenses</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-power-of-two-tongues-essential-bilingual-gains/"><u>The Power of Two Tongues: Essential Bilingual Gains</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/vielschichtigkeit-der-sprache-deutsche-begrussungen-die-nicht-hallo-lauten/"><u>Vielschichtigkeit Der Sprache: Deutsche Begrüßungen, Die Nicht Hallo Lauten</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-free-effortless-mp3-downloads-from-youtube-videos/"><u>[New] 2024 Approved Free, Effortless MP3 Downloads From YouTube Videos</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-discovery-finding-soundtracks-that-elevate-unboxing-content-for-2024/"><u>[Updated] Discovery Finding Soundtracks that Elevate Unboxing Content for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-strategy-unveiled-masterful-box-opening-tactics/"><u>[Updated] In 2024, Strategy Unveiled Masterful Box-Opening Tactics</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-tailor-videos-to-instagrams-preferred-format/"><u>[Updated] Tailor Videos to Instagram's Preferred Format</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-definitive-10-screenshot-boosters-with-stickers-on-iphones-and-androids/"><u>2024 Approved The Definitive 10 Screenshot Boosters with Stickers on iPhones & Androids</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hone-your-tagalog-skills-in-just-15-minutes-daily/"><u>Hone Your Tagalog Skills in Just 15 Minutes Daily</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/iphone-hacks-listen-deep-to-your-podcasts/"><u>IPhone Hacks Listen Deep to Your Podcasts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/korean-weekday-translations-a-simple-handbook/"><u>Korean Weekday Translations: A Simple Handbook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-the-art-of-cooking-essential-techniques-for-aspiring-cuisine-enthusiasts/"><u>Mastering the Art of Cooking: Essential Techniques for Aspiring Cuisine Enthusiasts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/melodic-multitasking-efficient-language-acquisition-through-song/"><u>Melodic Multitasking: Efficient Language Acquisition Through Song</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/social-connection-in-multilingualism-top-four-benefits-for-adults-learning-a-new-language/"><u>Social Connection in Multilingualism: Top Four Benefits for Adults Learning a New Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sorgfaltige-beilagen-in-deutsch-aussprechen/"><u>Sorgfältige Beilagen in Deutsch Aussprechen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tender-translations-french-cinemas-romance/"><u>Tender Translations: French Cinema's Romance</u></a></li>
+<li><a href="https://location-social.techidaily.com/top-7-skype-hacker-to-hack-any-skype-account-on-your-motorola-g54-5g-drfone-by-drfone-virtual-android/"><u>Top 7 Skype Hacker to Hack Any Skype Account On your Motorola G54 5G | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshoot-and-repair-minecraft-launcher-error-code-0x803f8001-on-windows-1110-systems-effectively/"><u>Troubleshoot and Repair Minecraft Launcher Error Code 0X803f8001 on Windows 11/10 Systems Effectively</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/ultimate-tutorial-how-to-move-films-from-dvds-directly-into-your-computers-storage-using-windows-and-macos-systems/"><u>Ultimate Tutorial: How to Move Films From DVDs Directly Into Your Computer's Storage Using Windows & macOS Systems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/uniting-worlds-love-without-a-common-tongue/"><u>Uniting Worlds: Love Without a Common Tongue</u></a></li>
 </ul></div>
 

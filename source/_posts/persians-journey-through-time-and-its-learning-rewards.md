@@ -1,7 +1,7 @@
 ---
 title: Persian's Journey Through Time & Its Learning Rewards
-date: 2024-09-01T00:30:38.475Z
-updated: 2024-09-02T00:30:38.475Z
+date: 2024-09-29T00:03:04.793Z
+updated: 2024-10-01T22:49:51.987Z
 tags:
   - speak
   - english
@@ -37,8 +37,12 @@ thumbnail: https://thmb.techidaily.com/0cc7e321d1f451639d7bc59d3e2137f7bee3ef2e1
  Old Persian then developed into**Middle Persian,** which existed from around 300 BCE until 800 CE. Evidence of Middle Persian exists mainly in the religious texts of the Zoroastrian religion. However, **Middle Persian entered a new stage when the Islamic conquest in 651 AD happened.** The following 200 years are referred to as “the two centuries of silence” because there is very little to almost no literature available from this time period.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### The Arab rule
 
  It seems that during the Muslim conquest of Persia, the Persian language was in danger of being lost and replaced by Arabic. Luckily, Persia was one of the few places where the Arabic language did not replace the local language. However, Arabic was used by the elite and it definitely had a big impact on the vocabulary of the**Modern Persian** that was emerging.
@@ -47,13 +51,17 @@ thumbnail: https://thmb.techidaily.com/0cc7e321d1f451639d7bc59d3e2137f7bee3ef2e1
 
 !["Ferdowsi Shahnameh" by McGill Library©](https://edge.mondly.com/blog/wp-content/uploads/2022/09/mcgill-library-AH42Li7NKUc-unsplash-960x629.jpg "Persian Language: History &Amp; Benefits Of Learning Farsi/Persian 2")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Persian Literary History: Ferdowsi’s ‘Shahnameh’ — Siyavush in Sudaba’s private quarters.
 
  Today, there still are a significant number of [Arabic words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) in Persian, but not as many as there could have been.
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Persian influence on other languages
 
  During this Persian cultural resurgence, the Persian language and culture impacted a wide geographic area. For this reason, Persian has left its influence on many different languages, including a heavy influence on the [vocabulary of Urdu](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and Turkish. To this day, words of Persian origin can be found as far as Malaysia.
@@ -61,8 +69,12 @@ thumbnail: https://thmb.techidaily.com/0cc7e321d1f451639d7bc59d3e2137f7bee3ef2e1
  As a matter of fact, there are even some English words of Persian origin. Some of them came directly into English from Persian, but most of them came indirectly into English via a different language. Some examples include bronze, jackal, lemon, mogul, mummy, scarlet, serendipity, shawl, tulip, turban, typhoon, khaki, caravan, and paradise. Probably the most interesting borrowing is the word “checkmate,” which comes from the Persian_Shah Mat_ , meaning “the king is dead”.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Persian vs Farsi: Is Farsi the same as Persian?
 
  The short answer is yes, Farsi and Persian are the same language. The confusion comes from the fact that ‘Persian’ is the term used by English speakers and ‘Farsi’ is the term used by Iranian speakers to refer to Persian, the official language of Iran.
@@ -74,8 +86,12 @@ thumbnail: https://thmb.techidaily.com/0cc7e321d1f451639d7bc59d3e2137f7bee3ef2e1
  According to the [Academy of Persian Language and Literature](https://iranicaonline.org/articles/farhangestan) , the endonym ‘Farsi’ should be avoided in foreign languages. Instead, ‘Persian’ should be the appropriate designation in English, as it has the longest tradition in western languages and is better suited to convey the language’s role as a national and cultural continuity symbol.
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Persian vs Arabic: Is Persian similar to Arabic?
 
  Considering their shared history presented above, Persian and Arabic developed to become somehow similar, but not as similar as many think.
@@ -88,9 +104,6 @@ thumbnail: https://thmb.techidaily.com/0cc7e321d1f451639d7bc59d3e2137f7bee3ef2e1
 
  All in all, Persian and Arabic can’t be considered mutually intelligible. A speaker of either Persian or Arabic with no knowledge of the other could recognize some basic words in writing, but conversations are a whole other story.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The benefits of learning Farsi/Persian
 
  If you’re a language learner at heart, you already know that learning any language will broaden your horizons. There’s no such thing as a ‘waste of time’ when you [learn a new language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Be it Persian, Arabic, Urdu or a more popular language such as Spanish or German – all languages are equally important.
@@ -111,9 +124,6 @@ Other benefits of learning Persian include:
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Learn Persian online with Mondly
 
  Are you now ready to learn Persian fast? Try Mondly, the award-winning language app that is serious about making learning Persian fun.
@@ -136,8 +146,6 @@ Other benefits of learning Persian include:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -145,4 +153,21 @@ Other benefits of learning Persian include:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-laughs-lab-innovator-for-2024/"><u>[New] Laughs Lab Innovator for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-simplify-live-streaming-and-archiving-with-vlc-webcam-integration-for-2024/"><u>[New] Simplify Live Streaming and Archiving with VLC Webcam Integration for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-data-safe-and-sound-top-pricing-of-clouds/"><u>[Updated] In 2024, Data Safe & Sound Top Pricing of Clouds</u></a></li>
+<li><a href="https://win11.techidaily.com/addressing-open-failed-error-on-ges-sharing-feature/"><u>Addressing Open Failed Error on GE's Sharing Feature</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expanding-lexicon-through-visual-storytelling/"><u>Expanding Lexicon Through Visual Storytelling</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fluent-english-a-gateway-to-success/"><u>Fluent English: A Gateway to Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-flair-must-know-phrases-to-boost-your-trip-experience/"><u>French Flair: Must-Know Phrases to Boost Your Trip Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-social-grace-understanding-and-using-different-salutations/"><u>French Social Grace: Understanding and Using Different Salutations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/full-list-of-spanish-speaking-countries/"><u>Full List Of Spanish-Speaking Countries</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/guide-switching-language-settings-in-single-android-applications/"><u>Guide: Switching Language Settings in Single Android Applications</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-ispoofer-on-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Realme 12 Pro+ 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-selective-slideshow-software-for-xrxsx-models/"><u>In 2024, Selective Slideshow Software for Xr/XS/X Models</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/is-watching-facebook-on-the-television-set-a-future-possibility-in-2024/"><u>Is Watching Facebook on the Television Set a Future Possibility, In 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/overcoming-content-constraints-s-virtual-world-for-2024/"><u>Overcoming Content Constraints 'S Virtual World for 2024</u></a></li>
+</ul></div>
 

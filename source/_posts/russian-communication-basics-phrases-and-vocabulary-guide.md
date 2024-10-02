@@ -1,7 +1,7 @@
 ---
 title: "Russian Communication Basics: Phrases & Vocabulary Guide"
-date: 2024-09-01T00:32:10.242Z
-updated: 2024-09-02T00:32:10.242Z
+date: 2024-09-27T20:16:18.960Z
+updated: 2024-10-01T20:58:02.180Z
 tags:
   - speak
   - english
@@ -38,9 +38,6 @@ thumbnail: https://thmb.techidaily.com/3681ab3fb1278f9c5e283b2684cc0a6da110630db
 
  If we’re being honest,**здравствуйте** and **Привет** are everything you need when it comes to Russian greetings. If you don’t want to overcrowd your mind, you can stop right here and come back later when you’re ready for more. If you want the full picture of Russian greetings now, let’s continue to discover how Russians say hello to each other.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 2\. Time-specific Russian greetings
 
  Advanced Russian greetings knowledge means you’re ready to greet people depending on the time of day. Like this:
@@ -56,6 +53,13 @@ Good job, you!
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Russian Greetings: Common Phrases And Basic Words 2")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Learn Russian today
 
  Build practical Russian skills for real life with Mondly.
@@ -63,8 +67,12 @@ Good job, you!
 [Start Now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-2406&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2406&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2406&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2406&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-2406%26mt%3D8)
 
 <!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 3\. Additional Russian greetings Russians use
 
  Now onto less popular greetings. Or let’s call them “specialized”. Sounds better, right? These are the kind of “bonus” Russian greetings you use once you feel more comfortable with the language. Because – let’s be honest: not all words are equally important. You have to focus on the most frequently used ones first.
@@ -78,12 +86,12 @@ Good job, you!
 ![hi in russian](https://edge.mondly.com/blog/wp-content/uploads/2018/11/hi-in-russian.jpg "Russian Greetings: Common Phrases And Basic Words 3")
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
 ## 4\. Russian farewells
 
  Goodbyes are just as important as greetings. When you’re taking your leave, you can bid adieu with**До свидания (Do svidaniya)** in Russian, which means “until we see each other again”. Some of the most common Russian farewells include:
@@ -95,8 +103,12 @@ Good job, you!
 * **До скорого (Do skorogo)** – See you soon: It’s a warm farewell, yet rather polite. In practice, it aligns more with “see you” than “see you soon”.
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 5\. Helpful phrases for greetings
 
  Now that you said “hello” in Russian, how will the conversation continue? It’s true that locals, including babushkas (grandmothers), will still shower you with hospitality regardless if you speak Russian or not. However, the following basic phrases will further help you to converse in Russian.
@@ -117,9 +129,6 @@ Good job, you!
 
 ![hello in russian](https://edge.mondly.com/blog/wp-content/uploads/2018/11/hello-in-russian-960x640.jpg "Russian Greetings: Common Phrases And Basic Words 4")
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
  Found this interesting? You might want to learn about the [Russian alphabet](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and the [Russian numbers](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) too.
 
 ## Cultural insights on Russian greetings
@@ -142,6 +151,13 @@ Good job, you!
 ### How do Russians say “hello” and “goodbye”?
 
  Здравствуйте (Zdravstvuyte) is generally used for slightly formal hellos, while Привет (Privyet) is more suitable for casuals settings. The most common way to say “goodbye” in Russian is До свидания (Do svidaniya).
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How can I greet someone respectfully in Russian if I don’t know their name?
 
@@ -172,8 +188,6 @@ Good job, you!
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -181,4 +195,21 @@ Good job, you!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/he-power-of-youtubes-creative-commons-for-videographers/"><u>[New] The Power of YouTube's Creative Commons for Videographers</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-cross-platform-screen-recording/"><u>[Updated] In 2024, Cross-Platform Screen Recording</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-best-practices-for-secure-youtube-mp4-conversion/"><u>2024 Approved Best Practices for Secure YouTube MP4 Conversion</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/advance-your-vimeo-video-speed/"><u>Advance Your Vimeo Video Speed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-to-boosting-performance-on-an-intel-imac/"><u>Comprehensive Guide to Boosting Performance on an Intel iMac</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploracion-exhaustiva-del-cuerpo-humano-en-espanol-desde-la-piel-al-rinon/"><u>Exploración Exhaustiva Del Cuerpo Humano en Español: Desde La Piel Al Riñón</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-multilingualism-in-europe-a-celebration-journey/"><u>Exploring Multilingualism in Europe - A Celebration Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/forties-fluency-the-joy-and-wisdom-found-in-multilingualism/"><u>Forties Fluency: The Joy and Wisdom Found in Multilingualism</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/forty-plus-fluency-unleashing-the-power-of-multilingualism-today/"><u>Forty-Plus Fluency: Unleashing the Power of Multilingualism Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-pronunciation-quick-guide-to-colors/"><u>French Pronunciation Quick Guide to Colors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fundamentos-de-la-hora-en-espanol-para-iniciados/"><u>Fundamentos De La Hora en Español Para Iniciados</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-vivo-y200-drfone-by-drfone-virtual/"><u>In 2024, 9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Vivo Y200 | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-motorola-g24-power-frp-in-3-different-ways-by-drfone-android/"><u>In 2024, How To Bypass Motorola G24 Power FRP In 3 Different Ways</u></a></li>
+<li><a href="https://games-able.techidaily.com/protective-gear-for-your-steam-device/"><u>Protective Gear for Your Steam Device</u></a></li>
+</ul></div>
 

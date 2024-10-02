@@ -1,7 +1,7 @@
 ---
 title: New Privacy Statement Available
-date: 2024-09-09T19:17:27.351Z
-updated: 2024-09-16T19:10:10.175Z
+date: 2024-09-28T16:05:41.527Z
+updated: 2024-10-01T19:02:48.657Z
 tags:
   - speak
   - english
@@ -175,6 +175,13 @@ We use Google, Facebook, TikTok and LinkedIn cookies.
 
 **How does our site handle Do Not Track signals?** Currently, we don’t honor “Do Not Track” signals.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Terms of use – Mondly App
 
 **1\. Scope**
@@ -274,12 +281,21 @@ We use Google, Facebook, TikTok and LinkedIn cookies.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/new-comprehensive-srt-education-and-resources/"><u>[New] Comprehensive SRT Education and Resources</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-gleeful-loginsign-up-step-guide/"><u>[Updated] 2024 Approved Gleeful Login/Sign Up Step Guide</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-apply-stunning-radial-blur-to-enhance-digital-images/"><u>[Updated] Apply Stunning Radial Blur to Enhance Digital Images</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-selecting-perfect-google-pixel-ringers-a-guide/"><u>2024 Approved Selecting Perfect Google Pixel Ringers A Guide</u></a></li>
+<li><a href="https://extra-information.techidaily.com/beijing-winter-olympics-highlights-2022/"><u>Beijing Winter Olympics Highlights 2022</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprendre-les-vaisseaux-du-corps-anatomie-simplifiee-en-francais/"><u>Comprendre Les Vaisseaux Du Corps: Anatomie Simplifiée en Français</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/fixing-wows-catastrophic-glitch-in-windows-11/"><u>Fixing WoW’s Catastrophic Glitch in Windows 11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-journey-to-linguistic-excellence-the-2022-leader/"><u>Mondly’s Journey to Linguistic Excellence - The 2022 Leader</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/propel-business-forward-expertise-in-corporate-discourse-training/"><u>Propel Business Forward: Expertise in Corporate Discourse Training</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rising-sun-talk-exchanging-good-morning-across-cultures/"><u>Rising Sun Talk: Exchanging 'Good Morning' Across Cultures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saghe-numero-italiane-unintroduzione-alla-comunicazione/"><u>Saghe Numero Italiane - Un'Introduzione Alla Comunicazione</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-your-kitchen-skills-top-10-steps-for-gourmet-success/"><u>Transform Your Kitchen Skills: Top 10 Steps for Gourmet Success</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/ultimate-tips-for-perfecting-your-selfies-using-portable-photo-rings/"><u>Ultimate Tips for Perfecting Your Selfies Using Portable Photo Rings</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/unlocking-secrets-the-battle-of-biometric-systems-in-phones/"><u>Unlocking Secrets The Battle of Biometric Systems in Phones</u></a></li>
+</ul></div>
 

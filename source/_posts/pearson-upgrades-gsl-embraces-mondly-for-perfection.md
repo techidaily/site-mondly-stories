@@ -1,7 +1,7 @@
 ---
 title: Pearson Upgrades GSL, Embraces Mondly for Perfection
-date: 2024-09-05T04:37:55.227Z
-updated: 2024-09-06T04:37:55.227Z
+date: 2024-09-30T18:08:44.625Z
+updated: 2024-10-01T23:46:57.736Z
 tags:
   - speak
   - english
@@ -14,12 +14,6 @@ keywords: Pearson Digital Learning Enhancements,GSL Integration in Pearson Cours
 thumbnail: https://thmb.techidaily.com/5d29a63e1845651f830e0124c103033fe9ea8d7a1b11e86673f2ac375d1ce40d.jpeg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Pearson Upgrades GSL, Embraces Mondly for Perfection
 
  As we celebrate the European Day of Languages, it’s the perfect time to spotlight how Mondly by Pearson is committed to groundbreaking innovations in language learning. In line with this commitment, we are taking a major step forward by aligning our educational philosophy with the [Global Scale of Languages (GSL)](https://www.pearson.com/languages/why-pearson/the-global-scale-of-english/the-global-scale-of-languages.html) principles.
@@ -37,11 +31,12 @@ thumbnail: https://thmb.techidaily.com/5d29a63e1845651f830e0124c103033fe9ea8d7a1
  Unlike other frameworks that describe language proficiency in broad bands, the GSE offers a finely-grained scale. It identifies what a learner can accomplish at each point across speaking, listening, reading, and writing skills. This unique approach motivates learners by offering a more detailed view of their progression.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Introducing the Global Scale of Languages (GSL)**
 
 Building on this solid foundation, **Pearson has now introduced the Global Scale of Languages (GSL).**
@@ -51,45 +46,35 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
  By placing languages on a common scale, underpinned by a common set of Learning Objectives, the GSL can ensure comparability across languages to bring greater clarity and simplicity to language learning.
 
 <!-- affiliate ads begin -->
-<span id="1982499">
+<span id="1983545">
 					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **How Pearson created the GSL**
 
  Building on the GSE, our research team at Pearson decided to prove that this scale could also be transferable to other languages. The study’s results were not only encouraging but groundbreaking. The research confirmed that the GSE is directly transferable to other languages, making it possible for Pearson to develop the new GSL framework.
 
 <!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **Why the GSL stands out**
 
 * **Unparalleled insights:**  Going a step beyond traditional language measurement tools like the CEFR, the GSL provides a more detailed understanding of a learner’s skills through extensive global research.
 * **Confidence in clarity:**  The GSL enables learners to pinpoint their strengths in reading, writing, listening, and speaking with a straightforward 10-90 scale. This level of clarity fosters motivation and boosts learners’ confidence.
 * **Personalized learning pathways:**  With clear objectives at each scale point, the GSL ensures a learning journey tailored to individual goals, making progression more efficient.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Why start with French, Spanish, and Italian?**
 
  These three languages, rich in history and culture, have always been popular choices among our learners. We believe that by integrating GSL with these languages first, we can enhance the learning experience for a larger number of our users.
@@ -110,11 +95,12 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **Fast-track your progress with Mondly by Pearson**
 
  Whether you’re passionate about French, Spanish, Italian or English, Mondly now offers an enhanced learning journey backed by the precision of the GSL. Celebrate this European Day of Languages by diving into the world of languages with newfound clarity and insight.
@@ -127,8 +113,6 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -136,4 +120,24 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-becoming-a-trendsetter-youtube-video-tactics/"><u>[New] 2024 Approved Becoming a Trendsetter YouTube Video Tactics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-tribute-to-lifelong-daily-learning/"><u>A Tribute to Lifelong Daily Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/best-practices-in-language-education-software/"><u>Best Practices in Language Education Software</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580797196-europes-vibrant-verbal-tapestry-celebrate-it-today/"><u>Europe's Vibrant Verbal Tapestry – Celebrate It Today!</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/expert-hardware-reviews-by-toms-hardware-experts/"><u>Expert Hardware Reviews by Tom's Hardware Experts</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/fine-tuning-oversized-win11-screen/"><u>Fine-Tuning Oversized Win11 Screen</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-life360-from-tracking-you-on-nokia-c12-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Life360 from Tracking You On Nokia C12? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-honor-magic-6-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Honor Magic 6 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-friendship-starters/"><u>International Friendship Starters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mundo-semanal-en-espanol-no-olvides-desde-martes-hasta-domingo/"><u>Mundo Semanal en Español: No Olvides Desde Martes Hasta Domingo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-era-of-filters-mondly-and-pearson-unite/"><u>New Era of Filters: Mondly and Pearson Unite</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/palabras-comunes-en-ingles-y-espanol-cognados-realizadores/"><u>Palabras Comunes en Inglés Y Español: Cognados Realizadores</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/picks-of-the-best-danish-features-for-lingo-proficiency/"><u>Picks of the Best Danish Features for Lingo Proficiency</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/scanner-activation-restored-for-windows-10-users/"><u>Scanner Activation Restored for Windows 10 Users</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/top-farm-games-for-social-play-with-peers/"><u>Top Farm Games for Social Play with Peers</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/troubleshooting-the-rpcrt4dll-cannot-be-found-message-on-your-pc/"><u>Troubleshooting the 'RPCRT4.DLL Cannot Be Found' Message on Your PC</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-tips-when-applicationexe-stops-working-properly/"><u>Troubleshooting Tips When 'Application.exe' Stops Working Properly</u></a></li>
+</ul></div>
 

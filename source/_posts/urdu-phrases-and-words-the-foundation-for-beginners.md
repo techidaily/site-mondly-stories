@@ -1,7 +1,7 @@
 ---
 title: "Urdu Phrases & Words: The Foundation for Beginners"
-date: 2024-09-13T18:53:35.377Z
-updated: 2024-09-16T16:24:28.191Z
+date: 2024-09-27T23:56:56.016Z
+updated: 2024-10-01T19:51:14.461Z
 tags:
   - speak
   - english
@@ -85,6 +85,13 @@ thumbnail: https://thmb.techidaily.com/83c5660b04b63555c35a3b29a7e2fd7ac8060798e
 * who — _کون (kon)_
 * stop — _رکو (ruko)_
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
+  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The most popular Urdu words searches
 
  While we’re at it, why not also learn some of the most popular words for which people want an Urdu translation? If they are so popular in searches, I’m sure they can also be useful to you on your way to speaking Urdu.
@@ -139,10 +146,10 @@ thumbnail: https://thmb.techidaily.com/83c5660b04b63555c35a3b29a7e2fd7ac8060798e
 * pepper — _مرچ (mirch)_
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128843/7443" target="_top" id="2128843">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128843" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128843/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Urdu words related to body and health
@@ -170,6 +177,13 @@ thumbnail: https://thmb.techidaily.com/83c5660b04b63555c35a3b29a7e2fd7ac8060798e
 * medicine — _دوا (dawa)_
 * pharmacy — _دواخانہ (dawakhana)_
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Urdu words related to transportation and places
 
  While this crash course in Urdu words will get you from zero to beginner in as little as 15 minutes, these words will get you to the other hemisphere if you need it so.
@@ -188,19 +202,6 @@ thumbnail: https://thmb.techidaily.com/83c5660b04b63555c35a3b29a7e2fd7ac8060798e
 * market — _بازار (bazar)_
 
  Now that you’ve mastered some of the most basic Urdu vocabulary words, you can dive into the practical phrases that’ll help you ease into real-world conversations.
-
-<!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## The most common Urdu phrases
 
@@ -234,6 +235,13 @@ thumbnail: https://thmb.techidaily.com/83c5660b04b63555c35a3b29a7e2fd7ac8060798e
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Learn Urdu in just 10 minutes a day
 
  Do you want to see the Urdu words in action? Get Mondly, the award-winning language learning app that will help you speak Urdu from day 1.
@@ -261,5 +269,22 @@ thumbnail: https://thmb.techidaily.com/83c5660b04b63555c35a3b29a7e2fd7ac8060798e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-charting-the-course-of-monetization-for-creator-economy-on-youtubeshorts/"><u>[New] 2024 Approved Charting the Course of Monetization for Creator Economy on YouTubeshorts</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-twitch-revival-tactics-for-forgotten-sessions/"><u>[New] Twitch Revival Tactics for Forgotten Sessions</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-easy-color-techniques-for-professional-outputs/"><u>[Updated] Easy Color Techniques for Professional Outputs</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-elevate-your-fb-campaigns-the-20-premier-video-tactics/"><u>[Updated] Elevate Your FB Campaigns The 20 Premier Video Tactics</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-vivo-s17-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Vivo S17 Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-beginners-guide-to-the-german-pronunciation-and-alphabet/"><u>A Beginner’s Guide To The German Pronunciation & Alphabet</u></a></li>
+<li><a href="https://games-able.techidaily.com/addressing-steam-software-file-recovery-problem/"><u>Addressing Steam Software File Recovery Problem</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apple-enthusiasts-applaud-mondly-for-securing-10-ed-app-status/"><u>Apple Enthusiasts Applaud Mondly for Securing #10 Ed-App Status</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/crafting-expressions-of-love-in-hungarian-vocabulary/"><u>Crafting Expressions of Love in Hungarian Vocabulary</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/elevate-user-engagement-the-ultimate-list-of-9-must-try-chatgpt-plugins-now/"><u>Elevate User Engagement: The Ultimate List of 9 Must-Try ChatGPT Plugins Now</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-pronunciation-basics-for-new-learners/"><u>German Pronunciation Basics for New Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580999287-heres-how-to-say-chocolate-in-34-different-languages/"><u>Here’s How to Say Chocolate in 34 Different Languages</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/quick-fix-guide-resolving-issues-with-pvpnets-stalled-kernel-update/"><u>Quick Fix Guide: Resolving Issues with PvP.net's Stalled Kernel Update</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-rise-of-multilingualism-learn-arabic-and-why-mondlys-online-is-key/"><u>The Rise of Multilingualism? Learn Arabic & Why Mondly's Online Is Key</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tracing-earths-extremely-long-lexical-lineage/"><u>Tracing Earth's Extremely Long Lexical Lineage</u></a></li>
+</ul></div>
 

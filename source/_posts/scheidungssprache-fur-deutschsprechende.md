@@ -1,7 +1,7 @@
 ---
 title: Scheidungssprache Für Deutschsprechende
-date: 2024-09-05T04:37:56.169Z
-updated: 2024-09-06T04:37:56.169Z
+date: 2024-09-26T17:21:49.565Z
+updated: 2024-10-01T21:49:45.297Z
 tags:
   - speak
   - english
@@ -14,12 +14,6 @@ keywords: Scheidungsrecht Deutschland,Deutschsprachige Familiensachenverfahren,D
 thumbnail: https://thmb.techidaily.com/3fa43d6f71cce068e0819f69e55936ad32ff4ea7246067d0e64ce56f240c9081.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Scheidungssprache Für Deutschsprechende
 
  Saying goodbye in German is just as important as [saying hello](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . After all, farewells are just like Thanos: inevitable. Once you’ve started a conversation with the proper greeting, you must also end it in style at some point. So, if you’re ready to say goodbye to your German friends but are not quite sure how to put it, you’ve come to the right place.
@@ -34,12 +28,6 @@ thumbnail: https://thmb.techidaily.com/3fa43d6f71cce068e0819f69e55936ad32ff4ea72
 
  Similarly,_Auf Wiederhören_ can be used at the end of a conversation that took place over the phone. It means “until we hear each other again”.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 2\. Tschüss – ‘Bye’ in German
 
 **_Tschüss_ is the most popular informal goodbye in German.** It’s short, sweet, and casual and you’ll usually hear it used among friends and family.
@@ -49,17 +37,12 @@ thumbnail: https://thmb.techidaily.com/3fa43d6f71cce068e0819f69e55936ad32ff4ea72
  Press play to hear_Tschüss_ in action in a basic conversation in German:
 
 <!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 3\. Schönen Tag (noch) – ‘Have a good day’
 
  Now that you know the most popular ways of saying goodbye in German, it’s time to move on to some variations. These are perfect for those times when you feel like switching from “goodbye” to “see you later” or “have a good day”.
@@ -72,6 +55,13 @@ thumbnail: https://thmb.techidaily.com/3fa43d6f71cce068e0819f69e55936ad32ff4ea72
 
  The more polite version of_Schönen Tag noch_ is_Einen schönen Tag noch_ . It means the same thing, but it is used by someone who wants to sound more formal and respectful.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 5\. Ciao – ‘Bye’
 
  The same as the rest of Europe, Germans borrowed [_Ciao_](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) from the Italians. It’s a nice, friendly and very international way of parting ways with a friend.
@@ -79,37 +69,27 @@ thumbnail: https://thmb.techidaily.com/3fa43d6f71cce068e0819f69e55936ad32ff4ea72
  Just as chic, though not as common, is the French_Adieu_ or_Ade_ .
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 6\. Man sieht sich – ‘See you’
 
  When you didn’t plan a next meeting or get-together and you’re not sure when you are going to see the other person, you can simply say_Man sieht sich_ , which means “see you”.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 7\. Bis bald – ‘See you soon’ in German
 
  However, it’s way more common to take your leave by saying_Bis bald_ , which means “see you soon” in German. For the next three goodbyes, it will be useful to know that_bis_ is the German equivalent of “till”.
 
 <!-- affiliate ads begin -->
-<span id="1983474">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 8\. Bis später – ‘See you later’
 
  If you enjoy getting creative with your goodbyes in German,_Bis später_ is another great option for a casual farewell.
@@ -118,12 +98,6 @@ thumbnail: https://thmb.techidaily.com/3fa43d6f71cce068e0819f69e55936ad32ff4ea72
 
  If you want to say “see you tomorrow”, you guessed it! You will say_Bis morgen_ .
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 9\. Bis Montag – ‘Until Monday’
 
  Also not uncommon is the usage of_bis_ in combination with the [days of the week in German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
@@ -136,35 +110,37 @@ thumbnail: https://thmb.techidaily.com/3fa43d6f71cce068e0819f69e55936ad32ff4ea72
 * _Bis Samstag_ – “Until Saturday”
 * _Bis Sonntag_ – “Until Sunday”
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## basic german words
 
 ![basic german words](https://edge.mondly.com/blog/wp-content/uploads/2022/07/basic-german-words-960x960.png "15 Ways To Say Goodbye In German 2")
+
+<!-- affiliate ads begin -->
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 10\. Gute Nacht – ‘Good night’ in German
 
  Naturally,_Gute Nacht_ (“good night”) is another great way to say goodbye if you’re retiring for the night. Although we use_Guten Morgen_ (“good morning”) as a greeting,_Gute Nacht_ only works as a farewell.
 
-<!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 11\. Bis zum nächsten Mal – ‘See you next time’
 
  If you want to say goodbye to someone you regularly see, like a coworker or a classmate,_Bis zum nächsten Mal_ is the most suitable choice.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 12\. Wir sehen uns dann – ‘See you then’
 
@@ -211,8 +187,6 @@ _Wir sehen uns_ is another nice way to say “see ya later” if you are making 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -220,4 +194,20 @@ _Wir sehen uns_ is another nice way to say “see ya later” if you are making 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-mastering-internet-based-live-audio-capture-5-key-strategies/"><u>[New] 2024 Approved Mastering Internet-Based Live Audio Capture 5 Key Strategies</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-smartphone-face-makeovers-iosandroid-edition/"><u>[Updated] Smartphone Face Makeovers IOS/Android Edition</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-the-strategic-use-of-instagram-story-sections-for-brands/"><u>[Updated] The Strategic Use of Instagram Story Sections for Brands</u></a></li>
+<li><a href="https://windows11.techidaily.com/analyzing-how-windows-11-fuels-microsofts-earnings/"><u>Analyzing How Windows 11 Fuels Microsoft's Earnings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apples-prestigious-top-10-recognizes-mondlys-educational-prowess/"><u>Apple’s Prestigious Top 10 Recognizes Mondly's Educational Prowess</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-cultures-through-loves-languages/"><u>Bridging Cultures Through Love's Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprendiendo-los-botones-para-tiempo-en-aplicaciones/"><u>Comprendiendo Los Botones Para Tiempo en Aplicaciones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/diverse-dialects-finding-a-home-in-eng/"><u>Diverse Dialects Finding a Home in Eng</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-change-lock-screen-wallpaper-on-honor-magic-6-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Honor Magic 6</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/resolved-bypassing-the-fatal-90-freeze-in-phasmophobia-game-tips-and-tricks-for-smoother-play/"><u>Resolved: Bypassing the Fatal 90% Freeze in Phasmophobia Game – Tips & Tricks for Smoother Play</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-ultimate-how-to-for-ifunnys-meme-app-for-2024/"><u>The Ultimate How-To for iFunny's Meme App for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581848107-triple-crown-of-language-mastery-your-gateway-to-fluency/"><u>Triple Crown of Language Mastery: Your Gateway to Fluency!</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-steps-for-fixing-a-crash-in-a-total-war-saga-troy-on-windows/"><u>Troubleshooting Steps for Fixing a Crash in 'A Total War Saga: Troy' On Windows</u></a></li>
+</ul></div>
 

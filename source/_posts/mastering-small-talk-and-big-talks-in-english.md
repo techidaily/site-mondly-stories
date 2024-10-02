@@ -1,7 +1,7 @@
 ---
 title: Mastering Small Talk and Big Talks in English
-date: 2024-09-01T00:30:51.998Z
-updated: 2024-09-02T00:30:51.998Z
+date: 2024-09-27T00:45:53.436Z
+updated: 2024-10-01T18:12:53.906Z
 tags:
   - speak
   - english
@@ -40,29 +40,28 @@ That being said… let’s get you fluent!
 
 ![spoken english conversation](https://edge.mondly.com/blog/wp-content/uploads/2019/02/spoken-english-conversation-1-350x600.jpg "Top 9 Tips And Tricks That Will Help Improve Your Spoken English 3")
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  “The Mondly Chatbot”  
  Spanish with target language English
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 4\. How to learn spoken English the easy way
 
  Speaking is actually the easy way of improving your spoken English. Easy, but at the same time the hard way. If you don’t have the possibility of traveling to an English-speaking country or the good fortune of having an English-speaking friend, this method is not an option for you.
 
  But there is a solution. It may sound a bit creepy, but talking to yourself is the answer in this particular situation. The good ol’ talking to yourself. We all do that from time to time. Why not do it in English? Not necessarily out loud. Use your thoughts. The accent sounds better now in your mind, but in time your actual accent will improve too.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. Practice accent with tongue twisters and songs
 
@@ -82,7 +81,27 @@ That being said… let’s get you fluent!
 
 ![English lessons](https://media.giphy.com/media/cEODGfeOYMRxK/giphy.gif "Top 9 Tips And Tricks That Will Help Improve Your Spoken English 4")
 
+<!-- affiliate ads begin -->
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If the problem is your accent, diction could also help you improve.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 7\. Watch movies and study spoken English conversations
 
@@ -90,34 +109,22 @@ If the problem is your accent, diction could also help you improve.
 
 ![how to learn spoken english](https://edge.mondly.com/blog/wp-content/uploads/2019/02/how-to-learn-spoken-english-1024x682.jpg "Top 9 Tips And Tricks That Will Help Improve Your Spoken English 5")
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  “Scary” by Ludovic Toinel©
 
  From vocabulary to accents and intonation, movies can offer a great deal of information you can use to create your own syllabus and start training. Just choose your list and begin your research! You’ll soon find out that movie dialogues are easily digestible even for an ESL speaker.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 8\. Learn common idioms, sayings, and expressions
 
  This technique is an absolute boost for your**English vocabulary** ! Learning common English sayings and expressions will spice up your conversations and make you fluent fast.
 
  Explore the most exhaustive lists you can find on [common English idioms, sayings, expressions and proverbs](https://takelessons.com/blog/english-idioms) and discover how can you include them in your day-to-day conversations. Your “limited English vocabulary” days will be over in a heartbeat!
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## 9\. Organize spoken English classes with your friends
 
  This scenario does not apply to everyone. But even if you don’t have friends interesting in**practicing spoken English** , the world wide web is the big place where you can find friends for every hobby or project you may have.
 
 ![how to improve spoken english](https://edge.mondly.com/blog/wp-content/uploads/2019/02/how-to-improve-spoken-english-scaled-960x640.jpg "Top 9 Tips And Tricks That Will Help Improve Your Spoken English 6")
 
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  “Friends” by Rawpixel©
 
  Bring your friends together at a local pub or in a video chat and start a debate in English. For example, one topic that our English teacher used to get us talking was “pro or against animal testing”. You were so caught up in the debate we forgot we were actually speaking English. Just try it and watch your tongue untie.
@@ -137,8 +144,6 @@ If the problem is your accent, diction could also help you improve.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -146,4 +151,20 @@ If the problem is your accent, diction could also help you improve.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-premier-5-online-communities-ascending-beyond-twitter/"><u>[New] 2024 Approved Premier 5 Online Communities Ascending Beyond Twitter</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-the-ultimate-guide-to-downloading-facebook-stories-anywhere/"><u>[New] 2024 Approved The Ultimate Guide to Downloading Facebook Stories Anywhere</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-top-10-best-4k-camera-phone/"><u>2024 Approved Top 10 Best 4K Camera Phone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/elevate-your-content-mastery-in-live-streaming-screens-for-2024/"><u>Elevate Your Content Mastery in Live Streaming Screens for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/entender-las-fechas-en-espanol-lunes-a-domingo/"><u>Entender Las Fechas en Español, Lunes a Domingo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expedited-pathway-to-turkeys-language-a-comprehensible-alphabet-and-pronunciation-guide/"><u>Expedited Pathway to Turkey's Language: A Comprehensible Alphabet & Pronunciation Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expofuturetongues-innovations-in-linguistics-unveiled/"><u>ExpoFutureTongues: Innovations in Linguistics Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressing-gratitude-efficiently-the-best-16-ways-in-deutsch/"><u>Expressing Gratitude Efficiently: The Best 16 Ways In Deutsch</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/farsis-story-from-antiquity-to-future-prospects/"><u>Farsi’s Story From Antiquity to Future Prospects</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/how-to-enable-and-tune-into-fm-radio-channels-on-smartphones/"><u>How to Enable and Tune Into FM Radio Channels on Smartphones</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-unlock-icloud-lock-from-your-iphone-15-pro-and-ipad-by-drfone-ios/"><u>How to Unlock iCloud lock from your iPhone 15 Pro and iPad?</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/tackling-excessive-cpu-consumption-due-to-faulty-audio-drivers-on-your-computer/"><u>Tackling Excessive CPU Consumption Due to Faulty Audio Drivers on Your Computer</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Honor X7b | Dr.fone</u></a></li>
+</ul></div>
 

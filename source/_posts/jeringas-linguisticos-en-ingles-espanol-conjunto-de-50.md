@@ -1,7 +1,7 @@
 ---
 title: "Jeringas Lingüísticos en Inglés-Español: Conjunto De 50"
-date: 2024-09-21T20:32:50.406Z
-updated: 2024-09-26T18:49:12.708Z
+date: 2024-09-25T21:56:06.873Z
+updated: 2024-10-02T00:56:49.027Z
 tags:
   - speak
   - english
@@ -36,24 +36,31 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 
  Do not worry though! In the following paragraphs, we will cover all the Spanish-English false friends you absolutely need to know in order to avoid… embarrassing situations.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Perfect English-Spanish cognates
 
  The easiest Spanish cognates are those with no spelling changes. These are called “perfect cognates” because they are written the same in both English and Spanish. Nevertheless, as you might guess, the Spanish pronunciation is different.
 
  Some of the most popular examples are: _hospital, horrible, actor, artificial, agenda, animal, original, idea, flexible, vulnerable, superficial, reunion_ (_reunión_ in Spanish)_, melon, interminable, inevitable, tropical, experimental, excursion_ (_excursión_ in Spanish)_, capital, chocolate, probable, conclusion_ (_conclusión_ in Spanish) _, doctor, director, festival, general, individual, nostalgia, panorama, television_ (_televisión_ in Spanish)_, perfume, total, similar, terror_ and_verbal._
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Near-perfect English-Spanish cognates
 
  Did you know that about 90% of Spanish cognates have the same meaning in English? The rest of them are, obviously, false friends words. This means you have only a 10% chance of saying something embarrassing or awkward. That’s not too bad, isn’t it? Besides, after reading this article the percent will surely drop significantly. Even below 0 if you also start [learning Spanish with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4685&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4685?mother%5Flang=en%5Fus?target%5Flang=es&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4685?mother%5Flang=en%5Fus?target%5Flang=es) right now (wink wink).
 
  But before going there, we have one more type of English-Spanish cognates: near-perfect cognates or words that have the same meaning in both languages, but slightly different spelling.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
+  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Spanish Cognates that change “-tion” to “-ción”
 
@@ -98,19 +105,6 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 
  “Mommy, what are cognates?” by Josh Applegate©
 
-<!-- affiliate ads begin -->
-<span id="1977023">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Spanish cognates that add an “-o”
 
 * academic and   _académic**o**_
@@ -125,10 +119,10 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 * dynamic and   _dinámic**o**_
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Spanish cognates that add an “-ar” or an “-ir”
@@ -146,13 +140,6 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 * calm and   _calm**ar**_
 * control and   _control**ar**_
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Spanish cognates that change “-ly” to “-mente”
 
 * absolute**ly** and   _absoluta**mente**_
@@ -165,6 +152,13 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 * especial**ly** and   _especial**mente**_
 * complete**ly** and   _completa**mente**_
 * exact**ly** and   _exacta**mente**_
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Spanish-English False Friend Words
 
@@ -254,24 +248,15 @@ _Realizar_ in Spanish means “to do” or “to perform” and not “to realiz
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/pgrade-video-experience-activate-av1-on-youtube/"><u>[New] Upgrade Video Experience Activate AV1 on YouTube</u></a></li>
-<li><a href="https://video-capture.techidaily.com/1716069464909-updated-2024-approved-a-user-friendly-guide-to-seamless-collaboration-across-different-operating-systems-via-skype-group-chats/"><u>[Updated] 2024 Approved A User-Friendly Guide to Seamless Collaboration Across Different Operating Systems via Skype Group Chats.</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-chart-success-the-top-online-stock-portals/"><u>[Updated] 2024 Approved Chart Success The Top Online Stock Portals</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-the-efficacy-of-vlcs-screen-recording/"><u>[Updated] In 2024, The Efficacy of VLC's Screen Recording</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/commemorating-1500-no-cost-everyday-learning-sessions/"><u>Commemorating 1,500 No-Cost Everyday Learning Sessions</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ient-keyword-utilization-discover-the-best-7-online-video-tag-extractors-reviewed-for-2024/"><u>Efficient Keyword Utilization Discover the Best 7 Online Video Tag Extractors Reviewed for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enhanced-travel-experiences-with-language-mastery/"><u>Enhanced Travel Experiences with Language Mastery</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-disable-algorithmic-feeds-on-twitter-instagram-and-facebook/"><u>How to Disable Algorithmic Feeds on Twitter, Instagram, and Facebook</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/how-to-teach-english-as-a-second-language/"><u>How to Teach English as a Second Language</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-12-with-a-mask-on-by-drfone-ios/"><u>How to Unlock iPhone 12 with a Mask On</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/joint-endeavor-mondly-pearson-button-filters-elevation/"><u>Joint Endeavor: Mondly-Pearson Button Filters Elevation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-connectivity-pearsons-online-hub/"><u>Language Connectivity: Pearson's Online Hub</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719577339220-norwegian-skills-surge-10-minute-mini-marathons/"><u>Norwegian Skills Surge, 10-Minute Mini-Marathons!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/privacy-innovation-new-terms-and-usage-guide/"><u>Privacy Innovation: New Terms & Usage Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pronunciation-patchwork-unraveling-irish-aussie-and-us-accents/"><u>Pronunciation Patchwork: Unraveling Irish, Aussie, and U.S. Accents</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/together-we-learn-mondlys-language-course-drive/"><u>Together, We Learn: Mondly’s Language Course Drive</u></a></li>
-<li><a href="https://android-frp.techidaily.com/top-5-oneplus-open-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 OnePlus Open Bypass FRP Tools for PC That Actually Work</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-honor-magic-5-pro-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your Honor Magic 5 Pro Phone</u></a></li>
-<li><a href="https://win-dash.techidaily.com/troubleshooting-intel-display-driver-issues-in-win-1187-tips-and-solutions/"><u>Troubleshooting Intel Display Driver Issues in Win 11/8/7 – Tips & Solutions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtube-awareness-tactics-for-social-media-visibility/"><u>[New] YouTube Awareness Tactics for Social Media Visibility</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-innovative-ways-to-record-and-tweak-videos-using-the-adobe-connect-platform/"><u>[Updated] In 2024, Innovative Ways to Record & Tweak Videos Using the Adobe Connect Platform</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-step-by-step-including-in-apples-premium-catalog/"><u>In 2024, Step-by-Step Including in Apple's Premium Catalog</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-vivo-y100-fixed-drfone-by-drfone-virtual-android/"><u>iSpoofer is not working On Vivo Y100? Fixed | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/key-russian-language-elements-your-journey-starter-kit/"><u>Key Russian Language Elements: Your Journey Starter Kit</u></a></li>
+<li><a href="https://common-error.techidaily.com/maccamera-woes-heres-how-to-get-your-camera-up-and-running-smoothly/"><u>MacCamera Woes? Here's How to Get Your Camera Up and Running Smoothly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/perfect-your-pronunciation-with-these-100-english-tongue-twisters/"><u>Perfect Your Pronunciation With These 100 English Tongue Twisters</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/pivot-to-popularity-mastering-video-flip-on-social-for-2024/"><u>Pivot to Popularity Mastering Video Flip on Social for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ideal-online-approach-to-learn-finnish-effectively/"><u>The Ideal Online Approach to Learn Finnish Effectively</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/which-language-benefits-you-more-in-global-settings-german-or-french/"><u>Which Language Benefits You More in Global Settings, German or French?</u></a></li>
 </ul></div>
 

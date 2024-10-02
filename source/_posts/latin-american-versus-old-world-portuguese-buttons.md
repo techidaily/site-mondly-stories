@@ -1,7 +1,7 @@
 ---
 title: Latin American Versus Old World Portuguese Buttons
-date: 2024-09-01T00:32:28.248Z
-updated: 2024-09-02T00:32:28.248Z
+date: 2024-09-28T16:01:33.861Z
+updated: 2024-10-01T17:34:22.289Z
 tags:
   - speak
   - english
@@ -26,6 +26,13 @@ thumbnail: https://thmb.techidaily.com/be8413a30f19599698e9b5b7f7e17b9eb5081fbfd
 
  The other countries colonized by Portugal speak a Portuguese more akin to the [mother language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Why? Many of them are [African](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) countries, so they don’t have external contact from other cultures that could have impacted their way of speaking. Secondly, compared to Brazil, those countries gained their independence much later and had more contact with Portugal during their early development.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Differences in the Pronunciation
 
  Pronunciation is one of the main differences between the languages. Brazilians speak vowels longer and wider, while Portuguese pronounce the words with a more closed mouth, without pronouncing the vowels as much.
@@ -33,15 +40,16 @@ thumbnail: https://thmb.techidaily.com/be8413a30f19599698e9b5b7f7e17b9eb5081fbfd
  The pronunciation of some consonants is also different, particularly the S at the end of a word. In Brazilian Portuguese, an S at the end of a word is pronounced as SS; in Portugal, it is pronounced as SH.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Accents
 
  Brazilian Portuguese is thought to be more phonetically pleasing to the ear thanks to its open vowels, while European Portuguese can sound somewhat garbled. Brazilian accents have a strong cadence and lift to them, making it easier to learn and understand.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Grammar and Spelling
 
  Some words are spelled differently. For instance, reception in European Portuguese is “receção”, but in Brazilian Portuguese, there is an audible p to the spelling of “recepção.” In other words, the letter p is audible in Brazilian Portuguese and silent in European Portuguese.
@@ -51,25 +59,30 @@ thumbnail: https://thmb.techidaily.com/be8413a30f19599698e9b5b7f7e17b9eb5081fbfd
  Sometimes, Brazilian Portuguese takes words from American English, ignoring its Latin roots. European Portuguese usually adopts words from Latin roots, keeping the original spelling. Overall, European Portuguese is more resistant to change and assimilation of foreign words.
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Formal and Informal Speech
 
  European Portuguese is the more formal of the two versions. In Brazilian Portuguese, the word**você** is used for “you” in informal settings; in European Portuguese,**tu** is utilized in the same context. In Portugal, they view the você as crude and thus remove the second-person pronoun in less casual situations and instead use the verb in the third-person singular.  
  When describing actions, Brazilians use “estou fazendo” to mean “I am doing,” and the European Portuguese use the infinitive form, “estou a fazer.” The latter is less direct and translates to “I am taken to doing.”
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Should You Learn Brazilian or European Portuguese?
 
  This is a highly personal decision. This will depend on your personal motives, availability of resources, future aspirations and goals. In general, the thing that sparked your interest in the language will have a direct impact on the dialect you choose. For example, if you love classic literature, European Portuguese might be the best way to go for you. If you love Carnival and samba, Brazilian Portuguese may be best.
 
  The availability of resources will also influence your decision. _“Brazil has a larger population than Portugal with many native speakers, impacting_ availability _of content. In other words, it’s simpler to locate resources for Brazilian Portuguese learners than it is for those who study the European kind”_ says Ryan McMunn of BRIC Language Systems. Finding a professional resource that offers instruction in Brazilian Portuguese with access to native speakers will greatly improve your chances of being successful and learning both at your pace and in a way that will last.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ## Future Goals
 
  What are your future plans? The answer will help you determine which Portuguese variety would be best for you. If you would like to work for the United Nations someday, you should learn Continental Portuguese because its operations are based in Europe. If you want a job in a North American enterprise, Brazilian Portuguese will be best because that country has a bigger economic and trading base.
@@ -102,9 +115,6 @@ thumbnail: https://thmb.techidaily.com/be8413a30f19599698e9b5b7f7e17b9eb5081fbfd
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Speak Portuguese fluently in just 10 minutes a day
 
  Do you want to speak Portuguese fluently fast? Get Mondly, the award-winning language learning app that will help you speak Portuguese as if it were your first language.
@@ -121,8 +131,6 @@ thumbnail: https://thmb.techidaily.com/be8413a30f19599698e9b5b7f7e17b9eb5081fbfd
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -130,4 +138,21 @@ thumbnail: https://thmb.techidaily.com/be8413a30f19599698e9b5b7f7e17b9eb5081fbfd
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/updated-the-ultimate-list-of-engaging-moba-titles-on-android-for-2024/"><u>[Updated] The Ultimate List of Engaging MOBA Titles on Android for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-maximizing-your-reach-with-youtube-shorts-templates/"><u>2024 Approved Maximizing Your Reach with YouTube Shorts Templates</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/dvdwindows10112/"><u>最新DVD編集技術ガイド：Windows10/11用の上位2つの編集プログラムを見てみよう</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/bandicam-uncovered-a-critical-review-for-tech-enthusiasts/"><u>Bandicam Uncovered A Critical Review for Tech Enthusiasts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/borrowed-words-in-the-anglophone-world/"><u>Borrowed Words in the Anglophone World</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/british-english-tradition-vs-american-innovation/"><u>British English Tradition vs American Innovation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/charisma-in-german-flirting-fables/"><u>Charisma in German: Flirting Fables</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deutsch-fur-anfanger-zahlen-von-1-100-im-kontext/"><u>Deutsch Für Anfänger: Zählen Von 1-100 Im Kontext</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/easiest-tongue-journey-top-10-simplified-languages-compendium/"><u>Easiest Tongue Journey: Top 10 Simplified Languages Compendium</u></a></li>
+<li><a href="https://win-answers.techidaily.com/fix-disco-elysium-pc-issues-unravel-the-mystery-and-keep-the-music-going/"><u>Fix Disco Elysium PC Issues: Unravel the Mystery and Keep the Music Going!</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/how-to-fix-printer-in-error-state/"><u>How to Fix Printer in Error State</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-picture-perfect-the-essential-photo-editing-tools/"><u>In 2024, Picture Perfect The Essential Photo Editing Tools</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/north-korea-withdrew-from-the-npt-in-2003-and-has-since-conducted-several-nuclear-tests-defying-international-norms-against-proliferation/"><u>North Korea Withdrew From the NPT in 2003 and Has Since Conducted Several Nuclear Tests, Defying International Norms Against Proliferation.</u></a></li>
+<li><a href="https://techtrends.techidaily.com/scaricare-gratuitamente-il-decodificatore-h265-hevc-per-la-visualizzazione-ottimale-dei-filmati-4k-e-8k/"><u>Scaricare Gratuitamente Il Decodificatore H.265 HEVC per La Visualizzazione Ottimale Dei Filmati 4K E 8K</u></a></li>
+</ul></div>
 

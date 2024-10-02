@@ -1,7 +1,7 @@
 ---
 title: "Thankful Talk: Multilingual Manners and Phrases (155)"
-date: 2024-09-19T19:09:34.084Z
-updated: 2024-09-26T16:42:11.722Z
+date: 2024-09-25T19:00:17.858Z
+updated: 2024-10-01T17:03:53.629Z
 tags:
   - speak
   - english
@@ -59,10 +59,10 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
  “Thanks” by Hanny Naibaho©
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The origin of saying “thank you”
@@ -89,10 +89,10 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## From 0 to conversational in over 40 languages
@@ -125,18 +125,18 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-digital-design-trends-to-avoid-in-your-youtube-banners/"><u>[New] 2024 Approved Digital Design Trends to Avoid in Your YouTube Banners</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-the-essential-guide-to-muting-intruders-on-google-video-chats-for-2024/"><u>[New] The Essential Guide to Muting Intruders on Google Video Chats for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-top-ranked-text-enhancers-for-after-effects/"><u>[Updated] Top-Ranked Text Enhancers for After Effects</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/becoming-multilingual-via-visual-media/"><u>Becoming Multilingual via Visual Media</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/decoding-daily-gesture-lingo-in-italy/"><u>Decoding Daily Gesture Lingo in Italy</u></a></li>
-<li><a href="https://solve-helper.techidaily.com/enhancing-web-experiences-through-smart-analytics-unveiling-the-benefits-of-cookiebot-systems/"><u>Enhancing Web Experiences Through Smart Analytics: Unveiling the Benefits of Cookiebot Systems</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-repair-iphone-11-ios-system-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair iPhone 11 iOS System? | Dr.fone</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/mastering-soundscapes-expert-insights-on-audio-post-production-in-garageband-for-2024/"><u>Mastering Soundscapes Expert Insights on Audio Post-Production in GarageBand for 2024</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/preventing-nuisance-automated-calls-tips-for-android-users/"><u>Preventing Nuisance Automated Calls: Tips for Android Users</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ultimate-spelling-blunder-index-for-english-proficiency/"><u>The Ultimate Spelling Blunder Index for English Proficiency</u></a></li>
-<li><a href="https://win-able.techidaily.com/troubleshooting-lost-ark-pc-crashes-a-comprehensive-guide-to-a-smooth-gaming-experience/"><u>Troubleshooting Lost Ark PC Crashes: A Comprehensive Guide to a Smooth Gaming Experience</u></a></li>
-<li><a href="https://win-able.techidaily.com/troubleshooting-persistent-lag-in-overwatch-solutions-proven-effective/"><u>Troubleshooting Persistent Lag in Overwatch - Solutions Proven Effective</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/uncovering-the-realities-behind-effective-language-education/"><u>Uncovering the Realities Behind Effective Language Education</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-beyond-obs-streamer-friendly-broadcast-software/"><u>[New] Beyond OBS Streamer-Friendly Broadcast Software</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-demystifying-screen-record-snapchat-a-beginners-handbook/"><u>[Updated] In 2024, Demystifying Screen Record Snapchat A Beginner's Handbook</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-satirical-space-the-ultimate-guide-to-20plus-humorous-metaverse-imagery/"><u>[Updated] In 2024, Satirical Space The Ultimate Guide to 20+ Humorous Metaverse Imagery</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-the-role-of-free-exchange-in-discovery/"><u>[Updated] In 2024, The Role of Free Exchange in Discovery</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/beyond-toys-six-key-points-about-snapchats-my-ai/"><u>Beyond Toys: Six Key Points About Snapchat’s My AI</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/hp-officejet-3830-windows-driver-download-step-by-step-guide-and-links/"><u>HP Officejet 3830 Windows Driver Download: Step-by-Step Guide & Links</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-simplified-techniques-for-browsing-youtube-comments/"><u>In 2024, Simplified Techniques for Browsing YouTube Comments</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-seizes-spot-on-apples-top-10-ed-tech-leaders-board/"><u>Mondly Seizes Spot on Apple’s Top 10 Ed-Tech Leaders Board</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/perfect-pronunciation-and-expression-essential-french-phrases-for-proficiency/"><u>Perfect Pronunciation & Expression: Essential French Phrases for Proficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-elder-speeches-of-humanitys-heritage/"><u>The Elder Speeches of Humanity’s Heritage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-oldest-languages-a-global-comparison/"><u>The Oldest Languages: A Global Comparison</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/translate-intrigue-become-fluent-in-squid-games-language/"><u>Translate Intrigue: Become Fluent in Squid Game's Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-the-power-of-basic-russian-salutations/"><u>Unlocking the Power of Basic Russian Salutations</u></a></li>
 </ul></div>
 

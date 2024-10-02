@@ -1,7 +1,7 @@
 ---
 title: "Lexical Differences: A Tale of Two Englishes"
-date: 2024-09-05T04:37:58.687Z
-updated: 2024-09-06T04:37:58.687Z
+date: 2024-09-30T21:46:31.356Z
+updated: 2024-10-01T17:02:33.064Z
 tags:
   - speak
   - english
@@ -24,24 +24,6 @@ thumbnail: https://thmb.techidaily.com/fa8c86c87f3c1271d21091d603f6092e646d5c6b0
 
 ![British vs American](https://media.giphy.com/media/SqmkZ5IdwzTP2/giphy.gif "British English Vs American English Differences: Spelling, Pronunciation And More 2")
 
-<!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The English language in the Americas
 
  Before diving into the most important differences between [British English](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and American English, let’s put some historical context around the matter.
@@ -82,11 +64,12 @@ thumbnail: https://thmb.techidaily.com/fa8c86c87f3c1271d21091d603f6092e646d5c6b0
  Previous  Next
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Spellings differences: is it “colour” or “color”?
 
  That’s simple! “Colour” is the British spelling and “color” is the American spelling. Always remember that, when it comes to spelling, American English uses a simplified version. The explanation goes back to 1828 when Noah Webster wrote the first American dictionary –_An American Dictionary of the English Language._ Webster said he chose alternative spellings that were already in use in the United States “on such grounds as simplicity, analogy or etymology”.
@@ -119,18 +102,6 @@ thumbnail: https://thmb.techidaily.com/fa8c86c87f3c1271d21091d603f6092e646d5c6b0
 
  Although spelling, accent, and vocabulary differences are the most notorious distinctions, American English and British English are divergent in some [grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) matters as well.
 
-<!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Collective nouns
 
  In American English, collective nouns such as “band”, “team”, “family” or “crew” are considered plural. In contrast, British English considers collective nouns either singular or plural, but more often plural as a way to emphasize the members of the group.
@@ -144,11 +115,12 @@ thumbnail: https://thmb.techidaily.com/fa8c86c87f3c1271d21091d603f6092e646d5c6b0
  Many verbs that are irregular in the past tense in British English (_dreamt, burnt, learnt_), have been made regular in American English (_dreamed, burned, learned_).
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Got or gotten?
 
  In the UK, the past participle of “get” – “gotten” – is considered archaic and was replaced with “got” some time ago. Americans, on the other hand, still use “gotten” as the past participle of “get”.
@@ -157,12 +129,6 @@ thumbnail: https://thmb.techidaily.com/fa8c86c87f3c1271d21091d603f6092e646d5c6b0
 
 **American English:** get – got – gotten
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Tenses
 
  While Brits tend to use the present perfect tense to describe something that has recently occurred, Americans usually go with the past simple tense.
@@ -175,6 +141,13 @@ thumbnail: https://thmb.techidaily.com/fa8c86c87f3c1271d21091d603f6092e646d5c6b0
 
 ![british american english](https://edge.mondly.com/blog/wp-content/uploads/2020/06/british-american-english-600x600.jpg "British English Vs American English Differences: Spelling, Pronunciation And More 3")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  British English vs American English
 
 ### Other grammar differences
@@ -183,17 +156,18 @@ thumbnail: https://thmb.techidaily.com/fa8c86c87f3c1271d21091d603f6092e646d5c6b0
 
  Additionally, in Britain, you are likely to hear “needn’t” a lot and in the US not at all. In its place, Americans use “don’t need to”.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## British accent vs American accent
 
  The biggest difference between British English and American English is, undoubtedly, the accent. The reason why these two variations sound so different is known as rhotacism, the change of a particular consonant into a rhotic consonant. In this case, the consonant is “r”.
 
  American accent is rhotic and Americans pronounce their “R’s” loud and clear. On the other hand, the British accent is non-rhotic and Brits usually replace their “R’s” with “H’s”. Thus, words like “water” or “card” will be pronounced_wa-tuh_ or_caahd_ .
+
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398449/3022" target="_top" id="398449">
+  <img src="//a.impactradius-go.com/display-ad/3022-398449" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398449/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## British vs American: which one should you learn and use?
 
@@ -211,11 +185,18 @@ thumbnail: https://thmb.techidaily.com/fa8c86c87f3c1271d21091d603f6092e646d5c6b0
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Brush up your English in just 10 minutes a day
 
  Do you want to speak English like a true American? Or maybe you dream of acquiring the classy British accent? With [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5309&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5309&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5309) you can train for both.
@@ -232,8 +213,6 @@ thumbnail: https://thmb.techidaily.com/fa8c86c87f3c1271d21091d603f6092e646d5c6b0
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -241,4 +220,21 @@ thumbnail: https://thmb.techidaily.com/fa8c86c87f3c1271d21091d603f6092e646d5c6b0
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-conquering-facebook-audiences-live-stream-excellence-with-wirecast/"><u>[New] Conquering Facebook Audiences Live Stream Excellence with Wirecast</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-exclusive-sites-for-youtube-content-surge/"><u>[New] Exclusive Sites For YouTube Content Surge</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-optimize-your-youtube-stream-choosing-superior-webcams/"><u>[Updated] 2024 Approved Optimize Your YouTube Stream Choosing Superior Webcams</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-steps-to-instagram-verification-and-fan-growth-in-under-150-characters/"><u>[Updated] Steps to Instagram Verification & Fan Growth in Under 150 Characters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/2022-speak-anywhere-for-a-bargain-priced-language-bundle/"><u>2022: Speak Anywhere for a Bargain-Priced Language Bundle</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/augment-realities-mondly-redefining-language-learning/"><u>Augment Realities: Mondly Redefining Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beyond-borders-beyond-barriers-the-top-4-motivations-to-study-a-new-language-in-your-forties/"><u>Beyond Borders, Beyond Barriers: The Top 4 Motivations to Study a New Language in Your Forties</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conversational-cupid-flirting-lines-for-love-enthusiasts/"><u>Conversational Cupid: Flirting Lines for Love Enthusiasts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-the-voices-of-europe-a-day-of-language-joy/"><u>Decoding the Voices of Europe: A Day of Language Joy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-the-value-in-second-languages-past-fifty/"><u>Discover the Value in Second Languages Past Fifty</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-elevating-your-android-experience-through-recording/"><u>In 2024, Elevating Your Android Experience Through Recording</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/mememirth-your-joy-jolt-app/"><u>MemeMirth Your Joy Jolt App</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/simple-guide-taking-screenshots-on-an-asus-computer/"><u>Simple Guide: Taking Screenshots on an ASUS Computer</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/unlocking-windows-disabling-the-gpsvc-loop/"><u>Unlocking Windows: Disabling the GPSVC Loop</u></a></li>
+</ul></div>
 

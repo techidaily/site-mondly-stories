@@ -1,7 +1,7 @@
 ---
 title: "Speaking Up: The Initial AR Language Companion"
-date: 2024-09-20T17:52:56.755Z
-updated: 2024-09-26T16:21:46.851Z
+date: 2024-09-24T16:27:01.547Z
+updated: 2024-10-01T22:29:22.867Z
 tags:
   - speak
   - english
@@ -43,10 +43,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 > _We started working on Mondly AR in August 2017 and by the time [Blade Runner 2049](http://www.imdb.com/title/tt1856101/) was released, we already had a working demo. Watching Blade Runner 2049 made me realize that we were beginning to build the future. To me, Joi (the holographic companion of officer K) looked like a super advanced version of Mondly – the character we were creating. They can both understand speech, reply with a human voice and change outfits. Of course, Mondly is not as smart and realistic as Joi. Yet. But she can teach you 7 languages. And this is just the beginning._
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Here’s what you should know about Mondly AR
@@ -65,10 +65,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facts and figures about Mondly
@@ -85,10 +85,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 * [Mondly Press Kit](https://www.dropbox.com/sh/vo4j5214zvwdxy5/AAC20VxIgpuiEe7ED2%5F37VNEa?dl=0)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Media mentions about Mondly
@@ -120,24 +120,21 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-pixelpunmatic-device/"><u>[New] 2024 Approved PixelPunmatic Device</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-capturing-life-on-camera-mastering-the-art-of-vlogging/"><u>[New] In 2024, Capturing Life on Camera Mastering the Art of Vlogging</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-twitter-to-whatsapp-sharing-videos-simplified/"><u>[New] Twitter to WhatsApp Sharing Videos Simplified</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-the-quest-for-the-best-framerate-balancing-speed-and-clarity-for-2024/"><u>[Updated] The Quest for the Best Framerate - Balancing Speed & Clarity for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/3-best-tools-to-hard-reset-motorola-edge-40-drfone-by-drfone-reset-android-reset-android/"><u>3 Best Tools to Hard Reset Motorola Edge 40 | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/compreender-abrecos-e-saudacoes-em-diferentes-regioes/"><u>Compreender Abreços E Saudações Em Diferentes Regiões</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/digital-dojo-learn-lithuanian-with-precision-and-flair/"><u>Digital Dojo: Learn Lithuanian with Precision and Flair</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580270594-eternal-access-to-mondly-premium-for-free/"><u>Eternal Access to Mondly Premium for Free!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/friendly-italy-discover-the-best-italian-ways-to-say-hello/"><u>Friendly Italy: Discover the Best Italian Ways to Say Hello</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-samsung-galaxy-m34-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Samsung Galaxy M34 to Any iOS Devices | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-mastering-lock-screen-settings-how-to-enable-and-disable-on-honor-magic-5-lite-by-drfone-android/"><u>In 2024, Mastering Lock Screen Settings How to Enable and Disable on Honor Magic 5 Lite</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/make-urdu-easier-learn-for-10-minutes-daily/"><u>Make Urdu Easier: Learn for 10 Minutes Daily</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-new-help-section-a-leap-forward-in-customer-service/"><u>Mondly's New Help Section: A Leap Forward in Customer Service</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-unique-language-learning-approach-my-experience-top-10-highlights/"><u>Mondly's Unique Language Learning Approach: My Experience (Top 10 Highlights)</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/new-free-avi-video-joiner-software-merge-clips-in-minutes/"><u>New Free AVI Video Joiner Software Merge Clips in Minutes</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/propel-your-creativity-mastering-inshot-for-device-edits/"><u>Propel Your Creativity Mastering Inshot for Device Edits</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/step-by-step-io-screen-capture-tutorial/"><u>Step-by-Step IO Screen Capture Tutorial</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-pathway-1500-days-enlightened/"><u>The Pathway: 1,500 Days Enlightened</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/why-learn-english-unveil-the-multifaceted-benefits/"><u>Why Learn English? Unveil the Multifaceted Benefits</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-mastering-cc-license-application-a-comprehensive-guide/"><u>[Updated] Mastering CC License Application A Comprehensive Guide</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/best-practices-for-secondary-footage-selection-and-use-for-2024/"><u>Best Practices for Secondary Footage Selection and Use for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/guia-completo-aprendendo-a-gravar-suas-reunioes-do-skype-em-2024-com-o-movavi/"><u>Guia Completo: Aprendendo a Gravar Suas Reuniões Do Skype Em 2024 Com O Movavi</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-vivo-v29-pro-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Vivo V29 Pro Without PUK Codes</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-forgot-iphone-passcode-again-unlock-iphone-13-pro-without-passcode-now-by-drfone-ios/"><u>In 2024, Forgot iPhone Passcode Again? Unlock iPhone 13 Pro Without Passcode Now</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-honor-90-lite-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Honor 90 Lite Is Unlocked</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/intercultural-agility-mastering-adaptable-communication-skills/"><u>Intercultural Agility: Mastering Adaptable Communication Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-linkages-the-portuguese-connection-across-continents/"><u>Language Linkages: The Portuguese Connection Across Continents</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lively-spanish-lessons-for-young-minds/"><u>Lively Spanish Lessons for Young Minds</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-the-ultimate-final-cut-pro-saving-cheat-sheet/"><u>New In 2024, The Ultimate Final Cut Pro Saving Cheat Sheet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/persuasive-prose-for-pleasure-flirting-tactics-in-english/"><u>Persuasive Prose for Pleasure: Flirting Tactics in English</u></a></li>
+<li><a href="https://facebook.techidaily.com/stepwise-strategies-for-formulating-fb-events/"><u>Stepwise Strategies for Formulating FB Events</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/turkish-alphabet-and-pronunciation-a-quick-guide/"><u>Turkish Alphabet and Pronunciation: A Quick Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-secrets-of-turko-korean-relationship/"><u>Unveiling the Secrets of Turko-Korean Relationship</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-videopad-video-editor-review-features-pricing-and-verdict-for-2024/"><u>Updated Videopad Video Editor Review Features, Pricing, and Verdict for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/valentine-vocabulary-gift-romance-across-cultures/"><u>Valentine Vocabulary Gift: Romance Across Cultures</u></a></li>
 </ul></div>
 

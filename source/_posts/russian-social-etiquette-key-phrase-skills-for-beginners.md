@@ -1,7 +1,7 @@
 ---
 title: "Russian Social Etiquette: Key Phrase Skills for Beginners"
-date: 2024-09-01T00:31:54.157Z
-updated: 2024-09-02T00:31:54.157Z
+date: 2024-09-26T18:01:10.425Z
+updated: 2024-10-01T17:00:45.761Z
 tags:
   - speak
   - english
@@ -26,17 +26,38 @@ thumbnail: https://thmb.techidaily.com/880ddd263e214c3b4ae0eb5fd84c0b63be50232aa
 
  Whether you’re planning an expedition, immersing in classic Russian literature, meeting with Russian-speaking friends, or even looking to impress with your language skills, using**Russian greetings** will surely be appreciated. Here are some of the most common ways to say “hello” in Russian:
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Здравствуйте (Zdravstvuyte): Hello in Russian
 
 **здравствуйте** is the most common Russian greeting. Being slightly formal, yet friendly makes it perfect for greeting people in a professional setting or people you don’t know. Besides, you can also use it to address a group of people as the verb form is meant for formal settings or addressing multiple people.
 
  Rooted in the phrase “to be healthy and well”, it’s not just a greeting, but a wish for good health.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Привет (Privyet): Hi in Russian
 
 **Привет** is the most popular informal Russian greeting. It’s what you would use with your friends – the same way we use “hi” in English. Short, sweet and easy to say!
 
  If we’re being honest,**здравствуйте** and **Привет** are everything you need when it comes to Russian greetings. If you don’t want to overcrowd your mind, you can stop right here and come back later when you’re ready for more. If you want the full picture of Russian greetings now, let’s continue to discover how Russians say hello to each other.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 2\. Time-specific Russian greetings
 
@@ -53,18 +74,12 @@ Good job, you!
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Russian Greetings: Common Phrases And Basic Words 2")
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ##### Learn Russian today
 
  Build practical Russian skills for real life with Mondly.
 
 [Start Now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-2406&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2406&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2406&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2406&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-2406%26mt%3D8)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 3\. Additional Russian greetings Russians use
 
  Now onto less popular greetings. Or let’s call them “specialized”. Sounds better, right? These are the kind of “bonus” Russian greetings you use once you feel more comfortable with the language. Because – let’s be honest: not all words are equally important. You have to focus on the most frequently used ones first.
@@ -77,13 +92,6 @@ Good job, you!
 
 ![hi in russian](https://edge.mondly.com/blog/wp-content/uploads/2018/11/hi-in-russian.jpg "Russian Greetings: Common Phrases And Basic Words 3")
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 4\. Russian farewells
 
  Goodbyes are just as important as greetings. When you’re taking your leave, you can bid adieu with**До свидания (Do svidaniya)** in Russian, which means “until we see each other again”. Some of the most common Russian farewells include:
@@ -115,8 +123,12 @@ Good job, you!
 ![hello in russian](https://edge.mondly.com/blog/wp-content/uploads/2018/11/hello-in-russian-960x640.jpg "Russian Greetings: Common Phrases And Basic Words 4")
 
 <!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Found this interesting? You might want to learn about the [Russian alphabet](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and the [Russian numbers](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) too.
 
 ## Cultural insights on Russian greetings
@@ -145,9 +157,12 @@ Good job, you!
  To greet someone respectfully in Russian you can say Здравствуйте (Zdravstvuyte) or use the time specific greetings.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Are there specific greetings for different times of the day in Russian?
 
  Yes. Start your day by saying Доброе утро (Dobroye utro) meaning “good morning”, followed by Добрый день (Dobryy den) which is “good afternoon” and Добрый вечер (Dobryy vecher) for “good evening”.
@@ -173,8 +188,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -182,4 +195,24 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-capture-the-sparkle-insta-worthy-photos-to-inspire-your-audience/"><u>[New] 2024 Approved Capture the Sparkle Insta-Worthy Photos to Inspire Your Audience</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-sound-shaping-techniques-for-mobile-top-7-vocal-editing-app-recommendations/"><u>[New] 2024 Approved Sound Shaping Techniques for Mobile Top 7 Vocal Editing App Recommendations</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-in-game-sound-transformation-the-no-cost-pathway-in-free-fire/"><u>[Updated] In-Game Sound Transformation The No-Cost Pathway in Free Fire</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-tecno-camon-20-pro-5g-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Tecno Camon 20 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/avoiding-darkness-with-lightrooms-dynamic-range-technique-for-2024/"><u>Avoiding Darkness with Lightroom’s Dynamic Range Technique for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-official-msi-bluetooth-drivers-for-optimal-windows-11-10-performance-and-connectivity/"><u>Download Official MSI Bluetooth Drivers for Optimal Windows 11, 10 Performance & Connectivity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/english-echoes-contrasting-british-american-and-new-zealander-tones/"><u>English Echoes: Contrasting British, American, and New Zealander Tones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhancing-language-skills-through-mondlys-practical-10-strategies/"><u>Enhancing Language Skills Through Mondly's Practical 10 Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-language-tools-for-international-engagement/"><u>Essential Language Tools for International Engagement</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-skills-in-handling-spanish-accented-characters-and-letters/"><u>Essential Skills in Handling Spanish Accented Characters & Letters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/experience-unparalleled-learning-in-one-app-mondly/"><u>Experience Unparalleled Learning in One App - Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressive-french-greetings-for-social-success-in-business-and-beyond/"><u>Expressive French Greetings for Social Success in Business & Beyond</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/featured-by-apple-mondly-is-app-of-the-day-in-157-countries/"><u>Featured by Apple: Mondly Is App of the Day in 157 Countries</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gearing-up-for-an-ai-colleague-in-communication/"><u>Gearing Up for an AI Colleague in Communication</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-vivo-v27-pro-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Vivo V27 Pro Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-bypass-icloud-activation-lock-with-imei-code-from-apple-iphone-xs-by-drfone-ios/"><u>In 2024, Bypass iCloud Activation Lock with IMEI Code From Apple iPhone XS</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-shopping-at-premium-phone-boutiques/"><u>The Ultimate Guide to Shopping at Premium Phone Boutiques</u></a></li>
+</ul></div>
 

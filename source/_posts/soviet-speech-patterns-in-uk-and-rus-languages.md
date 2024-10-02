@@ -1,7 +1,7 @@
 ---
 title: Soviet Speech Patterns in Uk & Rus Languages
-date: 2024-09-01T00:33:57.376Z
-updated: 2024-09-02T00:33:57.376Z
+date: 2024-09-27T18:35:04.602Z
+updated: 2024-10-01T21:07:07.468Z
 tags:
   - speak
   - english
@@ -25,8 +25,6 @@ thumbnail: https://thmb.techidaily.com/082fc262728d55c32a74b3f303edb941befed7588
 ``
 
  Contrary to what some people believe, Ukrainian and Russian are not the same language. Despite sharing a common ancestor and the Cyrillic script, Ukrainian and Russian are two distinct languages. They are somehow similar, yes, but not one and the same. To help you understand the relationship between the two, we are going to look at their shared history and both their differences and similarities.
-
-
 
 ## Was Ukrainian really called Little Russian?
 
@@ -63,9 +61,6 @@ thumbnail: https://thmb.techidaily.com/082fc262728d55c32a74b3f303edb941befed7588
 
  Later, the Soviet period brought Russian worldwide prestige which declined after the 1991 collapse. Despite each USSR constituent republic having its own official language, Russian had a unified role and superior status. This is why there are so many people speaking Russian outside Russia.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## How similar are Ukrainian and Russian?
 
  The misconception that Russian and Ukrainian are the same sometimes stems from the fact that Russian is widely spoken in Ukraine. The numbers can differ slightly according to various sources, but it’s generally agreed that 60% of Ukrainians consider Ukrainian their native language, while 15% consider Russian to be their native language. Moreover, 22% consider both to be their native languages.
@@ -76,23 +71,6 @@ thumbnail: https://thmb.techidaily.com/082fc262728d55c32a74b3f303edb941befed7588
 
 !['Russian language' by Dimitry B©](https://edge.mondly.com/blog/wp-content/uploads/2022/03/russian-language-960x639.jpg "Ukrainian And Russian: How Similar Are These Two Languages? 5")
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
-<!-- affiliate ads end -->
  Since most Ukrainian speakers also speak Russian or have extensive exposure to it, ‘asymmetric intelligibility’ is the best term to describe the relationship between the two languages. In other words, Ukrainian speakers can often understand Russian, while Russian speaker doesn’t understand Ukrainian, especially Russian speakers from outside Ukraine.
 
  However, all three languages – Ukrainian, Russian and Belarusian – are in part mutually intelligible, and already knowing one can help a lot if you want to learn one of the others.
@@ -102,11 +80,22 @@ Key features:
  Now that we’ve explained the history behind Ukrainian and Russian, it’s time to look at some more practical examples. A 62% lexical similarity may sound like a lot, but these two languages are not as similar as many might think. Here are some of the most important differences between Russian and Ukrainian.
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Alphabet
 
  Both Ukrainian and Russian use the 33-letter [Cyrillic alphabet](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , but there are four letters in Ukrainian missing from Russian (ґ, є, і, ї), and four letters in Russian missing from Ukrainian (ё, ъ, ы, э).
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Vocabulary
 
@@ -128,9 +117,6 @@ Key features:
 
  Showing 1 to 6 of 6 entries
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Sounds and pronunciation
 
  While to a non-trained ear Russian and Ukrainian might sound the same, they actually have several differences when it comes to pronunciation. For example, Ukrainian has a specific sound for “Г г” (similar to \[h\] in ‘aha!’) which Russian doesn’t have. For this letter, Russian uses the \[g\] sound which is similar to the ‘g’ in ‘go’ or ‘guard’. As a consequence, it’s very easy to differentiate a Ukrainian speaker from a Russian speaker as Ukrainians sometimes overlook the usage of \[g\] instead of \[h\].
@@ -143,8 +129,12 @@ Key features:
 * Russian \[ы\] is deeper than Ukrainian \[и\] and Russian \[э\] is more open than Ukrainian \[е\].
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Grammar
 
  When it comes to grammar, Russian and Ukrainian have similar principles and categories:
@@ -167,8 +157,12 @@ Key features:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Learn Ukrainian, Russian and more in just 10 minutes a day
 
  Do you want to learn languages fast? Get Mondly, the award-winning language app that will help you speak Ukrainian, Russian and more from day 1.
@@ -189,8 +183,6 @@ Key features:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -198,4 +190,23 @@ Key features:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-pinnacle-eight-video-recording-apps-for-2024/"><u>[New] Pinnacle Eight Video Recording Apps for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-the-comprehensive-guide-to-audio-capture-in-video-production-for-2024/"><u>[New] The Comprehensive Guide to Audio Capture in Video Production for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-elevating-conference-calls-top-3-methods-4-insights/"><u>[Updated] Elevating Conference Calls Top 3 Methods, #4 Insights</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-the-complete-guide-to-precision-crafting-in-minecraft-worlds/"><u>[Updated] The Complete Guide to Precision Crafting in Minecraft Worlds</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/107-key-phrases-to-master-before-your-next-croatia-adventure-trip/"><u>107 Key Phrases to Master Before Your Next Croatia Adventure Trip</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/6-things-we-can-do-to-save-a-water-damaged-iphone-8-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>6 Things We Can Do To Save A Water Damaged iPhone 8 | Stellar</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-excellence-comprehensive-oneplus-nord-n1-revealed-review/"><u>Affordable Excellence: Comprehensive OnePlus Nord N1# Revealed Review</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beyond-rules-the-real-goal-of-learning-languages/"><u>Beyond Rules: The Real Goal of Learning Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bilingual-beginnings-kindergarten-to-fifth-grade-in-espanol/"><u>Bilingual Beginnings: Kindergarten to Fifth Grade in Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/confundir-idiomas-50-frases-falsas-inglesa-espanola/"><u>Confundir Idiomas: 50 Frases Falsas Inglesa-Española</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cutting-edge-top-5-language-learning-apps/"><u>Cutting-Edge Top 5 Language Learning Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578956900-daily-bengali-dose-ten-minutes-to-fluency/"><u>Daily Bengali Dose: Ten Minutes to Fluency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-global-communication-mondlys-fresh-phrase-collection/"><u>Embrace Global Communication: Mondly's Fresh Phrase Collection</u></a></li>
+<li><a href="https://techidaily.com/how-to-easily-hard-reset-my-meizu-21-drfone-by-drfone-reset-android-reset-android/"><u>How to Easily Hard reset my Meizu 21 | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-videos-not-playing-on-vivo-x-flip-by-stellar-video-repair-mobile-video-repair/"><u>How to Fix Videos Not Playing on Vivo X Flip?</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-mastering-waveform-overlaps-the-crossfade-method/"><u>In 2024, Mastering Waveform Overlaps The Crossfade Method</u></a></li>
+</ul></div>
 

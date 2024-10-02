@@ -1,7 +1,7 @@
 ---
 title: The Science Behind Mondly's Learning
-date: 2024-09-21T21:03:18.814Z
-updated: 2024-09-26T16:40:23.640Z
+date: 2024-09-25T19:44:51.691Z
+updated: 2024-10-01T23:49:47.783Z
 tags:
   - speak
   - english
@@ -43,10 +43,10 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
  Basically, what happens in the app is that new and more difficult words or phrases will be shown together with older and less difficult ones. But as you progress, the old information will be shown less and less frequently than the new one. This technique makes sure that the information you learned is well-cemented in your brain before moving on to new concepts.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Lexical coverage: focus on the most common words
@@ -58,10 +58,10 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 ![lexical coverage](https://edge.mondly.com/blog/wp-content/uploads/2021/10/lexical-coverage-960x761.png "The Learning Method Behind Mondly 5")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lexical coverage overview
@@ -76,16 +76,16 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 ---
 
 <!-- affiliate ads begin -->
-<span id="2135472">
+<span id="1531882">
 					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Take Mondly for a test drive
@@ -113,18 +113,18 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-echoai-creatives-harmonizing-image-edits/"><u>[Updated] 2024 Approved EchoAI Creatives Harmonizing Image Edits</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-snappy-narratives-on-the-social-scene-for-2024/"><u>[Updated] Snappy Narratives on the Social Scene for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/afrikaans-for-business-success-top-reasons-learned-via-mondlys-method/"><u>Afrikaans for Business Success: Top Reasons Learned via Mondly's Method</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/childhood-as-a-perfect-language-learning-time/"><u>Childhood as a Perfect Language-Learning Time</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-vivo-y36i-device-by-drfone-android/"><u>In 2024, The Ultimate Guide How to Bypass Swipe Screen to Unlock on Vivo Y36i Device</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/inside-toms-hardware-comprehensive-gadget-analysis-and-advice/"><u>Inside Tom's Hardware: Comprehensive Gadget Analysis & Advice</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/master-the-art-of-vlogging-starting-kit-and-tools/"><u>Master the Art of Vlogging Starting Kit & Tools</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sneak-in-some-slovak-today-daily-10-minute-language-dive/"><u>Sneak in Some Slovak Today: Daily 10-Minute Language Dive</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/spanish-number-one-your-starting-point/"><u>Spanish Number One - Your Starting Point</u></a></li>
-<li><a href="https://howto.techidaily.com/super-easy-ways-to-deal-with-honor-magic-6-unresponsive-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Super Easy Ways To Deal with Honor Magic 6 Unresponsive Screen | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/swift-path-to-urdu-mastery/"><u>Swift Path to Urdu Mastery</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/nail-and-banner-strategies-for-online-success/"><u>Thumbnail & Banner Strategies for Online Success</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-5-car-locator-apps-for-xiaomi-redmi-note-12-pro-4g-drfone-by-drfone-virtual-android/"><u>Top 5 Car Locator Apps for Xiaomi Redmi Note 12 Pro 4G | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-the-ultimate-handbook-for-youtube-video-creation/"><u>[New] 2024 Approved The Ultimate Handbook for YouTube Video Creation</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-enhance-video-popularity-with-strategic-timestamps-for-2024/"><u>[New] Enhance Video Popularity with Strategic Timestamps for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-revolutionize-your-social-network-creating-captivating-facebook-slides/"><u>[New] In 2024, Revolutionize Your Social Network Creating Captivating Facebook Slides</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-mastering-waveform-overlaps-the-crossfade-method-for-2024/"><u>[Updated] Mastering Waveform Overlaps The Crossfade Method for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-guide-to-accessing-price-null-picture-content/"><u>2024 Approved Guide to Accessing Price-Null Picture Content</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-best-tools-to-hard-reset-honor-100-pro-drfone-by-drfone-reset-android-reset-android/"><u>3 Best Tools to Hard Reset Honor 100 Pro | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-motorola-moto-g73-5g-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Motorola Moto G73 5G Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/grab-the-best-electronics-bargains-amazon-prime-day-sales-event-of-2024-awaits-you/"><u>Grab the Best Electronics Bargains: Amazon Prime Day Sales Event of 2024 Awaits You!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-language-in-a-playful-palette/"><u>Latin Language in a Playful Palette</u></a></li>
+<li><a href="https://games-able.techidaily.com/maximizing-your-bg3-experience-with-dlc-and-upgrades/"><u>Maximizing Your BG3 Experience with DLC & Upgrades</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-must-know-16-phrases-for-gratitude-in-german-culture/"><u>The Must-Know 16 Phrases for Gratitude in German Culture</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-synergy-of-speaking-two-discover-6-gains/"><u>The Synergy of Speaking Two: Discover 6 Gains</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-speech-perfection-english-tongue-twister-workout/"><u>Unlocking Speech Perfection: English Tongue Twister Workout</u></a></li>
 </ul></div>
 

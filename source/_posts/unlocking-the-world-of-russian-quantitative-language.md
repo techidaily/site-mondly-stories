@@ -1,7 +1,7 @@
 ---
 title: Unlocking the World of Russian Quantitative Language
-date: 2024-09-01T00:33:52.975Z
-updated: 2024-09-02T00:33:52.975Z
+date: 2024-09-30T16:02:28.939Z
+updated: 2024-10-01T20:13:31.134Z
 tags:
   - speak
   - english
@@ -46,13 +46,17 @@ If you did manage, good job! You must be a natural.
 
 ![numbers in russian](https://edge.mondly.com/blog/wp-content/uploads/2020/04/numbers-in-russian-600x424.jpg "Russian Numbers - Learn How To Count In Russian 3")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Russian numbers 11-20
 
 **Good to know:** If you want to bring a flower bouquet when you are invited to someone’s house in Russia, choose an odd number of flowers – so три, пять, семь or девять flowers. One Russian superstition says that bouquets with an even number of flowers are adequate only for funerals.
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Russian numbers: 21 and onwards
 
  From here on, Russian numbers are formed similarly to the English numbers (minus the word “and”). If 20 is двадцать_(dvadtsat)_ , then 21 is двадцать**один** _(_ _dvadtsat odin)_ and 22 is двадцать**два** _(dvadtsat dva)_ . Basically, you just**add the numbers from 1 to 9 to the tens.**
@@ -60,8 +64,12 @@ If you did manage, good job! You must be a natural.
 ![russian numbers](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-numbers-600x424.jpg "Russian Numbers - Learn How To Count In Russian 4")
 
 <!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
+  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Russian tens
 
 Here are some examples:
@@ -79,8 +87,18 @@ And guess what! It works the same with the hundreds.
 ![russian hundreds](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-hundreds-600x424.jpg "Russian Numbers - Learn How To Count In Russian 5")
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Russian hundreds
 
  For example, if you want to say 146, you say сто сорок шесть_(sto sorok shest)_ .
@@ -88,12 +106,12 @@ And guess what! It works the same with the hundreds.
 Not as hard as you’d expect, is it?
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Russian ordinal numbers
 
  Now that you’ve learned the Russian cardinal numbers, let’s end this short lesson with some ordinal numbers. You never know when they may come in handy.
@@ -130,8 +148,6 @@ No advertising on the website.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -139,4 +155,26 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-a-step-by-step-guide-to-announcing-a-charity-drive-on-fb-for-2024/"><u>[New] A Step-by-Step Guide to Announcing a Charity Drive on FB for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-blueprints-to-hiring-creative-cinematographers/"><u>[New] Blueprints to Hiring Creative Cinematographers</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-unveiling-the-best-vr-game-engines-of-2023-for-2024/"><u>[New] Unveiling the Best VR Game Engines of 2023 for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-10-best-apps-to-speed-audio-speed-on-mobile/"><u>[Updated] 10 Best Apps to Speed Audio Speed on Mobile</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-discover-7-premium-android-adblocking-tools-for-2024/"><u>[Updated] Discover 7 Premium Android AdBlocking Tools for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-10-best-text-effects-for-your-video/"><u>2024 Approved 10 Best Text Effects for Your Video</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/advance-in-portuguese-mastering-the-language-using-6-key-strategies/"><u>Advance in Portuguese: Mastering the Language Using 6 Key Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/age-driven-efficiency-in-new-language-growth/"><u>Age-Driven Efficiency in New Language Growth</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aussie-slang-unleashed-mastering-local-expressions/"><u>Aussie Slang Unleashed: Mastering Local Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/catalan-skills-minutes-only-start-today/"><u>Catalan Skills, Minutes Only! Start Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/classical-greek-past-linguistics-to-present-day-relevance/"><u>Classical Greek: Past Linguistics to Present-Day Relevance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cutting-edge-linguistic-tools-for-business-mastery/"><u>Cutting-Edge Linguistic Tools for Business Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daily-lessons-learn-urdu-fast/"><u>Daily Lessons: Learn Urdu Fast</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581542051-from-novice-to-expert-mondlys-transformative-journey-for-you/"><u>From Novice to Expert - Mondly's Transformative Journey for You!</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-mastering-audible-content-conversion-into-slide-ready-format-with-powerpoint/"><u>In 2024, Mastering Audible Content Conversion Into Slide-Ready Format with PowerPoint</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-top-tech-for-speedy-video-frame-snapping/"><u>In 2024, Top Tech for Speedy Video Frame Snapping</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581455489-understanding-the-role-of-artificial-intelligence-in-education-and-language-learning/"><u>Understanding The Role Of Artificial Intelligence In Education & Language Learning</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/unraveling-complexity-how-transfer-learning-simplifies-ai/"><u>Unraveling Complexity: How Transfer Learning Simplifies AI</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-save-big-on-final-cut-pro-education-bundle-deals-inside-for-2024/"><u>Updated Save Big on Final Cut Pro Education Bundle Deals Inside for 2024</u></a></li>
+</ul></div>
 

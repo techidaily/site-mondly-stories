@@ -1,7 +1,7 @@
 ---
 title: Official and Vernacular Languages in Croatia
-date: 2024-09-05T04:37:55.746Z
-updated: 2024-09-06T04:37:55.746Z
+date: 2024-09-25T18:58:24.558Z
+updated: 2024-10-01T22:53:45.492Z
 tags:
   - speak
   - english
@@ -14,12 +14,6 @@ keywords: Croatian Language,Vernacular Languages in Croatia,Croatian Official La
 thumbnail: https://thmb.techidaily.com/3b4fc9801ceec8439e874198c6f456d3f60986d5a7e58819eb6db488dc36873e.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Official and Vernacular Languages in Croatia
 
  It’s true, most Croatians do speak English very well, but only as a second language. So what language is spoken in Croatia? Well, the answer is easier than you think. **The name of the language Croatians speak is ‘Croatian’, the ‘Croatian language’ or_Hrvatski_ (as the natives call it).**
@@ -38,20 +32,15 @@ thumbnail: https://thmb.techidaily.com/3b4fc9801ceec8439e874198c6f456d3f60986d5a
 
 ![aerial view of Plitvice, Croatia](https://edge.mondly.com/blog/wp-content/uploads/2021/10/language-in-croatia-960x734.jpg "What Language Is Spoken In Croatia? 2")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  “Plitvice, Croatia” by Mike Swigunski©
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### How similar are Croatian and Serbian?
 
  If you know the story of Yugoslavia, then you also know about the strong connection between Serbia, Croatia, Bosnia, and Montenegro. Sharing a common linguistic ancestor and being encouraged to use a joint language between 1918 and the 1990s, definitely had an impact on what we regard today as four independent languages. But then there’s also the fact that after the collapse of Yugoslavia, political developments have encouraged these ethnic groups to emphasize the differences between their languages. This is what you can call a turbulent and ofter erratic history.
@@ -64,12 +53,6 @@ thumbnail: https://thmb.techidaily.com/3b4fc9801ceec8439e874198c6f456d3f60986d5a
 
  Add regional dialects and subdialects to that, and there you have it. What was previously called ‘the Serbo-Croatian language’ are today two different languages: Croatian and Serbian.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## It is hard to learn Croatian?
 
  If you’re a native English speaker, yes, Croatian may prove [hard to learn](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . But not harder than languages such as Japanese, Chinese or Arabic.
@@ -81,19 +64,21 @@ thumbnail: https://thmb.techidaily.com/3b4fc9801ceec8439e874198c6f456d3f60986d5a
 ![aerial view of Dubrovnik, Croatia](https://edge.mondly.com/blog/wp-content/uploads/2021/10/croatian-language-960x640.jpg "What Language Is Spoken In Croatia? 3")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  “Dubrovnik, Croatia” by Geio Tischler©
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Hello in Croatian and other basic Croatian words
 
  **The most popular way to say ‘hello’ in Croatian is_bok_ , but you can also use_zdravo,_ a more formal hello.** Similarly to other languages, it all depends on who you are talking to and how friendly you allow yourself to be. If you’re a tourist in Croatia,_bok_ or_bog_ (in some areas) should work fine in most situations.
@@ -118,6 +103,13 @@ thumbnail: https://thmb.techidaily.com/3b4fc9801ceec8439e874198c6f456d3f60986d5a
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## From 0 to conversational in Croatian
 
  Do you want to see the Croatian language in action? Get Mondly, the award-winning language learning app that will help you speak Croatian like a pro.
@@ -139,8 +131,6 @@ thumbnail: https://thmb.techidaily.com/3b4fc9801ceec8439e874198c6f456d3f60986d5a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -148,4 +138,21 @@ thumbnail: https://thmb.techidaily.com/3b4fc9801ceec8439e874198c6f456d3f60986d5a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-make-a-mark-with-rapid-impactful-tiktok-photo-tricks-for-2024/"><u>[Updated] Make a Mark with Rapid, Impactful TikTok Photo Tricks for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-insta-stories-enhancing-background-blur-technique/"><u>2024 Approved Insta Stories Enhancing Background Blur Technique</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aussie-phrases-every-kiwi-should-know/"><u>Aussie Phrases Every Kiwi Should Know</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beyond-earthly-expressions-a-study-of-galactic-lexicons/"><u>Beyond Earthly Expressions: A Study of Galactic Lexicons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/celebrating-10-years-mondlybutton-filters-journey/"><u>Celebrating 10 Years: MondlyButton Filters' Journey</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/comprehensive-guide-how-to-efficiently-capture-your-computers-visual-output/"><u>Comprehensive Guide: How to Efficiently Capture Your Computer's Visual Output</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cross-lingual-comprehension-course/"><u>Cross-Lingual Comprehension Course</u></a></li>
+<li><a href="https://facebook.techidaily.com/cutting-edge-chatting-integrating-facebooks-sounds-in-messages/"><u>Cutting-Edge Chatting: Integrating Facebook’s Sounds in Messages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/echoes-and-whispers-africas-multilingual-echo-chamber/"><u>Echoes and Whispers: Africa's Multilingual Echo Chamber</u></a></li>
+<li><a href="https://win-able.techidaily.com/1723012722104-team-fortress-2-wont-start-here-are-solutions-to-get-you-game-on/"><u>Team Fortress 2 Won't Start? Here Are Solutions to Get You Game On</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/the-ultimate-guide-to-fixing-no-sound-situations-on-windows-11-computers/"><u>The Ultimate Guide to Fixing No-Sound Situations on Windows 11 Computers</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/the-ultimate-guide-to-free-dvd-cloning-applications-on-windows-7-2023-edition/"><u>The Ultimate Guide to FREE DVD Cloning Applications on Windows 7, 2023 Edition</u></a></li>
+<li><a href="https://win11.techidaily.com/the-ultimate-guide-reviving-winget-in-w11/"><u>The Ultimate Guide: Reviving Winget in W11</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/ultimate-mp4-encoding-solutions-mastering-the-art-of-efficient-video-format-transformation/"><u>Ultimate MP4 Encoding Solutions : Mastering the Art of Efficient Video Format Transformation</u></a></li>
+</ul></div>
 

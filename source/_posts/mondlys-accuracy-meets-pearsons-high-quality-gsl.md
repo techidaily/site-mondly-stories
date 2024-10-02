@@ -1,7 +1,7 @@
 ---
 title: Mondly's Accuracy Meets Pearson’s High-Quality GSL
-date: 2024-09-23T21:15:42.440Z
-updated: 2024-09-26T19:25:01.089Z
+date: 2024-09-26T19:05:06.808Z
+updated: 2024-10-01T16:21:21.587Z
 tags:
   - speak
   - english
@@ -30,6 +30,13 @@ thumbnail: https://thmb.techidaily.com/93cb6ac8ec609718de42842a42295e1ee84908cc0
 
  Unlike other frameworks that describe language proficiency in broad bands, the GSE offers a finely-grained scale. It identifies what a learner can accomplish at each point across speaking, listening, reading, and writing skills. This unique approach motivates learners by offering a more detailed view of their progression.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Introducing the Global Scale of Languages (GSL)**
 
 Building on this solid foundation, **Pearson has now introduced the Global Scale of Languages (GSL).**
@@ -43,10 +50,10 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
  Building on the GSE, our research team at Pearson decided to prove that this scale could also be transferable to other languages. The study’s results were not only encouraging but groundbreaking. The research confirmed that the GSE is directly transferable to other languages, making it possible for Pearson to develop the new GSL framework.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **Why the GSL stands out**
@@ -56,10 +63,10 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 * **Personalized learning pathways:**  With clear objectives at each scale point, the GSL ensures a learning journey tailored to individual goals, making progression more efficient.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Why start with French, Spanish, and Italian?**
@@ -69,13 +76,6 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
  Moreover, the Romance languages, with their shared Latin roots and interconnected nuances, offer a fascinating study when approached with the precision of the GSL.
 
  As a Mondly user immersing in these languages, you can expect a fresh content approach, and a progressively structured layout.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Language learning backed by unparalleled global research**
 
@@ -89,16 +89,10 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 ---
 
 <!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **Fast-track your progress with Mondly by Pearson**
@@ -122,16 +116,24 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/updated-navigating-legal-pathways-for-gaining-a-million-youtube-views/"><u>[Updated] Navigating Legal Pathways for Gaining a Million YouTube Views</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/15-ways-to-say-goodbye-in-german/"><u>15 Ways to Say Goodbye in German</u></a></li>
-<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-vivo-t2-5g-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Vivo T2 5G? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/halloweens-haunts-international-view/"><u>Halloween's Haunts: International View</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-vivo-t2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Vivo T2 5G | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/invest-in-communication-mastery-lifetime-access-at-unbeatable-rates/"><u>Invest in Communication Mastery - Lifetime Access at Unbeatable Rates</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learning-latin-through-creative-methods/"><u>Learning Latin Through Creative Methods</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-languages-easier-mondlys-innovative-guidebook/"><u>Navigating Languages Easier: Mondly’s Innovative Guidebook</u></a></li>
-<li><a href="https://win-blog.techidaily.com/preventing-forza-horizon-5-from-unexpectedly-quitting-on-a-pc-practical-fixes-that-work/"><u>Preventing Forza Horizon 5 From Unexpectedly Quitting on a PC: Practical Fixes That Work</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/step-by-step-guide-for-fixing-damaged-photos-using-stellar-repair-on-windows-standard/"><u>Step-by-Step Guide for Fixing Damaged Photos Using Stellar Repair on Windows Standard</u></a></li>
-<li><a href="https://techidaily.com/the-way-to-get-back-lost-data-from-nokia-105-classic-by-fonelab-android-recover-data/"><u>The way to get back lost data from Nokia 105 Classic</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-10-facts-about-instagram-reels-the-truth-you-may-ignore/"><u>[New] 10 Facts About Instagram Reels-The Truth You May Ignore</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-primes-premier-pieces-the-watched-and-tweeted-superstars/"><u>[New] In 2024, Prime’s Premier Pieces The #Watched & Tweeted Superstars</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-seizing-video-popularity-key-seo-tools-revealed/"><u>[New] In 2024, Seizing Video Popularity – Key SEO Tools Revealed</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-metaverse-persona-design-a-beginners-compreraniary-guide/"><u>[Updated] 2024 Approved Metaverse Persona Design A Beginner's Compreraniary Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-who-wins-in-speed-duel-gopro-hero4-or-drift-ghost-s/"><u>2024 Approved Who Wins in Speed Duel? GoPro Hero4 or Drift Ghost-S?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-weekdays-eine-sprachubung/"><u>German Weekdays: Eine Sprachübung</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-skys-limit-for-your-visual-stories-unlimited-free-options-and-premium-choices/"><u>In 2024, Sky's Limit for Your Visual Stories Unlimited Free Options and Premium Choices</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-top-9-apple-iphone-6-plus-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 9 Apple iPhone 6 Plus Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/informe-completo-sobre-partes-del-cuerpo-descubrimiento-desde-la-cara-a-los-pies-en-espanol/"><u>Informe Completo Sobre Partes Del Cuerpo: Descubrimiento Desde La Cara A Los Pies En Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/israelian-journey-essentials-must-know-guide-and-dialogue-tools/"><u>Israelian Journey Essentials: Must-Know Guide & Dialogue Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/propelled-progress-the-role-of-ai-in-scholarly-pursuits/"><u>Propelled Progress: The Role of AI in Scholarly Pursuits</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/resolve-to-learn-a-new-language-by-jan-2024/"><u>Resolve to Learn a New Language by Jan 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saying-thank-you-in-german-the-complete-collection/"><u>Saying 'Thank You' In German: The Complete Collection</u></a></li>
+<li><a href="https://location-social.techidaily.com/set-your-preferred-job-location-on-linkedin-app-of-your-samsung-galaxy-s23-tactical-edition-drfone-by-drfone-virtual-android/"><u>Set Your Preferred Job Location on LinkedIn App of your Samsung Galaxy S23 Tactical Edition | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-alluring-saga-and-advantages-of-persian-study/"><u>The Alluring Saga and Advantages of Persian Study</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-sweet-speech-guide-to-chocolate-in-many-languages/"><u>The Sweet Speech Guide to Chocolate in Many Languages</u></a></li>
+<li><a href="https://techidaily.com/things-you-dont-know-about-honor-magic-5-lite-reset-code-drfone-by-drfone-reset-android-reset-android/"><u>Things You Dont Know About Honor Magic 5 Lite Reset Code | Dr.fone</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/transcoding-vimeo-to-mp3-audio-file-for-2024/"><u>Transcoding Vimeo to MP3 Audio File for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/when-and-where-do-countries-celebrate-thanksgiving/"><u>When and Where Do Countries Celebrate Thanksgiving?</u></a></li>
 </ul></div>
 

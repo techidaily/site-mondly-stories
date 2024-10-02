@@ -1,7 +1,7 @@
 ---
 title: Immersive French Learning with Iconic 27 Sayings & Idioms
-date: 2024-09-01T00:30:13.611Z
-updated: 2024-09-02T00:30:13.611Z
+date: 2024-09-30T19:02:34.548Z
+updated: 2024-10-02T00:23:02.373Z
 tags:
   - speak
   - english
@@ -26,6 +26,13 @@ thumbnail: https://thmb.techidaily.com/1526ae325fb6d05a08910e7b5067d22acd2fa8b70
 
  And French, like any other language, is full of such witty insights. Let’s look at some of the most common them.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884017/19272" target="_top" id="1884017">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884017" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884017/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### _1\. Battre le fer pendant qu’il est chaud._
 
 **Literal translation:** “Strike the iron while it is hot.”
@@ -38,9 +45,6 @@ thumbnail: https://thmb.techidaily.com/1526ae325fb6d05a08910e7b5067d22acd2fa8b70
 
  – _Qu’est-ce que tu attends ? Il faut battre le fer pendant qu’il est chaud !_ (“What are you waiting for? Strike the iron while it’s hot!”)
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ### _2\. Ce n’est pas la mer à boire._
 
 **Literal translation:** “It’s not as if you have to drink the sea.”
@@ -55,11 +59,15 @@ thumbnail: https://thmb.techidaily.com/1526ae325fb6d05a08910e7b5067d22acd2fa8b70
 
 ![french expressions](https://edge.mondly.com/blog/wp-content/uploads/2020/07/french-expressions-1-960x539.jpg "27 French Sayings And Idioms That Will Make You Sound French-Born 2")
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
+  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  “The French way” by Alex D’Alessio©
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ### _3\. La nuit porte conseil._
 
 **Literal translation:** “The night brings advice.”
@@ -72,9 +80,6 @@ _– Je ne sais pas si je dois accepter ou pas._ (“I don’t know if I should 
 
  –_La nuit porte conseil._ (“Sleep on it.”)
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ### _4\. Comme on fait son lit, on se couche._
 
 **Literal translation:** “You’ve made your bed, now lie on it.”
@@ -91,9 +96,6 @@ _– Je ne sais pas si je dois accepter ou pas._ (“I don’t know if I should 
 
  –_Comme on fait son lit, on se couche._ (“You’ve made your bed, now lie on it.”)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ### _5\. Vouloir, c’est pouvoir._
 
 **Literal translation:** “To want to is to be able to.”
@@ -128,9 +130,6 @@ _– Je ne peux pas le faire, c’est impossible !_ (“I can’t do it, it’s 
 
 _– Comme vous voulez. Mais il ne faut rien laisser au hasard._ (“Suit yourself. But nothing should be left to chance.”)
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### _8\. L’habit ne fait pas le moine._
 
 **Literal translation:** “The outfit doesn’t make the monk.”
@@ -142,6 +141,13 @@ _– Comme vous voulez. Mais il ne faut rien laisser au hasard._ (“Suit yourse
 _– Notre nouveau collègue semble être une personne très calme._ (“Our new colleague seems like a very quiet person.”)
 
 _– L’habit ne fait pas le moine._ (“Don’t judge a book by its cover.”)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### _9\. Mieux vaut tard que jamais._
 
@@ -169,6 +175,13 @@ _– Comment est-ce possible? Sadie a gagné encore une fois !_ (“How is this 
 
 _– Aux innocents les mains pleines._ (“Beginner’s luck”)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### _11\. Mieux vaut être seul que mal accompagné._
 
 **Literal translation:** “Better alone than in a bad company.”
@@ -181,9 +194,6 @@ _– La copine de Jacques vient de le quitter._ (“Jacques’s girlfriend just 
 
 _– Mieux vaut être seul que mal accompagné._ (“Better alone than in a bad company.”)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ### _12\. Après la pluie, le beau temps._
 
 **Literal translation:** “After the rain, good weather.”
@@ -194,9 +204,6 @@ _– Mieux vaut être seul que mal accompagné._ (“Better alone than in a bad 
 
 _– Je viens de perdre mon emploi mais je ne vais pas perdre l’espoir._ _Après la pluie, le beau temps._ (“I’ve just lost my job but I won’t lose hope. After all, after the rain, good weather evetually comes.”)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 ### _13\. Les murs ont des oreilles._
 
 **Literal translation:** “The walls have ears.”
@@ -223,9 +230,6 @@ _–_   _Je suis tellement content que nous soyons arrivés en France en toute s
 
  The French are famous for their love for exquisite food and wine. French cuisine is probably one of the most notorious cuisines in the world. So it’s only natural for some of this love to find its way into everyday French sayings.
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ### _1\. L’appétit vient en mangeant._
 
 **Literal translation:**  “Appetite comes with eating.”
@@ -239,8 +243,12 @@ _–_   _Je suis tellement content que nous soyons arrivés en France en toute s
  –_L’appétit vient en mangeant._ (“Appetite comes with eating.”)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### _2\. Mangez bien, riez souvent, aimez beaucoup._
 
 **Literal translation:** “Eat well, laugh often, love a lot.”
@@ -249,9 +257,6 @@ _–_   _Je suis tellement content que nous soyons arrivés en France en toute s
 
 ![french proverbs](https://edge.mondly.com/blog/wp-content/uploads/2020/07/french-proverbs-960x540.jpg "27 French Sayings And Idioms That Will Make You Sound French-Born 4")
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
  “Take care of your own onions” by MILKOVÍ©
 
 ### _3\. S’occuper de ses oignons._
@@ -265,9 +270,12 @@ _–_   _Je suis tellement content que nous soyons arrivés en France en toute s
  _– Sa façon de gérer cela ne vous concerne pas. Occupe-toi de tes oignons._ (“His way of dealing with this isn’t your problem. Mind your own business.”)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### _4\. Raconter des salades._
 
 **Literal translation:** “To tell salads.”
@@ -289,8 +297,12 @@ _– Ça suffit! Tu racontes des salades !_ (“Enough with that. What you are s
 _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Stop annoying me! You are not winning this bet.”)
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### _6\. La vie est trop courte pour boire du mauvais vin._
 
 **Literal translation:** “Life is too short to drink bad wine.”
@@ -299,9 +311,6 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
 
 ![funny french expressions](https://edge.mondly.com/blog/wp-content/uploads/2020/07/funny-french-expressions-960x540.jpg "27 French Sayings And Idioms That Will Make You Sound French-Born 5")
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  “Tigger looking for rats online” by Catherine Heath©
 
 ## French sayings about animals
@@ -320,9 +329,6 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
 
  –_Oui, Xavier est vraiment un adversaire de taille. À bon chat, bon rat._ (“Yes, Xavier is a really good match for him. They are equally matched.”)
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### _2\. Les chiens ne font pas des chats._
 
 **Literal translation:** “Dogs don’t make cats.”
@@ -351,9 +357,6 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
 
 **Actual meaning:** “To stand someone up”. If the person you were supposed to meet doesn’t show up, you can say_il m’a posé un lapin_ (“he stood me up”).
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ### _5\. Avoir une araignée au plafond._
 
 **Literal translation:** “To have a spider on the ceiling.”
@@ -366,15 +369,25 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
 
 **Actual meaning:** Talkers are not always doers. The one who talks the most is not always the smartest or the most resourceful.
 
+<!-- affiliate ads begin -->
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### _7\. Peigner la girafe._
 
 **Literal translation:** “To comb the giraffe.”
 
 ![french phrases](https://edge.mondly.com/blog/wp-content/uploads/2020/07/french-phrases-960x638.jpg "27 French Sayings And Idioms That Will Make You Sound French-Born 7")
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  “La girafe” by Dan Dennis©
 
 **Actual meaning:** “To do unnecessary and very long work, to do nothing effective”. Because why on Earth would you comb a giraffe?
@@ -404,8 +417,6 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -413,4 +424,24 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-banishing-blackout-blues-from-youtube-videos-for-2024/"><u>[Updated] Banishing Blackout Blues From YouTube Videos for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-conquering-video-design-challenges-with-filmora-tips/"><u>[Updated] Conquering Video Design Challenges with Filmora Tips</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/1716062741382-updated-in-2024-vrecorder-how-to-download-and-install/"><u>[Updated] In 2024, VRecorder How to Download and Install</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-premier-editing-software-perfect-for-dev-screens/"><u>[Updated] Premier Editing Software Perfect for Dev Screens</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/effortless-film-creation-with-movavi-pro-video-editing/"><u>Effortless Film Creation with Movavi Pro-Video Editing</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-pushing-boundaries-with-advanced-audacity-recording/"><u>In 2024, Pushing Boundaries with Advanced Audacity Recording</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-the-ropes-of-japenese-social-dialogue/"><u>Learn the Ropes of Japenese Social Dialogue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/luscious-language-lessons-via-movies/"><u>Luscious Language Lessons via Movies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-unveils-top-8-motivational-factors-to-learn-hindi-online/"><u>Mondly Unveils: Top 8 Motivational Factors to Learn Hindi Online!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polite-practices-in-france-learning-proper-au-revoir-and-more/"><u>Polite Practices in France: Learning Proper 'Au Revoir' & More</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/safeguarding-your-creations-preventing-ai-generated-fakes-with-nightshade/"><u>Safeguarding Your Creations: Preventing AI-Generated Fakes with Nightshade</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spooky-festivities-a-cultural-insight/"><u>Spooky Festivities: A Cultural Insight</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tackling-the-complexity-of-german-grammar/"><u>Tackling the Complexity of German Grammar</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-infinix-note-30-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Infinix Note 30? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-25-german-idioms-to-speak-like-a-german/"><u>Top 25 German Idioms To Speak Like A German</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/which-language-dominates-israeli-conversations/"><u>Which Language Dominates Israeli Conversations?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/yules-magic-unfolds-access-nine-premium-whole-film-holiday-movies-for-free-for-2024/"><u>Yule's Magic Unfolds Access Nine Premium, Whole-Film Holiday Movies for Free for 2024</u></a></li>
+</ul></div>
 

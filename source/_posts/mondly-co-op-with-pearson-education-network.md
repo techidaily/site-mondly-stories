@@ -1,7 +1,7 @@
 ---
 title: Mondly Co-Op with Pearson Education Network
-date: 2024-09-05T04:37:55.158Z
-updated: 2024-09-06T04:37:55.158Z
+date: 2024-09-30T17:57:53.025Z
+updated: 2024-10-01T17:28:26.624Z
 tags:
   - speak
   - english
@@ -14,18 +14,6 @@ keywords: Pearson Online Courses Collaboration,Educational Technology Integratio
 thumbnail: https://thmb.techidaily.com/6244e9865f3cd047c2f60d5d60d859b9d635a96ea7300f114708b93a9cc09aeb.JPG
 ---
 
-<!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Mondly Co-Op with Pearson Education Network
 
 **London, 29th April 2022 –** [Pearson](https://www.pearson.com/) , the world’s leading learning company, today announced it has [acquired Mondly](https://plc.pearson.com/en-US/news/pearson-acquires-leading-online-language-learning-platform) , a global online language learning platform. The acquisition will allow Pearson to offer a full range of ways for people to learn and prove their English skills – adding online self-study to its existing diagnosis and learning tools and assessment portfolio.
@@ -47,22 +35,17 @@ thumbnail: https://thmb.techidaily.com/6244e9865f3cd047c2f60d5d60d859b9d635a96ea
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2024351/7443" target="_top" id="2024351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2024351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024351/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **About Pearson**
 
  At Pearson, our purpose is simple: to add life to a lifetime of learning. We believe that every learning opportunity is a chance for a personal breakthrough. That’s why our c.20,000 Pearson employees are committed to creating vibrant and enriching learning experiences designed for real-life impact. We are the world’s leading learning company, serving customers in more than 200 countries with digital content, assessments, qualifications, and data. For us, learning isn’t just what we do. It’s who we are. Visit us at pearsonplc.com
 
 <!-- affiliate ads begin -->
-<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
-  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **About Mondly**
 
  Mondly is a leading language learning platform that has been named “Regional App of the Year” by Facebook, “App of the Day” by Apple, and “Editors’ Choice” by Google Play. Launched in 2014, it quickly became a leading app in the mobile space. According to Statista, Mondly is currently in the Top 5 language learning apps worldwide by number of downloads.
@@ -75,8 +58,6 @@ thumbnail: https://thmb.techidaily.com/6244e9865f3cd047c2f60d5d60d859b9d635a96ea
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -84,4 +65,20 @@ thumbnail: https://thmb.techidaily.com/6244e9865f3cd047c2f60d5d60d859b9d635a96ea
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-top-12-wildlife-wonders-for-your-android-device/"><u>[Updated] 2024 Approved Top 12 Wildlife Wonders for Your Android Device</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/delving-into-the-world-of-chinese-social-communication/"><u>Delving Into the World of Chinese Social Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dialogue-dive-plunge-into-global-conversations-virtually/"><u>Dialogue Dive: Plunge Into Global Conversations Virtually</u></a></li>
+<li><a href="https://fox-access.techidaily.com/dispel-stellar-video-problem-code-0xc00d36c4/"><u>Dispel Stellar Video Problem: Code 0XC00D36C4</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/easy-methods-for-personalizing-your-chromecast-background-image/"><u>Easy Methods for Personalizing Your Chromecast Background Image</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/edunets-voyage-linking-teachers-globally/"><u>Edunet's Voyage: Linking Teachers Globally</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-resolve-non-functioning-screen-saver-on-windows-10-easily/"><u>How to Resolve Non-Functioning Screen Saver on Windows 10 Easily</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-6-methods-for-switching-from-apple-iphone-14-pro-max-to-samsung-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 6 Methods for Switching from Apple iPhone 14 Pro Max to Samsung | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-embarking-on-a-listening-odyssey-adding-podcasts-to-itunes-via-ios/"><u>In 2024, Embarking on a Listening Odyssey Adding Podcasts to iTunes via iOS</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/insights-into-a-common-icon-what-is-fbs-blue-video-symbol-for-2024/"><u>Insights Into a Common Icon What Is FB’s Blue Video Symbol for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/one-of-the-best-mondly-for-kids-on-google-play/"><u>One Of The Best: Mondly for Kids on Google Play</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-mastery-decoding-hard-to-pronounce-words/"><u>Speaking Mastery: Decoding Hard-to-Pronounce Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-corporate-communication-with-elite-language-apps/"><u>Transform Corporate Communication with Elite Language Apps</u></a></li>
+</ul></div>
 

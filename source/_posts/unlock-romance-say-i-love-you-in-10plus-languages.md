@@ -1,7 +1,7 @@
 ---
 title: "Unlock Romance: Say I Love You In 10+ Languages!"
-date: 2024-09-15T17:29:04.996Z
-updated: 2024-09-16T17:21:37.963Z
+date: 2024-09-27T18:29:32.944Z
+updated: 2024-10-01T23:53:49.768Z
 tags:
   - speak
   - english
@@ -113,20 +113,34 @@ Here are some more ways to say “I love you” in other languages:
 
 ![I love you in sign language](https://edge.mondly.com/blog/wp-content/uploads/2018/10/i-love-you-sign-language.jpg "Say It Like You Mean It: How To Say “I Love You” In 32 Different Languages 4")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The perfect Valentine’s Day gift: 365 gifts for 365 days
 
  Now that you know how to say “I love you” in so many languages, here’s a sweet present idea you could use for your next anniversary or Valentine’s Day. All you need to buy is a big jar – big enough for all your love. The rest of it comes from the bottom of your heart. The first step is to prepare 365 pieces of paper of different colors and sizes and write “I love you” in different languages on the first 32 of them. Go wildly romantic with the rest of them: you could write love quotes for him or love quotes for her, poems or songs that you both like. Next step? Decorate the jar with tiny lights, pieces of lace or stickers.
 
 ![i love you in spanish by Diego PH©](https://edge.mondly.com/blog/wp-content/uploads/2018/10/i-love-you-in-spanish-scaled-480x600.jpg "Say It Like You Mean It: How To Say “I Love You” In 32 Different Languages 5")
 
- When it’s ready, tell your lover to read one piece of paper every day. Even when you are not around. That’s how they’ll smile and know that your heart always belongs to them.
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121332/18498" target="_top" id="2121332">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121332" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121332/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ When it’s ready, tell your lover to read one piece of paper every day. Even when you are not around. That’s how they’ll smile and know that your heart always belongs to them.
 
 ### A love poem for your loved one
 
@@ -181,10 +195,10 @@ _With you, my heart will forever blend._
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### From “I love you” to conversational fast
@@ -216,5 +230,20 @@ _With you, my heart will forever blend._
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-twitter-media-to-music-downloading-and-converting-process/"><u>[New] 2024 Approved Twitter Media to Music Downloading & Converting Process</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-top-tools-for-timely-subtitle-conversion-win-and-mac-edition-best-8-srtr-creators-from-sub/"><u>[New] Top Tools for Timely Subtitle Conversion - Win & Mac Edition Best 8 SRTR Creators From SUB</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-desktopmobile-techniques-for-sound-rate-manipulation-in-youtube/"><u>2024 Approved Desktop/Mobile Techniques for Sound Rate Manipulation in YouTube</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-ultimate-list-10-relaxing-game-hits/"><u>2024 Approved Ultimate List 10 Relaxing Game Hits</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/el-arte-de-comprender-el-corazon-humano-en-espanol-desde-el-ojo-a-las-unas/"><u>El Arte De Comprender El Corazón Humano en Español: Desde El Ojo A Las Uñas</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-enhance-obs-transcoding-troubleshooting-guide/"><u>In 2024, Enhance OBS Transcoding Troubleshooting Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lectura-de-relojes-en-espanol-un-camino-inicial/"><u>Lectura De Relojes en Español: Un Camino Inicial</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-common-german-expressions-curated-list-top-25/"><u>Mastering Common German Expressions - Curated List (Top 25)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-mastery-made-easy-with-mondlyar/"><u>Multilingual Mastery Made Easy with MondlyAR</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/quick-and-simple-guide-to-effective-mic-checks/"><u>Quick and Simple Guide to Effective Mic Checks!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/redefining-fluency-tomorrows-techniques-for-todays-students/"><u>Redefining Fluency: Tomorrow's Techniques for Today's Students</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/skyrocket-profits-invest-in-business-linguistics-training/"><u>Skyrocket Profits: Invest in Business Linguistics Training</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-huawei-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Huawei IMEI without Root A Comprehensive Guide</u></a></li>
+</ul></div>
 

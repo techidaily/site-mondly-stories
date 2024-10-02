@@ -1,7 +1,7 @@
 ---
 title: "Pantheon's Progeny: Ancestral Greek Influence Today"
-date: 2024-09-23T17:18:46.573Z
-updated: 2024-09-26T19:05:43.116Z
+date: 2024-09-24T22:31:08.746Z
+updated: 2024-10-01T16:50:09.875Z
 tags:
   - speak
   - english
@@ -39,19 +39,6 @@ thumbnail: https://thmb.techidaily.com/d8f2922d20e310fe909f77a8d8b81c6fbacf60f30
 
  Spanning an oral tradition of 4,000 years and a written tradition of 3,500 years, Greek boasts the lengthiest lineage among Indo-European languages, making it one of the [oldest languages in the world](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Many consider it unique due to its unbroken historical continuity and we can’t help but agree!
 
-<!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Ancient Greek – the language of the Homeric Poems
 
  Ancient Greek, the language of the “Dark Ages” and the Archaic and Classical periods (1200-300 BCE), emerged following the fall of the Mycenaean civilization. Despite the abandonment of the standardized Mycenaean language, local vernacular dialects persisted and evolved into various Greek dialects over time.
@@ -60,13 +47,6 @@ thumbnail: https://thmb.techidaily.com/d8f2922d20e310fe909f77a8d8b81c6fbacf60f30
 
  Ancient Greek writing during this archaic period featured the “Boustrophedon” style (literally “ox-turning”, after the manner of an ox plowing a field), where alternate lines of text were reversed, a technique observed in earlier civilizations. Nevertheless, around the 8th century BC, the Greek alphabet was standardized.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
-  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Dialects of Ancient Greece
 
  **Before the conquest by the Macedonians in the late 4th century BCE, there was no unified Greek language;** rather, various competing dialects existed. Each city or region had its standard for inscriptions, and though these dialects were diverse, the Greeks had a concept of a shared linguistic identity and could understand other dialects.
@@ -74,13 +54,6 @@ thumbnail: https://thmb.techidaily.com/d8f2922d20e310fe909f77a8d8b81c6fbacf60f30
  These dialects, including Attic and Ionic, Aeolic, Arcadocypriot, and Doric, with sub-dialects like Macedonian Greek, resulted from the Greek tribes’ geographic dispersion, varied settlement locations, and political autonomy.
 
  Naturally, this complex linguistic landscape, characterized by many dialects and writing styles, highlights nothing more than the rich diversity and evolution of the ancient Greek language.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Iconic texts written in the ancient Greek language
 
@@ -100,10 +73,17 @@ Other literary works of art representative of this period include:
 ![ancient greece language](https://edge.mondly.com/blog/wp-content/uploads/2023/10/ancient-greece-language.jpg "Ancient Greek Language Influence On Modern Languages 6")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Ancient Greek Writing System and Alphabet
@@ -123,6 +103,19 @@ Other literary works of art representative of this period include:
  We can’t know how much of this is true. But one thing we know for sure: **inscriptions at Olympia place the inception of the Ancient Olympics in 776 BC.** Apparently, they reached their peak somewhere between the 6th and 5th centuries BCE and then slowly declined in significance as the Romans gained influence in Greece.
 
  From politics and governance to philosophy and science, Greek terminologies and ideas laid the foundations for Western thought. Words like ‘democracy’, ‘philosophy’, and ‘astronomy’ are testimonials of Ancient Greek’s influence on today’s world. But let’s go into a little more detail.
+
+<!-- affiliate ads begin -->
+<span id="1983475">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Ancient Greek influence on governance and philosophy
 
@@ -149,13 +142,6 @@ Other literary works of art representative of this period include:
  At the same time, the ancient Greek epics and plays are also foundational for Western literature. Some of the most popular tragedies and comedies in history are still those of ancient Greece. Examples include**the tragedies of Aeschylus, Sophocles, and Euripides** and**the comedies of Aristophanes.**
 
  Just as significant for the modern world are the ancient Greek art and architecture. The principles of symmetry, harmony, and proportionality influenced Western architectural designs, including the construction of monuments and public buildings. The Greek column, for example, is a beloved element we’ve seen even in fashion!
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Ancient Greek influence on science and mathematics
 
@@ -187,13 +173,6 @@ Other literary works of art representative of this period include:
 
  This is just one example among countless others where a modern English word owes its existence to Ancient Greek ancestry. As a matter of fact, it’s estimated that **more than 150,000 English words can be traced back to their Greek origins.**
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## English words of Greek origin
 
 | **English word** | **Greek origin**                                                                                          |
@@ -222,24 +201,31 @@ Other literary works of art representative of this period include:
 
  As we already discussed, ancient Greece and its fascinating mythology have been very influential in Western culture. And if you need more proof to be sure of it, stick around, and let’s look at some**iconic expressions that originated from Greek myths.**
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Achilles’ heel
 
 _Describes a weakness in spite of overall great strength or resilience._
 
  According to the legend, Achilles’ mother, Thetis, dipped him into the River Styx to prevent his foretold death. However, she held him by the heel, making it his vulnerability later in life. Achilles was ultimately killed during the Trojan War from wounds to his heel, ankle, and torso.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Pandora’s box
 
  _Refers to something that creates a lot of new problems that you did not expect._
 
  The myth of Pandora’s box originates from the story where Prometheus steals fire from the gods to give to mankind. As a punishment for humanity, the gods create Pandora, the first woman, and give her a box with strict instructions not to open it. Overcome by curiosity, Pandora opens the box, releasing all the world’s troubles. Only Hope remains trapped inside.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Herculean task
 
@@ -248,6 +234,13 @@ _Describes a weakness in spite of overall great strength or resilience._
  Hercules, a hero born from Zeus and a human mother, was renowned for his immense strength. According to the legend, Hera, Zeus’ wife, cast a spell on Hercules that drove him mad and caused him to kill his wife and their two children. Remorseful and devastated, Hercules sought out Apollo, the god of truth and healing and another son of Zeus, pleading to be penalized for his actions.
 
  Thus, he was tasked with completing twelve extremely challenging “labors”. These labors included daunting tasks such as retrieving the guardian dog from the underworld and defeating the multi-headed Hydra. Hence, the term ‘Herculean’ describes any job or task that is incredibly difficult and requires enormous strength.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. The Midas Touch
 
@@ -264,6 +257,13 @@ _Refers to a person who has good fortune._
  These are just a few of the witty expressions Greek myths left us with. So, feel free to expand your search and use them wisely in your day-to-day conversations. Not only are they a fun way to sound cooler, but they will also broaden your knowledge of the world. I mean, you definitely can not call someone a ‘narcissist’ without knowing Narcissus’ legend, right?
 
 ![what is greece's language](https://edge.mondly.com/blog/wp-content/uploads/2023/10/what-is-greeces-language.jpg "Ancient Greek Language Influence On Modern Languages 9")
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Differences Between Ancient Greek and Modern Greek
 
@@ -287,16 +287,16 @@ _Refers to a person who has good fortune._
 
  A lot of English words, concepts, and idiomatic expressions are of Greek origin. For example, the words that begin with the letter ‘ph’ are particularly easy to trace back to Greek.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### What writing system did ancient Greeks use?
 
  The earliest attested writing system used by ancient Greeks is a clay tablet written in the Linear B script. It is hypothesized to be descended from the older Linear A script which is undeciphered. However, around the 8th century BCE, Greeks adopted the Greek alphabet used today.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How can I learn to speak ancient Greek?
 
@@ -332,18 +332,15 @@ _Refers to a person who has good fortune._
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-2024-approved-savor-sweetness-on-the-go-the-ultimate-guide-to-cookies-for-travelers/"><u>[New] 2024 Approved Savor Sweetness on the Go The Ultimate Guide to Cookies for Travelers</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-simplifying-the-art-of-gif-production/"><u>[New] Simplifying the Art of GIF Production</u></a></li>
-<li><a href="https://win-blog.techidaily.com/1-learn-how-to-create-blur-effect-in-videos-like-movie-masking-with-movavi/"><u>1. Learn How to Create Blur Effect in Videos Like Movie Masking with Movavi</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/articulate-achievement-overcoming-phonetic-obstacles/"><u>Articulate Achievement: Overcoming Phonetic Obstacles</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/delving-into-affection-hungarys-verbal-expression/"><u>Delving Into Affection: Hungary's Verbal Expression</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/descubrimiento-fascinante-del-sistema-cardiovascular-del-corazon-a-los-toes/"><u>Descubrimiento Fascinante Del Sistema Cardiovascular: Del Corazón a Los Toes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fluently-fascinate-mastering-parisian-passion-dialogue/"><u>Fluently Fascinate: Mastering Parisian Passion Dialogue</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-boost-engagement-with-essential-marketing-terms/"><u>In 2024, Boost Engagement with Essential Marketing Terms</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-exploring-digital-realms-metaverse-versus-multiverse-compared/"><u>In 2024, Exploring Digital Realms Metaverse Versus Multiverse Compared</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-passfab-apple-iphone-6s-plus-backup-unlocker-top-4-alternatives-drfone-by-drfone-ios/"><u>In 2024, PassFab Apple iPhone 6s Plus Backup Unlocker Top 4 Alternatives | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-the-essential-handbook-for-incorporating-music-into-ppt/"><u>In 2024, The Essential Handbook for Incorporating Music Into PPT</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-journey-to-a-happy-new-age/"><u>Language Journey to a Happy New Age</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/oculus-quest-adapts-to-diverse-linguistic-needs-with-mondly-support/"><u>Oculus Quest Adapts to Diverse Linguistic Needs with Mondly Support</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-step-by-step-to-craft-flawless-yt-thumbnails/"><u>[New] In 2024, Step-by-Step to Craft Flawless YT Thumbnails</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-top-10-hilarious-tweets-galore/"><u>[New] Top 10 Hilarious Tweets Galore</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-selecting-superior-capture-cards-switch-style/"><u>[Updated] Selecting Superior Capture Cards, Switch Style</u></a></li>
+<li><a href="https://windows11.techidaily.com/12-top-changes-to-expect-with-windows-11s-latest-release/"><u>12 Top Changes to Expect with Windows 11'S Latest Release</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-build-stellar-youtube-beginnings-on-a-shoestring-budget/"><u>2024 Approved Build Stellar YouTube Beginnings on a Shoestring Budget</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-english-keyly-commonly-misspelled-terms-countdown/"><u>Mastering English: Keyly Commonly Misspelled Terms Countdown</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sensorylingua-the-sensorial-approach-to-language-learning/"><u>SensoryLingua: The Sensorial Approach to Language Learning</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ultimate-tutorial-how-to-use-nvidia-geforce-experience-for-easy-screen-recording-with-shadowplay-feature/"><u>Ultimate Tutorial: How to Use Nvidia GeForce Experience for Easy Screen Recording with ShadowPlay Feature</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-the-soul-of-german-speech-select-25-phrases/"><u>Understanding the Soul of German Speech - Select 25 Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-fluent-interaction-italys-top-10-conversation-starters/"><u>Unlock Fluent Interaction: Italy's Top 10 Conversation Starters</u></a></li>
 </ul></div>
 

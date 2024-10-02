@@ -1,7 +1,7 @@
 ---
 title: "Russian Cyrillic Sounds: A Practical Guide"
-date: 2024-09-01T00:32:26.936Z
-updated: 2024-09-02T00:32:26.936Z
+date: 2024-09-27T00:16:57.896Z
+updated: 2024-10-01T18:24:39.101Z
 tags:
   - speak
   - english
@@ -41,8 +41,12 @@ thumbnail: https://thmb.techidaily.com/095ce3d3eacef166f46f59459d5ef71a92a706285
  “Red Square, Moscow, Russia” by Aurelien Romain©
 
 <!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Understand how to pronounce the Russian alphabet
 
  There are 33 letters in the Russian alphabet. 10 vowels (**а, э, ы, у, о, я, е, ё, ю, и)** , 21 consonants (**б, в, г, д, ж, з, к, л, м, н, п, р, с, т, ф, х, ц, ч, ш, щ,** and the consonant**й** which is sometimes a semivowel) and 2 pronunciation signs (the “soft sign” ь and the “hard sign” ъ).
@@ -52,8 +56,12 @@ thumbnail: https://thmb.techidaily.com/095ce3d3eacef166f46f59459d5ef71a92a706285
  If we were to compare the Russian alphabet to the English alphabet, we would have four groups of letters: letters that look and sound (almost) the same as in English, letters that sound the same but look different, letters that look the same but sound different and letters that have no English equivalent whatsoever.
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Russian letters that are (almost) the same as in English
 
 * **А а** sounds like “a” in “father” or “after”,
@@ -62,6 +70,13 @@ thumbnail: https://thmb.techidaily.com/095ce3d3eacef166f46f59459d5ef71a92a706285
 * **М м** sounds like “m” in “mother” or “mobile”,
 * **О о** sounds like “o” in “bore” or “more” (without the ‘r’ sound),
 * **Т т** sounds like “t” in “top” or “task”.
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
+  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Russian letters that sound the same as in English (but look different)
 
@@ -82,9 +97,6 @@ thumbnail: https://thmb.techidaily.com/095ce3d3eacef166f46f59459d5ef71a92a706285
 * **Ю ю** sounds like “you” or “use”,
 * **Я я** sounds like “yu” in yummy or “ya” in “yard”.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
 ### Russian letters that look the same as in English (but sound different)
 
 * **В в** sounds like “v” in “van” or “voice”,
@@ -108,14 +120,8 @@ thumbnail: https://thmb.techidaily.com/095ce3d3eacef166f46f59459d5ef71a92a706285
 
 ![russian alphabet pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2020/03/russian-alphabet-pronunciation-1-431x600.jpg "Master The Russian Alphabet Pronunciation 3")
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Russian alphabet pronunciation
 
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Russian lesson no. 1: rules
 
  Russian is definitely not the [hardest language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) you can study. As you already saw, once you get to know it, the Russian alphabet seems quite friendly. Languages like Chinese, Japanese, Korean or [Arabic](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , on the other hand, are way harder to master. Besides, once you learn the alphabet, you will already be able to read in Russian – a great boost for your motivation!
@@ -137,8 +143,12 @@ thumbnail: https://thmb.techidaily.com/095ce3d3eacef166f46f59459d5ef71a92a706285
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Study Russian in just 10 minutes a day
 
  It can be really tricky to master Russian pronunciation if you don’t actively live in Russia. But with Mondly, the award-winning language learning app, you’ll teach yourself Russian using a unique, fast and highly efficient learning method.
@@ -155,8 +165,6 @@ thumbnail: https://thmb.techidaily.com/095ce3d3eacef166f46f59459d5ef71a92a706285
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -164,4 +172,16 @@ thumbnail: https://thmb.techidaily.com/095ce3d3eacef166f46f59459d5ef71a92a706285
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-transform-your-short-form-video-content-top-strategies-revealed/"><u>[New] Transform Your Short-Form Video Content - Top Strategies Revealed</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-demystifying-color-grading-with-powerful-luts/"><u>2024 Approved Demystifying Color Grading with Powerful LUTs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-decade-of-inspiration-with-mondly/"><u>A Decade of Inspiration with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-new-tongue-a-new-world-top-6-integration-methods/"><u>A New Tongue, A New World: Top 6 Integration Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cosmic-communication-the-intricacies-of-star-wars-dialogues/"><u>Cosmic Communication: The Intricacies of Star Wars Dialogues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/countries-participating-in-harvest-festivals/"><u>Countries Participating in Harvest Festivals</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-an-airtag-from-your-apple-id-account-on-apple-iphone-13-mini-by-drfone-ios/"><u>How to Remove an AirTag from Your Apple ID Account On Apple iPhone 13 mini?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-contacts-files-from-lava-by-fonelab-android-recover-contacts/"><u>How To Restore Missing Contacts Files from Lava .</u></a></li>
+<li><a href="https://discover-helper.techidaily.com/top-rated-cross-platform-file-synchronization-tools-how-to-effortlessly-transfer-data-between-iphone-and-pc/"><u>Top-Rated Cross-Platform File Synchronization Tools: How to Effortlessly Transfer Data Between iPhone & PC</u></a></li>
+</ul></div>
 

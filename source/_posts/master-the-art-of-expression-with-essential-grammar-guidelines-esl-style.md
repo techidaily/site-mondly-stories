@@ -1,7 +1,7 @@
 ---
 title: Master the Art of Expression with Essential Grammar Guidelines, ESL-Style
-date: 2024-09-01T00:33:48.496Z
-updated: 2024-09-02T00:33:48.496Z
+date: 2024-09-28T21:43:55.693Z
+updated: 2024-10-01T17:21:45.070Z
 tags:
   - speak
   - english
@@ -72,9 +72,12 @@ thumbnail: https://thmb.techidaily.com/e5cf76fbd383eaf326a40e9f47ba567bbfc7a6911
  Don’t forget that this is a central part of English grammar and mastering it will help you sound like a true native fast. Besides, mistaking one verb form for another is something you should avoid at all costs!
 
 <!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 4\. Focus on context instead of rules
 
  When it comes to [**speaking English**](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ,[Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4717&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4717&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4717) is probably the best tool that can get you there really fast. Why? Because Mondly is based on the inductive method: learn by doing, context and example, and extrapolate to rules. In other words, start thinking in English rather than construct a phrase in your native language, apply the rules and only then translate it accordingly.
@@ -92,8 +95,12 @@ DbSchema database designer for all databases, schema design in the team, schema 
  Whether we are talking about adjective forms, irregular verbs, or nouns without plurals, exceptions are fewer and can help you achieve the level of English fluency and correctness you always dreamed you’d have.
 
 <!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 6\. Practice English Grammar with Oxford
 
  Being the best always requires hard work and practice. Thus, if you want to take a step further and grow from beginner to advanced and later proficient, you should practice grammar with the special workbooks from [Oxford](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
@@ -102,23 +109,21 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
 ![english grammar lessons](https://edge.mondly.com/blog/wp-content/uploads/2020/04/english-grammar-lessons-600x555.jpg "9 English Grammar Tips From An Esl Speaker 2")
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
  “Find your favorite book” by 🇸🇮 Janko Ferlič©
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 7\. Don’t overthink it
 
  Go with the flow and let the inductive method work. Trust your instinct. In time, once you get used to the language, you’ll be able to speak English as easily as you speak your native language.
 
  Don’t calculate your next ten moves. Instead, think directly in English and just speak. If you overthink a phrase now, you’ll overthink it forever.
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 8\. Read your favorite books in English
 
  What better way is there to get used to English grammar in context than reading your favorite books in English? I, for one, started with Harry Potter because it is easy to read and it does not use complex vocabulary.
@@ -128,8 +133,12 @@ DbSchema database designer for all databases, schema design in the team, schema 
  Seeing the English grammar in context will help you assimilate the information faster and learn to use it successfully yourself.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 9\. Make English grammar your friend
 
  After reading, it’s time to practice what you’ve learned with a nice English writing session. Write about your passions, your hobbies, or just about anything you want. The idea is to practice expressing yourself in English in regard to the things you are more likely to talk about in a future conversation with an English speaker.
@@ -155,8 +164,6 @@ DbSchema database designer for all databases, schema design in the team, schema 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -164,4 +171,26 @@ DbSchema database designer for all databases, schema design in the team, schema 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-from-dungeon-crawlers-to-complex-gameplay/"><u>[New] From Dungeon Crawlers to Complex Gameplay</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-superior-converter-mp4-to-facebook/"><u>[Updated] 2024 Approved Superior Converter MP4 to Facebook</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-elite-architects-pioneering-instagram-hlv-makers/"><u>[Updated] Elite Architects Pioneering Instagram HLV Makers</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-facebook-launching-your-first-phenomenal-giving-post/"><u>[Updated] Facebook Launching Your First Phenomenal Giving Post</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-a-deep-dive-into-streamlining-your-google-podcast-process/"><u>2024 Approved A Deep Dive Into Streamlining Your Google Podcast Process</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apples-daily-winner-worldwide-app/"><u>Apple's Daily Winner: Worldwide App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprender-sonidos-de-colores-en-espanol/"><u>Aprender Sonidos De Colores en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beyond-basics-next-gen-strategies-for-language-proficiency/"><u>Beyond Basics: Next-Gen Strategies for Language Proficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/descobrir-gritos-de-saudade-em-portugues-compendio-valioso/"><u>Descobrir Gritos De Saudade Em Português - Compêndio Valioso</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-french-through-reading-20-beginner-friendly-novels/"><u>Discover French Through Reading: 20 Beginner-Friendly Novels</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-actions-signal-big-changes-for-oculus-go-owners/"><u>Facebook's Actions Signal Big Changes for Oculus Go Owners</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-4-feasible-ways-to-fake-location-on-facebook-for-your-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, 4 Feasible Ways to Fake Location on Facebook For your Apple iPhone 14 Pro | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/1715859828393-in-2024-navigating-through-top-ps2-games-on-android-devices-a-compre-written-in-english/"><u>In 2024, Navigating Through Top PS2 Games on Android Devices - A Compre Written in English.</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/masterful-approaches-to-applying-digital-video-effects-online/"><u>Masterful Approaches to Applying Digital Video Effects Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577214649-new-year-diverse-linguistic-dreams/"><u>New Year, Diverse Linguistic Dreams!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578336799-persian-language-heritage-unveiled-learn-today/"><u>Persian Language Heritage Unveiled: Learn Today!</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/revamping-the-reset-account-lockout-after-incorrect-passwords-on-windows-11/"><u>Revamping the Reset Account Lockout After Incorrect Passwords on Windows 11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576689144-tick-tock-learn-slovak-fast-10-minute-daily-sessions/"><u>Tick Tock! Learn Slovak Fast: 10-Minute Daily Sessions!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578556803-why-learning-a-new-language-is-good-for-your-brain/"><u>Why Learning A New Language Is Good For Your Brain</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Honterus’s Path to Inspiring Others
-date: 2024-09-22T18:27:37.941Z
-updated: 2024-09-26T19:11:32.702Z
+date: 2024-09-26T17:15:01.537Z
+updated: 2024-10-01T20:45:09.298Z
 tags:
   - speak
   - english
@@ -27,10 +27,10 @@ thumbnail: https://thmb.techidaily.com/286866a306a63ee3881a3e82bbbdfd6a5621a0735
  In our journey to help those who need it most, we draw inspiration from Honterus and pledge to give students the tools to succeed and the opportunity to learn in ways they never could have imagined. This is why we unveiled multiple state-of-the-art [iMac labs](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) at the Transilvania University of Brașov and several other high schools. In total, there are now 60 brand new iMacs helping young minds innovate in schools all over Brașov.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Rudimenta Cosmographica, the first European-wide manual
@@ -42,10 +42,10 @@ thumbnail: https://thmb.techidaily.com/286866a306a63ee3881a3e82bbbdfd6a5621a0735
 ![honterus map](https://edge.mondly.com/blog/wp-content/uploads/2020/06/honterus-map-600x467.jpeg "Great Personalities Who Inspire Us: Johannes Honterus 2")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027176/19272" target="_top" id="2027176">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027176" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027176/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The map of the world by Johannes Honterus
@@ -53,10 +53,10 @@ thumbnail: https://thmb.techidaily.com/286866a306a63ee3881a3e82bbbdfd6a5621a0735
  Additionally,_Rudimenta Cosmographica_ contained 13 maps of all known parts of the world engraved by Honterus himself. The book proved to be so successful that there were printed 39 editions of it in Brașov, Basel, Prague, Zürich, Antwerp and Cologne. Many consider_Rudimenta Cosmographica_ to be the first European-wide manual and the first Minor Atlas in Central and South-Eastern Europe.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Draw inspiration from the best
@@ -83,10 +83,10 @@ thumbnail: https://thmb.techidaily.com/286866a306a63ee3881a3e82bbbdfd6a5621a0735
 Get Mondly now and speak any language like you never dreamed you would ![Get Mondly now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-5187&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-5187%26utm%5Fsource%3Dblog-post-id-5187&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-5187%26utm%5Fsource%3Dblog-post-id-5187&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-5187%26utm%5Fsource%3Dblog-post-id-5187&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-5187%26mt%3D8 "Get Mondly now")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
@@ -104,16 +104,18 @@ Get Mondly now and speak any language like you never dreamed you would ![Get Mon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/updated-cutting-edge-tips-best-practices-in-digital-sound-recording-for-2024/"><u>[Updated] Cutting-Edge Tips Best Practices in Digital Sound Recording for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-zte-nubia-z60-ultra-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On ZTE Nubia Z60 Ultra | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/audiophiles-dilemma-podcast-or-youtube-dominance-for-2024/"><u>Audiophile's Dilemma Podcast or YouTube Dominance for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/1719160514984-design-considerations-when-developing-signage-to-communicate-information-effectively-while-maintaining-visual-appeal/"><u>Design Considerations when Developing Signage to Communicate Information Effectively While Maintaining Visual Appeal;</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/digital-dialogues-redefining-communication-in-modern-times/"><u>Digital Dialogues: Redefining Communication in Modern Times</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/masterclass-splitting-your-screen-for-maximum-impact-on-facebook-live/"><u>Masterclass Splitting Your Screen for Maximum Impact on Facebook Live</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/reliable-user-guide-to-fix-infinix-hot-40-pro-running-slow-and-freezing-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reliable User Guide to Fix Infinix Hot 40 Pro Running Slow and Freezing | Dr.fone</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/resolving-the-issue-msi-afterburner-misses-gpu-detection-in-windows-10-and-11-systems/"><u>Resolving the Issue: MSI Afterburner Misses GPU Detection in Windows 10 and 11 Systems</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/soundscape-of-seducation-the-language-of-italian-romance/"><u>Soundscape of Seducation: The Language of Italian Romance</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-language-learner-mondlys-2022-champion/"><u>Top Language Learner: Mondly's 2022 Champion</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/witches-ghosts-and-worldwide-traditions/"><u>Witches, Ghosts & Worldwide Traditions</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-mastering-thumbnail-creation-a-step-by-step-guide/"><u>[New] Mastering Thumbnail Creation A Step-by-Step Guide</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/download-and-install-the-ultimate-macx-premium-m2ts-to-avimov-video-transcoder-for-mac-os-x/"><u>Download & Install the Ultimate MacX - Premium M2TS to AVI/MOV Video Transcoder for MAC OS X</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-use-phone-clone-to-migrate-your-oppo-a79-5g-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Use Phone Clone to Migrate Your Oppo A79 5G Data? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-forgotten-the-voicemail-password-of-nokia-xr21-try-these-fixes-by-drfone-android/"><u>In 2024, Forgotten The Voicemail Password Of Nokia XR21? Try These Fixes</u></a></li>
+<li><a href="https://article-files.techidaily.com/minimizing-movement-blur-in-media/"><u>Minimizing Movement Blur in Media</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mirthful-mastery-of-latin-language/"><u>Mirthful Mastery of Latin Language</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/os-melhores-programas-de-leitura-de-pdf-top-6-selecoes-para-editores-e-lectores/"><u>Os Melhores Programas De Leitura De PDF: Top 6 Seleções Para Editores E Lectores</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-clearly-spanish-accentuation-techniques/"><u>Speaking Clearly: Spanish Accentuation Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tandcs-whats-new-and-how-it-affects-you/"><u>T&Cs: What's New and How It Affects You</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-overseas-tongues-studied-in-the-states/"><u>Top Overseas Tongues Studied In the States</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Apple iPhone 13 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ultimate-guide-to-mastering-lithuanian-from-your-laptop/"><u>Ultimate Guide to Mastering Lithuanian From Your Laptop</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unraveling-romance-rivalry-spains-spanish-versus-portugals-portuguese/"><u>Unraveling Romance Rivalry: Spain's Spanish Versus Portugal's Portuguese</u></a></li>
 </ul></div>
 

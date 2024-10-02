@@ -1,7 +1,7 @@
 ---
 title: "Transform Your Teaching Methods: 9 Dynamic Grammar Tips for ESL Educators"
-date: 2024-09-01T00:30:42.873Z
-updated: 2024-09-02T00:30:42.873Z
+date: 2024-09-24T22:27:25.076Z
+updated: 2024-10-01T22:27:22.988Z
 tags:
   - speak
   - english
@@ -63,6 +63,13 @@ thumbnail: https://thmb.techidaily.com/896a3051dab897fe8d0c2740f6699976d5490b685
 
  At first glance, there is a lot of information you need to remember. But rest assured: you won’t always have to analyze the situation over and over again in order to choose the correct tense. In time, you will get used to using the correct form naturally.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. Learn the English irregular verbs
 
  There are about 200 [irregular verbs](https://en.wikipedia.org/wiki/English%5Firregular%5Fverbs) (and significantly more if prefixed forms are counted) in English. In most cases, the irregularity concerns the past tense or the past participle.
@@ -72,9 +79,12 @@ thumbnail: https://thmb.techidaily.com/896a3051dab897fe8d0c2740f6699976d5490b685
  Don’t forget that this is a central part of English grammar and mastering it will help you sound like a true native fast. Besides, mistaking one verb form for another is something you should avoid at all costs!
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 4\. Focus on context instead of rules
 
  When it comes to [**speaking English**](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ,[Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4717&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4717&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4717) is probably the best tool that can get you there really fast. Why? Because Mondly is based on the inductive method: learn by doing, context and example, and extrapolate to rules. In other words, start thinking in English rather than construct a phrase in your native language, apply the rules and only then translate it accordingly.
@@ -86,8 +96,12 @@ thumbnail: https://thmb.techidaily.com/896a3051dab897fe8d0c2740f6699976d5490b685
  The experts behind Mondly know how amazing the human brain is. This is why they carefully selected the content so that you’ll practice and the brain will make the connections itself. You don’t focus on the process but on the final result: speaking English like a native.
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 5\. Learn the most common exceptions
 
  Forget about rules. Focus on the most common exceptions. Once you begin using the inductive learning method, rules will follow naturally. So it’s the exception you need to study and master.
@@ -102,18 +116,8 @@ thumbnail: https://thmb.techidaily.com/896a3051dab897fe8d0c2740f6699976d5490b685
 
 ![english grammar lessons](https://edge.mondly.com/blog/wp-content/uploads/2020/04/english-grammar-lessons-600x555.jpg "9 English Grammar Tips From An Esl Speaker 2")
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
  “Find your favorite book” by 🇸🇮 Janko Ferlič©
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
-<!-- affiliate ads end -->
 ## 7\. Don’t overthink it
 
  Go with the flow and let the inductive method work. Trust your instinct. In time, once you get used to the language, you’ll be able to speak English as easily as you speak your native language.
@@ -121,8 +125,12 @@ No advertising on the website.
  Don’t calculate your next ten moves. Instead, think directly in English and just speak. If you overthink a phrase now, you’ll overthink it forever.
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 8\. Read your favorite books in English
 
  What better way is there to get used to English grammar in context than reading your favorite books in English? I, for one, started with Harry Potter because it is easy to read and it does not use complex vocabulary.
@@ -131,9 +139,6 @@ No advertising on the website.
 
  Seeing the English grammar in context will help you assimilate the information faster and learn to use it successfully yourself.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 9\. Make English grammar your friend
 
  After reading, it’s time to practice what you’ve learned with a nice English writing session. Write about your passions, your hobbies, or just about anything you want. The idea is to practice expressing yourself in English in regard to the things you are more likely to talk about in a future conversation with an English speaker.
@@ -159,8 +164,6 @@ No advertising on the website.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -168,4 +171,24 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/updated-best-buys-in-screen-recording-focusing-on-tunefabs-innovations/"><u>[Updated] Best Buys in Screen Recording - Focusing on Tunefab's Innovations</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-premium-windows-10-screen-recording-software-for-2024/"><u>[Updated] Premium Windows 10 Screen Recording Software for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-fostering-flourishing-visuals-with-after-effects-fonts/"><u>2024 Approved Fostering Flourishing Visuals with After Effects Fonts</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/elite-cutting-edge-tools-devices-for-apps/"><u>Elite Cutting-Edge Tools (Devices) for Apps</u></a></li>
+<li><a href="https://extra-information.techidaily.com/enhance-vr-experience-advanced-gopro-4k-editing/"><u>Enhance VR Experience Advanced GoPro 4K Editing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhanced-learning-experiences-mondlys-augmented-reality-for-tongues/"><u>Enhanced Learning Experiences: Mondly's Augmented Reality for Tongues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-steps-for-home-based-french-proficiency/"><u>Essential Steps for Home-Based French Proficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-vietnamese-expressions-a-travelers-guidebook/"><u>Essential Vietnamese Expressions: A Traveler's Guidebook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressive-heartbeats-international-loving-terms-on-14th/"><u>Expressive Heartbeats: International Loving Terms on 14Th</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/first-steps-in-francophone-literature-recommended-20-novels/"><u>First Steps in Francophone Literature: Recommended 20 Novels</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-etiquette-demystified-saying-oui-and-au-revoir-correctly/"><u>French Etiquette Demystified: Saying 'Oui' And 'Au Revoir' Correctly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-expert-how-mondly-transformed-my-language-learning-top-10/"><u>From Novice to Expert: How Mondly Transformed My Language Learning (Top 10)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-idioms-decoded-top-25-essentials/"><u>German Idioms Decoded: Top 25 Essentials</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-a-lost-meizu-21-for-free-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track a Lost Meizu 21 for Free? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/shielding-your-media-what-does-unlisted-mean-in-youtube-for-2024/"><u>Shielding Your Media What Does Unlisted Mean in YouTube for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/stylish-methodology-combining-gopro-imagery-into-360-video-tapestry/"><u>Stylish Methodology Combining GoPro Imagery Into 360 Video Tapestry</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/understanding-winservicesexe-deciphering-windows-process/"><u>Understanding WinServices.exe: Deciphering Windows Process</u></a></li>
+</ul></div>
 

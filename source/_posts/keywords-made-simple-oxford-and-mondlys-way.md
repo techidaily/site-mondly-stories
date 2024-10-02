@@ -1,7 +1,7 @@
 ---
 title: "Keywords Made Simple: Oxford & Mondly's Way"
-date: 2024-09-01T00:33:38.883Z
-updated: 2024-09-02T00:33:38.883Z
+date: 2024-09-25T21:57:39.803Z
+updated: 2024-10-01T17:53:17.757Z
 tags:
   - speak
   - english
@@ -33,6 +33,13 @@ thumbnail: https://thmb.techidaily.com/8357b168f14ad6299dbc663fee70693f53617c625
  As [Oxford University Press](https://elt.oup.com/feature/global/expert/oxford-3000?cc=ro&selLanguage=en) explains, _the original list was compiled by looking at word frequency information from the British National Corpus, a large database of English texts (100 million words) composed of a wide range of written and spoken genres which can be seen as representing language usage in general. While frequency was the main guiding principle in compiling the list, raw frequency data can throw up a number of anomalies that make little sense from a teaching perspective. For example, some words that are clearly useful for learners, such as “passport” and “apple”, are not very high frequency in a general corpus. For this reason, compilers took into account not just frequency, but also familiarity (…) as judged by a panel of 70 teachers._
 
  Since its inception, the Oxford 3000 has been revised to reflect the language in daily use that has changed a lot due to the growth of the internet and social media.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The most important words in English and their relation to CEFR levels
 
@@ -76,8 +83,6 @@ thumbnail: https://thmb.techidaily.com/8357b168f14ad6299dbc663fee70693f53617c625
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -85,8 +90,18 @@ thumbnail: https://thmb.techidaily.com/8357b168f14ad6299dbc663fee70693f53617c625
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-ice-racers-unite-celebrating-snowboard-cross-victories-winter-olympics-edition/"><u>[Updated] In 2024, Ice Racers Unite Celebrating Snowboard Cross Victories, Winter Olympics Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-gaps-in-france-with-key-linguistic-tools/"><u>Bridging Gaps in France with Key Linguistic Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/childhood-learning-leader-mondly-kids-honored-2017/"><u>Childhood Learning Leader: Mondly Kids Honored 2017</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprehensive-list-of-10-common-spanish-salutations-and-greetings/"><u>Comprehensive List of 10 Common Spanish Salutations And Greetings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/corinthian-chronicles-the-linguistic-odyssey-continues/"><u>Corinthian Chronicles: The Linguistic Odyssey Continues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciding-german-versus-french-proficiency-advantages/"><u>Deciding: German Versus French Proficiency Advantages</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-troubleshooting-error-connecting-to-the-apple-id-server-on-apple-iphone-6s-plus-by-drfone-ios/"><u>In 2024, Troubleshooting Error Connecting to the Apple ID Server On Apple iPhone 6s Plus</u></a></li>
+<li><a href="https://win-able.techidaily.com/restoring-game-sounds-in-skyrim-a-step-by-step-guide/"><u>Restoring Game Sounds in Skyrim - A Step-by-Step Guide</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/unmatched-warfare-discovering-the-prime-7-total-war-battles-for-2024/"><u>Unmatched Warfare Discovering the Prime 7 Total War Battles for 2024</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-removing-background-noise-extracting-silent-videos-for-2024/"><u>Updated Removing Background Noise Extracting Silent Videos for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-unlock-the-power-of-animated-photos-top-tools/"><u>Updated Unlock the Power of Animated Photos Top Tools</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

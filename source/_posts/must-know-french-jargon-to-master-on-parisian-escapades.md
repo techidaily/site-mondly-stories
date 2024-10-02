@@ -1,7 +1,7 @@
 ---
 title: Must-Know French Jargon to Master on Parisian Escapades
-date: 2024-09-01T00:34:05.063Z
-updated: 2024-09-02T00:34:05.063Z
+date: 2024-09-29T21:05:09.120Z
+updated: 2024-10-01T19:43:47.674Z
 tags:
   - speak
   - english
@@ -132,9 +132,6 @@ thumbnail: https://thmb.techidaily.com/512452c63d7af3ae11e5ca5b18a5aa9837e3237ce
 
 ![basic french sentences](https://edge.mondly.com/blog/wp-content/uploads/2018/09/basic-french-sentences-scaled-960x641.jpg "100+ French Travel Phrases You'Ll Need To Fall In Love With Paris 6")
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Paris by night by ©Jez Timms
 
 * Thank you for your help. –_Merci pour votre aide._
@@ -160,8 +157,12 @@ thumbnail: https://thmb.techidaily.com/512452c63d7af3ae11e5ca5b18a5aa9837e3237ce
 ![french expressions](https://edge.mondly.com/blog/wp-content/uploads/2018/09/french-expressions-1024x682.jpg "100+ French Travel Phrases You'Ll Need To Fall In Love With Paris 7")
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  “Des crêpes” by ©Alisa Anton
 
 * I would like a tea with lemon. –_Je voudrais un thé au citron._
@@ -178,8 +179,12 @@ thumbnail: https://thmb.techidaily.com/512452c63d7af3ae11e5ca5b18a5aa9837e3237ce
 * What would you like for breakfast? –_Que désirez-vous pour le petit déjeuner?_
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 6\. Common French phrases for tourists who want to have fun
 
  Probably the most important phrases – for some of us – are those related to fun. Going out might tell you a lot about the country you are visiting. Are people drunk, friendly and talkative even at 2 or 3 a.m.? Is the city center empty at 11 o’clock? Never miss a chance to explore a city and know its people. Sleep is for the weak! Having fun is for travelers!
@@ -194,8 +199,12 @@ thumbnail: https://thmb.techidaily.com/512452c63d7af3ae11e5ca5b18a5aa9837e3237ce
 ![french for tourists](https://edge.mondly.com/blog/wp-content/uploads/2018/09/french-for-tourists-1024x682.jpg "100+ French Travel Phrases You'Ll Need To Fall In Love With Paris 8")
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  ©Diao Darius
 
 * Can you get me a ticket? –_Pouvez-vous me procurer un billet?_
@@ -204,6 +213,13 @@ thumbnail: https://thmb.techidaily.com/512452c63d7af3ae11e5ca5b18a5aa9837e3237ce
 * One ticket, please. –_Un billet, s’il vous plaît._
 * Let’s have some fun. –_Amusons-nous._
 * Are there seats available? –_Est-ce qu’il reste des places?_
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 7\. Basic French phrases for your shopping adventures
 
@@ -223,8 +239,12 @@ thumbnail: https://thmb.techidaily.com/512452c63d7af3ae11e5ca5b18a5aa9837e3237ce
 ![basic french travel phrases](https://edge.mondly.com/blog/wp-content/uploads/2018/09/basic-french-travel-phrases-scaled-640x960.jpg "100+ French Travel Phrases You'Ll Need To Fall In Love With Paris 9")
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  ©Gijs Coolen
 
  But if you manage to get caught up in a passionate love story – “by mistake”, of course – it will be so much better if you have your**French phrasebook** on point. It’s time to get real and admit it! Travel phrases are not just for travel, they are also for connecting with new friends or maybe even… lovers?! Who knows? Poor Prince Charming could be stuck in a tree somewhere waiting. Travel as much as possible and find him when you least expect it.
@@ -240,9 +260,6 @@ thumbnail: https://thmb.techidaily.com/512452c63d7af3ae11e5ca5b18a5aa9837e3237ce
 
 ![french love quotes](https://edge.mondly.com/blog/wp-content/uploads/2018/09/french-love-quotes-683x1024.jpg "100+ French Travel Phrases You'Ll Need To Fall In Love With Paris 10")
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  “Love” by ©Cedric Klei
 
 * May I kiss you? –_Puis-je t’embrasser?_
@@ -276,8 +293,6 @@ thumbnail: https://thmb.techidaily.com/512452c63d7af3ae11e5ca5b18a5aa9837e3237ce
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -285,4 +300,22 @@ thumbnail: https://thmb.techidaily.com/512452c63d7af3ae11e5ca5b18a5aa9837e3237ce
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-leading-green-visual-effects-recorders-operating-guide/"><u>[Updated] 2024 Approved Leading Green Visual Effects Recorders Operating Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-camera-editing-showdown-hero-vs-cubes-battle-of-the-screens/"><u>2024 Approved Camera Editing Showdown Hero Vs. Cube's Battle of the Screens</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-vdsu-screen-reader-report-full-insight/"><u>2024 Approved VDSU Screen Reader Report Full Insight</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/7-years-75-million-learners-mondly-leads-the-way/"><u>7 Years, 75 Million Learners, Mondly Leads the Way</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/building-confidence-in-russian-greetings-and-phrases/"><u>Building Confidence in Russian Greetings & Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/catalan-language-sprint-10-minsday/"><u>Catalan Language Sprint – 10 Mins/Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/croatian-speaking-communities/"><u>Croatian Speaking Communities</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/day-to-day-duo-debate-claude-and-generative-power/"><u>Day-to-Day Duo Debate: Claude and Generative Power</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deutsche-wochen-terminierung-lernen/"><u>Deutsche Wochen-Terminierung Lernen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/easily-access-worldwide-languages-for-next-to-nothing/"><u>Easily Access Worldwide Languages for Next to Nothing</u></a></li>
+<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-nokia-g310-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your Nokia G310 Location Settings | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-multilingualism-in-the-new-year/"><u>Embrace Multilingualism in the New Year</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/iphone-13-mini-backup-password-never-set-but-still-asking-heres-the-fix-drfone-by-drfone-ios/"><u>iPhone 13 mini Backup Password Never Set But Still Asking? Heres the Fix | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/precision-tools-impeccable-video-correction-macwin/"><u>Precision Tools: Impeccable Video Correction (Mac/Win)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-complete-guide-to-the-oneplus-nord-n10-5g-affordable-excellence-unveiled/"><u>The Complete Guide to the OnePlus Nord N10 5G: Affordable Excellence Unveiled</u></a></li>
+</ul></div>
 

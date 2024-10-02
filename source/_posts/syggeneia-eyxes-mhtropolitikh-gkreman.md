@@ -1,7 +1,7 @@
 ---
 title: Συγγένεια Ευχές Μητροπολιτική Γκρεμάν
-date: 2024-09-05T04:37:56.839Z
-updated: 2024-09-06T04:37:56.839Z
+date: 2024-09-24T18:52:23.050Z
+updated: 2024-10-01T22:13:23.010Z
 tags:
   - speak
   - english
@@ -14,34 +14,14 @@ keywords: Municipal Maternal Assistance,Maternal Support Group,Family Assistance
 thumbnail: https://thmb.techidaily.com/e1c4df4174fbb7e774640c12444893c833b651d1c12bd8c02f2b01f747786c25.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Συγγένεια Ευχές Μητροπολιτική Γκρεμάν
 
  Knowing how to say ‘**thank you’ in Greek** is probably the most you can achieve with the least amount of effort. A single word is all you need to receive dozens of smiles. Greek people are known for their hospitality and good mood, but your attempt to speak Greek will multiply that by 100. **A heartfelt_efcharistó_ (‘thanks’) can truly work wonders.** But what are all the other ways to express gratitude in Greek depending on the context?
-
-
 
  Even in English, there is more than one way to say ‘[thank you](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ’. It’s only natural to expect the same from Greek. It all depends on the context, who you are talking to, what are thanking them for and how well you know that person. It all seems so complicated now, but it won’t be once you read on.
 
  In this quick Greek lesson, we’ll show you only the practical ways to say thank you in Greek. The thanks you’ll actually need and use in real life. Additionally, we’ll also go over how to say ‘please’ or ‘you’re welcome’ in Greek. As a result, you’ll know exactly what to say and when to say it.
 
-<!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What does efcharistó mean in Greek?
 
  **(Ευχαριστώ)_Efcharistó_ is the most popular way to say ‘thank you’ in Greek.** More similar to ‘thanks’ than ‘thank you’,[_efcharistó_](https://greekerthanthegreeks.com/2015/12/lost-in-translationword-of-day.html) is an informal way of expressing gratitude. Generally, it is most commonly used as a response to a small act of kindness or a basic courtesy from a friend, family member or colleague.
@@ -58,12 +38,6 @@ thumbnail: https://thmb.techidaily.com/e1c4df4174fbb7e774640c12444893c833b651d1c
 
  If you are especially thankful to them, you can also say ευχαριστώ πολύ_(efcharistó poli)_ which means ‘thanks a lot’. Or even ευχαριστώ πάρα πολύ_(efcharistó para poli)_ meaning ‘thank you very much’.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
-  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The formal ‘thank you’ in Greek
 
  When it comes to formality, everything you have to do is to switch to the plural form. If you are talking to someone older, someone you don’t know or maybe even a group of people, you can say **σας ευχαριστώ_(sas efcharistó)_ .** Since English doesn’t have any formal pronouns, there’s no easy way to literally translate this, but it would mean something along the lines of “thank you to all of you”.
@@ -75,11 +49,12 @@ thumbnail: https://thmb.techidaily.com/e1c4df4174fbb7e774640c12444893c833b651d1c
 ![taverna in Greece](https://edge.mondly.com/blog/wp-content/uploads/2021/10/thanks-in-greek-960x720.jpg "All The Best Ways To Say Thank You In Greek 3")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  “Mýkonos, Greece” by Johnny Chen©
 
 ## Examples of Greek thanks
@@ -94,17 +69,12 @@ thumbnail: https://thmb.techidaily.com/e1c4df4174fbb7e774640c12444893c833b651d1c
 * Το εκτιμώ. _(To ektimó.)_ – I appreciate it.
 
 <!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to say ‘please’ and ‘you’re welcome’ in Greek
 
  Are you familiar with the German ‘_Bitte’_ or the Italian ‘_prego’_ that seem to mean everything from ‘please’ to ‘go ahead’ and ‘you’re welcome’?
@@ -112,6 +82,13 @@ thumbnail: https://thmb.techidaily.com/e1c4df4174fbb7e774640c12444893c833b651d1c
  Well, the Greek παρακαλώ_(parakaló)_ works the same. If you want to say ‘please’ in Greek, you say παρακαλώ_(parakaló)._ If you want to say ‘you’re welcome’, παρακαλώ_(parakaló)_ works just fine again. If only everything would be so easy when learning Greek!
 
  But let’s not get ahead of ourselves and forget about the formal variation. To address someone older or a group of people, you should use the formal σας παρακαλούμε_(sas parakaloúme)_ . Did you recognize the_σας (sas)_ particle? If yes, then congratulations! That means you’re on the right track.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## When should you say ‘thank you’ in Greek?
 
@@ -123,11 +100,12 @@ thumbnail: https://thmb.techidaily.com/e1c4df4174fbb7e774640c12444893c833b651d1c
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2024338/7443" target="_top" id="2024338">
-  <img src="//a.impactradius-go.com/display-ad/7443-2024338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024338/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## From 0 to conversational in Greek
 
  Do you want to see the Greek thanks in action? Get [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6166&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6166?mother%5Flang=en%5Fus?target%5Flang=el&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6166?mother%5Flang=en%5Fus?target%5Flang=el) , the award-winning language learning app that will help you speak Greek as if you dined in Olympus with Zeus.
@@ -149,8 +127,6 @@ thumbnail: https://thmb.techidaily.com/e1c4df4174fbb7e774640c12444893c833b651d1c
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -158,4 +134,26 @@ thumbnail: https://thmb.techidaily.com/e1c4df4174fbb7e774640c12444893c833b651d1c
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-elevate-your-channel-ranking-with-these-11-seo-secrets-for-2024/"><u>[Updated] Elevate Your Channel Ranking with These 11 SEO Secrets for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-professional-perspective-a-complete-guide-on-sj-cam-s6/"><u>[Updated] Professional Perspective A Complete Guide on SJ-CAM S6</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/2017s-child-development-champion-mondly-kids-app/"><u>2017'S Child Development Champion: Mondly Kids App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/50-noteworthy-latin-sayings-and-idioms-for-eloquent-company/"><u>50 Noteworthy Latin Sayings & Idioms for Eloquent Company</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bangla-briskly-blossoms-with-just-10-minsday/"><u>Bangla Briskly Blossoms with Just 10 Mins/Day!</u></a></li>
+<li><a href="https://fox-that.techidaily.com/banish-that-blink-expert-advice-for-repairing-your-phones-erratic-display-in-just-7-steps/"><u>Banish That Blink: Expert Advice for Repairing Your Phone's Erratic Display in Just 7 Steps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579824338-be-a-winner-save-up-to-96-on-mondly-pro-lifetime/"><u>Be a Winner : Save Up To 96% on Mondly Pro Lifetime!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beginning-a-language-journey-get-it-at-only-5-off-now/"><u>Beginning a Language Journey? Get It at Only 5% Off Now</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bilingual-bliss-embrace-germanys-idioms-in-25-words/"><u>Bilingual Bliss: Embrace Germany's Idioms in 25 Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprension-animalista-60-nombres-reveladores/"><u>Comprensión Animalista: 60 Nombres Reveladores</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-convergence-bridging-societal-divides-through-talk/"><u>Cultural Convergence: Bridging Societal Divides Through Talk</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-all-must-knows-to-use-fake-gps-go-location-spoofer-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, All Must-Knows to Use Fake GPS GO Location Spoofer On Apple iPhone 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-motorola-moto-g84-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Motorola Moto G84 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-effortless-media-migration-how-to-send-fb-movies-via-whatsapp/"><u>In 2024, Effortless Media Migration How To Send FB Movies via WhatsApp</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-detect-and-stop-mspy-from-spying-on-your-nokia-105-classic-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Stop mSpy from Spying on Your Nokia 105 Classic | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-slomo-visual-delight-thorough-assessment-release/"><u>In 2024, SloMo Visual Delight Thorough Assessment Release</u></a></li>
+<li><a href="https://howto.techidaily.com/quick-fixes-for-why-is-my-itel-a70-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Itel A70 Black and White | Dr.fone</u></a></li>
+<li><a href="https://program-issues.techidaily.com/resolved-lost-arks-frame-rate-drop-and-optimization-fix/"><u>Resolved: Lost Ark's Frame Rate Drop and Optimization Fix</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579878027-speedy-bokmal-acquisition-in-daily-dashes/"><u>Speedy Bokmål Acquisition in Daily Dashes!</u></a></li>
+</ul></div>
 

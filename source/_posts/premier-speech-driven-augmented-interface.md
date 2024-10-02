@@ -1,7 +1,7 @@
 ---
 title: Premier Speech-Driven Augmented Interface
-date: 2024-09-22T18:17:57.171Z
-updated: 2024-09-26T18:39:53.649Z
+date: 2024-09-30T18:30:45.319Z
+updated: 2024-10-01T18:31:13.685Z
 tags:
   - speak
   - english
@@ -43,10 +43,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 > _We started working on Mondly AR in August 2017 and by the time [Blade Runner 2049](http://www.imdb.com/title/tt1856101/) was released, we already had a working demo. Watching Blade Runner 2049 made me realize that we were beginning to build the future. To me, Joi (the holographic companion of officer K) looked like a super advanced version of Mondly – the character we were creating. They can both understand speech, reply with a human voice and change outfits. Of course, Mondly is not as smart and realistic as Joi. Yet. But she can teach you 7 languages. And this is just the beginning._
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
-  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Here’s what you should know about Mondly AR
@@ -65,10 +65,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facts and figures about Mondly
@@ -85,10 +85,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 * [Mondly Press Kit](https://www.dropbox.com/sh/vo4j5214zvwdxy5/AAC20VxIgpuiEe7ED2%5F37VNEa?dl=0)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Media mentions about Mondly
@@ -120,16 +120,24 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-cheapest-alternatives-to-androids-facetime-for-2024/"><u>[New] Cheapest Alternatives to Android's FaceTime for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-the-ultimate-guide-to-android-video-calls/"><u>[New] In 2024, The Ultimate Guide to Android Video Calls</u></a></li>
-<li><a href="https://extra-information.techidaily.com/create-enhance-and-share-with-top-10-free-drawing-programs-on-mac-for-2024/"><u>Create, Enhance & Share With Top 10 Free Drawing Programs on Mac for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fast-track-fluency-in-foreign-dialects/"><u>Fast-Track Fluency in Foreign Dialects</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/how-to-tell-time-in-spanish-a-complete-guide-for-beginners/"><u>How to Tell Time in Spanish – A Complete Guide for Beginners</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-counteracting-bot-influence-for-higher-traffic/"><u>In 2024, Counteracting Bot Influence for Higher Traffic</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-prime-time-the-top-10-windows-webcam-recorders/"><u>In 2024, Prime Time The Top 10 Windows Webcam Recorders</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-unleashing-popularity-how-to-make-a-youtube-hit/"><u>In 2024, Unleashing Popularity How to Make a YouTube Hit</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-celebrates-its-7th-anniversary-with-75-million-learners-worldwide/"><u>Mondly Celebrates Its 7Th Anniversary With 75 Million Learners Worldwide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-delivers-the-ultimate-modernized-language-resource/"><u>Mondly Delivers: The Ultimate Modernized Language Resource</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-kids-the-smart-choice-for-childrens-snacks-a-top-2017-google-app/"><u>Mondly Kids: The Smart Choice for Children's Snacks, A Top 2017 Google App</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-vidvault-prodigies-mastering-the-download-of-tweeted-videos-for-2024/"><u>[New] VidVault Prodigies Mastering the Download of Tweeted Videos for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-the-ultimate-video-booster-guide-uncovering-the-top-20-tips/"><u>[Updated] In 2024, The Ultimate Video Booster Guide - Uncovering the Top 20 Tips</u></a></li>
+<li><a href="https://win11.techidaily.com/aacm4a/"><u>音声ファイルの変換:AACとM4Aを比べて、最適な無劣化方法は何ですか？</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/all-the-buzz-around-samsungs-upcoming-unpacked-2025-key-dates-product-launches-and-speculative-leaks/"><u>All the Buzz Around Samsung's Upcoming Unpacked 2025: Key Dates, Product Launches & Speculative Leaks</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/end-dark-mode-woes-in-win11-after-fall-upgrade/"><u>End Dark Mode Woes in Win11 After Fall Upgrade</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ghouls-pumpkins-and-global-celebrations/"><u>Ghouls, Pumpkins & Global Celebrations</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-nokia-c110-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Nokia C110? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-through-santas-language-landscape/"><u>Journey Through Santa's Language Landscape</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mariners-mouthpiece-essential-words-for-the-wayward/"><u>Mariner's Mouthpiece: Essential Words for the Wayward</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-new-tongues-with-our-top-3-mobile-language-education-apps/"><u>Master New Tongues with Our Top 3 Mobile Language Education Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-the-gateway-to-fluency-crowned-in-germany/"><u>Mondly: The Gateway to Fluency, Crowned in Germany</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pioneering-filtration-the-mondly-pearson-collaboration/"><u>Pioneering Filtration: The Mondly-Pearson Collaboration</u></a></li>
+<li><a href="https://discover-docs.techidaily.com/revolutionize-your-online-presence-with-manycam-leading-live-streaming-virtual-camera-tech-for-content-creators/"><u>Revolutionize Your Online Presence with ManyCam: Leading Live Streaming, Virtual Camera Tech for Content Creators</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/slang-variations-between-american-and-british-youth/"><u>Slang Variations Between American & British Youth</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/start-with-hangul-the-least-complex-way-to-language-learning/"><u>Start with Hangul: The Least Complex Way to Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-complete-set-of-castilian-speakers/"><u>The Complete Set of Castilian Speakers</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-limitations-of-ai-chatbots-8-essential-facts-for-content-creators/"><u>The Limitations of AI Chatbots: 8 Essential Facts for Content Creators</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-in-2024-mastering-video-speed-control-slow-down-speed-up-and-edit-with-ease/"><u>Updated In 2024, Mastering Video Speed Control Slow Down, Speed Up, and Edit with Ease</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/ape-ogg-movavi/"><u>모데이트 APE OGG 파일을 쉽게 바꿀 수 있는 무료 온라인 도구 - Movavi</u></a></li>
 </ul></div>
 

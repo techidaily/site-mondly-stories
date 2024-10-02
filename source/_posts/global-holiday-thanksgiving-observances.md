@@ -1,7 +1,7 @@
 ---
 title: "Global Holiday: Thanksgiving Observances"
-date: 2024-09-01T00:30:05.933Z
-updated: 2024-09-02T00:30:05.933Z
+date: 2024-09-28T00:39:42.715Z
+updated: 2024-10-01T16:34:21.872Z
 tags:
   - speak
   - english
@@ -25,8 +25,6 @@ thumbnail: https://thmb.techidaily.com/8ad1313081653043389b0ec9ab2777fbe6983525a
 ``
 
  Due to popular culture, Thanksgiving may seem profoundly American. If you are living in a country that doesn’t celebrate Thanksgiving, you probably have the wrong idea that this is an all-American holiday. And that’s perfectly understandable. Every year, you see at least one movie scene that features a happy family enjoying a bountiful dinner made of stuffed turkey and mashed potatoes. Nevertheless, celebrating gratitude is more universal than you think.
-
-
 
  Even some European countries celebrate Thanksgiving. The best example is Germany, which celebrates Erntedankfest (’harvest thanks festival’) on the first Sunday of October. So no, Thanksgiving is not just an American holiday. Similar celebrations take place all around the world – from Canada to Japan and even Liberia.
 
@@ -53,8 +51,18 @@ thumbnail: https://thmb.techidaily.com/8ad1313081653043389b0ec9ab2777fbe6983525a
  The interesting thing is that the Thanksgiving celebration in Leiden has everything to do with the United States celebration. According to the [Smithsonian Magazine](https://www.smithsonianmag.com/smart-news/they-celebrate-american-thanksgiving-in-the-netherlands-140671441/) , the well-known Pilgrims that feasted with the Wampanoags in 1621, started as a group of English religious separatists that fled England following king James’ persecution. Before heading to the New World, many of these Pilgrims lived in Leiden for about 11 years, until 1620\. The rest is history.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<span id="1938141">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 4\. Grenada
 
  Although it rhymes with Canada, you should know that Grenada is actually a Caribbean country and its Thanksgiving celebration is one of the youngest in the world. Every year, on the 25th of October, Grenadians commemorate the events that took place in 1983, when Grenada’s deputy prime minister executed the prime minister and seized the power. Only nine days later, the United States military came to the rescue and restored order in a matter of weeks.
@@ -63,26 +71,38 @@ thumbnail: https://thmb.techidaily.com/8ad1313081653043389b0ec9ab2777fbe6983525a
 
 ![thanksgiving turkey](https://edge.mondly.com/blog/wp-content/uploads/2021/11/canadian-thanksgiving-960x641.jpg "What Countries Celebrate Thanksgiving? 3")
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->
  “Thanksgiving turkey” by Claudio Schwarz©
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 5\. Japan
 
  勤労感謝の日 (’Kinrō Kansha no Hi’) has roots in 新嘗祭 (Niiname-sai), the ancient Shinto rice harvest ceremony and it’s celebrated annually on the 23rd of November. Known today as ‘Labor Thanksgiving Day’, the celebration has lost some of its original meaning and is regarded now as an occasion for commemorating labor and reflecting on issues that impact the community, such as the environment and human rights.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 6\. Liberia
 
  Formerly a colony of the American Colonization Society, Liberia declared [its independence](https://www.history.com/this-day-in-history/liberian-independence-proclaimed) in 1947 and became the first democratic republic in African history.
 
  However, the freed slaves from the United States who returned to the country around 1820, brought something back from the US: the Thanksgiving celebration. By the 1880s, it was declared a national holiday and nowadays, Liberia is probably the only other country in the world that celebrates the American Thanksgiving.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 7\. the United Kingdom
 
@@ -90,9 +110,6 @@ thumbnail: https://thmb.techidaily.com/8ad1313081653043389b0ec9ab2777fbe6983525a
 
  During pre-Christian times in Britain, the Saxons would offer the first sheaf of cereals to fertility gods then come together and celebrate the harvest with a supper. Many traditions remained even though Christianity arrived in Britain so the present-day Harvest Festival is celebrated even by churches.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 8\. Brazil
 
  This is kind of a funny one. Apparently, sometime in the 1940s, Brazilian ambassador Joaquim Nabuco returned home from a trip to the US very enthusiastic about the commemorations he saw in St. Patrick’s Cathedral on Thanksgiving Day. So he suggested to President Gaspar Dutra to institute the celebration in Brazil as well.
@@ -104,11 +121,6 @@ thumbnail: https://thmb.techidaily.com/8ad1313081653043389b0ec9ab2777fbe6983525a
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
-<!-- affiliate ads end -->
 ## Learn to give thanks in over 40 languages
 
  Do you want to broaden your horizons and learn to give thanks in over 40 languages? Get [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6274&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6274&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6274) , the award-winning language learning app that will help you speak up to 41 languages.
@@ -130,8 +142,6 @@ The powerful video editing program for your Windows PC</a>
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -139,4 +149,16 @@ The powerful video editing program for your Windows PC</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-tips-to-conclusively-separate-from-tiktok-world-for-2024/"><u>[Updated] Tips to Conclusively Separate From TikTok World for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-unlocking-the-power-of-facebook-slideshows-in-digital-marketing-for-2024/"><u>[Updated] Unlocking the Power of Facebook Slideshows in Digital Marketing for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1726027695348-20248/"><u>2024年度人気の動画編集無料アプリベスト8紹介 - オススメ</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/3-effective-ways-to-bypass-activation-lock-from-apple-iphone-xs-by-drfone-ios/"><u>3 Effective Ways to Bypass Activation Lock from Apple iPhone XS</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/expert-editions-selecting-high-quality-blu-ray-players-freepaid-for-2024/"><u>Expert Editions Selecting High-Quality Blu-Ray Players (Free/Paid) for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-legacy-milestone-achievements-at-mondlylanguages/"><u>Linguistic Legacy: Milestone Achievements at MondlyLanguages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-complexity-the-most-tricky-global-languages/"><u>Navigating Complexity: The Most Tricky Global Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sensorylinguistics-a-vr-approach-to-language/"><u>SensoryLinguistics: A VR Approach to Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-by-step-guide-easy-online-latino-study/"><u>Step-By-Step Guide: Easy Online Latino Study</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Politeness Profiles: The Art of Saying Thanks Across Cultures (154)"
-date: 2024-09-22T18:24:25.558Z
-updated: 2024-09-26T20:42:57.426Z
+date: 2024-09-29T16:07:51.492Z
+updated: 2024-10-01T18:02:01.941Z
 tags:
   - speak
   - english
@@ -59,10 +59,10 @@ thumbnail: https://thmb.techidaily.com/fae766879cd08ae756a7af9db37ac778f5fbfa89e
  “Thanks” by Hanny Naibaho©
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044582/7443" target="_top" id="2044582">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044582" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044582/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The origin of saying “thank you”
@@ -89,10 +89,10 @@ thumbnail: https://thmb.techidaily.com/fae766879cd08ae756a7af9db37ac778f5fbfa89e
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
-  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## From 0 to conversational in over 40 languages
@@ -125,17 +125,18 @@ thumbnail: https://thmb.techidaily.com/fae766879cd08ae756a7af9db37ac778f5fbfa89e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-expand-your-instagram-skills-advanced-use-of-queries-for-2024/"><u>[New] Expand Your Instagram Skills Advanced Use of Queries for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-affordable-devices-customized-obs-tweaks/"><u>[New] In 2024, Affordable Devices Customized OBS Tweaks</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-the-best-compact-audio-capturers-for-ipads-and-macs/"><u>[New] In 2024, The Best Compact Audio Capturers for iPads and Macs</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-efficient-look-up-table-techniques-for-movies/"><u>[Updated] In 2024, Efficient Look-Up Table Techniques for Movies</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bridging-languages-spanish-por-que-and-english-why/"><u>Bridging Languages: Spanish 'Por Que' And English 'Why'</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discover-kids-world-safely-mondlys-back-and-filter-features/"><u>Discover Kids’ World Safely - Mondly's Back and Filter Features</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/harnessing-hype-strategies-to-elevate-your-instagram-presence-for-2024/"><u>Harnessing Hype Strategies to Elevate Your Instagram Presence for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/how-to-improve-english-speaking-9-tips-and-tricks/"><u>How To Improve English Speaking: 9 Tips And Tricks</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-a-detailed-vpna-fake-gps-location-free-review-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed VPNa Fake GPS Location Free Review On Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-community-cinema-collector-pro/"><u>In 2024, Community Cinema Collector Pro</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-and-pearson-unite-for-next-gen-filtering-tools/"><u>Mondly and Pearson Unite for Next-Gen Filtering Tools</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-transformation-from-frankish-to-nederlands/"><u>The Transformation From Frankish to Nederlands</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-unleashing-comedy-in-the-virtual-realm-making-hits-with-metaverse-memes/"><u>[New] Unleashing Comedy in the Virtual Realm - Making Hits with Metaverse Memes</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-proactive-strategies-in-building-an-irresistible-online-identity-on-youtube/"><u>[Updated] Proactive Strategies in Building an Irresistible Online Identity on YouTube</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-organizing-elements-for-dynamic-youtube-videos/"><u>2024 Approved Organizing Elements for Dynamic YouTube Videos</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/android-and-iphones-essential-apps-to-elevate-fb-likes-count-quickly-for-2024/"><u>Android & iPhone's Essential Apps to Elevate FB Likes Count Quickly for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/how-to-fix-a-steam-deck-cloud-sync-error/"><u>How to Fix a Steam Deck Cloud Sync Error</u></a></li>
+<li><a href="https://techtrends.techidaily.com/1722869535582-how-to-refresh-your-ipad-with-a-new-power-source-a-comprehensive-guide/"><u>How to Refresh Your iPad with a New Power Source: A Comprehensive Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/majority-language-among-israeli-population/"><u>Majority Language Among Israeli Population?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-lithuanian-language-via-internet-methods/"><u>Mastering Lithuanian Language via Internet Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saying-bonjour-the-elegant-way-to-express-happiness-and-goodwill/"><u>Saying 'Bonjour': The Elegant Way to Express Happiness & Goodwill</u></a></li>
+<li><a href="https://techtrends.techidaily.com/step-by-step-instructions-for-creating-a-safelist-in-gmail/"><u>Step-by-Step Instructions for Creating a Safelist in Gmail</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tage-der-woche-deutsche-sprache-erweitern/"><u>Tage Der Woche: Deutsche Sprache Erweitern</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-legacy-of-10-ancient-human-communications/"><u>The Legacy of 10 Ancient Human Communications</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vr-verbal-voyage-conquer-global-languages-at-your-fingertips/"><u>VR Verbal Voyage: Conquer Global Languages at Your Fingertips</u></a></li>
 </ul></div>
 

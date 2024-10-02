@@ -1,7 +1,7 @@
 ---
 title: "Master the Local Tongue: 27 Key French Phrases"
-date: 2024-09-01T00:31:28.542Z
-updated: 2024-09-02T00:31:28.542Z
+date: 2024-09-25T22:34:29.125Z
+updated: 2024-10-01T20:00:21.601Z
 tags:
   - speak
   - english
@@ -52,15 +52,8 @@ thumbnail: https://thmb.techidaily.com/43dc38eef47f27063f0ee863ee1d82afec1855627
 
 ![french expressions](https://edge.mondly.com/blog/wp-content/uploads/2020/07/french-expressions-1-960x539.jpg "27 French Sayings And Idioms That Will Make You Sound French-Born 2")
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
  “The French way” by Alex D’Alessio©
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ### _3\. La nuit porte conseil._
 
 **Literal translation:** “The night brings advice.”
@@ -74,8 +67,12 @@ _– Je ne sais pas si je dois accepter ou pas._ (“I don’t know if I should 
  –_La nuit porte conseil._ (“Sleep on it.”)
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### _4\. Comme on fait son lit, on se couche._
 
 **Literal translation:** “You’ve made your bed, now lie on it.”
@@ -93,17 +90,12 @@ _– Je ne sais pas si je dois accepter ou pas._ (“I don’t know if I should 
  –_Comme on fait son lit, on se couche._ (“You’ve made your bed, now lie on it.”)
 
 <!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### _5\. Vouloir, c’est pouvoir._
 
 **Literal translation:** “To want to is to be able to.”
@@ -126,9 +118,6 @@ _– Je ne sais pas si je dois accepter ou pas._ (“I don’t know if I should 
 
 _– Je ne peux pas le faire, c’est impossible !_ (“I can’t do it, it’s impossible!)_– Impossible n’est pas français._ (”Nothing is impossible.“)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ### _7\. Il ne faut rien laisser au hasard._
 
 **Literal translation:** “Nothing should be left to chance.”
@@ -154,8 +143,12 @@ _– Notre nouveau collègue semble être une personne très calme._ (“Our new
 _– L’habit ne fait pas le moine._ (“Don’t judge a book by its cover.”)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### _9\. Mieux vaut tard que jamais._
 
 **Literal translation:** “Late is worth more than never.”
@@ -182,6 +175,13 @@ _– Comment est-ce possible? Sadie a gagné encore une fois !_ (“How is this 
 
 _– Aux innocents les mains pleines._ (“Beginner’s luck”)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### _11\. Mieux vaut être seul que mal accompagné._
 
 **Literal translation:** “Better alone than in a bad company.”
@@ -194,9 +194,6 @@ _– La copine de Jacques vient de le quitter._ (“Jacques’s girlfriend just 
 
 _– Mieux vaut être seul que mal accompagné._ (“Better alone than in a bad company.”)
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### _12\. Après la pluie, le beau temps._
 
 **Literal translation:** “After the rain, good weather.”
@@ -208,8 +205,12 @@ _– Mieux vaut être seul que mal accompagné._ (“Better alone than in a bad 
 _– Je viens de perdre mon emploi mais je ne vais pas perdre l’espoir._ _Après la pluie, le beau temps._ (“I’ve just lost my job but I won’t lose hope. After all, after the rain, good weather evetually comes.”)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### _13\. Les murs ont des oreilles._
 
 **Literal translation:** “The walls have ears.”
@@ -222,9 +223,6 @@ _– Voulez-vous savoir ce que j’ai acheté pour l’anniversaire de maman?_ (
 
 _– Shhh ! Les murs ont des oreilles._ (“Shhh! The walls have ears.)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 ### _14\. Tout est bien qui finit bien._
 
 **Literal translation:** “All’s well that ends well.”
@@ -235,17 +233,10 @@ _– Shhh ! Les murs ont des oreilles._ (“Shhh! The walls have ears.)
 
 _–_   _Je suis tellement content que nous soyons arrivés en France en toute sécurité ! Tout est bien qui finit bien._ (“I’m so glad we got to France safely! All’s well that ends well.”)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ## French sayings about food and wine
 
  The French are famous for their love for exquisite food and wine. French cuisine is probably one of the most notorious cuisines in the world. So it’s only natural for some of this love to find its way into everyday French sayings.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ### _1\. L’appétit vient en mangeant._
 
 **Literal translation:**  “Appetite comes with eating.”
@@ -258,9 +249,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  –_L’appétit vient en mangeant._ (“Appetite comes with eating.”)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ### _2\. Mangez bien, riez souvent, aimez beaucoup._
 
 **Literal translation:** “Eat well, laugh often, love a lot.”
@@ -269,11 +257,15 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
 ![french proverbs](https://edge.mondly.com/blog/wp-content/uploads/2020/07/french-proverbs-960x540.jpg "27 French Sayings And Idioms That Will Make You Sound French-Born 4")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  “Take care of your own onions” by MILKOVÍ©
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### _3\. S’occuper de ses oignons._
 
 **Literal translation:** “To take care of your own onions.”
@@ -312,18 +304,12 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
 
 ![funny french expressions](https://edge.mondly.com/blog/wp-content/uploads/2020/07/funny-french-expressions-960x540.jpg "27 French Sayings And Idioms That Will Make You Sound French-Born 5")
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
  “Tigger looking for rats online” by Catherine Heath©
 
 ## French sayings about animals
 
  Sayings about animals are common in any language. After all, they are our co-residents on this planet and we have quite a lot to learn from them. Here are some of the most common French sayings about animals.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### _1\. À bon chat, bon rat._
 
 **Literal translation:** “To a good cat, a good rat.”
@@ -335,6 +321,13 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
  –_Oh là là, Finalement, Andrew a du mal à gagner le match._ (“Wow! Andrew is finally having trouble winning the match.”)
 
  –_Oui, Xavier est vraiment un adversaire de taille. À bon chat, bon rat._ (“Yes, Xavier is a really good match for him. They are equally matched.”)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### _2\. Les chiens ne font pas des chats._
 
@@ -348,6 +341,13 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
 
  – _Oui, les chiens ne font pas des chats. Elle a hérité du talent de sa mère._ (“Yes, dogs don’t make cats. She inherits her mother’s talent.”)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### _3\. Il n’y a pas de quoi fouetter un chat._
 
 **Literal translation:** “There’s no reason to whip the cat.”
@@ -358,9 +358,6 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
 
  “Bonjour!” by Waranya Mooldee©
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### _4\. Poser un lapin._
 
 **Literal translation:** “To place a rabbit.”
@@ -414,8 +411,6 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -423,4 +418,21 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-guidance.techidaily.com/new-practical-techniques-for-downloading-youtube-srt/"><u>[New] Practical Techniques for Downloading YouTube SRT</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-find-your-favorite-download-free-slide-show-patterns-today/"><u>2024 Approved Find Your Favorite, Download-Free Slide Show Patterns Today</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-pinnacle-spotlight-tapes/"><u>2024 Approved Pinnacle Spotlight Tapes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-us-uk-language-differences/"><u>Exploring US-UK Language Differences</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/facing-the-goliath-studying-german/"><u>Facing the Goliath: Studying German</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/first-footsteps-toward-fluency-in-arabic/"><u>First Footsteps Toward Fluency in Arabic</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-quills-to-keystrokes-enduring-elizabethan-expressions/"><u>From Quills to Keystrokes: Enduring Elizabethan Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gepflegte-gute-auftaktsatze-im-deutschen/"><u>Gepflegte Gute-Auftaktsätze Im Deutschen</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-remove-passcode-from-iphone-15-pro-complete-guide-by-drfone-ios/"><u>How To Remove Passcode From iPhone 15 Pro? Complete Guide</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-change-location-on-yik-yak-for-your-oneplus-11-5g-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>In 2024, Change Location on Yik Yak For your OnePlus 11 5G to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-detect-and-stop-mspy-from-spying-on-your-tecno-camon-20-premier-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Stop mSpy from Spying on Your Tecno Camon 20 Premier 5G | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-sharefake-location-on-whatsapp-for-oppo-a18-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share/Fake Location on WhatsApp for Oppo A18 | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/proven-ways-in-how-to-hide-location-on-life360-for-sony-xperia-5-v-drfone-by-drfone-virtual-android/"><u>Proven Ways in How To Hide Location on Life360 For Sony Xperia 5 V | Dr.fone</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-in-2024-intuitive-vocal-modification-mechanisms-an-insight-into-operational-aspects-standards-and-workarounds/"><u>Updated In 2024, Intuitive Vocal Modification Mechanisms An Insight Into Operational Aspects, Standards, and Workarounds</u></a></li>
+</ul></div>
 

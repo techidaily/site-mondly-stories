@@ -1,7 +1,7 @@
 ---
 title: The Diverse Origins Behind Common English Terms
-date: 2024-09-10T17:16:25.825Z
-updated: 2024-09-16T19:27:06.859Z
+date: 2024-09-28T22:43:55.350Z
+updated: 2024-10-01T18:22:01.024Z
 tags:
   - speak
   - english
@@ -73,6 +73,13 @@ thumbnail: https://thmb.techidaily.com/cceaece01aa4bcb3e2bd94d9a7dafd046bccc2616
 
 ![English foreign words](https://edge.mondly.com/blog/wp-content/uploads/2024/01/english-foreign-words-600x600.png "100+ English Words Borrowed From Other Languages 4")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Although we usually call them “borrowed words”, these are also known as loanwords. According to Oxford Languages,**a loanword** is_“a word adopted from a foreign language with little or no modification”_ . The transition from one language to another can happen through:
 
 * **Transcription,** which means borrowing words while preserving their original pronunciation in the borrowed language;
@@ -84,6 +91,19 @@ thumbnail: https://thmb.techidaily.com/cceaece01aa4bcb3e2bd94d9a7dafd046bccc2616
 ##### Improve your English fast 🚀
 
  With Mondly, English mastery is at your fingertips – and in your native tongue. Start today ![Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-9827&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-9827%26mt%3D8)
+
+<!-- affiliate ads begin -->
+<span id="1983475">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## French loanwords: English words that are actually French
 
@@ -113,6 +133,13 @@ thumbnail: https://thmb.techidaily.com/cceaece01aa4bcb3e2bd94d9a7dafd046bccc2616
 
  Did you know that approximately**30% of the English vocabulary** consists of words that have their origins in**French and Latin** ? Considering that French was the language of the English king and his court for over 300 years, it’s no surprise. During that time, as many as 10,000 French loanwords came into English.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Spanish loanwords: English words that are actually Spanish
 
 | Chinchilla |
@@ -134,13 +161,6 @@ thumbnail: https://thmb.techidaily.com/cceaece01aa4bcb3e2bd94d9a7dafd046bccc2616
 | Guacamole  |
 
  Unlike French loanwords which have been adapted into British English, most of the**Spanish loanwords entered English via the North American English route.** Cultural exchanges between [Spanish-speaking](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and English-speaking communities led to an influx of loanwords related to food and music in particular. For example, words like “guacamole”, “salsa” and “piñata” have been borrowed into English from Spanish due to the popularity of the Mexican culture in the United States.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Italian loanwords: English words that are actually Italian
 
@@ -170,13 +190,6 @@ thumbnail: https://thmb.techidaily.com/cceaece01aa4bcb3e2bd94d9a7dafd046bccc2616
 
  Thanks to Italy’s cultural influence throughout history, especially during the Renaissance period, many languages borrowed its words. Italian words related to art, music, architecture and cuisine have an especially high predominance in the English vocabulary.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## German loanwords: English words that are actually German
 
 | Pretzel      |
@@ -200,6 +213,13 @@ thumbnail: https://thmb.techidaily.com/cceaece01aa4bcb3e2bd94d9a7dafd046bccc2616
 | Diesel       |
 
  Some of the first German words were borrowed into English during the interactions between Germanic-speaking tribes and English-speaking communities in early medieval Europe. Words related to everyday life, family, and community were among the earliest borrowings. Later, thanks to Germany’s influence in various fields, English borrowed German words related to science and technology, music, philosophy, literature and engineering.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Understanding the Size of the English Vocabulary
 
@@ -257,5 +277,19 @@ Coming Soon
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-elevating-your-visuals-mastering-instagram-edits-in-fcpx/"><u>[New] 2024 Approved Elevating Your Visuals Mastering Instagram Edits in FCPX</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-elite-video-call-and-chat-service-selections/"><u>[New] In 2024, Elite Video Call & Chat Service Selections</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-navigating-facebook-stories-like-a-pro/"><u>[New] In 2024, Navigating Facebook Stories Like a Pro</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/2024-approved-snap-edit-and-share-spectacularly-on-tiktok-with-themes/"><u>2024 Approved Snap, Edit & Share Spectacularly on TikTok with Themes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comparative-linguistics-a-turk-korean-odyssey/"><u>Comparative Linguistics: A Turk-Korean Odyssey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-languages-in-a-captivating-virtual-world-mondly-vr-adventure/"><u>Conquer Languages in a Captivating Virtual World - Mondly VR Adventure</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/dissecting-youtubes-activities-post-uploading-videos/"><u>Dissecting YouTube's Activities Post-Uploading Videos</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/el-record-de-la-industria-en-2024-seleccionando-los-12-softwares-ideales-para-transformar-videos-a-alta-definicion/"><u>El Récord De La Industria en 2024: Seleccionando Los 12 Softwares Ideales Para Transformar Videos a Alta Definición</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embracing-italys-non-verbal-communication-traditions/"><u>Embracing Italy's Non-Verbal Communication Traditions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/everything-you-need-to-know-about-spanish-verbs-and-conjugations/"><u>Everything You Need To Know About Spanish Verbs & Conjugations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lorientation-les-jours-de-la-semaine-francaise/"><u>L'Orientation: Les Jours De La Semaine Française</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-essential-guide-to-understanding-your-pcs-processing-needs/"><u>The Essential Guide to Understanding Your PC’s Processing Needs</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Introduction to Mandarin Scripting
-date: 2024-09-05T04:37:58.465Z
-updated: 2024-09-06T04:37:58.465Z
+date: 2024-09-26T20:39:34.137Z
+updated: 2024-10-02T00:10:00.427Z
 tags:
   - speak
   - english
@@ -14,12 +14,6 @@ keywords: Mandarin Script Learning,Chinese Characters Fundamentals,Introduction 
 thumbnail: https://thmb.techidaily.com/bc6e0c08f36b012f885710643ac64bca838b2cd03d9601b077f3603bbf1a3a0e.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2024338/7443" target="_top" id="2024338">
-  <img src="//a.impactradius-go.com/display-ad/7443-2024338" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024338/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Introduction to Mandarin Scripting
 
  Chinese is a very fascinating language, not only because it is one of the [hardest languages](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) to learn but also because it is one of the [oldest languages](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) in the world. Mastering Chinese, even at a basic level, should be considered a personal triumph, considering the high number of Chinese characters you need to know to simply read a newspaper. However, unlike what we are used to when it comes to learning a new language, these characters are not organized into an alphabet because there is no Chinese alphabet_per se_ .
@@ -30,22 +24,10 @@ thumbnail: https://thmb.techidaily.com/bc6e0c08f36b012f885710643ac64bca838b2cd03
 
  Here’s a quick example of how ingenious Chinese characters can be. While **电_diàn_**  translates to**“electric”** ,**“brain”** is **脑_nǎo_**  and if you put these two characters together, you get**电脑** _**diànnǎo**_ which means**“computer”** . Electric brain = computer! See what they did there? Absolutely fascinating! Let’s find out what exactly you should expect if you want to learn Chinese.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2031472/7443" target="_top" id="2031472">
-  <img src="//a.impactradius-go.com/display-ad/7443-2031472" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2031472/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The Chinese language in a nutshell
 
  As you probably already know,[Chinese](https://en.wikipedia.org/wiki/Chinese%5Flanguage) (汉语 or_Hànyǔ_) is not necessarily a single language – Mandarin, but more of a macrolanguage or a family of East Asian languages spoken by 1.3 billion people all around the world. Can you imagine? **Roughly 17% of the world’s population speak some variety of Chinese as their native language.**
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Varieties of Chinese
 
  Before getting into a little history, you should know that the varieties of Chinese are united by a common written language or a common writing system. While some people consider these varieties of Chinese dialects, others regard them as distinct languages because more often than not they are unintelligible.
@@ -55,6 +37,13 @@ thumbnail: https://thmb.techidaily.com/bc6e0c08f36b012f885710643ac64bca838b2cd03
  So how many varieties of Chinese are there? That depends on how you choose to count and categorize them, but many sources seem to agree that there are over**200 distinct varieties of Chinese in 13 dialect groups.**
 
  Out of these 13 groups of dialects, there are 7 that are considered major: Mandarin, Yue (Cantonese), Xiang, Min, Gan, Wu and Hakka.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### The history of the Chinese language and its alphabet
 
@@ -66,18 +55,6 @@ thumbnail: https://thmb.techidaily.com/bc6e0c08f36b012f885710643ac64bca838b2cd03
 
 ![chinese characters](https://edge.mondly.com/blog/wp-content/uploads/2020/06/chinese-characters-600x402.jpg "Quick Introduction To The Chinese Alphabet, Chinese Characters And Pinyin 2")
 
-<!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Chinese antique calligraphic text
 
  Then, in the early 20th century, written vernacular Chinese based on the Beijing dialect was introduced as the new official written language instead of Classical Chinese. People often refer to this standard language as Mandarin because it is based on the Mandarin dialect of Beijing. Thus, Standard Chinese or Mandarin now fulfills the role that Classical Chinese used to fulfill as the official written language that’s used by speakers of all varieties of Chinese.
@@ -90,6 +67,13 @@ thumbnail: https://thmb.techidaily.com/bc6e0c08f36b012f885710643ac64bca838b2cd03
 
  Don’t worry though. There is also good news for us, Chinese beginners! Speakers of all varieties of Chinese typically write in [Standard Chinese](https://en.wikipedia.org/wiki/Standard%5FChinese) even though their spoken language is different. Of course, they’ll pronounce each character in their local variety of Chinese but use the Standard Chinese characters. Nevertheless, you should also note that Chinese languages are often different in terms of grammar and vocabulary. So whatever variety of Chinese you choose to learn, it’s best to stick to it until the end so you won’t get confused.
 
+<!-- affiliate ads begin -->
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Two different systems for writing Chinese characters
 
  And when you thought it gets easier… it gets complicated again. Luckily, you were born in the right century and there are smart language learning apps such as [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5327&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5327?mother%5Flang=en%5Fus?target%5Flang=zh&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5327?mother%5Flang=en%5Fus?target%5Flang=zh) that can help you learn Chinese easier.
@@ -100,12 +84,6 @@ thumbnail: https://thmb.techidaily.com/bc6e0c08f36b012f885710643ac64bca838b2cd03
 
  Despite the obvious differences between the two systems, literate native speakers generally have no problem reading either of them.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Don’t forget about pronunciation
 
  All Chinese varieties or languages – however you want to refer to them – are tonal languages. In other terms, the meaning of a word depends on the tone or the tones that you say it with. Unfortunately for us, those not used to tonal languages, if you change the tone, the meaning of the word can change entirely. That’s why it is always important to give some context.
@@ -149,23 +127,32 @@ thumbnail: https://thmb.techidaily.com/bc6e0c08f36b012f885710643ac64bca838b2cd03
 ![chinese writing system](https://edge.mondly.com/blog/wp-content/uploads/2020/06/chinese-writing-system-600x400.jpg "Quick Introduction To The Chinese Alphabet, Chinese Characters And Pinyin 4")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
+  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  “Wusheng Temple, Taiwan” by Henry & Co.©
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 10 Chinese characters you can learn right now
 
  Now that you know what to expect if you do decide to learn Chinese, let’s move from theory to practice with a quick Chinese lesson. Here are ten of the most commonly used Chinese characters:
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 的 de – used to indicate possession
 
  这是我**的** 朋友。- _Zhè shì wǒ**de** péngyou_ – This is**my** friend.
@@ -174,12 +161,6 @@ thumbnail: https://thmb.techidaily.com/bc6e0c08f36b012f885710643ac64bca838b2cd03
 
  再来**一** 轮酒！- _Zàilái**yī** lún jiǔ!_ –**One** more round!
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2030395/7443" target="_top" id="2030395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2030395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 是 shì – to be (used to link two nouns together)
 
  你**是** 一名旅行者吗？- _Nǐ**shì** yī míng lǚ xíng zhě ma?_ – Are you a tourist?
@@ -188,52 +169,49 @@ thumbnail: https://thmb.techidaily.com/bc6e0c08f36b012f885710643ac64bca838b2cd03
 
  今天我**不** 工作。- _Jīntiān wǒ**bù** gōngzuò._ – I am**not** working today.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 了 le – modal verb particle
 
  Used to indicate the completion of an activity or the change in a situation. It doesn’t really have an equivalent in English.
 
  现在太晚**了** 。- _Xiànzài tài wǎn**le** ._ – Now it’s not too late.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 人 rén – man, person, people
 
  我们的客人是友好的**人** 。- _Wǒmen de kèrén shì yǒuhǎo de**rén** ._ – Our neighbors are nice**people** .
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 我 wǒ – I, myself or me
 
 **我** 准备好要点菜了。- _**Wǒ** zhǔnbèi hǎo yàodiǎn càile._ –**I** am ready to order.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 在 zài – located (at), in
 
  你**在** 哪里生活？- _Nǐ**zài** nǎlǐ shēnghuó?_ – Where do you live?
 
-<!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 有 yǒu – to have, there is, there are, to exist
 
  你**有** 一张城市地图吗？- _Nǐ**yǒu** yī zhāng chéngshì dìtú ma?_ – Do you**have** a city map?
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 他 tā – he, him, his
 
 **他** 将庆祝**他** 的生日。- _**Tā** jiāng qìngzhù**tā** de shēngrì._ –**He** will celebrate his birthday.
@@ -259,8 +237,6 @@ thumbnail: https://thmb.techidaily.com/bc6e0c08f36b012f885710643ac64bca838b2cd03
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -268,4 +244,26 @@ thumbnail: https://thmb.techidaily.com/bc6e0c08f36b012f885710643ac64bca838b2cd03
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-skills.techidaily.com/new-swift-windows-checkup-guide-explanatory/"><u>[New] Swift Windows Checkup Guide Explanatory</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-the-great-streamer-challenge-obs-vs-twitch/"><u>[Updated] 2024 Approved The Great Streamer Challenge OBS vs Twitch</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-android-mastery-for-virtual-reality-and-panoramic-videos/"><u>[Updated] Android Mastery for Virtual Reality & Panoramic Videos</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-investigating-new-horizons-past-manycams-realm/"><u>[Updated] In 2024, Investigating New Horizons Past ManyCam's Realm</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-minutes-to-fluency-your-daily-guide-to-latvian-learning/"><u>10 Minutes to Fluency: Your Daily Guide to Latvian Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579155212-10-minute-moments-make-mastering-slovak-a-reality/"><u>10-Minute Moments Make Mastering Slovak a Reality!</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-is-watching-facebook-on-the-television-set-a-future-possibility/"><u>2024 Approved Is Watching Facebook on the Television Set a Future Possibility?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/7-reasons-why-you-should-learn-afrikaans-with-mondly/"><u>7 Reasons Why You Should Learn Afrikaans With Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/black-friday-deal-96-off-for-lifetime-access-to-mondly-premium/"><u>Black Friday Deal: 96% OFF for Lifetime Access to Mondly Premium</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/charm-offensive-sweet-notions-in-french/"><u>Charm Offensive: Sweet Notions in French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/crafting-effective-resolutions-for-the-new-year/"><u>Crafting Effective Resolutions for the New Year</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/echoes-of-inspiration-worlds-educator-words/"><u>Echoes of Inspiration: World's Educator Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/educational-lifetime-celebrating-1500-daily-sessions-without-a-price-tag/"><u>Educational Lifetime: Celebrating 1500 Daily Sessions Without a Price Tag</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevate-professionalism-through-english-expertise/"><u>Elevate Professionalism Through English Expertise</u></a></li>
+<li><a href="https://techidaily.com/how-do-i-reset-my-realme-11x-5g-phone-without-technical-knowledge-drfone-by-drfone-reset-android-reset-android/"><u>How do I reset my Realme 11X 5G Phone without technical knowledge? | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-easily-hard-reset-my-tecno-spark-10c-drfone-by-drfone-reset-android-reset-android/"><u>How to Easily Hard reset my Tecno Spark 10C | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/melodic-matchmaking-music-that-matters-on-social-media-for-2024/"><u>Melodic Matchmaking Music That Matters on Social Media for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-watermark-free-video-merging-top-7-tools-compared/"><u>New 2024 Approved Watermark-Free Video Merging Top 7 Tools Compared</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/podcast-production-perfection-from-draft-to-audio-bliss-for-2024/"><u>Podcast Production Perfection From Draft to Audio Bliss for 2024</u></a></li>
+</ul></div>
 

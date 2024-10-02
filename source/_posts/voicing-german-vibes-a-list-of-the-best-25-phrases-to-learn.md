@@ -1,7 +1,7 @@
 ---
 title: "Voicing German Vibes: A List of the Best 25 Phrases to Learn"
-date: 2024-09-05T04:37:54.952Z
-updated: 2024-09-06T04:37:54.952Z
+date: 2024-09-26T20:20:43.140Z
+updated: 2024-10-01T22:17:43.680Z
 tags:
   - speak
   - english
@@ -20,30 +20,12 @@ thumbnail: https://thmb.techidaily.com/65adc82cc3ee9553a2913bedb3e5be45ee26dcc59
 
  Once you start learning, the most exciting thing about**German idioms** is that **they feel like learning a super secret code only the fluent speakers understand.** As they provide useful insights into German culture and history, including idioms in your day-to-day conversations will make you sound like “one of their own.” So let’s cut to the chase and present you with the essential collection of German idioms designed to up your German game fast.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Common German idioms Germans love
 
 [Cambridge Dictionary](https://dictionary.cambridge.org/dictionary/english/idiom) defines ‘idiom’ as “a group of words in a fixed order that has a particular meaning that is different from the meanings of each word on its own.” For example, to be “over the moon” is an idiom that means you are extremely happy or delighted. In other words, idioms have figurative, non-literal meanings because you’re not**literally** “over the moon.”
 
  That being said, let’s see what such idioms Germans use the most in their daily interactions.
 
-<!-- affiliate ads begin -->
-<span id="1983584">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1._Um den heißen Brei herumreden_
 
 **Literal translation:** To talk around the hot porridge.
@@ -61,11 +43,12 @@ thumbnail: https://thmb.techidaily.com/65adc82cc3ee9553a2913bedb3e5be45ee26dcc59
  Germans and sausages go together like… well, Germans and sausages! For this reason, it’s no surprise that their idioms include_wursts_ . Even if the special treatment implies getting more dessert,[Germans will still say](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) you’re asking for an extra sausage.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
+  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **3.** _Lügen haben kurze Beine_
 
 **Literal translation:** Lies have short legs.
@@ -81,6 +64,13 @@ thumbnail: https://thmb.techidaily.com/65adc82cc3ee9553a2913bedb3e5be45ee26dcc59
 **Actual meaning:** I think I’m going crazy.
 
  As odd as this one sounds, it will come in very handy in those situations when you can’t believe what you’re hearing or seeing. The English equivalent could be “You’ve got to be kidding me!”.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **5.** _Seinen Senf dazugeben_
 
@@ -108,12 +98,6 @@ thumbnail: https://thmb.techidaily.com/65adc82cc3ee9553a2913bedb3e5be45ee26dcc59
 
  In Germany, when you are blind to what’s happening around you, people could say you have tomatoes on your eyes. Maybe you’re not up to date with the latest news, or you’re not seeing the truth staring you right in the face. Either way, tomatoes seem to affect your vision.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **8.** _Ich verstehe nur Bahnhof_
 
 **Literal translation:** I can only understand ‘train station.’
@@ -123,11 +107,18 @@ thumbnail: https://thmb.techidaily.com/65adc82cc3ee9553a2913bedb3e5be45ee26dcc59
  The origin of this idiom goes back to World War I when deployed German soldiers would say that the only thing they understood when given orders was ‘train station’ because they hoped to go home. Nowadays, it’s used to say you didn’t comprehend something that was explained to you.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
-  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **9.** _Man soll den Tag nicht vor dem Abend lobe_ n
 
 **Literal translation:** One shouldn’t praise the day before the evening.
@@ -136,12 +127,6 @@ thumbnail: https://thmb.techidaily.com/65adc82cc3ee9553a2913bedb3e5be45ee26dcc59
 
  This idiom is perfect for those who usually celebrate their victories prematurely. Its sentiment is similar to the English equivalent “Don’t count your chickens before they hatch. “
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **10.** _Da kannst du Gift drauf nehmen_
 
 **Literal translation:** You can take poison on that.
@@ -149,6 +134,19 @@ thumbnail: https://thmb.techidaily.com/65adc82cc3ee9553a2913bedb3e5be45ee26dcc59
 **Actual meaning:** You can bet your life on that./You can bet on it.
 
  After all the funny idioms about food and animals, it’s time for a more grim one. If you’re absolutely certain of the information you are giving, you can assure the person you are talking to by saying_Da kannst du Gift drauf nehmen_ , which essentially means “you can bet on it.”
+
+<!-- affiliate ads begin -->
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **11.** _Du gehst mir auf den Keks_
 
@@ -158,6 +156,13 @@ thumbnail: https://thmb.techidaily.com/65adc82cc3ee9553a2913bedb3e5be45ee26dcc59
 
  Now that’s a fun way of saying someone is getting on your nerves! It’s so cute that we’re actually thinking of making a petition to adopt it in English as well. Are you in?
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **12.** _Da steppt der Bär_
 
 **Literal translation:** The bear dances there.
@@ -166,12 +171,6 @@ thumbnail: https://thmb.techidaily.com/65adc82cc3ee9553a2913bedb3e5be45ee26dcc59
 
  There are several ways to look at this one, but the main idea is that the party is so good that the bear will also join it. Or — there’s a dancing bear at the party and you should absolutely not miss it. Either way, this party is probably the best party ever.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **13.** _Das ist ein Katzensprung_
 
 **Literal translation:** That’s a cat’s jump.
@@ -190,12 +189,6 @@ thumbnail: https://thmb.techidaily.com/65adc82cc3ee9553a2913bedb3e5be45ee26dcc59
 
  Is someone you know constantly talking about an issue that is over and decided? _Das ist Schnee von gestern_ is perfect in this context.
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **15.** _Ein Fisch auf dem Trockenen_
 
 **Literal translation:** A fish on the dry.
@@ -204,12 +197,6 @@ thumbnail: https://thmb.techidaily.com/65adc82cc3ee9553a2913bedb3e5be45ee26dcc59
 
  It’s interesting how similar this idiom is to our English equivalent. It looks like feeling out of place is finally something more languages can agree on.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **16.** _Die Daumen drücken_
 
 **Literal translation:** Press the thumbs.
@@ -234,6 +221,13 @@ thumbnail: https://thmb.techidaily.com/65adc82cc3ee9553a2913bedb3e5be45ee26dcc59
 
  We don’t support insults, but this one can also be used as a joke between very – and we mean**very** – close friends.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **19.** _Alles hat ein Ende, nur die Wurst hat zwei_
 
 **Literal translation:** Everything has an end. Only the sausage has two.
@@ -242,12 +236,6 @@ thumbnail: https://thmb.techidaily.com/65adc82cc3ee9553a2913bedb3e5be45ee26dcc59
 
  Sausages again! Even when they come up with witty remarks about life itself, Germans must make a reference to_wursts_ . We do feel inspired, but we must admit we’re also drooling at this point.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **20.** _Ich habe Schwein gehabt_
 
 **Literal translation:** I’ve had a pig.
@@ -259,11 +247,12 @@ thumbnail: https://thmb.techidaily.com/65adc82cc3ee9553a2913bedb3e5be45ee26dcc59
 !['German expressions' by Picography©](https://edge.mondly.com/blog/wp-content/uploads/2022/09/german-expressions-960x640.jpg "Top 25 German Idioms To Speak Like A German 4")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **21.** _Haare auf den Zähnen haben_
 
 **Literal translation:** To have hair on one’s teeth.
@@ -272,12 +261,6 @@ thumbnail: https://thmb.techidaily.com/65adc82cc3ee9553a2913bedb3e5be45ee26dcc59
 
  That’s just weird, but okay, German. If someone’s having one of those days, it may prove helpful the lighten the mood with this funny idiom.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
-  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **22.** _Einen Kater haben_
 
 **Literal translation:** To have a cat.
@@ -297,11 +280,12 @@ thumbnail: https://thmb.techidaily.com/65adc82cc3ee9553a2913bedb3e5be45ee26dcc59
  Sometimes we see a bad situation coming and we warn the parties involved, but they choose not to listen. Well, this idiom is perfect for the aftermath when all you want to say is: I told you so!
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **24.** _Einen Vogel haben_
 
 **Literal translation:** To have a bird.
@@ -314,12 +298,6 @@ thumbnail: https://thmb.techidaily.com/65adc82cc3ee9553a2913bedb3e5be45ee26dcc59
 
 It’s usually used as an insult, so be careful to who you are saying this.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2024333/7443" target="_top" id="2024333">
-  <img src="//a.impactradius-go.com/display-ad/7443-2024333" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024333/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **25.** _Jemandem ein Ohr abkauen_
 
 **Literal translation:** Chew off someone’s ear.
@@ -328,12 +306,6 @@ It’s usually used as an insult, so be careful to who you are saying this.
 
  Do you have someone in your life who just won’t stop talking? If you feel like your ear will fall off, this is the perfect example of _Jemandem ein Ohr abkauen_ .
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Why should you learn German idioms?**
 
  No matter how funny or weird, German idioms are, first and foremost, a great way to boost your German vocabulary. However, there is more to it than that. If you want to [learn German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and speak it like a fluent speaker, idioms can help you take your conversations to the next level in more than one way.**German idioms will:**
@@ -374,8 +346,6 @@ _ [Tschüss](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=10
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -383,4 +353,21 @@ _ [Tschüss](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=10
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-elevate-your-posts-with-these-instagram-filters-hacks/"><u>[New] In 2024, Elevate Your Posts with These Instagram Filters Hacks</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-stepwise-guide-to-mastering-zoom-on-modern-windows-11/"><u>[New] Stepwise Guide to Mastering Zoom on Modern Windows 11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/become-fluent-faster-with-mondly/"><u>Become Fluent Faster with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/contare-in-italiano-pianificazione-di-un-percorso-educativo/"><u>Contare in Italiano: Pianificazione Di Un Percorso Educativo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dialogue-diversification-turko-korean-nexus/"><u>Dialogue Diversification: Turko-Korean Nexus</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/global-advantage-with-current-chatgpt-info/"><u>Global Advantage with Current ChatGPT Info</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-realme-c51-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Realme C51 to Other Android Devices Devices? | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-ultimate-guide-from-oneplus-nord-n30-se-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide from OnePlus Nord N30 SE FRP Bypass</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lyric-infused-education-science-backed-language-acquisition/"><u>Lyric-Infused Education: Science-Backed Language Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-italy-in-fluency-the-travelers-phrasebook/"><u>Navigating Italy in Fluency: The Traveler's Phrasebook</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/time-view-counter-analyzers/"><u>Real-Time View Counter Analyzers</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/spotify-keeps-crashing-a-complete-list-of-fixes-you-can-use-on-xiaomi-civi-3-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Spotify Keeps Crashing A Complete List of Fixes You Can Use on Xiaomi Civi 3 | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/step-by-step-strategies-to-enhance-your-writing-workflow-in-word-using-chatgpt/"><u>Step-by-Step Strategies to Enhance Your Writing Workflow in Word Using ChatGPT</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unique-uses-in-us-uk-english/"><u>Unique Uses in US-UK English</u></a></li>
+</ul></div>
 

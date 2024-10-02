@@ -1,7 +1,7 @@
 ---
 title: "Saudações Em Português: Todas as Avispasidades Da Bênção"
-date: 2024-09-25T18:00:02.585Z
-updated: 2024-09-26T18:49:21.050Z
+date: 2024-09-25T17:37:49.845Z
+updated: 2024-10-01T17:43:22.419Z
 tags:
   - speak
   - english
@@ -30,13 +30,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
  Be careful with your Portuguese pronunciation though! A lot of people accidentally mistake Portuguese for Spanish. You don’t want to do that. Just say “OH-lah” and everybody from Brazil to Mozambique will understand that you are saying “hello” in Portuguese.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### “Hi” in Portuguese – Oi
 
  Friendly and very informal,_Oi!_ is one of the most common ways to greet your friends in Brazil (people from Portugal use it as well, but not as much as_olá)_ . This is how you could greet your mates and close colleagues, but never the people you don’t really know. Don’t stress it tough! When the time comes, you will feel and just know what’s the required Portuguese greeting for that particular situation.
@@ -44,6 +37,13 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ![hi in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-portuguese-1024x658.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 2")
 
  “Lisbon, Portugal” by Diego García©
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### “How are you” in Portuguese – Tudo bem?
 
@@ -63,6 +63,13 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ## 2\. “Bom dia!” and other Portuguese greetings for certain moments of the day
 
 ![good morning in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/good-morning-in-portuguese-1024x642.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 3")
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  “Rio de Janeiro, Brazil” by Raphael Nogueira©
 
@@ -88,14 +95,14 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ![portuguese greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/08/portuguese-greetings-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 4")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “Ruínas da Fortaleza de Arrifana, Aljezur, Portugal” by Ferhat Deniz Fors©
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Bonus: other basic Portuguese phrases that you should know
 
@@ -122,10 +129,10 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ![obrigado](https://edge.mondly.com/blog/wp-content/uploads/2019/08/obrigado-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 5")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  “Gruta do Lago Azul, Brazil” by Ademir Alves©
@@ -134,13 +141,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Here’s how to speak Portuguese in 10 minutes a day
 
@@ -173,19 +173,22 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/updated-broadcasting-to-the-household-watching-facebook-videos/"><u>[Updated] Broadcasting to the Household Watching Facebook Videos?</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-the-complete-picture-toolwizs-app-masterclass-for-2024/"><u>[Updated] The Complete Picture Toolwiz's App Masterclass for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-numbers-game-estimating-income-from-viral-content/"><u>[Updated] The Numbers Game Estimating Income From Viral Content</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-youtubes-user-interface-for-comment-management-for-2024/"><u>[Updated] YouTube's User Interface for Comment Management for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expand-your-mind-reasons-to-learn-later/"><u>Expand Your Mind: Reasons to Learn Later</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expressoes-amigaveis-do-portugues-compreensao-absoluta/"><u>Expressões Amigáveis Do Português - Compreensão Absoluta</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-poco-c65-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Poco C65 to BlackBerry | Dr.fone</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-lava-blaze-2-5g-drfone-by-drfone-virtual/"><u>In 2024, 9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Lava Blaze 2 5G | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-music-from-xiaomi-redmi-note-12t-pro-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Music from Xiaomi Redmi Note 12T Pro to iPod | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-unlock-apple-id-from-your-apple-iphone-14-pro-max-without-security-questions-by-drfone-ios/"><u>In 2024, How to Unlock Apple ID From your Apple iPhone 14 Pro Max without Security Questions?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-connects-to-pearson-scholarship-network/"><u>Mondly Connects to Pearson Scholarship Network</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579758376-never-pay-again-get-mondly-elite/"><u>Never Pay Again - Get Mondly Elite!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/swift-bokmal-breakthroughs-daily-dose/"><u>Swift Bokmål Breakthroughs - Daily Dose!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ultimate-list-of-earths-primordial-speeches/"><u>The Ultimate List of Earth's Primordial Speeches</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-a-threefold-approach-to-crafting-advertising-content-that-resonates-on-fb/"><u>[New] A Threefold Approach to Crafting Advertising Content that Resonates on FB</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-love-in-action-top-9-premium-wedding-films-on-youtube-and-vimeo/"><u>[New] Love in Action Top 9 Premium Wedding Films on YouTube and Vimeo</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-cutting-edge-capturing-10-apps-that-lead-the-web-video-recording-race/"><u>[Updated] In 2024, Cutting Edge Capturing #10 Apps That Lead the Web Video Recording Race</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-ravenhill-resonance-essential-websites-to-download-hearing-heroes-tones-for-2024/"><u>[Updated] Ravenhill Resonance Essential Websites to Download Hearing Heroes' Tones for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-fake-gps-location-apps-on-android-of-your-oppo-a56s-5g-drfone-by-drfone-virtual/"><u>10 Fake GPS Location Apps on Android Of your Oppo A56s 5G | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/fixing-persistent-keyboard-stutter-in-windows-10-operating-system/"><u>Fixing Persistent Keyboard Stutter in Windows 10 Operating System</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hustle-and-learn-japanese-numbers-made-easy/"><u>Hustle and Learn: Japanese Numbers Made Easy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-instructors-day-language-diverse-tribute/"><u>International Instructors' Day: Language-Diverse Tribute</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-lexicon-influx-enriching-the-english-language/"><u>International Lexicon Influx: Enriching the English Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-languages-effortlessly-with-mondly-googles-choice/"><u>Master Languages Effortlessly with Mondly, Google's Choice</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/professional-advancement-in-a-multilingual-world/"><u>Professional Advancement in a Multilingual World</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/romantic-revelries-in-rue-saint-michel/"><u>Romantic Revelries in Rue Saint-Michel</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-shared-lexicon-ukraine-and-russias-speech/"><u>The Shared Lexicon: Ukraine & Russia's Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/time-honored-tongues-ancient-language-guide/"><u>Time-Honored Tongues: Ancient Language Guide</u></a></li>
+<li><a href="https://discover-cloud.techidaily.com/troubleshooting-windows-10-patch-glitches-masterful-strategies-for-flawless-installations/"><u>Troubleshooting Windows 10 Patch Glitches? Masterful Strategies for Flawless Installations!</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/ultimate-guide-on-honor-play-7t-frp-bypass-by-drfone-android/"><u>Ultimate Guide on Honor Play 7T FRP Bypass</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-the-5-best-free-mov-video-concatenation-tools-for-2024/"><u>Updated The 5 Best Free MOV Video Concatenation Tools for 2024</u></a></li>
 </ul></div>
 

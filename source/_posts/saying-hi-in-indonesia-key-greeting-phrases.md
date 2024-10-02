@@ -1,7 +1,7 @@
 ---
 title: "Saying Hi in Indonesia: Key Greeting Phrases"
-date: 2024-09-19T21:13:05.296Z
-updated: 2024-09-26T16:15:52.156Z
+date: 2024-09-24T19:13:41.598Z
+updated: 2024-10-01T20:12:46.117Z
 tags:
   - speak
   - english
@@ -32,6 +32,13 @@ thumbnail: https://thmb.techidaily.com/5f29ab47c82493b144af09fd3ee1e6f095ceaed40
 
  Last but not least, if someone greets you using the_wai_ gesture (slight bow with the palms put together in front of the chest), you can show respect towards their culture by returning the same gesture.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to say ‘hello’ in Indonesian
 
  **If you want to say ‘hello’ in Indonesian, you can simply say_halo_ .** It’s short, sweet and almost identical to the English ‘hello’ you already know and use. Besides, it’s friendly and works great in most social situations.
@@ -41,10 +48,10 @@ thumbnail: https://thmb.techidaily.com/5f29ab47c82493b144af09fd3ee1e6f095ceaed40
  On the other hand, if someone asks you how you are doing, you can say_kabar baik,_ which means “I am fine” or “I am well”. Here’s what a basic conversation in Indonesian sounds like:
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ‘Hi’ in Indonesian
@@ -52,13 +59,6 @@ thumbnail: https://thmb.techidaily.com/5f29ab47c82493b144af09fd3ee1e6f095ceaed40
  Made some new friends during your trip to Bali? When you meet them, you can also use the more informal_hi,_ which is pronounced the same as the English “hi”.
 
 Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Indonesian greetings for different times of day
 
@@ -72,18 +72,18 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 
 ![indonesian words](https://edge.mondly.com/blog/wp-content/uploads/2022/07/indonesian-words.png "Hello In Indonesian: A Quick Guide To Indonesian Greetings 2")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The same way we say “morning!’ in English, Indonesians sometimes drop the_selamat_ . This results in a very informal greeting that can be used with friends and family.
 
  Determining the correct time of the day during which you should use a certain greeting is somehow tricky. However, most people will agree that_selamat pagi_ is best used until 11 p.m. and_selamat siang_ until 3 p.m._Selamat sore_ and_selamat malam_ highly depend on the daylight so it’s best to adjust your greetings on the spot.
 
  Naturally,_selamat tidur_ is only used when someone is retiring for the night.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to say goodbye
 
@@ -97,10 +97,10 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Start learning Indonesian today
@@ -134,24 +134,18 @@ Get Mondly today and learn Indonesian naturally with the following:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-2024-approved-the-5-superior-ps2-android-gaming-simulators-reviewed/"><u>[New] 2024 Approved The 5 Superior PS2 Android Gaming Simulators Reviewed</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-pro-level-video-conferencing-picking-the-best-5-recorders/"><u>[Updated] Pro-Level Video Conferencing Picking the Best 5 Recorders</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-top-10-free-apps-for-crafting-youtube-channel-graphics/"><u>[Updated] Top 10 Free Apps for Crafting YouTube Channel Graphics</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-top-visual-effects-to-elevate-your-film-cutting/"><u>2024 Approved Top Visual Effects to Elevate Your Film Cutting</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-updating-twitters-video-previews-on-your-account/"><u>2024 Approved Updating Twitter's Video Previews on Your Account</u></a></li>
-<li><a href="https://techidaily.com/best-fixes-for-infinix-hot-40-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Best Fixes For Infinix Hot 40 Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/breaking-down-the-jargon-top-10-slang-words-explained/"><u>Breaking Down the Jargon: Top 10 Slang Words Explained</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/echoes-from-ages-past-understanding-viking-vernacular/"><u>Echoes From Ages Past: Understanding Viking Vernacular</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/find-the-best-8-spots-for-free-3d-text-psd-downloads/"><u>Find the Best 8 Spots for FREE 3D Text PSD Downloads</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/fixing-the-windows-10-kb-error-code-0x80070422-a-comprehensive-solution/"><u>Fixing the Windows 10 KB Error Code 0X80070422: A Comprehensive Solution</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-the-ultimate-2023-guide-to-watching-fb-live/"><u>In 2024, The Ultimate 2023 Guide to Watching FB Live</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-anywhere-speak-everywhere-enjoy-a-major-discount-on-language-lessons/"><u>Learn Anywhere, Speak Everywhere – Enjoy a Major Discount on Language Lessons!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-punctuation-part-2-a-guide-to-understanding-and-using-english-contractions/"><u>Mastering Punctuation, Part 2: A Guide to Understanding and Using English Contractions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/read-in-french-20plus-best-french-novels-for-beginners/"><u>Read In French: 20+ Best French Novels For Beginners</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/rhythms-for-roots-musical-language-mastery-techniques/"><u>Rhythms for Roots: Musical Language Mastery Techniques</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-fluent-korean-unveiling-the-top-6-digital-tools/"><u>Speak Fluent Korean: Unveiling the Top 6 Digital Tools</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-spelling-pitfall-index-englands-top-100-errors/"><u>The Spelling Pitfall Index: England's Top 100 Errors</u></a></li>
-<li><a href="https://video-capture.techidaily.com/top-scratches-comparative-review-of-recorders/"><u>Top Scratches Comparative Review of Recorders</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/worldwide-spanish-speaking-states-index/"><u>Worldwide Spanish-Speaking States Index</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/he-secret-sauce-for-successful-youtubers-channel-featuring-techniques/"><u>[New] The Secret Sauce for Successful YouTubers Channel Featuring Techniques</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/1726225683445-aacwmv-movavi/"><u>直通網路無成本轉化AAC音訊為WMV - 利用Movavi的即時音頻轉換工具</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-change-your-sim-pin-code-on-your-honor-x7b-phone-by-drfone-android/"><u>How To Change Your SIM PIN Code on Your Honor X7b Phone</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-a-zte-nubia-flip-5g-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a ZTE Nubia Flip 5G Phone That Is Locked | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-turn-off-the-screen-lock-on-my-google-by-drfone-android-unlock-android-unlock/"><u>How to turn off the screen lock on my Google</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-motorola-moto-g34-5g-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Motorola Moto G34 5G Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-words-with-mondly-top-of-the-language-app-rankings-2022/"><u>Mastering Words with Mondly - Top of the Language App Rankings, 2022</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-reimagines-buttons-with-pearsons-expertise/"><u>Mondly Reimagines Buttons with Pearson's Expertise</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-eternal-savings-deal/"><u>Mondly's Eternal Savings Deal</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/never-pay-again-get-mondly-elite/"><u>Never Pay Again - Get Mondly Elite</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/reconhecinas-o-portuguese-todos-os-gritos-apropriados/"><u>Reconhecinas O Portuguese: Todos Os Gritos Apropriados</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-elevate-your-video-game-best-mac-video-editing-apps/"><u>Updated 2024 Approved Elevate Your Video Game Best Mac Video Editing Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/zahlenreimlernen-einsteigen-in-die-deutsche-zahlensprache/"><u>Zahlenreimlernen: Einsteigen in Die Deutsche Zahlensprache</u></a></li>
 </ul></div>
 

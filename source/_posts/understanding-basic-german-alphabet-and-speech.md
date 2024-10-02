@@ -1,7 +1,7 @@
 ---
 title: Understanding Basic German Alphabet & Speech
-date: 2024-09-01T00:32:50.828Z
-updated: 2024-09-02T00:32:50.828Z
+date: 2024-09-24T17:35:49.232Z
+updated: 2024-10-01T23:02:24.265Z
 tags:
   - speak
   - english
@@ -34,10 +34,6 @@ thumbnail: https://thmb.techidaily.com/fea6185edc685da72ba963a46eed57a3a71d46169
 
  Eszett not having a capitalized version sparked debates for a long time, so the Council for German Orthography [officially adopted](https://www.sueddeutsche.de/bildung/rechtschreibung-das-alphabet-bekommt-einen-neuen-buchstaben-1.3566309) a capital in 2017\. The capital of ß is ẞ.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->
 ### German umlauts: ä, ö, ü
 
  While highly representative for the German language, the German umlauts are ‘guilty’ of making the most uncommon sounds to English speakers.
@@ -55,11 +51,19 @@ Now round off your lips and start practicing!
 ![german alphabet](https://edge.mondly.com/blog/wp-content/uploads/2022/04/german-alphabet-960x640.jpg "A Beginner’s Guide To The German Pronunciation &Amp; Alphabet 2")
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## German pronunciation guide for single letters
 
  Now that we’ve settled the matters with ß, ä, ö and ü, it’s time to move on to more familiar letters and see how their pronunciation differs from English.
@@ -75,8 +79,12 @@ Now round off your lips and start practicing!
 5. **E** – If you see an _e_ at the end of a German word, make sure to pronounce it like this: ‘eh’. Come on! Loud and clear: _Katze_ (‘cat’)!
 
 <!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## German pronunciation guide for letter combinations
 
  Just a few more examples and you’ll soon be ready to speak like a German! Let’s see how you should pronounce certain letter combinations in German:
@@ -95,8 +103,12 @@ Now round off your lips and start practicing!
  Did you recognize_ze rules_ in this example?
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to pronounce long German words
 
 _Ja,_ the German language is famous for its very long words, but once again – this shouldn’t intimidate you. Most [German words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) are, in fact, compounds.
@@ -134,8 +146,6 @@ _Tschüss!_
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -143,4 +153,24 @@ _Tschüss!_
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-expert-techniques-for-adding-borders-to-your-instagram-images-for-2024/"><u>[New] Expert Techniques for Adding Borders to Your Instagram Images for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-optimizing-your-whiteboard-use-on-desktopiosandroid-devices-in-a-zoom-environment/"><u>[New] Optimizing Your Whiteboard Use on Desktop/iOS/Android Devices in a Zoom Environment</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-best-iphoneipad-apps-to-enjoy-your-favorite-psp-games-for-2024/"><u>[Updated] Best iPhone/iPad Apps to Enjoy Your Favorite PSP Games for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-flip-the-script-unique-approaches-to-retracing-yt-content/"><u>[Updated] In 2024, Flip the Script Unique Approaches to Retracing YT Content</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-innovating-with-structured-content-on-youtube/"><u>2024 Approved Innovating with Structured Content on YouTube</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-pixel-pushers-boost-phone-photography-for-free/"><u>2024 Approved Pixel Pushers Boost Phone Photography for Free</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578820390-become-a-bilingual-in-minutes-enjoy-unbelievable-discounts/"><u>Become a Bilingual in Minutes: Enjoy Unbelievable Discounts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brain-enhancements-through-bilingualism/"><u>Brain Enhancements Through Bilingualism</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprension-y-uso-oral-de-los-colores/"><u>Comprensión Y Uso Oral De Los Colores</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-16-heartfelt-german-gratefulness-statements/"><u>Discover 16 Heartfelt German Gratefulness Statements</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dubais-polyglot-parade-language-learning-in-action/"><u>Dubai's Polyglot Parade: Language Learning in Action</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/earths-dominant-dialects-ranked-15/"><u>Earth's Dominant Dialects – Ranked #15</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/educational-leap-forwards-with-mondly/"><u>Educational Leap Forwards with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevate-your-global-presence-learn-croatian-and-these-7-benefits/"><u>Elevate Your Global Presence - Learn Croatian and These 7 Benefits!</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-easiest-guide-how-to-clone-samsung-galaxy-m34-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Easiest Guide How to Clone Samsung Galaxy M34 Phone? | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-reel-in-viewers-with-these-best-twitch-cameras-and-webcams/"><u>In 2024, Reel in Viewers with These Best Twitch Cameras and Webcams</u></a></li>
+<li><a href="https://network-issues.techidaily.com/winos-dxgkrnlsys-error-resolved-blue-screen/"><u>WinOS dxgkrnl.sys Error Resolved - Blue Screen</u></a></li>
+</ul></div>
 

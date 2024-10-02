@@ -1,7 +1,7 @@
 ---
 title: Global Gratitude for American Birthday
-date: 2024-09-01T00:32:40.030Z
-updated: 2024-09-02T00:32:40.030Z
+date: 2024-09-24T21:00:05.119Z
+updated: 2024-10-01T20:38:58.104Z
 tags:
   - speak
   - english
@@ -41,8 +41,18 @@ Probably not! That’s why we prepared something special for you. Below there is
 * **Romanian**: “4 iulie fericit!”
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<span id="1155462">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to say “Happy Independence Day” in 33 languages
 
 Now that you know how to say “Happy 4th of July” in different languages, you can also learn how to say “Happy Independence Day” in different languages, or “Happy Birthday”. As a matter of fact, if you want to be accurate, it is preferable to say “Happy Independence Day” instead of “Happy 4th of July”.
@@ -84,37 +94,42 @@ Now that you know how to say “Happy 4th of July” in different languages, you
 ![Learn languages free online with Mondly Learn English Spanish German French Chinese](https://edge.mondly.com/blog/wp-content/uploads/2017/05/Learn-languages-free-online-with-Mondly-Learn-English-Spanish-German-French-Chinese.png "How To Say ‘Happy 4Th Of July’ In Different Languages 3")
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
 ### **A step further**
 
 Now that you’re familiar with 33 ways of wishing Americans a “Happy Independence Day”, don’t you want to go further? [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-586&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-586&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-586) can help you! We have an app specifically designed to teach you American English and much more. Not only this, but you can also learn all of the above [33 languages](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) if you sign up to Mondly today!
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
-<!-- affiliate ads end -->
 ## American Independence Day: Did you know?
 
 According to historical documents, July 2nd is the real Independence Day of the USA, but it’s celebrated on the fourth. Why? Well, two days before the 4th of July, the Second Continental Congress voted to approve a resolution of independence. This had been proposed in June by Richard Henry Lee of Virginia. This resolution declared the United States independent from Great Britain rule. But in order to make the decision legal, they needed the Declaration of Independence, a document which had been prepared by Thomas Jefferson and a Committee of Five. Congress debated for two days and approved it on 4th of July, which was to become the American Independence Day.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 ### What is the significance of the 4th of July in the United States?
 
 The 4th of July is celebrated as Independence Day in the United States. It commemorates the country's declaration of independence from Great Britain on July 4, 1776.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How do Americans typically celebrate the 4th of July?
 
 Americans celebrate the 4th of July with various traditions and festivities. These often include fireworks displays, parades, barbecues, family gatherings, picnics, and patriotic-themed events.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Are there any alternative names for the 4th of July?
 
 In addition to being known as Independence Day, the 4th of July is sometimes referred to as America's Birthday or simply the Fourth.
@@ -137,8 +152,6 @@ Start using Mondly for free on your computer or tablet or, better yet, download 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -146,4 +159,23 @@ Start using Mondly for free on your computer or tablet or, better yet, download 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-on-demand-broadcasts-a-guide-to-efficient-recording/"><u>[New] 2024 Approved On-Demand Broadcasts A Guide to Efficient Recording</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-full-guide-to-adobe-cloud-storage-and-best-alternatives/"><u>[New] Full Guide to Adobe Cloud Storage and Best Alternatives</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-novice-guide-to-earning-on-periscope-live-streaming/"><u>[Updated] Novice Guide to Earning on Periscope Live Streaming</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-multilingual-films-for-better-communication-skills/"><u>10 Multilingual Films for Better Communication Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/abschiedsreimende-redensarten-im-deutschen/"><u>Abschiedsreimende Redensarten Im Deutschen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/affectionate-aphorisms-top-french-film-pick/"><u>Affectionate Aphorisms: Top French Film Pick</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/blackout-blitz-a-moments-work-for-2024/"><u>Blackout Blitz A Moment's Work for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-language-barriers-with-mondlys-advanced-usage/"><u>Conquer Language Barriers with Mondly's Advanced Usage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cross-border-connections-the-top-languages-to-study/"><u>Cross-Border Connections: The Top Languages to Study</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciphering-japans-characters-and-script/"><u>Deciphering Japan's Characters and Script</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-chinese-greetings-a-sociocultural-perspective/"><u>Discovering Chinese Greetings: A Sociocultural Perspective</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-unlock-apple-id-from-your-iphone-7-without-security-questions-by-drfone-ios/"><u>How to Unlock Apple ID From your iPhone 7 without Security Questions?</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/insta-twist-techniques-crafting-compelling-content-with-camera-angles/"><u>Insta Twist Techniques Crafting Compelling Content with Camera Angles</u></a></li>
+<li><a href="https://techtrends.techidaily.com/mastering-the-art-of-contrast-and-color-on-your-samsung-4k-television/"><u>Mastering the Art of Contrast and Color on Your Samsung 4K Television</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/premium-video-capture-devices-for-windows-os/"><u>Premium Video Capture Devices for Windows OS</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/the-ultimate-resource-for-modern-hardware-solutions-by-toms-experts/"><u>The Ultimate Resource for Modern Hardware Solutions by Tom's Experts</u></a></li>
+</ul></div>
 

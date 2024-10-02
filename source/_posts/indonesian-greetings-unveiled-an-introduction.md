@@ -1,7 +1,7 @@
 ---
 title: "Indonesian Greetings Unveiled: An Introduction"
-date: 2024-09-22T16:52:04.425Z
-updated: 2024-09-26T20:51:15.905Z
+date: 2024-09-30T19:06:22.746Z
+updated: 2024-10-01T16:03:05.454Z
 tags:
   - speak
   - english
@@ -33,10 +33,10 @@ thumbnail: https://thmb.techidaily.com/7ba02d2067d54837e1bd869f645984fb69141a6a3
  Last but not least, if someone greets you using the_wai_ gesture (slight bow with the palms put together in front of the chest), you can show respect towards their culture by returning the same gesture.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to say ‘hello’ in Indonesian
@@ -46,6 +46,13 @@ thumbnail: https://thmb.techidaily.com/7ba02d2067d54837e1bd869f645984fb69141a6a3
  In case you’re looking for a stronger conversation starter, you can also ask people about their day. “How are you?” is_apa kabar_ in Indonesian.
 
  On the other hand, if someone asks you how you are doing, you can say_kabar baik,_ which means “I am fine” or “I am well”. Here’s what a basic conversation in Indonesian sounds like:
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### ‘Hi’ in Indonesian
 
@@ -66,10 +73,10 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 ![indonesian words](https://edge.mondly.com/blog/wp-content/uploads/2022/07/indonesian-words.png "Hello In Indonesian: A Quick Guide To Indonesian Greetings 2")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
+  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The same way we say “morning!’ in English, Indonesians sometimes drop the_selamat_ . This results in a very informal greeting that can be used with friends and family.
@@ -77,13 +84,6 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
  Determining the correct time of the day during which you should use a certain greeting is somehow tricky. However, most people will agree that_selamat pagi_ is best used until 11 p.m. and_selamat siang_ until 3 p.m._Selamat sore_ and_selamat malam_ highly depend on the daylight so it’s best to adjust your greetings on the spot.
 
  Naturally,_selamat tidur_ is only used when someone is retiring for the night.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to say goodbye
 
@@ -97,10 +97,10 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Start learning Indonesian today
@@ -134,22 +134,16 @@ Get Mondly today and learn Indonesian naturally with the following:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-inconspicuous-storywatchers-choice-apps/"><u>[New] Inconspicuous Storywatcher's Choice Apps</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-in-2024-a-beginners-guide-to-editing-digits-in-tiktoks/"><u>[Updated] In 2024, A Beginner’s Guide to Editing Digits in TikToks</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-the-ultimate-guide-for-audio-editors-using-garageband/"><u>[Updated] The Ultimate Guide for Audio Editors Using GarageBand</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/2-ways-to-monitor-apple-iphone-14-plus-activity-drfone-by-drfone-virtual-ios/"><u>2 Ways to Monitor Apple iPhone 14 Plus Activity | Dr.fone</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-screen-snip-pro-the-essential-guide-to-win-os/"><u>2024 Approved Screen Snip Pro The Essential Guide to Win OS</u></a></li>
-<li><a href="https://howto.techidaily.com/6-fixes-to-unfortunately-whatsapp-has-stopped-error-popups-on-nokia-c300-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Fixes to Unfortunately WhatsApp has stopped Error Popups On Nokia C300 | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/best-budget-friendly-stopwatch-service/"><u>Best Budget-Friendly Stopwatch Service</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/grasping-the-essence-of-ru-phonology/"><u>Grasping the Essence of RU Phonology</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguistic-roots-of-duitsche-tongue/"><u>Linguistic Roots of Duitsche Tongue</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguistic-tools-portuguese-shortcuts-in-brazil-and-europe/"><u>Linguistic Tools: Portuguese Shortcuts in Brazil & Europe</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-enhances-oculus-quests-multi-language-support/"><u>Mondly Enhances Oculus Quest's Multi-Language Support</u></a></li>
-<li><a href="https://network-issues.techidaily.com/overcoming-display-driver-setbacks-amd-radeon-r9/"><u>Overcoming Display Driver Setbacks: AMD Radeon R9</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/oxford-3000-revolutionized-by-mondly-for-learning/"><u>Oxford 3000, Revolutionized by Mondly for Learning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/oxford-unlocks-english-essentials-with-mondly/"><u>Oxford Unlocks English Essentials with Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/teaching-english-as-a-second-language/"><u>Teaching English As A Second Language</u></a></li>
-<li><a href="https://win11.techidaily.com/the-ultimate-guide-joining-onedrive-with-liveid-windows/"><u>The Ultimate Guide: Joining OneDrive with LiveID (Windows)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-the-secrets-of-lithuanian-language-at-home/"><u>Unlocking the Secrets of Lithuanian Language at Home</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-prime-xsplit-replacements-a-guide-to-streaming/"><u>[New] 2024 Approved Prime Xsplit Replacements A Guide to Streaming</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/horts-fix-completed-no-more-anxiety/"><u>[New] Shorts Fix Completed – No More Anxiety</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-unlocking-a-new-sound-profile-free-guide-to-free-fire-voice-changes/"><u>[New] Unlocking a New Sound Profile Free Guide to Free Fire Voice Changes</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-youtube-dimensions-demystified-a-complete-aspect-ratio-handbook/"><u>[Updated] 2024 Approved YouTube Dimensions Demystified A Complete Aspect Ratio Handbook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/meet-your-innovative-ai-discussion-partner/"><u>Meet Your Innovative AI Discussion Partner</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-no-cost-language-learning-nationwide/"><u>Mondly: No-Cost Language Learning Nationwide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pronunciation-pioneers-unveiling-scottish-irish-and-aussie-flair/"><u>Pronunciation Pioneers: Unveiling Scottish, Irish, and Aussie Flair</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/ringtone-recommendations-for-your-chromium-phone/"><u>Ringtone Recommendations for Your Chromium Phone</u></a></li>
+<li><a href="https://program-issues.techidaily.com/solve-assassins-creed-odyssey-stalling-issues-ultimate-guide-and-fixes-pc-march-2o24/"><u>Solve Assassin's Creed Odyssey Stalling Issues: Ultimate Guide & Fixes (PC) - March 2O24</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-finest-3-online-schools-learn-languages-with-precision-and-passion/"><u>The Finest 3 Online Schools: Learn Languages with Precision & Passion</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/bers-dream-gear-top-cameras-unveiled-for-2024/"><u>YouTubers' Dream Gear Top Cameras Unveiled for 2024</u></a></li>
 </ul></div>
 

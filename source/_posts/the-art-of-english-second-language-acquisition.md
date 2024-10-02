@@ -1,7 +1,7 @@
 ---
 title: The Art of English Second Language Acquisition
-date: 2024-09-01T00:30:29.050Z
-updated: 2024-09-02T00:30:29.050Z
+date: 2024-09-27T22:42:30.769Z
+updated: 2024-10-01T21:46:44.451Z
 tags:
   - speak
   - english
@@ -52,15 +52,19 @@ thumbnail: https://thmb.techidaily.com/80e9505289538424f43d5ba12eaf938497fe9485f
 * Use English subtitles! This is a must. Listening to**fluent English speakers** might be hard in the beginning.
 * Discuss and review in English. I know they usually don’t have opinions, but if they watched something that was of interest to them, they will want to talk about it. Our desire to express certain opinions makes us more eager to break language barriers.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Teaching English to foreign students: listen to music
 
 **Teaching English to foreign students** becomes a piece of cake when you use music. I know it’s not math, but I still consider it a universal language. As I mentioned before, my brother is 12 years younger than me. That means he hasn’t had a lot of contact with what we call today “old music”. Still, the only [**English lesson**](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) he mentions from the 4th grade is one that implied analyzing John Lennon’s “Imagine”.
 
  I know what you think and no, I don’t advise you to choose a Nicki Minaj song. Put “quality” and “modernity” in a balance before making your choice. Good luck!
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 3\. Teaching English to adults: organize debates
 
 **Teaching English to adults** is tougher than**teaching English to kids** (if you ask me). But if Frodo managed to destroy the ring, you can teach adults some English too.
@@ -74,8 +78,12 @@ thumbnail: https://thmb.techidaily.com/80e9505289538424f43d5ba12eaf938497fe9485f
 ![how-to-teach-english-abroad](https://edge.mondly.com/blog/wp-content/uploads/2018/02/how-to-teach-english-abroad-960x640.jpg "How To Teach English As A Second Language 3")
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 4\. How to teach English in a fun way: create
 
  Creation is catharsis. Give your students time and some keywords and you will be amazed.
@@ -85,8 +93,18 @@ thumbnail: https://thmb.techidaily.com/80e9505289538424f43d5ba12eaf938497fe9485f
 * Or**rap battles.** This is a bonus. You don’t have to be Nostradamus to foresee that students will love it!
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 5\. Use fun language learning apps to break the routine
 
 [Language learning apps](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-1107&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-1107%26utm%5Fsource%3Dblog-post-id-1107&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-1107%26utm%5Fsource%3Dblog-post-id-1107&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-1107%26utm%5Fsource%3Dblog-post-id-1107&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-1107%26mt%3D8) are our best friends. They are the best assistants that you can ever have! No kidding.
@@ -95,9 +113,6 @@ thumbnail: https://thmb.techidaily.com/80e9505289538424f43d5ba12eaf938497fe9485f
 
 ![language-learning-app](https://edge.mondly.com/blog/wp-content/uploads/2018/02/language-learning-app-960x640.jpg "How To Teach English As A Second Language 4")
  It sounds futuristic. I know. But that’s exactly the reason why your students will love**learning English as a second language** using this app. Give it a try and enjoy the experience together.
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 
 ## 6\. How to teach English abroad: organize intercultural nights
 
@@ -115,20 +130,17 @@ thumbnail: https://thmb.techidaily.com/80e9505289538424f43d5ba12eaf938497fe9485f
 
  On a more serious note, I can assure you this is really efficient. One kid in my class was so excited about this task that he handcrafted magic wands for all his colleagues and made a really convincing essay on “why Neville Longbottom is the real hero of Harry Potter”.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## teaching-english-to-foreign-students
 
 ![teaching-english-to-foreign-students](https://edge.mondly.com/blog/wp-content/uploads/2018/02/teaching-english-to-foreign-students-960x640.jpg "How To Teach English As A Second Language 5")
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
+<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
+  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 8\. Read and analyze fiction stories together
 
  This is another great strategy that I learned from one of my teachers. But as I mentioned earlier, you have to be 100% sure that you made the right choice. Harry Potter, as you may have already realized, works like magic in this situation.
@@ -143,19 +155,33 @@ No advertising on the website.
 
 ![teaching-english-as-a-second-language](https://edge.mondly.com/blog/wp-content/uploads/2018/02/teaching-english-as-a-second-language-1024x576.jpg "How To Teach English As A Second Language 6")
  My guess is that this kind of event can inspire you to be a better teacher to your young students. Every day, technology becomes a bigger part of their worlds and we, as teachers, should keep up with the pace. Until super smartphones or super-smart robots will eventually replace us, we are still a crucial part of the global learning process. Although I find it hard to believe that scientists will ever [be able to create a software](https://financesonline.com/topapps/) so developed that it replicates the energy, dedication, and enthusiasm of a good teacher.
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 10\. TESOL, ESL, and TEFL Certifications
 
  As any good teacher would, you care about your students. Their great results and knowledge are the sum of your actions as a great teacher. Furthermore, depending on their age, your role as a teacher is similar to that of a parent. In other words, you will always be their teacher. Even when they will become adults, their life will still be influenced by your actions. No pressure!
 
 ![how-to-teach-english](https://edge.mondly.com/blog/wp-content/uploads/2018/02/how-to-teach-english-scaled-960x905.jpg "How To Teach English As A Second Language 7")
  That is why you should advise them to get their English certification before graduating high school. Not only this will be a good exercise, but it will also help them in their careers. English as a second language in your CV isn’t just a plus anymore. It has become a must. Cross this one off their lists before life does it for them. Good luck!
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fhow-teach-english-second-language-10-valuable-tips-student%2F&t=How+to+Teach+English+as+a+Second+Language "Share on Facebook")
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
@@ -172,8 +198,6 @@ No advertising on the website.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -181,4 +205,19 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-approaches.techidaily.com/new-nextgen-videotron-app-evaluation/"><u>[New] NextGen Videotron App Evaluation</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-craft-standout-videos-with-professional-free-banner-samples-for-2024/"><u>[Updated] Craft Standout Videos with Professional, Free Banner Samples for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-drone-category-definitions-for-2024/"><u>[Updated] Drone Category Definitions for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-easy-steps-to-the-top-gaming-video-editing-programs/"><u>2024 Approved Easy Steps to the Top Gaming Video Editing Programs</u></a></li>
+<li><a href="https://howto.techidaily.com/android-screen-stuck-general-vivo-x-flip-partly-screen-unresponsive-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Screen Stuck General Vivo X Flip Partly Screen Unresponsive | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expanded-vr-communication-with-mondly-for-oculus-quest/"><u>Expanded VR Communication with Mondly for Oculus Quest</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-the-genesis-of-our-worlds-words/"><u>Exploring the Genesis of Our World’s Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/find-your-latin-groove-with-online-tutoring-platforms/"><u>Find Your Latin Groove with Online Tutoring Platforms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-newbie-to-native-speaker-a-realistic-outlook/"><u>From Newbie To Native Speaker: A Realistic Outlook</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-itel-s23plus-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Itel S23+ to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-the-complete-guide-to-tecno-pova-5-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Complete Guide to Tecno Pova 5 FRP Bypass Everything You Need to Know</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-video-capture-clash-go-obs-against-shadowgl/"><u>In 2024, Video Capture Clash Go OBS! Against ShadowGL</u></a></li>
+</ul></div>
 

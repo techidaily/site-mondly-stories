@@ -1,7 +1,7 @@
 ---
 title: "Startende Deutsche Nummerierung: Von Eins Bis Hundert Schrittweise Lernen"
-date: 2024-09-05T04:37:58.280Z
-updated: 2024-09-06T04:37:58.280Z
+date: 2024-09-30T17:54:06.872Z
+updated: 2024-10-01T18:38:28.909Z
 tags:
   - speak
   - english
@@ -14,30 +14,12 @@ keywords: Deutsche Zahlenreihung,Grundlagen Der Deutschen Reihenfolge,Lernen Der
 thumbnail: https://thmb.techidaily.com/a848ca5db9b7c808865a38728eb2f3fa3f3cb8b726203e03c39aa2db5f8c0bbd.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Startende Deutsche Nummerierung: Von Eins Bis Hundert Schrittweise Lernen
 
  Learning how to count in German is a fun and easy start to [learning German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Numbers are an essential part of the vocabulary and can pop up in conversation more often than you think. Whether you are counting pretzels, buying beers for your_drei_ (‘three’) friends, or giving someone your phone number, German numbers will always come in handy while in a German-speaking country.
 
  Besides, contrary to the popular belief that [German is hard to learn](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , German numbers are actually easy to master. In fact, it’s just as easy to learn how to count in German as it is in English. Once you know how to count to 20, the rest of the numbers will follow a predictable pattern. So here’s an uncomplicated guide on how to count from 1 to 100 in German.
 
-<!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## German Numbers 1-10
 
  Let’s start at the very beginning. If you want to master the German numbers fast, it’s essential to first learn**how to count to 10 in German.** The numbers from 1 to 10 are important for two reasons. First: you will probably use them on a daily basis. And second: they set the stage for any German number you can think of.
@@ -59,17 +41,12 @@ thumbnail: https://thmb.techidaily.com/a848ca5db9b7c808865a38728eb2f3fa3f3cb8b72
  If you are not familiar with the [German pronunciation rules](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , you can watch this short video to hear how each number from 1 to 10 is pronounced:
 
 <!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## German Numbers 11-20
 
  As it happens with several other languages, the numbers from 11 to 20 don’t yet follow the pattern we talked about. The same as in English, ‘eleven’ and ‘twelve’ are two rebels refusing to follow the crowd. Otherwise, all the other numbers are formed by bringing together the first four letters of the basic 3 to 9 numbers and the word_zehn_ meaning ‘ten’.
@@ -88,11 +65,12 @@ thumbnail: https://thmb.techidaily.com/a848ca5db9b7c808865a38728eb2f3fa3f3cb8b72
 * **twenty —_zwanzig_**
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## German multiples of 10
 
  The next step in learning how to count in German is mastering the tens or the multiples of 10\. Once you know these, you be able to apply the pattern and easily count to 100 on your own. It’s as easy as_eins, zwei, drei!_
@@ -115,17 +93,12 @@ Here are the multiples of 10 in German:
 ![count in german](https://edge.mondly.com/blog/wp-content/uploads/2022/08/count-in-german.png "German Numbers: Learn How To Count From 1 To 100 In German 2")
 
 <!-- affiliate ads begin -->
-<span id="1983545">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
+  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to count from 1 to 100 in German
 
  Now that you have all the data (the numbers from 1 to 20 and multiples of 10), it’s time to explain how all the other numbers are formed. If you already know how to count in other languages, German numbers will be a piece of cake for you!
@@ -155,11 +128,12 @@ Now let’s look at some examples to make sure you got it:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
-  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### From 0 to 100 and beyond in German
 
  Do you want to go beyond numbers and [speak German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) fluently? Try Mondly, the award-winning language app that is serious about making learning German fun.
@@ -182,8 +156,6 @@ Now let’s look at some examples to make sure you got it:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -191,4 +163,24 @@ Now let’s look at some examples to make sure you got it:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-detailed-guide-securely-recording-on-vimeo/"><u>[Updated] In 2024, Detailed Guide Securely Recording on Vimeo</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-explore-the-top-5-snipping-utilities-for-chrome-os-users/"><u>[Updated] In 2024, Explore The Top 5 Snipping Utilities For Chrome OS Users</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726028181396-m4amp3/"><u>「一度に複数のフォルダーM4A音楽コレクションをMP3に並行して再エンコードする方法」</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-years-forward-with-mondlys-direction/"><u>10 Years Forward with Mondly’s Direction</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apples-spotlight-shines-on-mondly-as-10-in-education-tech/"><u>Apple's Spotlight Shines on Mondly as #10 in Education Tech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beginners-bridge-into-the-arab-world/"><u>Beginner's Bridge Into the Arab World</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bengali-begins-here-daily-tiny-sessions/"><u>Bengali Begins Here: Daily Tiny Sessions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breaking-language-barriers-mastering-the-hardest-languages/"><u>Breaking Language Barriers: Mastering the Hardest Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-a-new-tongue-in-minutes-start-with-slovak-today/"><u>Conquer a New Tongue in Minutes - Start with Slovak Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cross-atlantic-language-contrasts/"><u>Cross-Atlantic Language Contrasts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-connection-started-with-these-italian-greets/"><u>Cultural Connection Started with These Italian Greets</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-photos-from-vivo-s17e-by-fonelab-android-recover-photos/"><u>Easy steps to recover deleted photos from Vivo S17e.</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevating-video-popularity-on-youtube-for-2024/"><u>Elevating Video Popularity on YouTube for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-make-the-most-of-your-iphone-15-pro-max-lock-screen-with-notifications-drfone-by-drfone-ios/"><u>How to Make the Most of Your iPhone 15 Pro Max Lock Screen with Notifications? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-teach-you-to-transfer-files-from-vivo-s18e-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways To Teach You To Transfer Files from Vivo S18e to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-6-best-sim-unlock-services-that-actually-work-on-your-zte-blade-a73-5g-device-by-drfone-android/"><u>In 2024, The 6 Best SIM Unlock Services That Actually Work On Your ZTE Blade A73 5G Device</u></a></li>
+<li><a href="https://extra-information.techidaily.com/scripting-an-emotionally-charged-trailer-draft/"><u>Scripting an Emotionally Charged Trailer Draft</u></a></li>
+</ul></div>
 

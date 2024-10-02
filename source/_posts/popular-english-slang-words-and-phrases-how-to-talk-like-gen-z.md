@@ -1,7 +1,7 @@
 ---
 title: Popular English Slang Words and Phrases – How to Talk Like Gen Z
-date: 2024-09-01T00:33:20.792Z
-updated: 2024-09-02T00:33:20.792Z
+date: 2024-09-29T17:10:07.351Z
+updated: 2024-10-01T18:46:40.922Z
 tags:
   - speak
   - english
@@ -39,6 +39,13 @@ thumbnail: https://thmb.techidaily.com/fcf5c5ea9608f76f888a293e8f1d7735a9ef3d7b5
 ## **What are English slang words?**
 
  According to Oxford,**“slang”** is **“a type of language consisting of words and phrases that are regarded as very informal, are more common in speech than writing, and are typically restricted to a particular context or group of people”.** For example, the slang words and phrases we are going to talk about today are defining for two generations known as “millennials” and “gen z” – but mostly “gen z” because – let’s face it – today’s teenagers have come up with tons of new slang terms that even I, as a millennial, have trouble understanding. Praised be the mighty internet for slang dictionaries!
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Why is it important to learn English slang words?
 
@@ -93,6 +100,13 @@ _Dude, the party last night was lit! Where were you?_
 
 _She invited the entire school to her birthday. She’s so extra!_
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Salty
 
  You can say someone is salty when they get upset or angry over something minor.
@@ -100,26 +114,18 @@ _She invited the entire school to her birthday. She’s so extra!_
 _Nick is so salty since his parents took away his car!_
 
 <!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## To ghost someone
 
  When you cut off communication with someone you’re no longer interested in.
 
 _OMG! Did you hear Cristina ghosted Matt?_
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## To flex
 
 Another way of saying someone is showing off.
@@ -132,9 +138,6 @@ _– Yeah. Like weird flex but OK._
 
 ![flex](https://media.giphy.com/media/mEDj3oXP1t55pE0fCh/giphy-downsized-large.gif "Popular English Slang Words And Phrases – How To Talk Like Gen Z 4")
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Lowkey & highkey
 
  Lowkey is the opposite of highkey and it can be used as a way of saying that you liked or done something secretly, modestly or quietly.
@@ -143,9 +146,6 @@ _I lowkey rooted for Daenerys to remain on the iron throne._
 
 _Paul is highkey trying to learn Spanish for Elena._
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ## Shook
 
 When someone is shook it means they are shocked or incredibly surprised.
@@ -155,8 +155,12 @@ _– Did you see?‌ The new season of Lucifer just landed on Netflix!_
 _– OMG‌ I’m shook! I need to watch it ASAP!_
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Tea
 
 When someone is “spilling the tea”, it means they are gossiping.
@@ -165,19 +169,20 @@ _What happened at Jessica’s birthday party? Come on, spill the tea!_
 
 ![english slang](https://edge.mondly.com/blog/wp-content/uploads/2019/11/english-slang-1024x810.jpg "Popular English Slang Words And Phrases – How To Talk Like Gen Z 5")
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
  “Teenagers” by Jed Villejo©
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ## To clap back
 
 To respond to another person’s criticism.
 
  _Maria is quick to quick to clap back at everyone who says she doesn’t have a nice British accent._
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Bye, Felicia
 
@@ -187,10 +192,6 @@ _– You were rude. I’m gonna leave now._
 
 _– Bye, Felicia!_
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
-<!-- affiliate ads end -->
 ## Mood
 
 Used to express something that is relatable.
@@ -211,9 +212,6 @@ Not Gonna Lie. Another way of saying “to tell you the truth”.
 
 _NGL, I’m not in the mood to go out tonight._
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Slay
 
  To do something very well. To impress someone very much or to be very good or impressive.
@@ -223,11 +221,18 @@ _Pedro Pascal’s performance in The Last of Us slayed._
 ![pedro pascal](https://media.giphy.com/media/xa5PxUklxPjMqK81jc/giphy.gif "Popular English Slang Words And Phrases – How To Talk Like Gen Z 6")
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
+
 ## Receipts
 
 Proof or evidence of something that happened.
@@ -249,9 +254,6 @@ _Ok, now you’re just sus. I don’t believe you!_
  _– Boomer: Kids nowadays never go out. Back in my day we played outside the entire day._
 _– Non-boomer: OK boomer._
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Woke
 
  It refers to someone who is aware of and actively attentive to important societal facts and issues (especially issues of racial and social justice).
@@ -265,9 +267,6 @@ This is used when someone is bold and doesn’t care about consequences.
 _– Gaby is gonna report the teacher to the principal._
 _– OMG, savage!_
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Stan
 
  An extremely or excessively enthusiastic and devoted fan. As a verb, it means “to exhibit fandom to an extreme excessive degree.”
@@ -284,9 +283,12 @@ _– Whoa, don’t be such a stan._
  English slang, like languages in general, can’t be entirely homogenous. With native speakers dispersed across the globe, slang evolves differently depending on factors such as culture, dialect, and more. That’s why [Aussie slang](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) is so different from [British slang](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and British slang is so different than American slang. Different cultures make different slang, just like different countries make different languages.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **Differences in words and phrases across English-speaking countries**
 
  I read this joke online a while ago: “I can speak five languages: American English, British English, Canadian English, Australian English and New Zealand English”. Every time I remember it, I can’t help but giggle. Stretching over such long distances, the English spoken in these countries can truly be very different. Here’s how:
@@ -295,6 +297,13 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 * **Spelling:** Spelling can also differ between countries. For instance, Americans spell “color” without a ‘u’, while in the UK, they use the spelling “colour”.
 * **Pronunciation:** Don’t get me started. The differences between [British English and American English](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) are plentiful in this sector.
 * **Culture:** For example, Australian slang is heavily influenced by surfing and beach culture, while American slang has been influenced by hip-hop and African American Vernacular English.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082520/7443" target="_top" id="2082520">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082520" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082520/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **Examples of popular slang words in different regions**
 
@@ -349,9 +358,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
 !['English slang words' by RODNAE Productions©](https://edge.mondly.com/blog/wp-content/uploads/2023/03/english-slang-words-960x640.jpg "Popular English Slang Words And Phrases – How To Talk Like Gen Z 8")
 
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **How to use slang words in conversation**
 
  Using slang words in conversation can add flavor and personality to your language. However, it’s crucial to consider the context and audience before incorporating slang into your language. Here are some tips for using slang terms effectively in conversation:
@@ -364,18 +370,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  Remember, slang words are meant to be fun and expressive, but using them appropriately and in the right context is very important.
 
-<!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Learning English slang words**
 
  Learning slang words can be a fun way to improve your communication skills and broaden your understanding of the colloquial English language. Especially if you speak English as a second language. Here’s how you can learn slang terms fast:
@@ -402,9 +396,6 @@ Okay, so what did we learn so far? Let’s recap:
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### This language learning app is lit
 
  Do you want to put some_dank_ context around those foreign slang words and_shook_ your_squad_ from abroad? Well, this is your lucky day! Because with Mondly, the fastest way to speak new languages, you’ll speak any language from day 1\. It’s fun, easy and effective!
@@ -423,8 +414,6 @@ Okay, so what did we learn so far? Let’s recap:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -432,4 +421,22 @@ Okay, so what did we learn so far? Let’s recap:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/updated-ultimate-checklist-for-installing-vrecorder-for-2024/"><u>[Updated] Ultimate Checklist for Installing VRecorder for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-decode-youtube-shorts-a-complete-breakdown/"><u>2024 Approved Decode YouTube Shorts A Complete Breakdown</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/6-motivating-factors-to-choose-arabic-learning-through-mondly/"><u>6 Motivating Factors to Choose Arabic Learning Through Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/africas-whispering-winds-language-diversity/"><u>Africa's Whispering Winds: Language Diversity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/amaze-albas-locals-explore-italy-ward-slang-words/"><u>Amaze Alba's Locals: Explore Italy' Ward Slang Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/changes-in-our-user-privacy-guidelines/"><u>Changes in Our User Privacy Guidelines</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/corporate-language-milestones-achieve-and-excel/"><u>Corporate Language Milestones: Achieve and Excel</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/din-valkommen-svensk-forsal/"><u>Din Välkommen: Svensk Försal</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719575407428-elite-online-agencies-speak-any-new-language-with-confidence/"><u>Elite Online Agencies: Speak Any New Language with Confidence</u></a></li>
+<li><a href="https://win-blog.techidaily.com/fixing-the-outdated-graphics-drivers-warning-in-minecraft-easily/"><u>Fixing the Outdated Graphics Drivers Warning in Minecraft Easily</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-can-i-remove-the-apple-watch-activation-lock-by-apple-iphone-13-mini-without-the-previous-owner-by-drfone-ios/"><u>In 2024, Can I Remove the Apple Watch Activation Lock By Apple iPhone 13 mini without the Previous Owner?</u></a></li>
+<li><a href="https://win11.techidaily.com/revolutionize-file-management-with-collective-windows-11-folder-making/"><u>Revolutionize File Management with Collective Windows 11 Folder Making</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/truthcoin-reliable-or-risky-venture/"><u>TruthCoin: Reliable or Risky Venture?</u></a></li>
+<li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-itel-p55-drfone-by-drfone-virtual-android/"><u>Which is the Best Fake GPS Joystick App On Itel P55? | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/wwdc-2025-sneak-peek-latest-apple-innovations-and-exclusive-updates-revealed/"><u>WWDC 2025 Sneak Peek: Latest Apple Innovations & Exclusive Updates Revealed</u></a></li>
+</ul></div>
 

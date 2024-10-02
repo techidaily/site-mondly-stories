@@ -1,7 +1,7 @@
 ---
 title: "The Italian Explorer’s Vocabulary: 100+ Must-Learn Phrases"
-date: 2024-09-25T19:41:53.206Z
-updated: 2024-09-26T20:18:33.230Z
+date: 2024-09-28T00:56:30.561Z
+updated: 2024-10-01T21:30:18.609Z
 tags:
   - speak
   - english
@@ -61,6 +61,13 @@ thumbnail: https://thmb.techidaily.com/d8d6563b1e83446e0eb6eee844ba3f9b3df6929ea
 
  “Manarola, Italy” by Marc Zimmer©
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Basic Italian phrases for travelers that need help
 
  Emergencies are not necessarily something we expect to happen when traveling. We always associate visiting new places with pleasant feelings. However, emergencies do happen sometimes whether we like it or not. So knowing how to ask for help in Italian may come in handy while traveling. Especially if you decide to travel to remote areas where the locals don’t really speak English. Make sure you learn these key**Italian phases** by heart because you know what they say: it’s always better to be safe than sorry.
@@ -82,13 +89,6 @@ thumbnail: https://thmb.techidaily.com/d8d6563b1e83446e0eb6eee844ba3f9b3df6929ea
 * Please wait a moment. –_Aspetti un momento, per favore._
 * I’ll be back immediately. –_Ritorno subito._
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3\. Italian phrases for food lovers
 
  Food is a crucial part of a trip to Italy. No one – and I mean not even a single soul, not even Arya Stark – leaves Italy without indulging on mountains of pizza, pasta and [gelato](https://en.wikipedia.org/wiki/Gelato) . So here’s**how to order drinks or food in Italian restaurants:**
@@ -96,16 +96,10 @@ thumbnail: https://thmb.techidaily.com/d8d6563b1e83446e0eb6eee844ba3f9b3df6929ea
 ![italian phrases english](https://edge.mondly.com/blog/wp-content/uploads/2019/07/italian-phrases-english-1024x683.jpg "100+ Essential Italian Travel Phrases For Your Trip 3")
 
 <!-- affiliate ads begin -->
-<span id="1531879">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  “Gelato” by Anita Austvika©
@@ -123,6 +117,13 @@ thumbnail: https://thmb.techidaily.com/d8d6563b1e83446e0eb6eee844ba3f9b3df6929ea
 * I’d like an orange juice. –_Vorrei un succo d’arancia._
 * I would like a coffee. –_Vorrei un caffè._
 * Can I have some ice cream? –_Posso prendere il gelato?_
+
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 4\. Basic Italian for tourists who need a place to spend the night
 
@@ -143,13 +144,6 @@ thumbnail: https://thmb.techidaily.com/d8d6563b1e83446e0eb6eee844ba3f9b3df6929ea
 
 ![common italian phases](https://edge.mondly.com/blog/wp-content/uploads/2019/07/common-italian-phrases-1024x682.jpg "100+ Essential Italian Travel Phrases For Your Trip 4")
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “Fontana di Trevi” by Ivan Bertona©
 
 * Is there a pub here? –_C’è un pub qui vicino?_
@@ -160,19 +154,6 @@ thumbnail: https://thmb.techidaily.com/d8d6563b1e83446e0eb6eee844ba3f9b3df6929ea
 * How much does a ticket cost? –_Quanto costa un biglietto?_
 * One ticket, please. –_Un biglietto, per favore._
 * Are there seats available? –_Ci sono posti disponibili?_
-
-<!-- affiliate ads begin -->
-<span id="1983473">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 6\. Italian phrases about love
 
@@ -242,6 +223,13 @@ thumbnail: https://thmb.techidaily.com/d8d6563b1e83446e0eb6eee844ba3f9b3df6929ea
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Speak Italian fluently in just 10 minutes a day
 
  Do you want to see these Italian phrases in action in real-life conversations? Get Mondly, the award-winning language learning app that will [help you speak Italian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) as if you were Tuscany-born.
@@ -267,22 +255,19 @@ thumbnail: https://thmb.techidaily.com/d8d6563b1e83446e0eb6eee844ba3f9b3df6929ea
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-ocam-screen-recorder-download/"><u>[New] 2024 Approved OCam Screen Recorder Download</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-inside-out-the-nikon-d7500-experience/"><u>[New] Inside Out The Nikon D7500 Experience</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/coalescing-iphone-media-with-ease/"><u>Coalescing iPhone Media with Ease</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/conquer-communication-barriers-premier-3-multilingual-education-tools/"><u>Conquer Communication Barriers: Premier 3 Multilingual Education Tools</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/dissecting-vsdcs-capabilities-in-screen-recording-vs-alternatives/"><u>Dissecting VSDC's Capabilities in Screen Recording vs Alternatives</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/effective-ways-to-fix-checkra1n-error-31-from-iphone-15-pro-max-by-drfone-ios/"><u>Effective Ways To Fix Checkra1n Error 31 From iPhone 15 Pro Max</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719577717302-embrace-the-worlds-diversity-learn-for-just-a-small-price-increase/"><u>Embrace the World's Diversity - Learn for Just a Small Price Increase</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-english-top-100-words-to-watch-out-for/"><u>Essential English - Top 100 Words to Watch Out For</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-whatsapp-messages-on-xiaomi-13-ultra-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track WhatsApp Messages on Xiaomi 13 Ultra Without Them Knowing? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-to-speak-naturally-top-25-german-phrases/"><u>Learn to Speak Naturally: Top 25 German Phrases</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-surpasses-70-million-learners-worldwide/"><u>Mondly Surpasses 70 Million Learners Worldwide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/rapid-acquisition-of-polska-skills/"><u>Rapid Acquisition of Polska Skills</u></a></li>
-<li><a href="https://common-error.techidaily.com/reviving-a-nonfunctional-aoc-display-unit-in-compatibility-mode-for-win10-systems/"><u>Reviving a Nonfunctional AOC Display Unit in Compatibility Mode for Win10 Systems</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/rhythmical-learning-how-music-enhances-scientifically-supported-language-skills/"><u>Rhythmical Learning: How Music Enhances Scientifically-Supported Language Skills</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/strategies-for-implementing-gpt-mentions-in-your-customized-chatgpt-dialogue-engagements/"><u>Strategies for Implementing GPT Mentions in Your Customized ChatGPT Dialogue Engagements</u></a></li>
-<li><a href="https://windows11.techidaily.com/utilizing-microsoft-copilot-for-enhanced-software-design/"><u>Utilizing Microsoft Copilot for Enhanced Software Design</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/welcome-your-future-conversation-ally-ai-powered-dialogue/"><u>Welcome Your Future Conversation Ally: AI-Powered Dialogue</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-nikon-j5-and-its-breakthrough-in-4k-video-technology/"><u>[New] Nikon J5 and Its Breakthrough in 4K Video Technology</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-facebook-videos-which-aspect-ratio-fits/"><u>[Updated] Facebook Videos Which Aspect Ratio Fits?</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-directing-tiktok-video-viewers-to-facebook-pages/"><u>2024 Approved Directing TikTok Video Viewers to Facebook Pages</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/expanding-possibilities-with-raspberry-pi-hats-a-comprehensive-selection-guide/"><u>Expanding Possibilities with Raspberry Pi HATs - A Comprehensive Selection Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hungarian-eloquent-gestures-for-expressing-adoration/"><u>Hungarian Eloquent Gestures for Expressing Adoration</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-oppo-reno-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Pause Life360 Location Sharing For Oppo Reno 11 5G | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-samsung-galaxy-a24-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Samsung Galaxy A24 to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-quick-tips-for-effective-android-video-chatting/"><u>In 2024, Quick Tips for Effective Android Video Chatting</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journeying-through-vietnam-essential-phrases-revealed/"><u>Journeying Through Vietnam: Essential Phrases Revealed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revelations-in-farsi-history-benefits-abound/"><u>Revelations in Farsi History, Benefits Abound</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-francophiles-handbook-essential-french-speak-skills/"><u>The Francophile's Handbook: Essential French Speak Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/two-years-of-mondly-languages-we-had-a-dream-a-great-dream/"><u>Two Years Of Mondly Languages - We Had A Dream. A Great Dream.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/uniting-people-for-10-years-mondlys-story/"><u>Uniting People for 10 Years - Mondly’s Story</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/unlock-your-device-icloud-dns-bypass-explained-and-tested-plus-easy-alternatives-on-apple-iphone-13-pro-by-drfone-ios/"><u>Unlock Your Device iCloud DNS Bypass Explained and Tested, Plus Easy Alternatives On Apple iPhone 13 Pro</u></a></li>
 </ul></div>
 

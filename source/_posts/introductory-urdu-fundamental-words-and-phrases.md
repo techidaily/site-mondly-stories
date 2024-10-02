@@ -1,7 +1,7 @@
 ---
 title: "Introductory Urdu: Fundamental Words & Phrases"
-date: 2024-09-20T17:53:11.018Z
-updated: 2024-09-26T21:15:11.451Z
+date: 2024-09-28T23:32:34.834Z
+updated: 2024-10-01T22:29:29.235Z
 tags:
   - speak
   - english
@@ -85,6 +85,13 @@ thumbnail: https://thmb.techidaily.com/5003aae1e7f947a598bd55077396c6a7704237963
 * who — _کون (kon)_
 * stop — _رکو (ruko)_
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The most popular Urdu words searches
 
  While we’re at it, why not also learn some of the most popular words for which people want an Urdu translation? If they are so popular in searches, I’m sure they can also be useful to you on your way to speaking Urdu.
@@ -107,18 +114,18 @@ thumbnail: https://thmb.techidaily.com/5003aae1e7f947a598bd55077396c6a7704237963
 * unique — _منفرد (munfarid)_
 * hope — _امید (umeed)_
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Urdu words related to food and drink
 
  Did you know that the [Urdu language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) was one of the premier languages of poetry in South Asia for centuries? And rightly so. Just listen to the music of its words and you’ll understand.
 
 ![words in urdu by Sumeet B©](https://edge.mondly.com/blog/wp-content/uploads/2022/03/words-in-urdu-960x735.jpg "100+ Core Urdu Words – Learn The Most Common Words In Urdu 3")
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Meanwhile, let’s add some flavor to your Urdu vocabulary. What are the best words to learn if not the words related to food and drink?
 
@@ -145,6 +152,13 @@ thumbnail: https://thmb.techidaily.com/5003aae1e7f947a598bd55077396c6a7704237963
 * sugar — _شکر (shakar)_
 * pepper — _مرچ (mirch)_
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Urdu words related to body and health
 
  The names of the body parts in Urdu are some of the most basic and useful words you can learn. Whether you are in a clothing store, or at the doctor’s office, various parts of the body can come up in conversation more often than you think.
@@ -170,13 +184,6 @@ thumbnail: https://thmb.techidaily.com/5003aae1e7f947a598bd55077396c6a7704237963
 * medicine — _دوا (dawa)_
 * pharmacy — _دواخانہ (dawakhana)_
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Urdu words related to transportation and places
 
  While this crash course in Urdu words will get you from zero to beginner in as little as 15 minutes, these words will get you to the other hemisphere if you need it so.
@@ -197,10 +204,10 @@ thumbnail: https://thmb.techidaily.com/5003aae1e7f947a598bd55077396c6a7704237963
  Now that you’ve mastered some of the most basic Urdu vocabulary words, you can dive into the practical phrases that’ll help you ease into real-world conversations.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The most common Urdu phrases
@@ -235,13 +242,6 @@ thumbnail: https://thmb.techidaily.com/5003aae1e7f947a598bd55077396c6a7704237963
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Learn Urdu in just 10 minutes a day
 
  Do you want to see the Urdu words in action? Get Mondly, the award-winning language learning app that will help you speak Urdu from day 1.
@@ -271,19 +271,22 @@ thumbnail: https://thmb.techidaily.com/5003aae1e7f947a598bd55077396c6a7704237963
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-close-up-a-guide-to-richer-minecraft-imagery/"><u>[New] 2024 Approved Close-Up A Guide to Richer Minecraft Imagery</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-this-years-most-engrossing-channel-list-youtube-storytellers/"><u>[New] 2024 Approved This Year’s Most Engrossing Channel List YouTube Storytellers</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-foundations-in-digital-visual-narratives/"><u>[New] In 2024, Foundations in Digital Visual Narratives</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-in-depth-assessment-comprehensive-camstudio-toolkit-for-2024/"><u>[New] In-Depth Assessment Comprehensive CamStudio Toolkit for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-elite-women-gaming-leaders-top-10-on-yt/"><u>[Updated] 2024 Approved Elite Women Gaming Leaders Top 10 On YT</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-perfect-every-moment-incorporating-captions-in-instagram-footage/"><u>2024 Approved Perfect Every Moment Incorporating Captions in Instagram Footage</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/accelerated-pathways-to-fluency-in-foreign-tongues/"><u>Accelerated Pathways to Fluency in Foreign Tongues</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-music-from-motorola-moto-g73-5g-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Music from Motorola Moto G73 5G to iPod | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/milestones-ten-years-of-mondlyback-button-innovation/"><u>Milestones: Ten Years of MondlyBack Button Innovation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/shared-heritage-in-slavic-languages-uk-and-rus/"><u>Shared Heritage in Slavic Languages: Uk & Rus</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-essential-uk-speak-compendium/"><u>The Essential UK Speak Compendium</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ultimate-mondly-user-guide-for-optimal-experience/"><u>The Ultimate Mondly User Guide for Optimal Experience</u></a></li>
-<li><a href="https://win11.techidaily.com/troubleshooting-enterprise-controlled-chromeedge-browsers-on-pcs/"><u>Troubleshooting Enterprise-Controlled Chrome/Edge Browsers on PCs</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/winning-windows-sound-engineers/"><u>Winning Windows Sound Engineers</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-best-windows-music-managers/"><u>[Updated] Best Windows Music Managers</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-delving-into-the-world-of-mukbang-videos-for-2024/"><u>[Updated] Delving Into the World of Mukbang Videos for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-become-an-nft-expert-with-these-top-7-creative-tools/"><u>[Updated] In 2024, Become an NFT Expert with These Top 7 Creative Tools</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-delicious-diplomacy-popular-food-recipes-from-nations/"><u>[Updated] In 2024, Delicious Diplomacy Popular Food Recipes From Nations</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/10-best-online-learning-sites-like-udemy-for-2024/"><u>10 Best Online Learning Sites Like Udemy for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/easy-steps-on-how-to-create-a-new-apple-id-account-on-apple-iphone-13-mini-by-drfone-ios/"><u>Easy Steps on How To Create a New Apple ID Account On Apple iPhone 13 mini</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-the-best-out-of-your-hp-p1606dn-official-windows-compatible-drivers-and-easy-installation-steps/"><u>Get the Best Out of Your HP P1606dn: Official Windows-Compatible Drivers & Easy Installation Steps</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-3-ways-of-how-to-get-someones-apple-id-off-apple-iphone-13-pro-max-without-password-by-drfone-ios/"><u>In 2024, 3 Ways of How to Get Someones Apple ID Off Apple iPhone 13 Pro Max without Password</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-ladder-top-reasons-to-climb-another-language-level/"><u>Linguistic Ladder: Top Reasons to Climb Another Language Level</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/merry-christmas-or-merry-xmas-in-different-languages/"><u>Merry Christmas Or Merry Xmas In Different Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polish-your-portuguese-skills-utilize-these-6-study-methods/"><u>Polish Your Portuguese Skills: Utilize These 6 Study Methods</u></a></li>
+<li><a href="https://extra-support.techidaily.com/proven-strategies-for-powerful-customer-success-stories-on-screen-for-2024/"><u>Proven Strategies for Powerful Customer Success Stories on Screen for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/teaching-world-unity-through-diversity-of-speeches/"><u>Teaching World Unity Through Diversity of Speeches</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-dos-and-donts-in-spanish-accented-writing/"><u>The Do's & Don'ts in Spanish Accented Writing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tune-into-new-language-skills-using-scientific-musical-approaches/"><u>Tune Into New Language Skills - Using Scientific, Musical Approaches</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/uncover-the-secret-to-quick-latin-proficiency/"><u>Uncover the Secret to Quick Latin Proficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/valkomma-i-sverige-ditt-avstand/"><u>Välkomma I Sverige: Ditt Avstånd</u></a></li>
 </ul></div>
 

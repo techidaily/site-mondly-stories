@@ -1,7 +1,7 @@
 ---
 title: "Spanish Numbers: How to Count Numbers in Spanish"
-date: 2024-09-01T00:30:55.779Z
-updated: 2024-09-02T00:30:55.779Z
+date: 2024-09-28T16:19:25.199Z
+updated: 2024-10-01T22:58:59.204Z
 tags:
   - speak
   - english
@@ -35,6 +35,13 @@ thumbnail: https://thmb.techidaily.com/7a1b81670361c75645ca8d7e9b30ac5842f69d19f
  Until then, here’s cool audio of a fluent speaker pronouncing the Spanish numbers 1 to 10:
 
 **Good to know:** _uno_becomes an article and changes to_un_if it’s in front of a noun. For example,_un cerdo_translates to “a pig” in English.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Spanish numbers to 40
 
@@ -71,8 +78,12 @@ thumbnail: https://thmb.techidaily.com/7a1b81670361c75645ca8d7e9b30ac5842f69d19f
  As you can see, up to 30 (“thirty”), the numbers are bound together, but from there on they part ways to make counting in Spanish even easier for you. Basically, you won’t say “thirty-one”, but “thirty**and** one”:_treinta y uno_ .
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Count to 100 in Spanish
 
  As we already settled, counting in Spanish is all about mastering the basics. Now that you know how to count to 40, counting to 100 in Spanish is a piece of cake. Just learn the tens and you are ready to go.
@@ -103,8 +114,12 @@ thumbnail: https://thmb.techidaily.com/7a1b81670361c75645ca8d7e9b30ac5842f69d19f
 * 98 –_noventa y ocho_
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Spanish numbers to 1000 and beyond
 
  Hundreds shouldn’t scare you either. They are just as simple. Once you know how the hundreds are, you’ll also know the numbers in between.
@@ -143,8 +158,12 @@ Here are some more examples:
 ![count in Spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/07/count-in-spanish-960x663.jpg "Spanish Numbers: How To Count Numbers In Spanish 4")
 
 <!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Barcelona, Spain
 
  If you want to go even further, thousands and millions work exactly like in English: number +_mil_ (“thousand”) or_millón_ (“million”). Here are some examples:
@@ -185,8 +204,6 @@ Here are some more examples:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -194,4 +211,23 @@ Here are some more examples:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-virtual-playground-the-ultimate-samsung-gear-vr-list-for-2024/"><u>[New] Virtual Playground The Ultimate Samsung Gear VR List for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-decode-the-past-comprehensive-tutorial-for-inverting-image-searches-on-instagram/"><u>[Updated] 2024 Approved Decode the Past Comprehensive Tutorial for Inverting Image Searches on Instagram</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/1715860362331-activating-screen-recording-with-internal-devices-in-huawei-mate-and-p-series-mate-1020-p2010-for-2024/"><u>Activating Screen Recording with Internal Devices in Huawei Mate and P Series (Mate 10/20; P20/10). For 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-vivo-s18-pro-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Vivo S18 Pro | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-grammar-strategies-top-9-lessons-by-veteran-esl-educator/"><u>Essential Grammar Strategies: Top 9 Lessons by Veteran ESL Educator</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-spelling-guide-the-100-worst-offenders-in-english/"><u>Essential Spelling Guide: The 100 Worst Offenders in English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressive-french-quick-to-pronounce/"><u>Expressive French, Quick to Pronounce</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/first-steps-in-german-tongue-training-and-symbol-recognition/"><u>First Steps in German: Tongue Training & Symbol Recognition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-passion-expressions-decoded/"><u>French Passion Expressions Decoded</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-silver-screen-to-verse-francophone-romance/"><u>From Silver Screen to Verse: Francophone Romance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-fehlender-respekt-wiedergutmachen/"><u>German: Fehlender Respekt Wiedergutmachen</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-change-lock-screen-wallpaper-on-xiaomi-civi-3-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Xiaomi Civi 3</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/next-level-entertainment-the-rise-of-vr-applications-for-2024/"><u>Next-Level Entertainment The Rise of VR Applications for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/online-fb-music-collection-now-for-2024/"><u>Online FB Music Collection Now for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/reimagining-ai-scrutiny-post-turing-test-paradigm-shift/"><u>Reimagining AI Scrutiny Post-Turing Test Paradigm Shift</u></a></li>
+<li><a href="https://techtrends.techidaily.com/ugreens-nasync-dxp2800-reviewed-striking-hardware-with-subpar-software-performance/"><u>Ugreen's NASync DXP2800 Reviewed - Striking Hardware with Subpar Software Performance</u></a></li>
+</ul></div>
 

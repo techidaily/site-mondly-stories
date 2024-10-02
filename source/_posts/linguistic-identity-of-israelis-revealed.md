@@ -1,7 +1,7 @@
 ---
 title: Linguistic Identity of Israelis Revealed?
-date: 2024-09-01T00:33:32.350Z
-updated: 2024-09-02T00:33:32.350Z
+date: 2024-09-27T18:18:00.726Z
+updated: 2024-10-01T17:11:22.264Z
 tags:
   - speak
   - english
@@ -18,8 +18,6 @@ thumbnail: https://thmb.techidaily.com/99bb08ac4320921b1ffab3e5a5166b4c117aac2cf
 
  Home to three major religions (Judaism, Christianity and Islam), Israel is just as diverse when it comes to languages. Therefore, it’s not a matter of “what language is spoken in Israel”, but of which**_are_** **_the languages_** spoken in Israel.
 
-
-
  Following a tumultuous and often violent history, the nation of Israel now has a [population](https://en.wikipedia.org/wiki/Israel#Demographics) of more than 9 million people. Out of this, 74.2% are Jews, 20.9% Arabs and 4.8% are Christians and people who have no religion listed in the civil registry. Despite the cultural diversity, almost the entire population speaks Hebrew, the country’s official language, either as a first or second language. However, this is not the full story of the languages of Israel. Let’s take a closer look at the country’s current linguistic landscape.
 
 ## The Israel language mosaic – what language is spoken in Israel?
@@ -27,6 +25,13 @@ thumbnail: https://thmb.techidaily.com/99bb08ac4320921b1ffab3e5a5166b4c117aac2cf
  **Hebrew is the everyday and official language of Israel and roughly everyone speaks it, but the Arab minority which accounts for about one-fifth of the population, also speaks Arabic. Additionally, a high percentage of Israelis know English and over a million of them speak Russian as a result of immigration from the Soviet Union.**
 
  Although Hebrew can be seen and heard everywhere, Israel’s laws are officially published in Arabic and English as well. The same is true for most road signs, food labels, medicine brochures, safety regulations and messages published by the government.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Hebrew
 
@@ -36,9 +41,6 @@ thumbnail: https://thmb.techidaily.com/99bb08ac4320921b1ffab3e5a5166b4c117aac2cf
 
  Modern Hebrew is what you’ll hear on [the streets of Israel](https://link.springer.com/referenceworkentry/10.1007%2F978-3-030-02438-3%5F125) (and what you can [learn with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5614&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5614?mother%5Flang=en%5Fus?target%5Flang=he&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5614?mother%5Flang=en%5Fus?target%5Flang=he) ) and premodern Hebrew is now used only for prayer or study in Jewish communities.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ### Arabic
 
  Although Arabic is [no longer an official language](https://www.csmonitor.com/World/Middle-East/2018/0917/Why-Arabic-is-flowering-in-Israel-even-as-it-s-officially-demoted) in Israel, it has a special status under Israeli law and it is spoken by Israeli Muslims, Christians and Druze, as well as by Jews who originate from Arab countries.
@@ -50,8 +52,12 @@ thumbnail: https://thmb.techidaily.com/99bb08ac4320921b1ffab3e5a5166b4c117aac2cf
  “Dome of the Rock, Jerusalem, Israel” by Stacey Franco©
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Russian
 
  When you asked yourself “what language is spoken in Israel?”, probably Russian wasn’t your first choice. However, over one million [Russian-speaking Israelis](https://en.wikipedia.org/wiki/Languages%5Fof%5FIsrael) make Russian the most widely spoken non-official language in the State of Israel. Following a mass Jewish immigration from the USSR in the 1970s and later, Israel became home to many Soviet Jews who fled Russia to escape anti-Semitic discrimination.
@@ -60,17 +66,17 @@ thumbnail: https://thmb.techidaily.com/99bb08ac4320921b1ffab3e5a5166b4c117aac2cf
 
 So, as you can see, Russian is surprisingly widespread in Israel.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Other languages
 
  Other languages you’re likely to hear in Israel are Yiddish, French (which was used as a diplomatic language in Israel until the 1990s when the Israeli-French alliance was undermined), German, Spanish and Romanian.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Can you speak English in Israel?
 
  **Yes, you can. A high percentage of Israelis can understand and speak English on at least a basic level.**
@@ -87,8 +93,12 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Speak Hebrew or Arabic fluently in just 10 minutes a day
 
  Do you want to speak Hebrew fluently fast? Or maybe Arabic? Get Mondly, the award-winning language learning app that will help you speak a new language in just 10 minutes a day.
@@ -105,8 +115,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -114,4 +122,20 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-pc-compatible-sony-ps3-mimicry-tools-top-picks/"><u>[New] PC-Compatible Sony PS3 Mimicry Tools Top Picks</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/1715859826531-updated-virtual-playstation-revival-on-android-try-the-5-best-emulators-here/"><u>[Updated] Virtual PlayStation Revival on Android? Try the 5 Best Emulators Here!</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-the-ultimate-guide-to-self-validation-on-social-media/"><u>2024 Approved The Ultimate Guide to Self-Validation on Social Media</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579662069-accelerated-norwegian-proficiency-minutes-only/"><u>Accelerated Norwegian Proficiency, Minutes Only!</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/boost-your-content-game-9-essential-uses-for-chatgpt/"><u>Boost Your Content Game: 9 Essential Uses for ChatGPT</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultivate-cognitive-growth-through-linguistics/"><u>Cultivate Cognitive Growth Through Linguistics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/demystifying-the-difference-between-por-que-and-por-que/"><u>Demystifying the Difference Between Por Que and Por Qué</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/einfaches-start-in-der-deutschen-zahlensprache/"><u>Einfaches Start in Der Deutschen Zahlensprache</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577899357-how-to-talk-like-a-pirate-20-pirate-words/"><u>How To Talk Like A Pirate: 20 Pirate Words</u></a></li>
+<li><a href="https://article-posts.techidaily.com/prime-8-transformative-lenses-for-virtual-conferencing/"><u>Prime 8 Transformative Lenses for Virtual Conferencing</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/rapid-capture-technique-timelapse-toptech/"><u>Rapid Capture Technique Timelapse #TopTech</u></a></li>
+<li><a href="https://os-tips.techidaily.com/transform-your-mobile-into-an-enhanced-nintendo-switch-with-just-one-gadget/"><u>Transform Your Mobile Into an Enhanced Nintendo Switch with Just One Gadget</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579747841-why-learn-croatian-discover-these-7-remarkable-advantages-immediately/"><u>Why Learn Croatian? Discover These 7 Remarkable Advantages Immediately!</u></a></li>
+</ul></div>
 

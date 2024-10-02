@@ -1,7 +1,7 @@
 ---
 title: Swift Techniques for Efficient Language Learning
-date: 2024-09-22T17:16:39.503Z
-updated: 2024-09-26T20:46:13.609Z
+date: 2024-09-26T21:29:59.383Z
+updated: 2024-10-01T17:44:22.911Z
 tags:
   - speak
   - english
@@ -32,6 +32,13 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
 
  Let’s explore the best tips to learn a language fast that could work for you.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Focus on the basics
 
  Start by being realistic. Don’t expect to become conversational from day one. The secret is to approach your goal step by step. Start with the first**100 most common words** and create sentences until you feel comfortable with all of them. Then move to the next 1000\. You will be surprised at how fluently you can speak after just 1000 mastered basic words.
@@ -39,20 +46,13 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
 ![learn a new language](https://edge.mondly.com/blog/wp-content/uploads/2018/04/learn-a-new-language-960x761.png "Tips And Techniques For Fast And Effective Language Learning 6")
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The reason behind this “trick” is that the**most common 1000 words account for 75% of all spoken communication** , while the**most common 3000 words account for 85% of it** . If this doesn’t feel real, just ask yourself if you know and use all the words in your mother tongue. You will soon realize that the answer is “no”.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. Use mnemonics
 
@@ -61,13 +61,6 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
  **A mnemonic device is any learning technique that helps glue stubborn words or expressions to your memory.** There are many types of mnemonics you can create: music, name, expression/word, model, rhyme, note organization, image, connection or spelling mnemonics. The secret is to come up with it yourself so you’ll be more likely to remember it.
 
  For example, when I was in college and I had to memorize a long list of words, I always tried to come up with funny sentences or songs using them. I strongly recommend trying this or other types of mnemonics to improve your learning rhythm.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Identify your learning style
 
@@ -85,6 +78,13 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
 
  Use this information in your own best interest and**learning a new language** can happen a lot faster than you think.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. Train your ears and muscles for the new language
 
  When one of my friends moved to Denmark to study computer science, her biggest problem was learning Danish. Classes didn’t help much. Four months later and she still didn’t have a clue about the Danish language and its mysterious ways. So, she started learning by herself using language learning apps – like [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-1322&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-1322&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-1322) – and other learning strategies that I have shared with her.
@@ -92,6 +92,13 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
  The first step was to train her speech muscles in order to master pronunciation. You won’t believe it, but that was exactly like going to the gym. My friend’s mother tongue is Romanian. Naturally, the Danish language uses different speech muscles that begin to hurt when you first start practicing. In other words, we call this muscle soreness, but who would have thought that you could get it from**speaking another language** ? It’s funny but also true for my friend!
 
  Therefore, it’s always necessary to train your speech muscles and ears. Any foreign language may sound weird in the beginning. The secret is to hold on to it and exercise with common sounds until it becomes familiar.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5\. Study pronunciation rules and practice
 
@@ -125,13 +132,6 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
 
  Just as effective,[music will give a new perspective on the language you’re learning](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Learn the lyrics, sing along and enjoy one of the best ways to learn a language.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 8\. Read only what matters
 
  Probably the best way to learn a language is through reading. Once you have mastered the basics of the language you’re learning, reading can take you to the next level. Even though you don’t know all the foreign words, context can help you extract their meaning.
@@ -139,6 +139,13 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
  For example, if you’re [learning Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , start the process by reading your favorite book in Spanish. Having already read it in your native language will make it easier to subtract meaning and discover new words.
 
  And it doesn’t necessarily have to be books. You can also read articles, poetry or whatever interests you more. Are you a Harry Potter fan? Great, read that. Considering its reading level (middle grade), Harry Potter is a good choice. Sure, it contains a lot of made-up terms as it’s a book about wizards, but that shouldn’t stop you from learning new and useful words. It’s not all magic and spells, after all.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
+  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 9\. Try comprehensible input
 
@@ -153,13 +160,6 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
  Unfortunately, immersion isn’t always cheap. You’ll need both time and money to travel to another country and spend enough time there to experience immersion.
 
 !['Learning a new language' by Sam Lion©](https://edge.mondly.com/blog/wp-content/uploads/2018/04/learning-a-new-language-960x620.jpg "Tips And Techniques For Fast And Effective Language Learning 9")
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  So what’s to be done? The cheapest way is to create an immersion environment at home. Basically, apply all the above-mentioned tips at once. Surround yourself with books in the language you want to learn, listen to music, learn the lyrics and sing along, read books and articles in your target language – everything all at once. The idea is to bring the new language into your environment.
 
@@ -190,10 +190,10 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
-  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### From 0 to conversational fast
@@ -227,20 +227,17 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-mastery-guide-sync-videos-to-facebook-pc-and-android-way/"><u>2024 Approved Mastery Guide Sync Videos to Facebook - PC & Android Way</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/affordable-hd-action-cam-hits-top-list/"><u>Affordable HD Action Cam Hits Top List</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/apples-global-hit-todays-app/"><u>Apple's Global Hit: Today's App</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dash-to-catalan-fluency-daily-effort/"><u>Dash to Catalan Fluency – Daily Effort</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embracing-russian-arithmetic-basics/"><u>Embracing Russian Arithmetic Basics</u></a></li>
-<li><a href="https://article-files.techidaily.com/in-2024-embracing-iphones-shutter-speed-magic-for-dynamic-images/"><u>In 2024, Embracing iPhone’s Shutter Speed Magic for Dynamic Images</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-script-strategies-for-captivating-youtube-audiences/"><u>In 2024, Script Strategies for Captivating YouTube Audiences</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-the-future-of-mp4s-seamless-srt-incorporation-techniques/"><u>In 2024, The Future of MP4s Seamless SRT Incorporation Techniques</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/italys-favorite-salutations-mastering-common-italian-greetings/"><u>Italy's Favorite Salutations: Mastering Common Italian Greetings</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-proficiency-and-brain-health-synergy/"><u>Language Proficiency and Brain Health Synergy</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/maximizing-home-speed-with-orbi-whole-home-mesh-wi-fi-system-in-depth-review-and-insights/"><u>Maximizing Home Speed with Orbi Whole Home Mesh Wi-Fi System: In-Depth Review and Insights</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-speaks-volumes-1-s-app-rankings/"><u>Mondly Speaks Volumes: #1 'S App Rankings</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-accurately-through-ru-alphabets/"><u>Navigating Accurately Through RU Alphabets</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/1723016168934-post-update-sound-loss-on-windows-11-heres-your-easy-remedy/"><u>Post-Update Sound Loss on Windows 11? Here's Your Easy Remedy</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/transformative-minds-tech-savvy-futures-6-workplace-survival-tactics/"><u>Transformative Minds, Tech-Savvy Futures: 6 Workplace Survival Tactics</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/outubes-tagging-system-unveiled/"><u>[New] YouTube's Tagging System Unveiled</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-making-sense-of-virtual-realitys-promise-and-peril/"><u>[Updated] Making Sense of Virtual Reality's Promise and Peril</u></a></li>
+<li><a href="https://win-forum.techidaily.com/beyond-default-options-evaluating-the-need-for-a-third-party-app-to-remove-programs/"><u>Beyond Default Options: Evaluating the Need for a Third-Party App to Remove Programs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-say-hello-in-spanish-10-different-spanish-greetings/"><u>How To Say Hello In Spanish: 10 Different Spanish Greetings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/impress-with-these-top-50-classics-in-latin-language/"><u>Impress with These Top 50 Classics in Latin Language</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-go-pro-karma-drone-review/"><u>In 2024, Go Pro Karma Drone Review</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-ultimate-guides-to-3d-type-exploration/"><u>In 2024, Ultimate Guides to 3D Type Exploration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-vr-networking-expand-your-spanish-proficiency/"><u>Mondly VR Networking: Expand Your Spanish Proficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-the-nuances-of-japanese-characters/"><u>Navigating the Nuances of Japanese Characters</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/preventing-vanished-recorded-run-events/"><u>Preventing Vanished Recorded Run Events</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/stay-ahead-with-these-11-must-have-free-software-refreshers/"><u>Stay Ahead with These 11 Must-Have Free Software Refreshers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unleash-the-power-of-love-in-different-languages-discover-more-ways-to-say-i-love-you-this-valentines-day/"><u>Unleash The Power Of Love In Different Languages! Discover More Ways To Say I Love You This Valentine's Day</u></a></li>
 </ul></div>
 

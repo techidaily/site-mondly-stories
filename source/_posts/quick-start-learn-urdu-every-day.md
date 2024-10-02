@@ -1,7 +1,7 @@
 ---
 title: "Quick Start: Learn Urdu, Every Day"
-date: 2024-09-25T16:26:35.908Z
-updated: 2024-09-26T16:51:14.301Z
+date: 2024-09-29T17:34:21.670Z
+updated: 2024-10-01T23:19:59.265Z
 tags:
   - speak
   - english
@@ -35,10 +35,10 @@ thumbnail: https://thmb.techidaily.com/d3d14caf519c1def322723a3dc59c24a3c8f8aede
  Moreover, in the 19th century, the Hindi–Urdu [controversy](https://en.wikipedia.org/wiki/Hindi%E2%80%93Urdu%5Fcontroversy) arose in colonial India. The debate was whether Hindi or Urdu should be chosen as a national language. In 1900, the government issued a decree granting symbolic equal status to both Hindi and Urdu. But then, Gandhi proposed using either Devanagari or Urdu script, under the traditional generic term Hindustani. Therefore, in 1950, Hindi, in the Devanagari script, along with English, replaced Urdu as one of the official languages of India.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Learn Urdu from Hindi, Arabic, English, Korean and more
@@ -48,10 +48,10 @@ thumbnail: https://thmb.techidaily.com/d3d14caf519c1def322723a3dc59c24a3c8f8aede
  Starting right now, you can [learn Urdu](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4511&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4511?mother%5Flang=en%5Fus?target%5Flang=ur&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4511?mother%5Flang=en%5Fus?target%5Flang=ur) from Hindi, Arabic, English, Korean and 29 other languages only with Mondly.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 10 basic Urdu words and phrases you can learn right now
@@ -75,10 +75,10 @@ thumbnail: https://thmb.techidaily.com/d3d14caf519c1def322723a3dc59c24a3c8f8aede
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Speak Urdu today
@@ -104,22 +104,16 @@ thumbnail: https://thmb.techidaily.com/d3d14caf519c1def322723a3dc59c24a3c8f8aede
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-fbx-gaming-a-complete-video-guide/"><u>[New] 2024 Approved FBX Gaming A Complete Video Guide</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-gratitude-archive-complete-collection-freepaid/"><u>[New] Gratitude Archive Complete Collection (Free/Paid)</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-a-comprehensive-guide-to-effortless-recording-of-your-favored-youtube-lives-on-any-gear/"><u>[Updated] A Comprehensive Guide to Effortless Recording of Your Favored YouTube Lives on Any Gear</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-through-the-viewfinder-tips-for-artistic-photo-edits/"><u>[Updated] Through the Viewfinder Tips for Artistic Photo Edits</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/aging-wisely-the-power-of-multilingualism/"><u>Aging Wisely: The Power of Multilingualism</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/battle-of-the-bot-giants-who-wins-as-the-ultimate-generative-ai-chat-solution-chatgpt-or-bing/"><u>Battle of the Bot Giants: Who Wins as the Ultimate Generative AI Chat Solution, ChatGPT or Bing?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/deciphering-ais-contribution-to-educational-growth/"><u>Deciphering AI's Contribution to Educational Growth</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/decoding-persian-origins-and-learning-lifelines/"><u>Decoding Persian Origins & Learning Lifelines</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embrace-romance-french-films-to-learn-language/"><u>Embrace Romance: French Films to Learn Language</u></a></li>
-<li><a href="https://games-able.techidaily.com/explore-the-rich-world-of-gaming-with-these-9-top-rated-emulators/"><u>Explore the Rich World of Gaming with These 9 Top-Rated Emulators</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-without-backup-on-realme-gt-neo-5-se-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos from Android Gallery without backup on Realme GT Neo 5 SE</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-realme-11-5g-bootloader-easily-by-drfone-android/"><u>How to Unlock Realme 11 5G Bootloader Easily</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lecturas-estrategicas-como-decir-colores/"><u>Lecturas Estratégicas: Cómo Decir Colores</u></a></li>
-<li><a href="https://techtrends.techidaily.com/step-by-step-guide-modifying-text-display-on-your-windows-11-pc/"><u>Step-by-Step Guide: Modifying Text Display on Your Windows 11 PC</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-marauders-guide-to-sea-salt-talk/"><u>The Marauder's Guide to Sea-Salt Talk</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-fluent-portuguese-using-these-6-techniques/"><u>The Ultimate Guide to Fluent Portuguese Using These 6 Techniques</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/tips-and-techniques-for-fast-and-effective-language-learning/"><u>Tips and Techniques for Fast and Effective Language Learning</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-duets-of-destiny-song-suggestions-for-the-big-ask/"><u>[New] 2024 Approved Duets of Destiny Song Suggestions for the Big Ask</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-fb-top-10-crafting-engaging-songs-for-fb-videos/"><u>[Updated] 2024 Approved FB Top 10 Crafting Engaging Songs for FB Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-quintessential-guide-to-secret-story-viewing-for-2024/"><u>[Updated] The Quintessential Guide to Secret Story Viewing for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-unlock-full-screen-browsing-potential-in-safari-for-apple/"><u>2024 Approved Unlock Full-Screen Browsing Potential in Safari for Apple</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/2024s-best-free-live-streaming-platforms-for-anime-top-19-choices-reviewed/"><u>2024'S Best Free Live Streaming Platforms for Anime: Top 19 Choices Reviewed</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/elevate-your-gaming-setup-the-sale-of-a-lifetime-acer-nitros-24-curved-monitor-at-an-unbeatable-price-of-81/"><u>Elevate Your Gaming Setup: The Sale of a Lifetime - Acer Nitro's 24 Curved Monitor at an Unbeatable Price of $81</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-a-guide-itel-a05s-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>In 2024, A Guide Itel A05s Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-dialogue-starters/"><u>International Dialogue Starters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/make-every-moment-count-save-96-on-infinite-mondly-premium-life/"><u>Make Every Moment Count - Save $96 on Infinite Mondly Premium Life</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pioneering-professionalism-language-proficiency-in-companies/"><u>Pioneering Professionalism: Language Proficiency in Companies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/weekly-rhythmes-en-francais/"><u>Weekly Rhythmes En Français</u></a></li>
 </ul></div>
 

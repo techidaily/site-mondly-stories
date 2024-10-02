@@ -1,7 +1,7 @@
 ---
 title: Taking Flight in Russian Numeral Recognition
-date: 2024-09-25T17:29:09.358Z
-updated: 2024-09-26T19:06:18.333Z
+date: 2024-10-01T00:15:24.274Z
+updated: 2024-10-01T16:36:21.741Z
 tags:
   - speak
   - english
@@ -37,16 +37,10 @@ thumbnail: https://thmb.techidaily.com/5e0a2202e9f4da31ba85b59400bc244193601b11b
 * neuter: одно _(odno)_ ; два _(dva)_
 
 <!-- affiliate ads begin -->
-<span id="1531879">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Learn how to count to 20 in Russian
@@ -59,22 +53,21 @@ If you did manage, good job! You must be a natural.
 
 ![numbers in russian](https://edge.mondly.com/blog/wp-content/uploads/2020/04/numbers-in-russian-600x424.jpg "Russian Numbers - Learn How To Count In Russian 3")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Russian numbers 11-20
 
 **Good to know:** If you want to bring a flower bouquet when you are invited to someone’s house in Russia, choose an odd number of flowers – so три, пять, семь or девять flowers. One Russian superstition says that bouquets with an even number of flowers are adequate only for funerals.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
-  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Russian numbers: 21 and onwards
@@ -82,6 +75,13 @@ If you did manage, good job! You must be a natural.
  From here on, Russian numbers are formed similarly to the English numbers (minus the word “and”). If 20 is двадцать_(dvadtsat)_ , then 21 is двадцать**один** _(_ _dvadtsat odin)_ and 22 is двадцать**два** _(dvadtsat dva)_ . Basically, you just**add the numbers from 1 to 9 to the tens.**
 
 ![russian numbers](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-numbers-600x424.jpg "Russian Numbers - Learn How To Count In Russian 4")
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Russian tens
 
@@ -100,10 +100,10 @@ And guess what! It works the same with the hundreds.
 ![russian hundreds](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-hundreds-600x424.jpg "Russian Numbers - Learn How To Count In Russian 5")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Russian hundreds
@@ -157,18 +157,17 @@ Not as hard as you’d expect, is it?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-free-mindfulness-playlist/"><u>[New] Free Mindfulness Playlist</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-comparing-cloud-providers-who-offers-what-price/"><u>[New] In 2024, Comparing Cloud Providers Who Offers What Price</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/can-i-bypass-a-forgotten-phone-password-of-huawei-nova-y91-by-drfone-android/"><u>Can I Bypass a Forgotten Phone Password Of Huawei Nova Y91?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/catch-your-friends-attention-top-50-latin-idioms-and-quotations/"><u>Catch Your Friends' Attention: Top 50 Latin Idioms & Quotations</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/factors-to-weigh-with-your-next-videography-gear/"><u>Factors to Weigh with Your Next Videography Gear</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-fix-oem-unlock-missing-on-realme-narzo-60-pro-5g-by-drfone-android/"><u>How To Fix OEM Unlock Missing on Realme Narzo 60 Pro 5G?</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-samsung-galaxy-m34-5g-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From Samsung Galaxy M34 5G To iPhone 15/14/13? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/languages-lost-love-found-relationship-resilience/"><u>Languages Lost, Love Found: Relationship Resilience</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719577875476-make-a-statement-in-croatia-speak-its-language-with-these-top-7-motivations/"><u>Make a Statement in Croatia: Speak Its Language with These Top 7 Motivations!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-mission-investing-in-ukrainian-speakers-for-no-expense/"><u>Mondly's Mission: Investing in Ukrainian Speakers, for No Expense</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/smoothly-stitching-images-together/"><u>Smoothly Stitching Images Together</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speedy-polish-mastery-for-novices/"><u>Speedy Polish Mastery for Novices</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/worlds-lengthiest-term-and-its-tale/"><u>World's Lengthiest Term and Its Tale</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-a-comprehensive-guide-to-implementing-and-evaluating-fb-in-stream-ads-for-2024/"><u>[New] A Comprehensive Guide to Implementing & Evaluating FB In-Stream Ads for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-maximizing-income-mastering-short-video-markets/"><u>[Updated] 2024 Approved Maximizing Income Mastering Short Video Markets</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-rank-the-best-7-android-friendly-adblockers-reviewed/"><u>[Updated] Rank the Best 7 Android-Friendly AdBlockers Reviewed</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-secure-communication-made-easy-the-best-10-free-and-protected-video-conferencing-tools/"><u>2024 Approved Secure Communication Made Easy The Best 10 Free and Protected Video Conferencing Tools</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-tecno-spark-20-proplus-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Tecno Spark 20 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-proven-ways-in-how-to-hide-location-on-life360-for-tecno-pova-5-drfone-by-drfone-virtual-android/"><u>In 2024, Proven Ways in How To Hide Location on Life360 For Tecno Pova 5 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mapping-out-the-ideal-next-linguistic-adventure/"><u>Mapping Out The Ideal Next Linguistic Adventure</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/myths-in-mouths-exploring-viking-dialects/"><u>Myths in Mouths: Exploring Viking Dialects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/slang-demystified-comprehensive-guide-to-informal-language/"><u>Slang Demystified: Comprehensive Guide to Informal Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/thriving-at-sixty-five-language-learning-perks/"><u>Thriving at Sixty: Five Language Learning Perks</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlocking-made-easy-the-best-10-apps-for-unlocking-your-honor-x50-device-by-drfone-android/"><u>Unlocking Made Easy The Best 10 Apps for Unlocking Your Honor X50 Device</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/unzipping-challenge-managing-multiple-compressed-files-in-a-snap/"><u>Unzipping Challenge: Managing Multiple Compressed Files in a Snap</u></a></li>
 </ul></div>
 

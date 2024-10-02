@@ -1,7 +1,7 @@
 ---
 title: The Balance Between Accuracy and Understanding
-date: 2024-09-19T19:43:37.977Z
-updated: 2024-09-26T17:10:08.034Z
+date: 2024-09-27T20:04:09.286Z
+updated: 2024-10-01T22:05:31.660Z
 tags:
   - speak
   - english
@@ -24,21 +24,41 @@ Chances are that you probably took language classes at some point in your educat
 
 Many students can manage reading and writing in a foreign language, but they struggle to understand it in conversational form. These situations make it clear that the past methods of language education are lacking. What is the solution?
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Language Learning: What Holds People Back?**
 
 One of the best ways to learn a language is to practice both writing the language and speaking it in a conversational manner. This is where many people panic and lose confidence in everything they have learned. If you’re new at a language, chances are that you haven’t even begun to grasp all the important grammar rules. This can lead to insecurity about sounding stupid when you write or speak the language, and this fear might hold you back from practicing.
 
 This is why a focus on grammar is the wrong way to teach and learn a language. Grammar is the art of perfecting the use of a language you already know. When learning a language, it can hold students back in a variety of ways.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **1\. Complexity**
 
 There is a lot to take in when learning a language. The last thing a student needs is to get bogged down in a sea of confusing grammar rules. Of course, there are languages with simpler rules. For example, the [French grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) is more difficult than [the German grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875), but unless you’re naturally gifted at learning languages, realizing there are so many grammar rules to figure out might leave you so discouraged that you give up.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **2\. Incorrect Focus**
@@ -46,13 +66,6 @@ There is a lot to take in when learning a language. The last thing a student nee
 Grammar rules are generally about perfecting the written language. This isn’t to say that having a strong grasp on the written aspects of the language are not important. After all, many people do the majority of their communication online these days. However, if your aim is to learn to speak a foreign language, then spending a large amount of time focusing on grammar might be holding you back.
 
 The goal for a language student is to become fluent as quickly as possible. Fluency with the spoken word will transfer to an understanding of the written word as well. The old models of teaching do not place importance on becoming fluent as quickly as possible, and it seems this is a huge part of the problem.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **3\. A Lack of Conversational Aspects**
 
@@ -65,10 +78,10 @@ This might seem like a crazy concept to some, but learning a language should be 
 ![Learn grammar with Mondly: French grammar, German Grammar, Spanish Grammar and more](https://edge.mondly.com/blog/wp-content/uploads/2017/10/Webp.net-compress-image-1.jpg "Is Grammar Holding You Back From Learning A Language? 2")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Returning to Our Roots: Learning with the Mind of a Child**
@@ -82,13 +95,6 @@ If worrying about grammar has been holding you back in language learning, allow 
 Do you feel that grammar holds you back from learning a language? Share your story in a comment below.
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Speak a new language in just 10 minutes a day
 
@@ -115,18 +121,16 @@ Start using Mondly for free on your computer or tablet or, better yet, download 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-hp-laptop-tutorial-easy-webcam-video-recording-steps-for-2024/"><u>[New] HP Laptop Tutorial Easy Webcam Video Recording Steps for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/1716069712026-new-in-2024-utilizing-internal-screen-recording-on-huaweis-mate-1020-and-p-models-p20-p10/"><u>[New] In 2024, Utilizing Internal Screen Recording on Huawei's Mate 10/20 & P Models (P20, P10).</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/ais-new-era-for-website-user-engagement/"><u>AI's New Era for Website User Engagement</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ng-edge-techniques-for-youtube-thumbnails-made-for-macos-for-2024/"><u>Cutting-Edge Techniques for YouTube Thumbnails, Made for macOS for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/decoding-the-german-language-alphabet-and-articulation/"><u>Decoding the German Language: Alphabet & Articulation</u></a></li>
-<li><a href="https://blog-min.techidaily.com/descargar-y-convertir-archivos-ogg-a-formato-mp3-sin-coste-guia-de-movavi/"><u>Descargar Y Convertir Archivos OGG a Formato MP3 Sin Coste: Guía De Movavi</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/international-alarm-clocks-how-to-wake-up-worldwide-with-a-good-morning/"><u>International Alarm Clocks: How to Wake Up Worldwide with a Good Morning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/multilingual-mayhem-for-happy-birthdays/"><u>Multilingual Mayhem for Happy Birthdays</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/solving-the-xinput13dll-file-absent-issue-a-comprehensive-guide/"><u>Solving the xinput1_3.dll File Absent Issue: A Comprehensive Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-triumph-1500-free-learning-moments/"><u>The Triumph: 1,500 Free Learning Moments</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-techniques-for-lithuanian-self-learning-online/"><u>Top Techniques for Lithuanian Self-Learning Online</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unveiling-israels-preferred-communication/"><u>Unveiling Israel's Preferred Communication</u></a></li>
-<li><a href="https://program-issues.techidaily.com/wwe-2k20-troubleshooting-fixing-pc-game-crash-issues-quickly-and-effortlessly/"><u>WWE 2K20 Troubleshooting: Fixing PC Game Crash Issues Quickly and Effortlessly</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-beyond-flat-canvas-elevating-text-to-new-heights-for-2024/"><u>[Updated] Beyond Flat Canvas Elevating Text to New Heights for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-highlighting-the-best-ios-psp-emulators-1-5/"><u>[Updated] Highlighting the Best iOS PSP Emulators #1-5</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-top-10-iphone-virtual-reality-games-for-next-level-play/"><u>2024 Approved Top 10 IPhone Virtual Reality Games for Next Level Play</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-morning-wishes-and-their-meanings/"><u>International Morning Wishes and Their Meanings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/la-chanson-des-jours-creer-un-air-francophone/"><u>La Chanson Des Jours: Créer Un Air Francophone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-leap-year-get-95-off-and-dive-into-new-cultures/"><u>Language Leap Year - Get 95% Off and Dive Into New Cultures!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-german-a-guide-to-16-thank-you-variations/"><u>Mastering German: A Guide To 16 Thank You Variations</u></a></li>
+<li><a href="https://facebook.techidaily.com/moulding-an-individualized-social-graphic/"><u>Moulding an Individualized Social Graphic</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spelling-and-grammar-in-american-and-british-contexts/"><u>Spelling and Grammar in American & British Contexts</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/step-by-step-guide-engaging-with-the-new-nvidia-rtx-ai-chatbot-from-any-pc/"><u>Step-by-Step Guide: Engaging with the New Nvidia RTX AI Chatbot From Any PC</u></a></li>
+<li><a href="https://howto.techidaily.com/why-your-vivo-x90s-screen-might-be-unresponsive-and-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Your Vivo X90S Screen Might be Unresponsive and How to Fix It | Dr.fone</u></a></li>
 </ul></div>
 

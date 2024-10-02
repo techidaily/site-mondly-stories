@@ -1,7 +1,7 @@
 ---
 title: Understanding and Mastering Russian Alphabet Pronunciation
-date: 2024-09-19T17:35:12.765Z
-updated: 2024-09-26T18:10:19.337Z
+date: 2024-09-28T16:20:06.239Z
+updated: 2024-10-01T17:41:59.121Z
 tags:
   - speak
   - english
@@ -28,19 +28,6 @@ thumbnail: https://thmb.techidaily.com/d00d489dab3eb54e89c3ca7ade1be65a3363127e6
 
  Russian has been greatly influenced by Old Church Slavonic and – since the westernizing policies of Tsar Peter I the Great in the 18 century – by the [languages of western Europe](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Then, the 19th-century poet Aleksandr Pushkin determined the further development of the [Russian language we know](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) today. His writings, in which he combined the colloquial and Church Slavonic styles, were decisive in establishing the best style for literary use.
 
-<!-- affiliate ads begin -->
-<span id="1155462">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### The Cyrillic script
 
 [The Cyrillic script](https://en.wikipedia.org/wiki/Cyrillic%5Fscript) is the national script in various Slavic-, Turkic- and Iranic-speaking countries in Eastern Europe, the Caucasus, Central Asia, and Northern Asia.
@@ -53,13 +40,6 @@ thumbnail: https://thmb.techidaily.com/d00d489dab3eb54e89c3ca7ade1be65a3363127e6
 
  “Red Square, Moscow, Russia” by Aurelien Romain©
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Understand how to pronounce the Russian alphabet
 
  There are 33 letters in the Russian alphabet. 10 vowels (**а, э, ы, у, о, я, е, ё, ю, и)** , 21 consonants (**б, в, г, д, ж, з, к, л, м, н, п, р, с, т, ф, х, ц, ч, ш, щ,** and the consonant**й** which is sometimes a semivowel) and 2 pronunciation signs (the “soft sign” ь and the “hard sign” ъ).
@@ -69,10 +49,10 @@ thumbnail: https://thmb.techidaily.com/d00d489dab3eb54e89c3ca7ade1be65a3363127e6
  If we were to compare the Russian alphabet to the English alphabet, we would have four groups of letters: letters that look and sound (almost) the same as in English, letters that sound the same but look different, letters that look the same but sound different and letters that have no English equivalent whatsoever.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Russian letters that are (almost) the same as in English
@@ -83,6 +63,13 @@ thumbnail: https://thmb.techidaily.com/d00d489dab3eb54e89c3ca7ade1be65a3363127e6
 * **М м** sounds like “m” in “mother” or “mobile”,
 * **О о** sounds like “o” in “bore” or “more” (without the ‘r’ sound),
 * **Т т** sounds like “t” in “top” or “task”.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Russian letters that sound the same as in English (but look different)
 
@@ -102,6 +89,13 @@ thumbnail: https://thmb.techidaily.com/d00d489dab3eb54e89c3ca7ade1be65a3363127e6
 * **Э э** sounds like “e” in “met” or “edit”,
 * **Ю ю** sounds like “you” or “use”,
 * **Я я** sounds like “yu” in yummy or “ya” in “yard”.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Russian letters that look the same as in English (but sound different)
 
@@ -126,14 +120,14 @@ thumbnail: https://thmb.techidaily.com/d00d489dab3eb54e89c3ca7ade1be65a3363127e6
 
 ![russian alphabet pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2020/03/russian-alphabet-pronunciation-1-431x600.jpg "Master The Russian Alphabet Pronunciation 3")
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Russian alphabet pronunciation
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Russian lesson no. 1: rules
 
@@ -180,24 +174,16 @@ thumbnail: https://thmb.techidaily.com/d00d489dab3eb54e89c3ca7ade1be65a3363127e6
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-information.techidaily.com/new-auditory-aesthetics-guide-media-sound-choices/"><u>[New] Auditory Aesthetics Guide Media Sound Choices</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-projection-vs-television-best-device-for-immersive-4k-content/"><u>[Updated] In 2024, Projection vs Television Best Device for Immersive 4K Content</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-smart-editing-tricks-how-to-embed-dates-in-photo-albums/"><u>[Updated] Smart Editing Tricks How to Embed Dates in Photo Albums</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/articulate-your-way-to-fluency-engaging-100-twisters/"><u>Articulate Your Way to Fluency: Engaging 100 Twisters</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-urdu-words-for-beginners-over-100-core-words-and-phrases/"><u>Essential Urdu Words For Beginners: Over 100 Core Words And Phrases</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-hangul-to-heartbeat-the-daily-korean-story/"><u>From Hangul to Heartbeat: The Daily Korean Story</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fundamental-russian-speech-for-globetrotters/"><u>Fundamental Russian Speech for Globetrotters</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/german-vs-french-usability-in-international-business/"><u>German Vs French Usability in International Business</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-change-itel-lock-screen-password-by-drfone-android/"><u>How To Change Itel Lock Screen Password?</u></a></li>
-<li><a href="https://video-capture.techidaily.com/ideal-approaches-to-stream-and-record-major-sports-games-for-2024/"><u>Ideal Approaches to Stream and Record Major Sports Games for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/immediate-fix-available-for-total-video-transformation-problems-in-vlc-media-player/"><u>Immediate Fix Available for Total Video Transformation Problems in VLC Media Player</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-best-3-oneplus-nord-3-5g-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>In 2024, Best 3 OnePlus Nord 3 5G Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-essential-interview-questions-for-engaged-audience/"><u>In 2024, Essential Interview Questions for Engaged Audience</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-the-ultimate-guide-to-bypassing-icloud-activation-lock-on-apple-iphone-8-by-drfone-ios/"><u>In 2024, The Ultimate Guide to Bypassing iCloud Activation Lock on Apple iPhone 8</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-multi-player-spanish-skills-and-social-growth/"><u>Mondly's Multi-Player: Spanish Skills & Social Growth</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/movavi-screen-recorder-11-review-for-2024/"><u>Movavi Screen Recorder 11 Review for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/passionate-prose-the-bella-notte-way/"><u>Passionate Prose: The Bella Notte Way</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-trio-of-macau-cantonese-portuguese-and-others/"><u>The Trio of Macau: Cantonese, Portuguese & Others</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-the-power-of-multilingualism-with-mondlys-latest-vr-app/"><u>Unlock the Power of Multilingualism with Mondly's Latest VR App</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-top-10-tools-to-enhance-your-youtube-vocal-recordings/"><u>[New] In 2024, Top 10 Tools to Enhance Your YouTube Vocal Recordings</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-quick-recovery-methods-for-erased-reddit-topics/"><u>[New] Quick Recovery Methods for Erased Reddit Topics</u></a></li>
+<li><a href="https://network-issues.techidaily.com/device-issue-code-43-sorted/"><u>Device Issue: Code 43 Sorted</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-joy-on-american-independence-eve/"><u>International Joy on American Independence Eve</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leading-global-linguistic-studies-abroad/"><u>Leading Global Linguistic Studies Abroad</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/netizen-humorist-platform-for-2024/"><u>Netizen Humorist Platform for 2024</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-a-detailed-walkthrough-incorporating-soundtracks-into-your-imovie-narratives/"><u>New A Detailed Walkthrough Incorporating Soundtracks Into Your iMovie Narratives</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/santa-speaks-many-language-lessons-unlocked/"><u>Santa Speaks Many: Language Lessons Unlocked</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-verb-conjugation-regular-and-irregular-verbs/"><u>Spanish Verb Conjugation: Regular and Irregular Verbs</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/the-fundamentals-of-navigating-youtube-regulations-for-2024/"><u>The Fundamentals of Navigating YouTube Regulations for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-linguistic-profile-of-belgium/"><u>The Linguistic Profile of Belgium</u></a></li>
 </ul></div>
 

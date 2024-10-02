@@ -1,7 +1,7 @@
 ---
 title: "The Language Lifeline: Essential Russian Terms For Tourists"
-date: 2024-09-05T04:37:55.181Z
-updated: 2024-09-06T04:37:55.181Z
+date: 2024-09-27T21:37:04.961Z
+updated: 2024-10-01T16:49:58.103Z
 tags:
   - speak
   - english
@@ -14,24 +14,12 @@ keywords: Russian Phrasebook,Essential Russian Vocabulary for Travelers,Guide to
 thumbnail: https://thmb.techidaily.com/b41dfc1747c954c2591d35270b4a20079e5707f867334ccdc51bba558ecb898b.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The Language Lifeline: Essential Russian Terms For Tourists
 
  Russia is a magical land where contrasts meet. This amazing country gave us Tchaikovsky and his timeless music, but it also gave us the funniest YouTube videos. So if you are a truly passionate traveler, you should not miss it. Its unique history and culture await to be explored on the scene. Besides, there are a lot of tourist attractions in Russia that everyone must visit at least once in their lives. The Kremlin, Hermitage Museum, Lake Baikal, Saint Basil’s Cathedral, Bolshoi Theatre, and Mount Elbrus are just a few of them. And since FIFA World Cup 2018 is happening in Russia, as I write, I figured you could use some basic [Russian phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) if you decide to kill two birds with one stone and visit Russia while you are attending the World Cup. Just bookmark this article.
 
 ![basic russian phrases scaled](https://edge.mondly.com/blog/wp-content/uploads/2018/07/basic-russian-phrases-scaled-640x960.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 2")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Photo by Tom Grimbert
 
 **Quick travel tip:** It’s important to learn Russian before traveling to Russia because the locals don’t always speak English. Basic Russian might save you if you need help. Identify the best way to learn Russian that works for you – there are a lot of language learning apps available – and [start learning a few weeks in advance](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . It’s better to be safe than sorry.
@@ -48,12 +36,6 @@ thumbnail: https://thmb.techidaily.com/b41dfc1747c954c2591d35270b4a20079e5707f86
 8. [Russia Travel Guide – how to say that you have fallen in love?](#russia-travel-guide)
 9. [Bonus basic Russian phrases for FIFA World Cup 2018](#russian-phrases-world-cup)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 1\. Greetings and other useful Russian words
 
  Manners are a must. In every situation. At home, in the park or in another country. It doesn’t matter where you are. If you are traveling to a foreign country, start learning the basics first. Greetings, apologies and, thanks will always help you the most. If you were wondering how to say_good afternoon_ in Russian or what is the meaning of da, here it is:
@@ -71,12 +53,6 @@ thumbnail: https://thmb.techidaily.com/b41dfc1747c954c2591d35270b4a20079e5707f86
 
 ![english to russian](https://edge.mondly.com/blog/wp-content/uploads/2018/07/english-to-russian-1024x720.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 3")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Photo by Pablo Gentile
 
 * Please. –_Пожалуйста. – Pozhaluysta._
@@ -113,6 +89,13 @@ thumbnail: https://thmb.techidaily.com/b41dfc1747c954c2591d35270b4a20079e5707f86
 * Is this seat taken? –_Это место свободно? – Eto mesto svobodno?_
 * I would like to change my seat. –_Я хотел бы пересесть. – Ya hotel by peresest._
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. Common Russian phrases for travelers who need help
 
  How do you say_where is The Red Square_ in Russian? How do you say_can you help me_ in Russian? How do you say_where is a pharmacy_ in Russian? – these are all valid questions that pop up in the traveler’s mind and by the time the plane lands, you should know the correct answer to them.  
@@ -131,12 +114,6 @@ thumbnail: https://thmb.techidaily.com/b41dfc1747c954c2591d35270b4a20079e5707f86
 
 ![learn russian](https://edge.mondly.com/blog/wp-content/uploads/2018/07/learn-russian-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 5")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Photo by A.L.
 
 * Where can I buy tickets? –_Где здесь можно купить билеты? – Gde zdes mozhno kupit bilety?_
@@ -151,11 +128,12 @@ thumbnail: https://thmb.techidaily.com/b41dfc1747c954c2591d35270b4a20079e5707f86
 * Drive me to this address. –_Отвезите меня по этому адресу. – Otvezite menya po etomu adresu_ .
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 4\. Advanced Russian phrases for different hotel situations
 
  Staying at a hotel/hostel requires interaction with the staff – most of the time. If you don’t want to waste your time searching English to Russian translations on Google, make sure to learn some basic Russian that will help you to better express your needs.
@@ -185,17 +163,12 @@ thumbnail: https://thmb.techidaily.com/b41dfc1747c954c2591d35270b4a20079e5707f86
 ![russian-words](https://edge.mondly.com/blog/wp-content/uploads/2018/07/russian-words-1024x684.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 6")
 
 <!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Photo by Max Delsid
 
 * My wife would like a bowl of soup. –_Моей жене – суп. – Moyey zhene – sup._
@@ -219,18 +192,6 @@ thumbnail: https://thmb.techidaily.com/b41dfc1747c954c2591d35270b4a20079e5707f86
 * We would like to have dinner. –_Мы хотели бы поужинать. – My hoteli by pouzhynat._
 * What would you like for breakfast? –_Что бы вы хотели на завтрак? – Chto by vy hoteli na zavtrak?_
 
-<!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 6\. Russian for travelers who want to have fun
 
  Probably the most important phrases – for some of us – are those related to fun. What’s the point in going to Russia if you don’t go out and try the famous vodka with the locals? The legend says the vodka is so good that your brain will start translating English to Russian without even learning Russian in advance.
@@ -244,6 +205,19 @@ Just joking. Still is an amazing drink, though!
 
 ![russian-travel-guide](https://edge.mondly.com/blog/wp-content/uploads/2018/07/russian-travel-guide-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 8")
 
+<!-- affiliate ads begin -->
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Photo by Edwin Andrade
 
 * Are tickets for the cinema still available? –_Билеты в кино ещё есть? – Bilety v kino yeshcho yest?_
@@ -255,12 +229,6 @@ Just joking. Still is an amazing drink, though!
 * Let’s have some fun. –_Повеселимся! – Poveselimsya!_
 * Are there seats available? –_Ещё остались свободные места? – Yeshcho ostalis svobodnyye mesta?_
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 7\. Basic Russian phrases for shopping sprees
 
  This is the cruelest drudgery our loved ones from home put us through while on holiday. _Should I buy a matryoshka doll? Or some vodka? Maybe a refrigerator magnet? But when? What if I don’t buy anything? Will they hate me for life?_ Funny or not, these are all questions that haunt us while on holiday. The best solution? Schedule two hours tops and just get it over with. The same way you would do with a bandage.
@@ -277,6 +245,13 @@ Just joking. Still is an amazing drink, though!
 * What would you like? –_Что вы предпочитаете? – Chto vy predpochitayete?_
 * Can I have some ice cream? –_Можно мне мороженого? – Mozhno mne morozhenogo?_
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 8\. Russia Travel Guide – how to say that you have fallen in love?
 
  If you learn how to master these next phrases, you will definitely be getting your travel vocabulary to the next level.  
@@ -291,6 +266,13 @@ Just joking. Still is an amazing drink, though!
 * May I kiss you? –_Можно тебя поцеловать? – Mozhno tebya potselovat?_
 
 ![common-russian-phrases](https://edge.mondly.com/blog/wp-content/uploads/2018/07/common-russian-phrases-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 10")
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Photo by Greg Rakozy
 
@@ -307,12 +289,6 @@ Just joking. Still is an amazing drink, though!
 
 ![russian-phrases-world-cup](https://edge.mondly.com/blog/wp-content/uploads/2018/07/russian-phrases-world-cup-1024x576.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 11")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Photo by Fauzan Saari
 
 * Do you watch football? –_Ты смотришь футбол? – Ty smotrish futbol?_
@@ -342,8 +318,6 @@ Just joking. Still is an amazing drink, though!
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -351,4 +325,24 @@ Just joking. Still is an amazing drink, though!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-10-cheeky-tunes-turned-parodies/"><u>[Updated] In 2024, 10 Cheeky Tunes Turned Parodies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/6-top-danish-features-for-non-native-language-enthusiasts/"><u>6 Top Danish Features for Non-Native Language Enthusiasts</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/blue-freestyle2-app-review-the-top-contender-for-your-mac-experience/"><u>Blue Freestyle2 App Review: The Top Contender for Your Mac Experience!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-language-gaps-oculus-quests-latest-update-with-mondly/"><u>Bridging Language Gaps: Oculus Quest's Latest Update with Mondly</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-the-latest-epson-workforce-ds30-printer-driver-for-windows-11-8-and-7/"><u>Download the Latest Epson WorkForce DS30 Printer Driver for Windows 11, 8 & 7</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ernsthaftes-erlernen-von-deutschen-tagen-der-woche/"><u>Ernsthaftes Erlernen Von Deutschen Tagen Der Woche</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expertly-guiding-through-english-grammars-maze-9-essential-hints-from-an-esl-maestro/"><u>Expertly Guiding Through English Grammar's Maze: 9 Essential Hints From an ESL Maestro</u></a></li>
+<li><a href="https://techtrends.techidaily.com/facon-facile-de-copier-et-proteger-un-disque-dur-sur-windows-et-macos-une-approche-simple/"><u>Façon Facile De Copier Et Protéger Un Disque Dur Sur Windows Et macOS : Une Approche Simple</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-innovating-with-imagination-pro-tiktok-edits-revealed/"><u>In 2024, Innovating with Imagination Pro TikTok Edits Revealed</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-top-7-icloud-activation-bypass-tools-for-your-iphone-15-plus-by-drfone-ios/"><u>In 2024, Top 7 iCloud Activation Bypass Tools For your iPhone 15 Plus</u></a></li>
+<li><a href="https://program-issues.techidaily.com/resolving-issues-what-to-do-when-your-qbittorent-freezes/"><u>Resolving Issues: What to Do When Your qBittorent Freezes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/selecting-your-preferred-future-linguistic-pursuit/"><u>Selecting Your Preferred Future Linguistic Pursuit</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-love-no-matter-the-language/"><u>Speak Love, No Matter the Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sunrise-speak-a-guide-to-mornings-in-10-cultures/"><u>Sunrise Speak: A Guide to Mornings in 10 Cultures</u></a></li>
+<li><a href="https://techidaily.com/top-iphone-xs-max-message-recovery-software-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Top iPhone XS Max Message Recovery Software | Stellar</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-witchcraft-and-trick-or-treating/"><u>Worldwide Witchcraft and Trick-or-Treating</u></a></li>
+<li><a href="https://howto.techidaily.com/xiaomi-redmi-a2plus-not-receiving-texts-10-hassle-free-solutions-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Xiaomi Redmi A2+ Not Receiving Texts? 10 Hassle-Free Solutions Here | Dr.fone</u></a></li>
+</ul></div>
 

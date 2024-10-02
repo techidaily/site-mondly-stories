@@ -1,7 +1,7 @@
 ---
 title: Salutation Strategies Around the Globe
-date: 2024-09-05T04:37:58.050Z
-updated: 2024-09-06T04:37:58.050Z
+date: 2024-09-26T17:36:04.802Z
+updated: 2024-10-01T19:21:05.306Z
 tags:
   - speak
   - english
@@ -14,30 +14,12 @@ keywords: Global Salutations Methods,Cross-Cultural Greeting Techniques,Internat
 thumbnail: https://thmb.techidaily.com/7a1b81670361c75645ca8d7e9b30ac5842f69d19f93e0ed73444604354277138.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Salutation Strategies Around the Globe
 
  Hello there! It’s nice to be properly greeted, isn’t it? Even in an article like this one. In fact, we could go so far as to say that ‘hello’ is the most powerful word in any language. It doesn’t matter if it’s **[‘hello’ in Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ,[‘hello’ in Japanese](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , or [‘hello’ in French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .** Every ‘hello’ has the power to spark conversations and make new friends. Knowing how to say ‘hi’ or ‘hello’ in different languages is probably one of the most important assets of a traveler. After all, every story starts with a ‘hello’ — regardless if it’s a love story, a friendship story, or even a business one.
 
  Ready to make friends all over the world? Let’s dive right in and learn**how to say ‘hello’ in different languages.** From_hola_ (’hello’ in Spanish),_bonjour_ (’hello’ in French),_ciao_ (’hello’ in Italian) to_konnichiwa_ (’hello’ in Japanese) and_privyet_ (’hello’ in Russian). Master them all and let us know in the comments which ‘hello’ or ‘hi’ brought you the most friends.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Hello in Spanish — Hola
 
  Probably one of the most spoken ‘hello’s in the world,**‘hello’ in Spanish** is not a stranger for anyone who has listened to some Spanish music – even by chance – in recent years._¡Hola! Yo me llamo Mariola_ – sounds familiar, doesn’t it?
@@ -47,46 +29,36 @@ thumbnail: https://thmb.techidaily.com/7a1b81670361c75645ca8d7e9b30ac5842f69d19f
  If you want to learn more about how to say ‘hello’ in Spanish, here’s a more in-depth [guide on Spanish greetings](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Hello in Russian — Здравствуйте (Zdravstvuyte)
 
 **_Привет (Privyet)_** is definitely the more popular Russian hello, but it actually translates to**‘hi’ in Russian,** not ‘hello’. However, if you already know the person you are greeting and you feel comfortable being more informal,_Привет (Privyet)_ is the perfect choice for you.
 
 ![hello in russian](https://edge.mondly.com/blog/wp-content/uploads/2021/06/hello-in-russian-960x640.jpg "How To Say &Quot;Hello&Quot; In Different Languages 2")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  “Hello Russia” by Michael Parulava©
 
  At the same time,**_Здравствуйте (Zdravstvuyte)_** is also a very nice way to greet your Russian friends. The root of the word actually goes back to the expression “to be healthy and well” so it is also a wish for good health.
 
  Wanna dig deeper into Russian greetings? Here are five different ways to say [**‘hello’ in Russian**](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
-<!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Hello in Japanese — こんにちは (Kon’nichiwa)
 
  The same as the Spanish_hola_ ,**_Kon’nichiwa_** is a kind of universal Japanese greeting that can be used safely in all sorts of social contexts. There are two exceptions, though. Early in the morning and late at night, you should use the specific greetings dedicated to certain moments of the day. To learn more about them, check out this in-depth guide on how to say **[‘hello’ in Japanese](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .**
 
  Moreover, don’t forget that the Japanese culture is a culture of respect. If you want to go all-in and immerse yourself entirely in the Japanese culture, it’s best to [study Japanese](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) etiquette before your trip.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Hello in Korean — 안녕하세요 (Annyeonghaseyo)
 
@@ -98,6 +70,13 @@ _안녕하세요 (Annyeonghaseyo)_ is the most popular semi-formal Korean hello.
 
  “Mount Fuji, Japan” by David Edelstein©
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Hello in French — Bonjour
 
  When talking about traveling to another country, greetings should always be number 1 on your to-do list. The locals regard your attempt to speak their language as a sign of respect and respond accordingly. Why not take advantage of this interaction? Every place looks different and more like home through the eyes of someone who already lives there.
@@ -106,12 +85,6 @@ _안녕하세요 (Annyeonghaseyo)_ is the most popular semi-formal Korean hello.
 
  Wanna find out more? Here are [12 French greetings beyond Bonjour](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
-  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Hello in German — Hallo
 
  **The universal German hello is_Hallo_ .** Short, sweet and simple. In other words, nothing like the rest of the German language. (Sorry, German, but that’s true.)
@@ -130,13 +103,14 @@ _안녕하세요 (Annyeonghaseyo)_ is the most popular semi-formal Korean hello.
 
 ![hello in french](https://edge.mondly.com/blog/wp-content/uploads/2021/06/hello-in-french-960x640.jpg "How To Say &Quot;Hello&Quot; In Different Languages 4")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  “Antibes, France” by Reuben Mcfeeters©
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Hello in Italian — Ciao
 
@@ -163,11 +137,12 @@ _Olá_ , just like the Spanish_Hola_ , is suitable for any situation regardless 
  To learn more about Portuguese greetings, check out our guide on how to say [**‘** **hello’ in Portuguese**](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Hello in different languages
 
  Now that we’ve properly covered some of the most spoken languages in the world let’s move on to the real gold mine of**‘hello’ in different languages.** From ‘hello’ in Arabic to ‘hello’ in Catalan and even Latin, you’ll find them all here. Besides, if you want to hear them in action in real conversations, spoken by fluent speakers, you can always get Mondly. Just choose the language you always wanted to speak, and you can be conversational from day 1.
@@ -233,8 +208,6 @@ _Olá_ , just like the Spanish_Hola_ , is suitable for any situation regardless 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -242,4 +215,20 @@ _Olá_ , just like the Spanish_Hola_ , is suitable for any situation regardless 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-help.techidaily.com/new-freshest-beats-newly-trending-music-for-youtube-short-videos/"><u>[New] Freshest Beats Newly Trending Music for YouTube Short Videos</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-cultivate-connections-top-10-agrigames-for-farm-tastic-fun/"><u>[Updated] Cultivate Connections Top 10 AgriGames for Farm-Tastic Fun</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-the-ultimate-visual-fidelity-in-a-box-eizos-cg318-4k-for-2024/"><u>[Updated] The Ultimate Visual Fidelity in a Box – EIZO's CG318-4K for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-picture-perfection-the-ultimate-iosandroid-covers-app/"><u>2024 Approved Picture Perfection The Ultimate iOS/Android Covers App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-journey-through-the-language-of-italian-gestures/"><u>A Journey Through the Language of Italian Gestures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-legacy-in-progress-mondlylanguages-daring-visionary-journey/"><u>A Legacy in Progress: MondlyLanguages - Daring Visionary Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conversing-with-confidence-mastering-japanese-salutations/"><u>Conversing with Confidence: Mastering Japanese Salutations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/digital-pathway-learn-lithuanian-effectively/"><u>Digital Pathway: Learn Lithuanian Effectively</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/discover-the-greatest-inspirational-films-of-all-time/"><u>Discover The Greatest Inspirational Films Of All Time</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-the-nuances-of-french-sound-articulation/"><u>Discovering the Nuances of French Sound Articulation</u></a></li>
+<li><a href="https://techtrends.techidaily.com/from-mobile-to-megascreen-a-step-by-step-guide-to-mirroring-content-onto-your-samsung-tv/"><u>From Mobile to Megascreen: A Step-by-Step Guide to Mirroring Content Onto Your Samsung TV</u></a></li>
+<li><a href="https://win-able.techidaily.com/new-world-continues-to-experience-chilling-halts-a-comprehensive-guide/"><u>New World Continues to Experience Chilling Halts: A Comprehensive Guide</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-nubia-z50-ultra-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Nubia Z50 Ultra IMEI without Root A Comprehensive Guide</u></a></li>
+</ul></div>
 

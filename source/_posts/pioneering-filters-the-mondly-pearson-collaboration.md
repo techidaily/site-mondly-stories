@@ -1,7 +1,7 @@
 ---
 title: "Pioneering Filters: The Mondly-Pearson Collaboration"
-date: 2024-09-24T17:53:05.922Z
-updated: 2024-09-26T17:07:26.614Z
+date: 2024-09-24T21:11:30.786Z
+updated: 2024-10-01T23:58:27.653Z
 tags:
   - speak
   - english
@@ -40,10 +40,10 @@ thumbnail: https://thmb.techidaily.com/3f22ae9e837b10e05053cf12480b5c15e8d166c20
  At Pearson, our purpose is simple: to add life to a lifetime of learning. We believe that every learning opportunity is a chance for a personal breakthrough. That’s why our c.20,000 Pearson employees are committed to creating vibrant and enriching learning experiences designed for real-life impact. We are the world’s leading learning company, serving customers in more than 200 countries with digital content, assessments, qualifications, and data. For us, learning isn’t just what we do. It’s who we are. Visit us at pearsonplc.com
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **About Mondly**
@@ -67,22 +67,18 @@ thumbnail: https://thmb.techidaily.com/3f22ae9e837b10e05053cf12480b5c15e8d166c20
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/updated-lgs-gaming-monitor-review-the-future-of-4k-freesync-for-2024/"><u>[Updated] LG’s Gaming Monitor Review - The Future of 4K FreeSync for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-expert-endorsed-gpus-for-top-quality-online-video-playback/"><u>2024 Approved Expert-Endorsed GPUs for Top Quality Online Video Playback</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-reimagining-vrs-uncharted-territories/"><u>2024 Approved Reimagining VR's Uncharted Territories</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/6-a-list-danish-features-for-non-native-audiences/"><u>6 A-List Danish Features for Non-Native Audiences</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/a-comprehensive-guide-to-apple-iphone-8-blacklist-removal-tips-and-tools-by-drfone-ios/"><u>A Comprehensive Guide to Apple iPhone 8 Blacklist Removal Tips and Tools</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/apple-acknowledges-mondly-among-worlds-premier-educational-apps/"><u>Apple Acknowledges Mondly Among World’s Premier Educational Apps</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579281391-arabic-for-beginners-a-step-by-step-guide/"><u>Arabic for Beginners: A Step by Step Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discovering-macaus-linguistic-landscape/"><u>Discovering Macau's Linguistic Landscape</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/flicks-to-fluency-exploring-global-cinema/"><u>Flicks to Fluency: Exploring Global Cinema</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-tecno-spark-10-pro-by-fonelab-android-recover-photos/"><u>How to recover deleted photos from Tecno Spark 10 Pro.</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/how-to-talk-like-a-pirate-20-pirate-words/"><u>How to Talk Like a Pirate: 20 Pirate Words</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Apple iPhone 13 Pro Max? | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-methods-to-change-gps-location-on-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>In 2024, Methods to Change GPS Location On Apple iPhone XR | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/juvenile-jargon-kinder-through-fifth-grade-in-spanish/"><u>Juvenile Jargon: Kinder Through Fifth Grade in Spanish</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/new-create-epic-trailers-best-software-for-mac-and-pc-2023-review/"><u>New Create Epic Trailers Best Software for Mac and PC (2023 Review)</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/the-complete-guide-to-vivo-y27-4g-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>The Complete Guide to Vivo Y27 4G FRP Bypass Everything You Need to Know</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-romantic-orators-handbook-selecting-flirtatious-dialogues/"><u>The Romantic Orator's Handbook: Selecting Flirtatious Dialogues</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-infusing-your-reels-with-soundscape-elements/"><u>[New] 2024 Approved Infusing Your Reels with Soundscape Elements</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-the-ultimate-list-of-the-best-video-call-recording-equipment-for-2024/"><u>[New] The Ultimate List of the Best Video Call Recording Equipment for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-architectural-marvels-best-6-mojave-homes/"><u>[Updated] In 2024, Architectural Marvels Best 6 Mojave Homes</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-full-time-careers-meet-video-content-a-harmonious-mix/"><u>[Updated] In 2024, Full-Time Careers Meet Video Content A Harmonious Mix</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-understanding-the-meta-and-omni-spaces/"><u>[Updated] Understanding the Meta and Omni Spaces</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/heartstrings-and-heritage-love-filled-french-films/"><u>Heartstrings and Héritage: Love-Filled French Films</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-can-lenovo-thinkphonemirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Lenovo ThinkPhoneMirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-vivo-y27-4g-phone-without-google-account-by-drfone-android/"><u>How to Unlock Vivo Y27 4G Phone without Google Account?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-ispoofer-on-oppo-find-x6-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Oppo Find X6 Pro? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/little-linguists-from-playing-with-puppies-to-elementary-spanish/"><u>Little Linguists: From Playing with Puppies To Elementary Spanish</u></a></li>
+<li><a href="https://win-tips.techidaily.com/multi-cloud-innovation-unleashed-microsoft-azure-launches-radius-a-cutting-edge-open-source-architecture-techvibes/"><u>Multi-Cloud Innovation Unleashed: Microsoft Azure Launches Radius, a Cutting-Edge Open-Source Architecture | TechVibes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-16-german-phrases-perfect-for-showing-appreciation/"><u>Top 16 German Phrases Perfect for Showing Appreciation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-linguistic-curiosity-is-still-flourishing-at-sixty/"><u>Why Linguistic Curiosity Is Still Flourishing at Sixty?</u></a></li>
 </ul></div>
 

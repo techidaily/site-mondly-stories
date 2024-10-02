@@ -1,7 +1,7 @@
 ---
 title: "Launchpad: Arabic for New Learners"
-date: 2024-09-25T19:51:30.330Z
-updated: 2024-09-26T16:44:50.718Z
+date: 2024-09-28T20:49:26.151Z
+updated: 2024-10-01T16:19:14.187Z
 tags:
   - speak
   - english
@@ -30,30 +30,43 @@ thumbnail: https://thmb.techidaily.com/4af354c0c4f31e85da7815990d834961f2e7342ec
 
  So, since the elephant is out of the room, you’re ready to [learn Arabic online](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  ! By the way, according to the US Foreign Service Institute, you’ll need roughly 88 weeks or approximately 2200 hours in order to reach fluency. Follow the tips below and you might arrive at your destination a lot faster!
 
+<!-- affiliate ads begin -->
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Step by step guide
 
 I’d really stick by these if I were you!
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Decision time
 
  Ok, you can’t really learn all the Arabic, since there are many types of it (Palestinian, Iraqi, Egyptian, Levantine). To be more precise, there’s the mother tongue, which is the official language, but also different accents and a lot of pronunciations depending on the locale. So, choose the type of Arabic you want to learn in relation to the region/regions you are interested in. There’s also Modern Standard Arabic, one of the official languages of the UN.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Commence with just the basics
 
 ![arabic bead necklace](https://edge.mondly.com/blog/wp-content/uploads/2022/01/arabic-bead-necklace-960x640.jpg "Arabic For Beginners: A Step By Step Guide 2")
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  ‘Arabic bead necklace’ by Carlos Eduardo de Meneses©
@@ -62,29 +75,22 @@ I’d really stick by these if I were you!
 
  So, when you encounter a written word there will be no way of knowing how to pronounce it unless you’ve heard it before. And this is where Mondly comes in handy! We provide you with real-life conversations, a speech recognition chatbot, and quality recordings. You’ll get used to Arabic words in no time. Ok, final note, you write from left to right, not the other way around.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Learn how to use an Arabic dictionary
 
  Ah, one of the most trusted friends of any language learner, the dictionary is here to save the day yet again. But, with Arabic things will be a little more complicated. So, in an Arabic dictionary, the words will be organized around roots made up of three letters. With me so far?
 
  In order to find a word, you need to already know its root and the letter that the root starts with, and this letter is not always the first letter in the word. So yeah, learning to use the dictionary will take some practice, but once you’ve mastered it will make things much simpler.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Start practicing and speaking
 
 ![coworkers talking](https://edge.mondly.com/blog/wp-content/uploads/2022/01/coworkers-talking-960x640.jpg "Arabic For Beginners: A Step By Step Guide 3")
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  ‘Coworkers’ by Mikhail Nilov©
 
@@ -126,24 +132,18 @@ I’d really stick by these if I were you!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-guidance.techidaily.com/updated-insights-on-the-recent-upgrades-of-sonys-s6500-player/"><u>[Updated] Insights on the Recent Upgrades of Sony’s S6500 Player</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-simplifying-the-process-of-creating-time-lapses-with-gopro-for-2024/"><u>[Updated] Simplifying the Process of Creating Time Lapses with GoPro for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-streamline-your-watching-with-edge-free-youtube-content/"><u>[Updated] Streamline Your Watching with Edge-Free YouTube Content</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/100plus-essential-italian-terms-for-seamless-exploration/"><u>100+ Essential Italian Terms for Seamless Exploration</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/app-assisted-romanian-perfection/"><u>App-Assisted Romanian Perfection</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/contemporary-verbiage-slang-definitions-for-modern-english/"><u>Contemporary Verbiage: Slang Definitions for Modern English</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/elite-srs-conversions-maximum-benefits-for-tech-enthusiasts/"><u>Elite SRS Conversions Maximum Benefits for Tech Enthusiasts</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/german-classrooms-revolutionized-by-mondlys-online-success/"><u>German Classrooms Revolutionized by Mondly's Online Success</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/gift-giving-with-knowledge-santas-language-skills/"><u>Gift-Giving with Knowledge: Santa’s Language Skills</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-change-infinix-note-30-pro-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change Infinix Note 30 Pro Lock Screen Clock in Seconds</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Honor X50 GT? | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-change-country-on-app-store-for-apple-iphone-7-plus-with-7-methods-by-drfone-ios/"><u>In 2024, How To Change Country on App Store for Apple iPhone 7 Plus With 7 Methods</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/learn-how-to-lock-stolen-your-apple-iphone-12-pro-max-properly-by-drfone-ios/"><u>Learn How To Lock Stolen Your Apple iPhone 12 Pro Max Properly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719576573877-new-years-savings-bonanza-get-free-premium-access-for-life-on-mondly/"><u>New Year's Savings Bonanza: Get Free Premium Access for Life on Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/santa-claus-a-polyglot-in-red-and-white/"><u>Santa Claus: A Polyglot in Red and White</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-fascinating-world-of-indo-european-and-other-languages-of-europe/"><u>The Fascinating World of Indo-European and Other Languages of Europe</u></a></li>
-<li><a href="https://techidaily.com/three-solutions-to-hard-reset-infinix-hot-40i-drfone-by-drfone-reset-android-reset-android/"><u>Three Solutions to Hard Reset Infinix Hot 40i? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/understanding-belgiums-multilingualism/"><u>Understanding Belgium’s Multilingualism</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/video-production-atlas-xstudio-analysis-edition/"><u>Video Production Atlas XStudio Analysis Edition</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-ignite-conversations-top-10-creative-reaction-insights-for-videos/"><u>[Updated] Ignite Conversations Top 10 Creative Reaction Insights for Videos</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-crafting-professional-level-sessions-utilizing-mask-and-filter-techniques/"><u>[Updated] In 2024, Crafting Professional-Level Sessions Utilizing Mask & Filter Techniques</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-rising-stars-of-online-videos-top-subscription-hits/"><u>2024 Approved Rising Stars of Online Videos Top Subscription Hits</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-transfer-music-from-tecno-spark-20-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Transfer Music from Tecno Spark 20 to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/8-workable-fixes-to-the-sim-not-provisioned-mm2-error-on-samsung-galaxy-a15-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Workable Fixes to the SIM not provisioned MM#2 Error on Samsung Galaxy A15 4G | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/core-ideas-behind-online-story-crafting/"><u>Core Ideas Behind Online Story Crafting</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-bypass-android-lock-screen-using-emergency-call-on-samsung-galaxy-f04-by-drfone-android/"><u>How to Bypass Android Lock Screen Using Emergency Call On Samsung Galaxy F04?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-the-art-of-expression-with-essential-grammar-guidelines-esl-style/"><u>Master the Art of Expression with Essential Grammar Guidelines, ESL-Style</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oracular-odyssey-the-evolution-of-ancient-greek/"><u>Oracular Odyssey: The Evolution of Ancient Greek</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/top-unexpected-features-revealed-in-the-new-apple-vision-pro/"><u>Top Unexpected Features Revealed in the New Apple Vision Pro</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/triumph-through-translation-top-9-struggle-filled-languages/"><u>Triumph Through Translation: Top 9 Struggle-Filled Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/uncovering-prime-online-routines-for-fluency-in-new-languages/"><u>Uncovering Prime Online Routines for Fluency in New Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-multilingual-advantages-top-6-perks/"><u>Unlocking Multilingual Advantages: Top 6 Perks</u></a></li>
 </ul></div>
 

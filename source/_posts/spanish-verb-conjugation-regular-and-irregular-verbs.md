@@ -1,7 +1,7 @@
 ---
 title: "Spanish Verb Conjugation: Regular and Irregular Verbs"
-date: 2024-09-05T04:37:55.918Z
-updated: 2024-09-06T04:37:55.918Z
+date: 2024-09-26T17:17:11.632Z
+updated: 2024-10-01T17:36:04.179Z
 tags:
   - speak
   - english
@@ -60,28 +60,17 @@ Spanish verbs conjugations make sense now, don’t they?
 
 ![Mondly app screenshot verb conjugation](https://edge.mondly.com/blog/wp-content/uploads/2019/06/verb-conjugation-353x600.png "Spanish Verb Conjugation: Regular And Irregular Verbs 2")
 
-<!-- affiliate ads begin -->
-<span id="1983475">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  In Mondly, you can quickly see a verb’s conjugation by simply tapping on it
 
  Before moving on to irregular Spanish verbs and more examples, let’s also explore**the past and future of regular Spanish verbs** . What do you think? Wouldn’t that be useful?
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2031472/7443" target="_top" id="2031472">
-  <img src="//a.impactradius-go.com/display-ad/7443-2031472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2031472/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Spanish Preterite Tense – Regular Preterite Verb Endings
 
 **The Spanish preterite tense** or_el pretérito_ is the equivalent of the**simple past tense** in English. Naturally, the same as the simple past tense,**the Spanish preterite tense** is used to describe actions completed at some point in the past.
@@ -126,11 +115,12 @@ And the conjugation of comer will look like this:
  Keep in mind the fact that the first person singular (_yo_), third person singular (_él, ella_), and second person formal singular (_usted_) forms use tildes on the final letters of the verb endings. And one little tilde can make all the difference in the world! If you don’t know yet how accents work, take a look at our article on **[Spanish accents and how to master them all](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .**
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Spanish Simple Future Tense – Regular Simple Future Verb Endings
 
  In Spanish, there are two ways to form the future tense:**the informal future tense** (the verb_ir_ \+ a + infinitive ->_voy a comer_) and**the simple future tense,** which we will illustrate in this article.
@@ -164,11 +154,18 @@ And the conjugation of comer will look like this:
 * _Ellos / Ellas / Ustedes escrib**irán**_
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Spanish verbs: how to master irregular Spanish verbs
 
  Remember how you managed to learn**irregular English verbs** ? Well, there are tricks that you can use, but the truth is that, in time,**irregular Spanish verbs** will just… come to you. No joke. Once you get used to the language and use it all the time, your brain will start making connections.
@@ -230,11 +227,12 @@ And the conjugation of comer will look like this:
 _Adquirir_ (to acquire) and_inquirir_ (to inquire) are just as rebellious because to the final letter “i” of their stem, we will need to add an “e”. Thus, “I acquire” will be “Yo adquiero”.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 2\. Spanish verbs with an irregular “yo” form
 
  This category includes two types of verbs:  
@@ -259,12 +257,6 @@ _Adquirir_ (to acquire) and_inquirir_ (to inquire) are just as rebellious becaus
  –_dar_ (to give) –_Yo doy_ ,_Tú das_
  –_ver_ (to see) –_Yo veo_ ,_Tú ves_
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Spanish verbs conjugation examples –_ser, estar, ir_
 
  Now that we managed to paint the big picture for both**regular and irregular Spanish verbs** , let’s finish this lesson with some eloquent examples of the most “rebel” verbs of the Spanish language:_ser_ (to be),_estar_ (to be, to be situated) and_ir_ (to go). Here’s the**present tense** ,**preterite tense** , and**future tense conjugation** for each and every one of them:
@@ -347,8 +339,6 @@ Well… this is it! This is our full lesson on**Spanish verbs.**
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -356,4 +346,23 @@ Well… this is it! This is our full lesson on**Spanish verbs.**
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-key-points-to-consider-when-opting-for-a-youtube-tv-subscription/"><u>[Updated] 2024 Approved Key Points to Consider When Opting for a YouTube TV Subscription</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-crafting-engaging-vids-with-template-magic/"><u>[Updated] Crafting Engaging Vids with Template Magic</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-creating-stunning-time-lapse-videos-on-samsung-devices/"><u>[Updated] In 2024, Creating Stunning Time-Lapse Videos on Samsung Devices</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-prime-6-economical-choices-for-ultra-hd-viewing/"><u>[Updated] Prime 6 Economical Choices for Ultra HD Viewing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/70-years-of-europes-lexicon-diverse-dialects-unite/"><u>70 Years of Europe's Lexicon: Diverse Dialects Unite</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/8-unexpected-ways-language-expands-your-horizons/"><u>8 Unexpected Ways Language Expands Your Horizons</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/boost-your-fitness-journey-the-fitbit-versa-3-comes-equipped-with-built-in-gps-and-wellness-tools-to-keep-you-driven/"><u>Boost Your Fitness Journey: The Fitbit Versa 3 Comes Equipped With Built-In GPS and Wellness Tools to Keep You Driven.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridge-cultures-effortlessly-mondlys-revamped-phrase-compendium/"><u>Bridge Cultures Effortlessly: Mondly’s Revamped Phrase Compendium</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comparative-study-on-english-grammar-patterns/"><u>Comparative Study on English Grammar Patterns</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/desde-lunes-a-domingo-espanol-avanzado/"><u>Desde Lunes a Domingo, Español Avanzado</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dessert-dialogues-discovering-chocolate-across-cultures/"><u>Dessert Dialogues: Discovering 'Chocolate' Across Cultures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dominant-dialects-of-croatia/"><u>Dominant Dialects of Croatia</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/eliminate-fm20dll-not-found-message-with-these-fixes/"><u>Eliminate 'fm20.dll Not Found' Message with These Fixes</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/free-music-for-videos-finding-the-right-sources-for-2024/"><u>Free Music for Videos Finding the Right Sources for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-pixel-to-passion-unlocking-new-forms-of-entertainment-with-vr/"><u>In 2024, Pixel to Passion Unlocking New Forms of Entertainment with VR</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-illegal-to-screen-capture-youtube-videos-in-2024/"><u>Is It Illegal to Screen-Capture YouTube Videos, In 2024</u></a></li>
+</ul></div>
 

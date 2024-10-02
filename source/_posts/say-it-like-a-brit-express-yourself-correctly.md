@@ -1,7 +1,7 @@
 ---
 title: "Say It Like a Brit: Express Yourself Correctly"
-date: 2024-09-01T00:31:11.239Z
-updated: 2024-09-02T00:31:11.239Z
+date: 2024-09-27T00:07:03.923Z
+updated: 2024-10-02T00:32:26.774Z
 tags:
   - speak
   - english
@@ -34,11 +34,16 @@ thumbnail: https://thmb.techidaily.com/3835b5c9324135a25937f991ea8300cd53ce37fdc
 
  Well, the chances of that happening are much slimmer after you get through our list. That, plus looking for online tutors can better prep you for your next British conversation.
 
-
-
 ## Common British Phrases
 
  In this section, we will look at the phrases that will make you sound more British. Some of them might be those British phrases you always hear on TV shows or movies.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### _Alright?_
 
@@ -48,16 +53,10 @@ thumbnail: https://thmb.techidaily.com/3835b5c9324135a25937f991ea8300cd53ce37fdc
 
 I’m tired.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 ### _Cheeky_
 
 Mischievous or playful.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 ### _Bloody_
 
 This is a very British thing to say meaning very.
@@ -67,15 +66,29 @@ This is a very British thing to say meaning very.
  Not meaning the regular “angry”, in British talk it actually means you’re very drunk and is used quite a lot when you are out drinking with friends.
 
 <!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### _Mate_
 
 A common one and quite cliché – mate means friend.
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### _Rubbish_
 
  It could mean_garbage_ or_nonsense,_ depending on the context.
@@ -83,6 +96,13 @@ A common one and quite cliché – mate means friend.
 ### _Cockney_
 
 A person native to East London.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047346/19272" target="_top" id="2047346">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047346" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047346/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### _Blimey_
 
@@ -92,16 +112,10 @@ A person native to East London.
 
  Similar to_guy_ in America, it is a blanket term to describe a man in general.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ### _Bollocks_
 
  One of the more well-known British terms, it actually has a multitude of meanings. It could be used to symbolize disbelief, or to talk about a man’s private parts.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Funny British Sayings
 
 * _I was gobsmacked_ – The key here being “gobsmacked”. The entire phrase means I was shocked.
@@ -125,10 +139,6 @@ A person native to East London.
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "50+ British Phrases And Slangs To Impress Your British Mates 4")
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ##### Improve your English, mate
 
  Speak English like a true Brit with Mondly.
@@ -180,6 +190,13 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 * _Innit?_ – An even more contracted form of isn’t it?
 * _Miffed_ – Annoyed
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Stereotypical British Phrases
 
 * _Keep calm and carry on_ – A famous British slogan encouraging people to remain level-headed in times of turmoil.
@@ -193,9 +210,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 * _Posh nosh_ – Refers to high-quality or fancy food.
 * _Take the Mickey_ – Making fun of or tease someone.
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ## **British Compliments**
 
  Think about the elegant British phrases you have heard and see if you recognize any in our list below.
@@ -211,13 +225,17 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
 ![british english](https://edge.mondly.net/blog/wp-content/uploads/2020/02/british-english-960x960.png "50+ British Phrases And Slangs To Impress Your British Mates 5")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  American English vs. British English
 
  British phrases and expressions are extraordinarily interesting to those who aren’t familiar with their terms. The common British words we see already seem so fancy and sometimes even whimsical and learning them will surely give you a leg up next time you start writing your [5 paragraph essay](https://edubirdie.com/blog/five-paragraph-essay) , or have a chinwag with your British mates!
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Differences Between American and British English
 
  As mentioned before, British terms, British phrases, British expressions as well as spelling differ by American phrases and expressions, but what else is there? When we think about [British versus American English](https://preply.com/en/blog/british-english-vs-american-english-slang-compared/) , we think about slang terms and pronunciation.
@@ -230,23 +248,21 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  Having learned some of the most common British words and phrases, let’s move on to some frequently asked questions.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Why do the British say ‘cheers’?
 
  ‘Cheers’ is an informal manner of expressing gratitude, akin to saying ‘thank you’. When combined with the word ‘mate’, it forms the phrase “Cheers, mate”, which carries the same meaning as “Thank you, my friend.”
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Can you be British but not English?
 
  People who are English are from the country of England. On the other hand, British people are people who live in Great Britain (Britain) and the UK. Consequently, being English implies a distinction from being Scottish, Welsh, or Northern Irish. In contrast, the term British encompasses anyone originating from Great Britain. This means that everyone residing in Scotland, Wales, or England is collectively identified as British.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How to speak like a British?
 
  To speak like a British person, it’s essential to prioritize your pronunciation and vocabulary. Keep in mind that British accents exhibit significant regional variations, so actively listening to native speakers can aid in emulating specific accents like the esteemed ‘Received Pronunciation’. Additionally, acquaint yourself with British slang and remain cognizant of grammatical disparities. Finally, it is crucial to approach the emulation of a British accent with the utmost respect and a sincere curiosity about British culture. Doing this will help you improve your British accent faster.
@@ -268,13 +284,18 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
 Get Mondly now and speak any language like you never dreamed you would ![Learn with Mondly](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-4428&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-4428%26utm%5Fsource%3Dblog-post-id-4428&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-4428%26utm%5Fsource%3Dblog-post-id-4428&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-4428%26utm%5Fsource%3Dblog-post-id-4428&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-4428%26mt%3D8 "Learn with Mondly")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -283,4 +304,22 @@ Get Mondly now and speak any language like you never dreamed you would ![Learn w
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-are-instagrams-video-selfies-truly-genuine/"><u>[New] Are Instagram's Video Selfies Truly Genuine?</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-clearer-chrome-tips-to-improve-facebook-playback/"><u>[New] In 2024, Clearer Chrome Tips to Improve Facebook Playback</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-composing-a-catchy-tiktok-epilogue/"><u>[New] In 2024, Composing a Catchy TikTok Epilogue</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-free-tools-to-master-voice-manipulation-and-sound-design/"><u>[Updated] 2024 Approved Free Tools to Master Voice Manipulation and Sound Design</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-conquer-joining-on-tiktok-with-confidence-and-flair/"><u>[Updated] Conquer Joining on TikTok with Confidence and Flair</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/english-lexicon-hazards-the-most-frequent-mispellings-revealed/"><u>English Lexicon Hazards: The Most Frequent Mispellings Revealed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/english-word-woes-the-definitive-guide-to-common-mispronunciations-ranked/"><u>English Word Woes - The Definitive Guide to Common Mispronunciations Ranked</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-urdu-lexicon-for-beginners-journey/"><u>Essential Urdu Lexicon for Beginners' Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-slavic-ties-ukrainian-and-russian/"><u>Exploring Slavic Ties: Ukrainian & Russian</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/for-free-how-to-convert-twitter-videos-to-gifs-in-2024/"><u>For Free! How to Convert Twitter Videos to GIFS, In 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-latin-to-modernity-spains-spanish-vs-portugals-portuguese/"><u>From Latin to Modernity: Spain's Spanish Vs. Portugal's Portuguese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-netflix-virtuoso-via-korean-lessons/"><u>From Novice to Netflix Virtuoso via Korean Lessons</u></a></li>
+<li><a href="https://apple-account.techidaily.com/protecting-your-privacy-how-to-remove-apple-id-from-iphone-xs-by-drfone-ios/"><u>Protecting Your Privacy How To Remove Apple ID From iPhone XS</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/unveiling-the-hottest-books-on-social-medias-reading-stage-for-2024/"><u>Unveiling the Hottest Books on Social Media's Reading Stage for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-free-mod-video-editor-roundup-top-picks-for-2024/"><u>Updated Free MOD Video Editor Roundup Top Picks for 2024</u></a></li>
+</ul></div>
 

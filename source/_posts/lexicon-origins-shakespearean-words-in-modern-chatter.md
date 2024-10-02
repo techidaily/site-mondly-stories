@@ -1,7 +1,7 @@
 ---
 title: "Lexicon Origins: Shakespearean Words in Modern Chatter"
-date: 2024-09-25T16:45:58.872Z
-updated: 2024-09-26T18:47:27.548Z
+date: 2024-09-28T00:05:15.243Z
+updated: 2024-10-01T18:01:35.007Z
 tags:
   - speak
   - english
@@ -46,10 +46,10 @@ thumbnail: https://thmb.techidaily.com/95080ee1192e9ec99602ccecb30de670936b2e86c
  Be that as it may, we’re not suggesting Shakespeare was not a genius of words. We’re simply stating we should take numbers with a grain of salt.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How did Shakespeare invent words?
@@ -64,38 +64,24 @@ thumbnail: https://thmb.techidaily.com/95080ee1192e9ec99602ccecb30de670936b2e86c
 
 ![Shakespeare words](https://edge.mondly.com/blog/wp-content/uploads/2023/02/shakespeare-words.jpg "Shakespeare’s Words: 36 Words Shakespeare Invented That We Still Use Today 2")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Cool words Shakespeare invented
 
 _To invent new words, or not to invent new words?_ Clearly, William Shakespeare did not ask himself that. He just went with it and invented new words so he could properly tell his stories. In the end, he was so good at both storytelling and coining words that today it is impossible to have an English curriculum without Shakespeare. But enough tittle-tattle.**Let’s see what other words Shakespeare invented:**
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **1\. Addiction**
 
 _Henry V_ , Act I, Scene II
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
+  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **2\. Arch-villain**
 
 _Timon of Athens_ , Act V, Scene I
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **3\. Bandit**
 
@@ -106,15 +92,28 @@ _King Henry VI_ , Part II, Act IV, Scene I
 _King John_ , Act III, Scene I
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **5\. Dauntless**
 
 _King Henry VI_ , Part III, Act III, Scene III
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **6\. Fashionable**
 
@@ -140,6 +139,13 @@ _The Merchant of Venice_ , Act I, Scene I
 
 _Julius Caesar_ , Act I, Scene II
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **12.** Marketable
 
 _As You Like It_ , Act I, Scene II
@@ -164,16 +170,16 @@ _Love’s Labour’s Lost_ , Act IV, Scene III
 
 _King Henry VI_ , Part III, Act II, Scene III
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **18.** Outbreak
 
 _Hamlet_ , Act II, Scene I
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **19\. Puking (disputed)**
 
@@ -187,31 +193,31 @@ _All’s Well That Ends Well_ , Act I, Scene I
 
 _Hamlet_ , Act V, Scene I
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **22\. (to) Swagger**
 
 _A Midsummer Night’s Dream_ , Act III, Scene I
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **23.** Tranquil
 
 _Othello_ , Act III, Scene III
 
+<!-- affiliate ads begin -->
+<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **24.** Unreal
 
 _Macbeth_ , Act III, Scene IV
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **25\. Zany**
 
@@ -255,22 +261,24 @@ _Love’s Labour’s Lost_ , Act V, Scene II
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-guidance.techidaily.com/new-merge-easy-to-use-skype-with-advanced-zoom-features/"><u>[New] Merge Easy-to-Use Skype with Advanced Zoom Features</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-unleash-creativity-using-snapchat-to-edit-and-enhance-photos-for-2024/"><u>[New] Unleash Creativity Using Snapchat to Edit and Enhance Photos for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-perfecting-live-social-media-facebook-livestream-tutorials-for-tech/"><u>[Updated] In 2024, Perfecting Live Social Media Facebook Livestream Tutorials for Tech</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-premier-12-screen-recording-solutions-uncapped-recording-for-2024/"><u>[Updated] Premier 12 Screen Recording Solutions - Uncapped Recording for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/first-words-first-worlds-young-learners-guide-to-spanish/"><u>First Words, First Worlds: Young Learners' Guide to Spanish</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fluent-at-work-language-tools-for-corporate-success/"><u>Fluent at Work: Language Tools for Corporate Success</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-a-quick-guide-to-poco-m6-5g-frp-bypass-instantly-by-drfone-android/"><u>In 2024, A Quick Guide to Poco M6 5G FRP Bypass Instantly</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-mastering-inshot-pc-editing-made-easy/"><u>In 2024, Mastering Inshot PC Editing Made Easy</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-infinix-note-30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Infinix Note 30 5G | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/international-awakening-expressions/"><u>International Awakening Expressions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/launching-mondlys-compre-written-and-interactive-qanda-zone/"><u>Launching Mondly’s Compre Written and Interactive Q&A Zone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguistic-love-notes-in-the-land-of-eiffel/"><u>Linguistic Love Notes in the Land of Eiffel</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-amplifies-language-skills-with-ar-innovations/"><u>Mondly Amplifies Language Skills with AR Innovations</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-leads-bridging-cultures-and-courses-with-70plus-million-users/"><u>Mondly Leads: Bridging Cultures & Courses with 70+ Million Users</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/nombre-y-significado-del-ciclo-lunar-en-espanol-desde-el-lunes-al-domingo/"><u>Nombre Y Significado Del Ciclo Lunar en Español: Desde El Lunes Al Domingo</u></a></li>
-<li><a href="https://solve-news.techidaily.com/seamless-web-engagement-through-cookiebot-technology-boost-traffic-and-conversions/"><u>Seamless Web Engagement Through Cookiebot Technology – Boost Traffic and Conversions</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/turn-your-mobile-into-a-professional-webcam-for-video-for-2024/"><u>Turn Your Mobile Into a Professional Webcam for Video for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-free-and-open-airwaves-at-home-internet-radio-recordings-explained/"><u>2024 Approved Free and Open Airwaves at Home - Internet Radio Recordings Explained</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-top-portable-audio-choices-decoded/"><u>2024 Approved Top Portable Audio Choices Decoded</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-up-to-date-nvidia-rtx-eby-2060-driver-software-supporting-windows-11-to-windows-7/"><u>Get Up-to-Date NVIDIA RTX Eby 2060 Driver Software Supporting Windows 11 to Windows 7</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/globe-trotting-grammar-master-languages-with-vr/"><u>Globe-Trotting Grammar: Master Languages with VR</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/harnessing-the-power-of-collective-wisdom-with-knowledge-sharing-network-ksn/"><u>Harnessing the Power of Collective Wisdom with Knowledge Sharing Network (KSN)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hello-in-german-10plus-german-greetings-beyond-hallo/"><u>Hello in German: 10+ German Greetings Beyond Hallo</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-6s-to-other-iphone-14-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 6s To Other iPhone 14 devices? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-can-i-bypass-a-forgotten-phone-password-of-realme-c67-5g-by-drfone-android/"><u>In 2024, Can I Bypass a Forgotten Phone Password Of Realme C67 5G?</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-on-poco-x5-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location on Poco X5 | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-the-ultimate-guide-to-unlocking-apple-watch-or-apple-iphone-13-mini-from-icloud-by-drfone-ios/"><u>In 2024, The Ultimate Guide to Unlocking Apple Watch Or Apple iPhone 13 mini from iCloud</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/innovative-pedagogy-discussion-with-global-peers/"><u>Innovative Pedagogy Discussion with Global Peers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/la-semaine-dun-novice-guide-des-dix-jours/"><u>La Semaine D'un Novice: Guide Des Dix Jours</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-english-a-key-to-inclusive-communication/"><u>Learning English: A Key to Inclusive Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/local-lingo-lessons-australian-slang-unpacked/"><u>Local Lingo Lessons: Australian Slang Unpacked</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-is-now-available-on-huawei-appgallery/"><u>Mondly Is Now Available on Huawei AppGallery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-through-english-contractions-made-simple/"><u>Navigating Through English Contractions Made Simple</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-top-10-free-avi-file-joiners-simple-fast-and-effective/"><u>New 2024 Approved Top 10 Free AVI File Joiners Simple, Fast, and Effective</u></a></li>
+<li><a href="https://win-answers.techidaily.com/pc-playthroughs-uninterrupted-resolving-rogue-company-game-crashes/"><u>PC Playthroughs Uninterrupted: Resolving Rogue Company Game Crashes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-ways-to-express-cupids-affection-this-day/"><u>Worldwide Ways to Express Cupid's Affection This Day</u></a></li>
 </ul></div>
 

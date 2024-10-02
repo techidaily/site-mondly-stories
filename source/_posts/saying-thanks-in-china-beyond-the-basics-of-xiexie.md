@@ -1,7 +1,7 @@
 ---
 title: "Saying Thanks in China: Beyond the Basics of Xièxiè"
-date: 2024-09-01T00:29:46.125Z
-updated: 2024-09-02T00:29:46.125Z
+date: 2024-09-26T18:01:13.300Z
+updated: 2024-10-01T19:35:18.157Z
 tags:
   - speak
   - english
@@ -40,6 +40,13 @@ thumbnail: https://thmb.techidaily.com/8ab6ea565c08148258cccefd3c4e69bde02c4b3db
 
  “Xiangxi, China” by Theodor Lundqvist©
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Thank you very much in Chinese
 
  Just like in any other language, the way you say “thank you” in Chinese can alter its meaning. If you say it harshly and keep a straight face, Chinese speakers may perceive your attitude as sarcastic. So smile, act as you would in your native country and nod respectfully (don’t bow as you would do in Japan). Even if your pronunciation is not perfect, your message will certainly be conveyed correctly.
@@ -58,8 +65,12 @@ Other variations include:
 * Thank you SO much! – 太谢谢你了! –_Tài xiè xiè nǐ le!_
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 3\. Thank you for… in Chinese
 
  Just as important as the simple, plain “thank you” is the “thank you for something” thank you. Because sometimes you need to be more specific. What are you thanking them for? So here’s how to thank someone in Chinese for the gift they gave you and some more [Chinese phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) that might come in handy next time you visit China.
@@ -75,16 +86,8 @@ Other variations include:
 
 ![xiexie chinese](https://edge.mondly.com/blog/wp-content/uploads/2019/10/xiexie-chinese-1024x682.jpg "Thank You In Chinese: Xièxiè And 12 Other Thank You Chinese Phrases 3")
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  “Jiaxing, China” by Jay©
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
-<!-- affiliate ads end -->
 ## 4\. Other ways to express your gratitude in Chinese
 
  Depending on the social context, in some cases, you might want to vary your answers. For example, when someone compliments you, instead of saying 谢谢_xièxiè_ – which may sound a little arrogant, you could say 哪里哪里_nǎlǐ nǎlǐ_ . In English, that translates to “no, no” or “where, where” as in “you’re flattering me” or “you’re too kind”.
@@ -92,8 +95,12 @@ The powerful video editing program for your Windows PC</a>
  In fact, Chinese culture is known for its preference for modesty and humility. Deflecting a compliment rather than accepting it with a plain “thank you” is much more appreciated. Thus, another way to deflect a compliment (while secretly enjoying it) is to say 没有没有_méiyǒu méiyǒu_ – meaning “no, no, that’s nonsense”.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## BONUS: You’re welcome in Chinese
 
  If you want to respond to someone’s thanks with “you’re welcome” in Chinese, you can say 不客气_bù kèqì._
@@ -108,8 +115,12 @@ The powerful video editing program for your Windows PC</a>
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Here’s how to speak Chinese in just 10 minutes a day
 
  It can be really tricky to master Chinese pronunciation if you don’t actively live in China. But with [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-3462&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-3462?mother%5Flang=en%5Fus?target%5Flang=zh&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-3462?mother%5Flang=en%5Fus?target%5Flang=zh) , the award-winning language learning app, **you can learn Chinese naturally with practical topics and authentic Chinese conversations** recorded by fluent voice artists so you can tackle day-to-day situations.
@@ -128,8 +139,6 @@ The powerful video editing program for your Windows PC</a>
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -137,4 +146,19 @@ The powerful video editing program for your Windows PC</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-editorelite-roundup-full-overview-of-androvid/"><u>[New] EditorElite Roundup – Full Overview of AndroVid</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-elevate-your-brand-explore-these-10-essential-youtube-creators/"><u>[Updated] 2024 Approved Elevate Your Brand Explore These 10 Essential YouTube Creators</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/1725288056435-dvd/"><u>最新DVDリッパープログラム：高性能なフリーダウンロード満載</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/end-the-headache-solve-your-spellbreak-game-crash-problem-on-windows-1011/"><u>End the Headache! Solve Your Spellbreak Game Crash Problem on Windows 10/11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hanzi-101-a-primer-on-chinese-writing/"><u>Hanzi 101: A Primer on Chinese Writing</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-honor-100-pro-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Honor 100 Pro to Laptop Without USB | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-gif-galore-how-to-seamlessly-share-emojis-and-animations-on-instagram/"><u>In 2024, GIF Galore How to Seamlessly Share Emojis & Animations on Instagram</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-gifts-of-joy-on-new-anniversaries/"><u>Linguistic Gifts of Joy on New Anniversaries</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-conversation-as-a-buccaneer/"><u>Navigating Conversation as a Buccaneer</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-2024-approved-combining-sounds-and-visuals-a-guide-to-blending-video-and-audio/"><u>New 2024 Approved Combining Sounds & Visuals A Guide to Blending Video and Audio</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-linguistic-leap-unveiling-the-top-6-gains/"><u>The Linguistic Leap: Unveiling the Top 6 Gains</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-is-mondly-the-best-language-learning-app-youll-ever-use/"><u>Why Is Mondly The Best Language Learning App You'll Ever Use</u></a></li>
+</ul></div>
 

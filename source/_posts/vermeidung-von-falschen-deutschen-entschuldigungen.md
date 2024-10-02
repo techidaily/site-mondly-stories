@@ -1,7 +1,7 @@
 ---
 title: Vermeidung Von Falschen Deutschen Entschuldigungen
-date: 2024-09-22T18:21:09.988Z
-updated: 2024-09-26T16:11:00.664Z
+date: 2024-09-26T21:34:43.261Z
+updated: 2024-10-02T00:07:59.940Z
 tags:
   - speak
   - english
@@ -27,10 +27,10 @@ thumbnail: https://thmb.techidaily.com/3119c4d644ca38982b7a0f68d251b6e048a299751
  However, this is not strictly a German thing. It’s true Germans say sorry once in a blue moon, but there are some other countries like France or Russia where over-apologizing can be regarded as insincere as well.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to apologize in German
@@ -46,10 +46,10 @@ Here are some practical examples of apologies in German:
 * _Tut mir leid, ich mag die Suppe nicht._ – Sorry, I don’t like the soup.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to say sorry in German – the “Excuse me” sorry
@@ -61,10 +61,10 @@ Here are some practical examples of apologies in German:
  Hear the formal_Entschuldigen Sie_ in action in this basic conversation in German:
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Other ways to say sorry in German
@@ -110,10 +110,10 @@ Here are some practical examples of apologies in German:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
+  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### From 0 to conversational in German
@@ -147,22 +147,20 @@ Here are some practical examples of apologies in German:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-celebrating-top-10-moba-play-android-edition-for-2024/"><u>[Updated] Celebrating Top 10 MOBA Play Android Edition for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-explore-the-best-15-standout-stop-motion-films-of-all-time/"><u>[Updated] Explore the Best 15 Standout Stop-Motion Films of All Time</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-the-essential-guide-to-simple-iphone-screen-recording/"><u>2024 Approved The Essential Guide to Simple Iphone Screen Recording</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/beyond-words-the-universal-language-of-love/"><u>Beyond Words: The Universal Language of Love</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-meizu-by-drfone-android/"><u>In 2024, AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Meizu</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-the-in-depth-study-of-audafreedomaudiotools/"><u>In 2024, The In-Depth Study of AudaFreedomAudioTools</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-viral-video-ventures-crafting-addictive-loops-on-ig/"><u>In 2024, Viral Video Ventures Crafting Addictive Loops on IG</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/innovative-techniques-for-easy-latino-learning/"><u>Innovative Techniques for Easy Latino Learning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/journey-through-the-japonic-writing-system/"><u>Journey Through the Japonic Writing System</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-arabic-anywhere-anytime-6-motivating-factors-for-mondly-enrollment/"><u>Learn Arabic Anywhere, Anytime: 6 Motivating Factors for Mondly Enrollment</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-the-top-16-formal-and-informal-thank-yous-in-deutsch/"><u>Learn the Top 16 Formal and Informal Thank Yous in Deutsch</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/masterclass-in-time-the-top-10-youtube-channels-for-history-students-for-2024/"><u>Masterclass in Time The Top 10 YouTube Channels For History Students for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-unveils-comprehensive-inquiry-section-update/"><u>Mondly Unveils Comprehensive Inquiry Section Update</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/rhythmic-learning-science-driven-methods-to-master-languages/"><u>Rhythmic Learning: Science-Driven Methods to Master Languages</u></a></li>
-<li><a href="https://driver-download.techidaily.com/seamless-setup-for-hp-devices-free-driver-downloads-inside/"><u>Seamless Setup for HP Devices - Free Driver Downloads Inside</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/taking-screenshot-on-windows-1087/"><u>Taking Screenshot on Windows 10/8/7</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-foreign-languages-in-american-study-ranking/"><u>Top Foreign Languages in American Study Ranking</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-how-to-record-iphoneipads-screen-2023-latest-method/"><u>[New] In 2024, How to Record iPhone/iPad’s Screen [2023 Latest Method]</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-elevate-your-profile-picture-game-with-these-high-end-online-services-for-2024/"><u>[Updated] Elevate Your Profile Picture Game with These High-End Online Services for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-4-feasible-ways-to-fake-location-on-facebook-for-your-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>In 2024, 4 Feasible Ways to Fake Location on Facebook For your Apple iPhone 6s | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-decoding-love-for-filmora-the-editors-prime-traits/"><u>In 2024, Decoding Love for Filmora The Editor’s Prime Traits</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-find-ispoofer-pro-activation-key-on-xiaomi-redmi-note-12-pro-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Find iSpoofer Pro Activation Key On Xiaomi Redmi Note 12 Pro 4G? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-infinix-note-30-vip-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Infinix Note 30 VIP? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/launching-the-next-gen-faq-platform-with-mondly/"><u>Launching the Next-Gen FAQ Platform with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-leap-learning/"><u>Linguistic Leap Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lundi-semaine-francais/"><u>Lundi Semaine Français</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/mover-videos-de-mkv-a-linea-libre-gratuitamente-con-movavi-una-guia-completa/"><u>Mover Videos De MKV a Línea Libre Gratuitamente Con Movavi: Una Guía Completa</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/parallel-phrase-perfection/"><u>Parallel Phrase Perfection</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rune-carved-rhetoric-the-voice-of-vikings-unveiled/"><u>Rune-Carved Rhetoric: The Voice of Vikings Unveiled</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-significance-showdown-decoding-status-hierarchies-in-twitter-and-meta/"><u>Social Significance Showdown: Decoding Status Hierarchies in Twitter and Meta</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-secrets-of-russian-numbers-for-new-learners/"><u>Unveiling the Secrets of Russian Numbers for New Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/word-warriors-in-search-of-greatest-lexicon-gigantic/"><u>Word Warriors in Search of Greatest Lexicon Gigantic</u></a></li>
 </ul></div>
 

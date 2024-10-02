@@ -1,7 +1,7 @@
 ---
 title: Get Down Under With Aussie Slang Definitions
-date: 2024-09-22T18:01:57.670Z
-updated: 2024-09-26T18:01:03.053Z
+date: 2024-09-30T00:10:44.998Z
+updated: 2024-10-01T21:30:55.389Z
 tags:
   - speak
   - english
@@ -30,22 +30,22 @@ thumbnail: https://thmb.techidaily.com/f26a59464f8e574e044648e6cdc81caf2b237e34a
 
  Let’s start with the basics: core Australian slang vocabulary. Here’s a list of popular Australian slang terms you probably heard before but didn’t know what they meant.
 
-<!-- affiliate ads begin -->
-<span id="1770776">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1._Ta_ – Thank you
 
  You can also use “thanks heaps” when you are really grateful to someone for doing something for you or “cheers” to combine both “thank you”‌ and “goodbye” ‌in a single word. For example, “cheers” is a perfect choice for leaving the shop after the barista gives you your coffee.
+
+<!-- affiliate ads begin -->
+<span id="1374819">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2._Brekkie_ – Breakfast
 
@@ -56,13 +56,6 @@ _“So… what did you have for brekkie today?”_
 ### 3._Barbie_ – Barbecue
 
 Well, I don’t mind if you call me a “barbie girl” now.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4._Crikey!_ – An Exclamation of Surprise
 
@@ -80,13 +73,6 @@ It can also refer to a small, aggressive dog like a chihuahua.
 
  A “bogan” is an uncouth or unrefined person regarded as being of low social status. The term is usually pejorative, but it can also be regarded as a joke between friends.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 8._Bush Telly_ – What You Watch at Night When You Are Camping
 
  You heard “telly” before, but “bush telly”? That’s a new one. Basically, when you are camping, you can’t watch traditional television, so you watch the “bush telly”: the campfire, the stars or just… the bush.
@@ -97,41 +83,35 @@ You’ll ask for a “bikkie” just to hear yourself say it.
 
  There’s also the very cute expression “to cost big bikkies”, meaning that something is very expensive.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 10._Mate_ – Friend
 
 _Oi, mate!_ This one’s a classic. You ought to use it. Additionally, you can also say “cobber”.
 
 ![aussie slang](https://edge.mondly.com/blog/wp-content/uploads/2020/05/aussie-slang-600x600.jpg "100+ Australian Slang Words To Help You Speak Like A True Aussie 6")
 
-<!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Australian slang
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "100+ Australian Slang Words To Help You Speak Like A True Aussie 7")
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ##### Improve your English, mate
 
  Oi, this language learnin’ app is fair dinkum! Give it a try.
 
 [Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-4765&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4765&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4765&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4765&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-4765%26mt%3D8)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Australian Slang Phrases Only Local Aussies Know
 
@@ -231,13 +211,26 @@ _Oi, mate!_ This one’s a classic. You ought to use it. Additionally, you can a
 ![australian slang terms](https://edge.mondly.com/blog/wp-content/uploads/2020/05/australian-slang-terms-600x600.jpg "100+ Australian Slang Words To Help You Speak Like A True Aussie 8")
 
 <!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Aussie slang
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Funny Australian Slang Phrases
 
@@ -255,24 +248,31 @@ _Oi, mate!_ This one’s a classic. You ought to use it. Additionally, you can a
 
  If you ever took a day off work pretending to be sick, you’re guilty of chucking a sickie._“I’m chucking a sickie to go to the beach. Wanna join?”_
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. Fair dinkum
 
 **Honest, true or genuine.**
 
  Popular Australian exclamation often used to emphasize or seek confirmation (if used with the proper intonation) of the genuineness or truth of something._“This pork barbie is fair dinkum!”_
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. Wrap your laughing gear ‘round that
 
 **Eat that.**
 
  What’s your laughing gear? Your mouth, of course. So, when you wrap your laughing gear ‘round something, you… eat it. It can be used in either a friendly or threatening way.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5\. Carrying on like a pork chop
 
@@ -303,16 +303,16 @@ It seems that this phrase has had a lot of variations:
 Some say he “did the bolt” from his responsibilities as a prime minister.
 
 <!-- affiliate ads begin -->
-<span id="1983474">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+<span id="1743243">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 8\. No worries, mate, she’ll be apples
@@ -386,14 +386,18 @@ Get Mondly now and speak any language like you never dreamed you would ![Give it
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-mastering-pc-gaming-capturing-your-adventures-on-win10/"><u>[New] Mastering PC Gaming Capturing Your Adventures on Win10</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-capturing-your-world-maccam-techniques-unveiled/"><u>[Updated] In 2024, Capturing Your World MacCam Techniques Unveiled</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-luminary-in-the-world-of-motivation-johannes-honterus/"><u>A Luminary in the World of Motivation - Johannes Honterus</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cutlass-communication-a-primer-on-piratical-speech/"><u>Cutlass Communication: A Primer on Piratical Speech</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/efficiently-acquiring-finnish-skills-virtually/"><u>Efficiently Acquiring Finnish Skills Virtually</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/enhance-user-journey-with-cookiebot-technology/"><u>Enhance User Journey with Cookiebot Technology</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-show-wi-fi-password-on-google-pixel-7a-by-drfone-android/"><u>In 2024, How to Show Wi-Fi Password on Google Pixel 7a</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lively-language-games-in-latin-studies/"><u>Lively Language Games in Latin Studies</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/top-10-fingerprint-lock-apps-to-lock-your-google-pixel-8-pro-phone-by-drfone-android/"><u>Top 10 Fingerprint Lock Apps to Lock Your Google Pixel 8 Pro Phone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-how-to-amplify-your-online-presence-with-google-meets-aesthetic-tools/"><u>[New] 2024 Approved How to Amplify Your Online Presence with Google Meet's Aesthetic Tools</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-nes-switch-brawlers-the-ultimate-10-game-guide/"><u>[New] 2024 Approved NES Switch Brawlers The Ultimate 10-Game Guide</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-index-of-videography-gadgets-by-type/"><u>[Updated] Index of Videography Gadgets by Type</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-ultimate-list-of-viral-stock-images-and-stories/"><u>2024 Approved The Ultimate List of Viral Stock Images & Stories</u></a></li>
+<li><a href="https://fake-location.techidaily.com/dose-life360-notify-me-when-someone-checks-my-location-on-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>Dose Life360 Notify Me When Someone Checks My Location On Honor Magic V2? | Dr.fone</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-the-latest-hp-laserjet-p1nsiii-m3-all-in-one-printer-driver-for-your-windows-pc-here/"><u>Get the Latest HP LaserJet P1nsiii M3 All-in-One Printer Driver for Your Windows PC Here</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grammar-gatekeeper-of-language-learning/"><u>Grammar: Gatekeeper of Language Learning?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-sharefake-gps-on-uber-for-xiaomi-mix-fold-3-drfone-by-drfone-virtual-android/"><u>In 2024, How to share/fake gps on Uber for Xiaomi Mix Fold 3 | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-videos-from-realme-12plus-5g-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Videos from Realme 12+ 5G to iPad | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/neural-networking-a-babel-effect-on-brains/"><u>Neural Networking: A Babel Effect on Brains</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/the-top-3-benefits-of-equipping-smartphones-with-dual-usb-c-connectors/"><u>The Top 3 Benefits of Equipping Smartphones with Dual USB-C Connectors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/uniting-through-utterances-turkey-and-korea/"><u>Uniting Through Utterances: Turkey & Korea</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ye-olde-piratical-verbal-currency/"><u>Ye Olde Piratical Verbal Currency</u></a></li>
 </ul></div>
 

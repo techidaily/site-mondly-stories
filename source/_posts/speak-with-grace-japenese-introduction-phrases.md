@@ -1,7 +1,7 @@
 ---
 title: "Speak With Grace: Japenese Introduction Phrases"
-date: 2024-09-01T00:29:38.393Z
-updated: 2024-09-02T00:29:38.393Z
+date: 2024-09-26T23:09:53.567Z
+updated: 2024-10-01T22:00:12.320Z
 tags:
   - speak
   - english
@@ -45,13 +45,24 @@ thumbnail: https://thmb.techidaily.com/2944d63225d253c3279f8dae40efe484858639ea5
 
  Curious about why there are multiple types of characters in Japanese? Here’s everything there is to know about the [Japanese writing system](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **How to say “hello” on the phone in Japanese: moshi moshi (もしもし)**
 
  Unlike English, which uses the same “hello” for a lot of different social contexts, the Japanese language has a dedicated “hello” for answering the phone:**moshi moshi (もしもし).** Doesn’t that sound cute?
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 2\. Good morning in Japanese and other relevant greetings
 
 **Good morning in Japanese**   **– O_hayō gozaimasu_**  (おはよう ございます) is the best choice for greeting someone in the early morning hours (before 10:00 a.m.). Unlike_Konnichiwa_ ,   **O_hayō gozaimasu_**  a little more formal, so it’s safe to use it with people you don’t know or when you are meeting people in a position of authority (such as your boss or your teacher).
@@ -68,11 +79,15 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![hi in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-japanese-960x639.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 3")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  “Meguro River, Matsuno, Japan” by Sora Sagano©
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 3.“Goodbye” in Japanese
 
  Another greeting we borrowed from the Japanese and sometimes use in our day-to-day conversations in English is**_Sayōnara_** (さよなら), a greeting that carries the connotation of farewell and translates to “goodbye”.
@@ -90,9 +105,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![goodbye in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/goodbye-in-japanese-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 4")
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  “See you soon, human” by Alain Pham©
 
 ## 4\. “Thank you” in Japanese and other polite phrases that you should know
@@ -119,13 +131,15 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![arigato](https://edge.mondly.com/blog/wp-content/uploads/2019/08/arigato-1024x706.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 5")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  “Kyoto, Japan” by Andre Benz©
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ## Don’t forget about the Japanese bow
 
  Every**“hello” in Japanese** is usually accompanied by a bow, the Western world equivalent of a handshake. Our advice would be to not skip the bow if you really want to feel like you belong.
@@ -142,10 +156,6 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
  – 45-degree bows are used for greetings only if you meet a very important person like the Emperor or the Prime Minister.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 ## Bonus: basic conversation in Japanese
 
  If you don’t want to stop at just**“thank you” or “hello” in Japanese,** here are a few more**Japanese phrases** that are fairly easy to remember and will definitely make all the difference for your trip to Japan:
@@ -167,9 +177,6 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
 ![sayonara](https://edge.mondly.com/blog/wp-content/uploads/2019/08/sayonara-1024x680.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 6")
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
  “Tenryu-ji Temple, Kyōto-shi, Japan” by Masaaki Komori©
 
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fhello-in-japanese-japanese-greetings-you-need%2F&t=Hello+in+Japanese+%E2%80%93+All+the+Japanese+Greetings+You+Need+to+Know "Share on Facebook")
@@ -193,8 +200,6 @@ DbSchema database designer for all databases, schema design in the team, schema 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -202,4 +207,18 @@ DbSchema database designer for all databases, schema design in the team, schema 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-empires-edge-scoring-the-ultimate-7-grand-wars/"><u>[Updated] 2024 Approved Empire's Edge Scoring the Ultimate 7 Grand Wars</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-sidestep-the-norm-alternatives-to-vidma-screen-record/"><u>[Updated] 2024 Approved Sidestep the Norm Alternatives to Vidma Screen Record</u></a></li>
+<li><a href="https://article-helps.techidaily.com/a-hands-on-manual-to-easily-navigate-trending-youtube-comments-for-2024/"><u>A Hands-On Manual to Easily Navigate Trending YouTube Comments for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/enhance-instagram-content-with-background-tracks-for-2024/"><u>Enhance Instagram Content with Background Tracks for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-can-i-use-a-fake-gps-without-mock-location-on-motorola-moto-g-5g-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Use a Fake GPS Without Mock Location On Motorola Moto G 5G (2023)? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leading-edtech-top-5-multilingual-learning-platforms-for-educators/"><u>Leading EdTech: Top 5 Multilingual Learning Platforms for Educators</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/norwegian-skills-surge-10-minute-mini-marathons/"><u>Norwegian Skills Surge, 10-Minute Mini-Marathons</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/psvrs-upcoming-must-try-titles-the-ultimate-5-list/"><u>PSVR's Upcoming Must-Try Titles The Ultimate 5 List</u></a></li>
+<li><a href="https://extra-information.techidaily.com/rhythmic-revelations-unveiling-top-10-music-for-podcast-intros/"><u>Rhythmic Revelations Unveiling Top 10 Music for Podcast Intros</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/romanians-speak-perfecting-the-language/"><u>Romanians Speak: Perfecting the Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-a-local-basic-japanese-salutations-guide/"><u>Speak Like a Local: Basic Japanese Salutations Guide</u></a></li>
+</ul></div>
 

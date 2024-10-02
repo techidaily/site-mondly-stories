@@ -1,7 +1,7 @@
 ---
 title: Persian Language's Rich Past & Lifelong Rewards
-date: 2024-09-01T00:30:22.369Z
-updated: 2024-09-02T00:30:22.369Z
+date: 2024-09-24T17:06:36.253Z
+updated: 2024-10-02T00:54:58.781Z
 tags:
   - speak
   - english
@@ -37,8 +37,12 @@ thumbnail: https://thmb.techidaily.com/038b33e78fe302b91af695dca9492d5a59b454dc5
  Old Persian then developed into**Middle Persian,** which existed from around 300 BCE until 800 CE. Evidence of Middle Persian exists mainly in the religious texts of the Zoroastrian religion. However, **Middle Persian entered a new stage when the Islamic conquest in 651 AD happened.** The following 200 years are referred to as “the two centuries of silence” because there is very little to almost no literature available from this time period.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### The Arab rule
 
  It seems that during the Muslim conquest of Persia, the Persian language was in danger of being lost and replaced by Arabic. Luckily, Persia was one of the few places where the Arabic language did not replace the local language. However, Arabic was used by the elite and it definitely had a big impact on the vocabulary of the**Modern Persian** that was emerging.
@@ -48,15 +52,16 @@ thumbnail: https://thmb.techidaily.com/038b33e78fe302b91af695dca9492d5a59b454dc5
 !["Ferdowsi Shahnameh" by McGill Library©](https://edge.mondly.com/blog/wp-content/uploads/2022/09/mcgill-library-AH42Li7NKUc-unsplash-960x629.jpg "Persian Language: History &Amp; Benefits Of Learning Farsi/Persian 2")
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Persian Literary History: Ferdowsi’s ‘Shahnameh’ — Siyavush in Sudaba’s private quarters.
 
  Today, there still are a significant number of [Arabic words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) in Persian, but not as many as there could have been.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Persian influence on other languages
 
  During this Persian cultural resurgence, the Persian language and culture impacted a wide geographic area. For this reason, Persian has left its influence on many different languages, including a heavy influence on the [vocabulary of Urdu](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and Turkish. To this day, words of Persian origin can be found as far as Malaysia.
@@ -74,8 +79,12 @@ thumbnail: https://thmb.techidaily.com/038b33e78fe302b91af695dca9492d5a59b454dc5
  According to the [Academy of Persian Language and Literature](https://iranicaonline.org/articles/farhangestan) , the endonym ‘Farsi’ should be avoided in foreign languages. Instead, ‘Persian’ should be the appropriate designation in English, as it has the longest tradition in western languages and is better suited to convey the language’s role as a national and cultural continuity symbol.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Persian vs Arabic: Is Persian similar to Arabic?
 
  Considering their shared history presented above, Persian and Arabic developed to become somehow similar, but not as similar as many think.
@@ -88,9 +97,6 @@ thumbnail: https://thmb.techidaily.com/038b33e78fe302b91af695dca9492d5a59b454dc5
 
  All in all, Persian and Arabic can’t be considered mutually intelligible. A speaker of either Persian or Arabic with no knowledge of the other could recognize some basic words in writing, but conversations are a whole other story.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The benefits of learning Farsi/Persian
 
  If you’re a language learner at heart, you already know that learning any language will broaden your horizons. There’s no such thing as a ‘waste of time’ when you [learn a new language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Be it Persian, Arabic, Urdu or a more popular language such as Spanish or German – all languages are equally important.
@@ -112,13 +118,12 @@ Other benefits of learning Persian include:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Learn Persian online with Mondly
 
  Are you now ready to learn Persian fast? Try Mondly, the award-winning language app that is serious about making learning Persian fun.
@@ -141,8 +146,6 @@ Other benefits of learning Persian include:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -150,4 +153,24 @@ Other benefits of learning Persian include:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-the-investors-handbook-for-monetized-youtubers/"><u>[Updated] 2024 Approved The Investor's Handbook for Monetized Youtubers</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-you-when-your-vivo-y200-is-off-drfone-by-drfone-virtual-android/"><u>Can Life360 Track You When Your Vivo Y200 is off? | Dr.fone</u></a></li>
+<li><a href="https://tools.techidaily.com/videoconverterfactory/dvd-video-converter/"><u>DVD Video Converter | WonderFox</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/guia-practica-para-leer-la-hora-en-espanol/"><u>Guía Práctica Para Leer La Hora en Español</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-can-poco-x5-promirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Poco X5 ProMirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-quicklooker-windows-11s-speedy-photo-viewer/"><u>In 2024, QuickLooker Windows 11'S Speedy Photo Viewer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-powerhouse-englishs-impact/"><u>Language Powerhouse: English's Impact</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-ukrainians-embrace-free-education/"><u>Mondly: Ukrainians, Embrace FREE Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/obsessed-with-squid-game-but-lost-in-translation-learn-korean/"><u>Obsessed With Squid Game, but Lost in Translation? Learn Korean</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oculus-quest-languages-unlocked-with-mondly-the-future-of-gaming/"><u>Oculus Quest Languages Unlocked with 'Mondly' - The Future of Gaming?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/orientacion-para-comprender-relojes-espanoles/"><u>Orientación Para Comprender Relojes Españoles</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/secure-your-facetime-discussions-with-screen-record/"><u>Secure Your FaceTime Discussions with Screen Record</u></a></li>
+<li><a href="https://driver-install.techidaily.com/simplify-device-management-with-canon-mf4770n-drivers-update-in-win-1087/"><u>Simplify Device Management with Canon MF4770n Drivers Update in Win 10/8/7</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-chinese-thanks-the-essentials-of-xiexie/"><u>Understanding Chinese Thanks: The Essentials of Xièxiè</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-huawei-nova-y91-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Huawei Nova Y91? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-learning-a-new-language-is-good-for-your-brain/"><u>Why Learning a New Language Is Good for Your Brain</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/zootopias-freshest-startup-ideas/"><u>Zootopia’s Freshest Startup Ideas</u></a></li>
+</ul></div>
 

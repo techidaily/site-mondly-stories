@@ -1,7 +1,7 @@
 ---
 title: New Language Learning Challenge
-date: 2024-09-01T00:31:56.983Z
-updated: 2024-09-02T00:31:56.983Z
+date: 2024-09-27T22:16:49.362Z
+updated: 2024-10-01T23:41:23.333Z
 tags:
   - speak
   - english
@@ -19,8 +19,6 @@ thumbnail: https://thmb.techidaily.com/2aa4ab31383fbb9b0b4fde717165b9f7119026d37
  It’s that time of the year again! No, not Christmas. Fast-forward a bit. I’m talking about that time of the year when you make unrealistic New Year’s resolutions – like [learning a new language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) – that won’t probably make it to the end of January. You know it. I know it. Let’s be honest. But that doesn’t mean you shouldn’t focus on personal growth and make a list of resolutions for the upcoming year. Whether it’s language learning or getting in shape, New Year’s resolutions can become a reality with good planning and SMART goals.
 
  Many of us give up early on our New Year’s resolutions because we’re busy and demoralized. We’re only humans, after all. Still, this can change. So, let’s see how you can take up language learning in the new year and keep doing it until December.
-
-
 
 ## What Are New Year’s Resolutions?
 
@@ -40,6 +38,13 @@ thumbnail: https://thmb.techidaily.com/2aa4ab31383fbb9b0b4fde717165b9f7119026d37
 
 ![language learning 2024](https://edge.mondly.com/blog/wp-content/uploads/2019/01/language-learning-2024-600x600.png "New Year, New Language: Your New Year Aspirations 5")
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### A SMART Goal is
 
 * **Specific:** Choose a language and define what fluency or proficiency means to you. For instance, “I want to achieve conversational fluency in Spanish”.
@@ -51,15 +56,23 @@ thumbnail: https://thmb.techidaily.com/2aa4ab31383fbb9b0b4fde717165b9f7119026d37
  Studies show that breaking down your SMART goals into even smaller steps, like learning 1,000 French words by March, further boosts motivation and reward. Achieving this will let you understand 75% of written French without a dictionary. Moreover, involving a friend enhances motivation through competition, unlike sharing goals on social media. According to a [2019 research](https://as.nyu.edu/faculty/peter-m-gollwitzer.html/09%5FGollwitzer%5FSheeran%5FSeifert%5FMichalski%5FWhen%5FIntentions%5F.pdf) , public goal-sharing may diminish determination, as early social recognition acts as a premature reward. In contrast, friendly competition in learning a language or losing weight can spur your competitive spirit, with the reward being your improvement.
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## The Mental Health Benefits of Language Learning
 
  Why should learning a new language be included in your New Year’s resolutions list? Because language learning is [good for your brain](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . According to multiple studies, the benefits for your cognitive health and well-being are undeniable.
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Cognitive Benefits
 
  Your brain is like a muscle: train it now, and you will enjoy the health benefits later. And learning a second or a third language is a great way of training your brain – especially if you are not a student anymore and the information flow is not as good as it used to be. More precisely, various studies have shown that learning a new language is directly linked to a slower rate of mental decline in patients with [Alzheimer’s](https://www.dailymail.co.uk/health/article-5363123/Learning-language-protect-ALZHEIMERS.html) disease and [dementia prevention](https://www.telegraph.co.uk/news/science/science-news/12156709/Students-should-learn-second-language-to-prevent-dementia-in-later-life.html) .
@@ -79,8 +92,12 @@ thumbnail: https://thmb.techidaily.com/2aa4ab31383fbb9b0b4fde717165b9f7119026d37
 [Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-2519&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2519&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2519&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2519&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-2519%26mt%3D8)
 
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Economic Advantages of Language Learning
 
  Language learning provides various economic advantages that contribute to both personal and professional growth. If you don’t choose language learning as a resolution for its cognitive benefits, you’ll surely choose it for its economic advantages.
@@ -92,12 +109,6 @@ thumbnail: https://thmb.techidaily.com/2aa4ab31383fbb9b0b4fde717165b9f7119026d37
 
 ![personal growth](https://edge.mondly.com/blog/wp-content/uploads/2019/01/personal-growth-960x704.jpg "New Year, New Language: Your New Year Aspirations 7")
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Top 5 To-Do’s for Learning a New Language
 
 **1\. Set Achievable Daily Goals:** Establish a routine for language practice and break down your overall SMART goal into smaller, daily goals. This will help you get your rewards sooner and keep yourself motivated.
@@ -119,9 +130,6 @@ thumbnail: https://thmb.techidaily.com/2aa4ab31383fbb9b0b4fde717165b9f7119026d37
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ## New Year, New Language
 
  The time to start learning a new language is now. Not next year, not tomorrow, and not on Monday. Luckily, the award-winning language app Mondly makes language learning fun and helps you avoid procrastination.
@@ -143,8 +151,6 @@ thumbnail: https://thmb.techidaily.com/2aa4ab31383fbb9b0b4fde717165b9f7119026d37
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -152,4 +158,21 @@ thumbnail: https://thmb.techidaily.com/2aa4ab31383fbb9b0b4fde717165b9f7119026d37
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-streaming-into-the-future-a-review/"><u>[New] 2024 Approved Streaming Into the Future A Review</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-essential-techniques-for-recording-and-preserving-itunes-videos/"><u>[Updated] In 2024, Essential Techniques for Recording and Preserving iTunes Videos</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-instantaneous-windows-document-reviewing/"><u>[Updated] Instantaneous Windows Document Reviewing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/erstklassiges-wissen-uber-deutsche-wochenabschnitte/"><u>Erstklassiges Wissen Über Deutsche Wochenabschnitte</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expand-horizons-4-compelling-motives-for-adults-learning-languages/"><u>Expand Horizons: 4 Compelling Motives for Adults Learning Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/experience-cultural-integration-through-hindi-discover-8-engaging-advantages-with-mondly/"><u>Experience Cultural Integration Through Hindi - Discover 8 Engaging Advantages with Mondly!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-beginner-to-master-chef-top-8-techniques-for-skillful-home-kitchens/"><u>From Beginner to Master Chef: Top 8 Techniques for Skillful Home Kitchens</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-language-labyrinth-how-hard-is-it/"><u>German Language Labyrinth: How Hard Is It?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-migrate-android-data-from-vivo-y100t-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Migrate Android Data From Vivo Y100t to New Android Phone? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-nokia-xr21-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Nokia XR21 to Any iOS Devices | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-mastering-lock-screen-settings-how-to-enable-and-disable-on-oppo-a79-5g-by-drfone-android/"><u>In 2024, Mastering Lock Screen Settings How to Enable and Disable on Oppo A79 5G</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-ispoofer-update-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Will iSpoofer update On Apple iPhone 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/understanding-twitters-share-mechanism-the-insights-between-a-retweet-and-re-tweet/"><u>Understanding Twitter's Share Mechanism: The Insights Between a 'Retweet' And 'Re-Tweet'</u></a></li>
+<li><a href="https://fake-location.techidaily.com/wondering-the-best-alternative-to-hola-on-samsung-galaxy-a23-5g-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>Wondering the Best Alternative to Hola On Samsung Galaxy A23 5G? Here Is the Answer | Dr.fone</u></a></li>
+</ul></div>
 

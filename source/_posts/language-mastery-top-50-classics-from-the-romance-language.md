@@ -1,7 +1,7 @@
 ---
 title: Language Mastery - Top 50 Classics From the Romance Language
-date: 2024-09-01T00:33:40.202Z
-updated: 2024-09-02T00:33:40.202Z
+date: 2024-09-30T18:36:14.373Z
+updated: 2024-10-02T00:04:40.198Z
 tags:
   - speak
   - english
@@ -18,8 +18,6 @@ thumbnail: https://thmb.techidaily.com/acda250c18e670747053131396d60b9bcac159175
 
  Far from being a dead language, Latin is very much alive in our day-to-day conversations._Carpe diem, et cetera, cum laude, curriculum vitae_ and_mea culpa_ are just a few of the Latin phrases still widely used today. It’s unclear whether Latin made a comeback or it has been this cool for hundreds of years. But one thing is sure: **Latin phrases are nowadays the cooler siblings of slang words.** And Julius Caesar approves this message. So, let’s see the most famous Latin phrases you can use to impress your friends.
 
-
-
 ## Famous Latin Phrases you need to know
 
 These are nearly as famous as Julius Caesar himself.
@@ -32,13 +30,17 @@ These are nearly as famous as Julius Caesar himself.
 
  Another Latin phrase said by Julius Caesar upon crossing the Rubicon to enter Italy and begin the long civil war against Pompey and the Optimates. The meaning of this phrase refers to the point of no return.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **Carpe diem. —** _Seize the day._
 
  Probably the most popular Latin phrase of modern times. Luckily, we have an even better one:_carpe vinum_ . Literally ‘seize the wine’. The only Latin phrase you’ll ever need on a Friday night out. And speaking of night, you should also remember the_carpe noctem_ variation which literally translates to ‘seize the night’. Either way, the general meaning is to make the most of everything.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
-<!-- affiliate ads end -->
 ### **Cogito, ergo sum. —** _I think, therefore I am._
 
  A_dictum_ (‘a short statement that expresses a general truth’) coined by French philosopher René Descartes in Latin.
@@ -55,38 +57,31 @@ These are nearly as famous as Julius Caesar himself.
 
  That scene is very tragic indeed, but nowadays, the phrase can be used jokingly to condemn a friend’s change of heart.
 
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
+  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **Acta, non verba. —** _Deeds, not words._
 
  Similar to_res, non verba_ , the English equivalent of this phrase is “actions speak louder than words”. In other words, act upon it or always follow your declarations with actions.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
-<!-- affiliate ads end -->
 ### **Carthago delenda est. —** _Carthage must be destroyed._
 
  Prior to the Third Punic War between Rome and Carthage, Cato the Censor, a Roman politician, used to conclude all his speeches to the Senate with this phrase. While he did this in an attempt to push for the war, nowadays the expression can be used figuratively as a way to express your absolute support for an idea.
 
 ![latin phrases](https://edge.mondly.com/blog/wp-content/uploads/2021/07/latin-phrases.jpg "50 Popular Latin Phrases To Impress Your Friends 6")
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
  Using some Latin phrases here and there will automatically make you look smarter.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Common Latin Words & Sayings
 
@@ -153,14 +148,14 @@ Every student’s favorite. We all know what this one means, don’t we?
 ![in vino veritas](https://edge.mondly.com/blog/wp-content/uploads/2021/07/in-vino-veritas-960x640.jpg "50 Popular Latin Phrases To Impress Your Friends 7")
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  “In vino veritas” by Daniel Vogel©
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ## Cool Latin that are still used today
 
  Do you know what’s the coolest thing about these following cool [Latin phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ? They’re evergreen. If time travel gets invented in a few years,[these phrases](https://en.wikipedia.org/wiki/List%5Fof%5FLatin%5Fphrases%5F%28full%29) are gonna come in handy regardless of the century you choose to travel to. Besides, this selection includes only the most relevant expressions so you don’t have to worry about redundancy.
@@ -188,6 +183,13 @@ Get ready to bring your Roman alter ego to life in 3… 2… 1\. Go!
  Or so Lucretius said. Originally meaning “work is required to succeed”, the modern reinterpretation suggests that “everything has its origins in something”.
 
 ![common latin phrases](https://edge.mondly.com/blog/wp-content/uploads/2021/07/common-latin-phrases-960x720.jpg "50 Popular Latin Phrases To Impress Your Friends 8")
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  “Laughing” by Peter Lloyd©
 
@@ -287,14 +289,15 @@ Different phrase, same story. You’re welcome.
 
 ![latin words](https://edge.mondly.com/blog/wp-content/uploads/2021/07/latin-words-960x640.jpg "50 Popular Latin Phrases To Impress Your Friends 9")
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
  “Roman statue” by engin akyurt©
 
 <!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
+  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Latin Words and Phrases for Love
 
  To conclude our exploration of the Latin phrases in a positive tone, let’s see what the Romans had to say about love. It’s true they talked more about wars, but you don’t need that kind of negativity in your life, do you? Why [learn Latin phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) about war, when love wins no matter what?
@@ -327,13 +330,23 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 
  Furthermore, the Latin language is rich in life lessons, mottos and words to live by. By learning these sayings, you’ll not only improve your vocabulary but also your life experience.
 
+<!-- affiliate ads begin -->
+<span id="1982499">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Why are Latin words used in law?
 
  Latin words are used in law because of the historical influence Roman law has on the legal system of many countries. As the lingua franca of the Roman Empire, Latin not only shaped the empire's legal constructs but also left a lasting imprint on the evolution of legal systems, especially within Europe. As Roman law became the foundation for many modern legal codes, Latin legal words were passed on throughout history until the present day. This incorporation of Latin words in law ensures a degree of precision and continuity, bridging legal concepts across different eras and jurisdictions.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 ### Why are Latin words powerful?
 
  Latin words are perceived as powerful most probably in relation to the Roman Empire, a civilization of immense historical influence and achievement. Additionally, Latin words may be considered powerful thanks to their ability to convey complex legal, scientific, and philosophical concepts succinctly. Their use in various specialized fields has endowed them with a sense of authority and timelessness, allowing for clear and unambiguous communication across different languages and cultures.
@@ -345,9 +358,6 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Speak Latin like Julius Caesar
 
  The Latin language is no longer is secret code meant only for scholars or the Catholic Church. Starting right now, you can learn Latin with Mondly using bite-sized lessons and practical topics to help you discover how Romans conversed in their day-to-day life.
@@ -364,8 +374,6 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -373,4 +381,19 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-navigating-to-superior-cloud-solutions-for-your-needs/"><u>[New] In 2024, Navigating to Superior Cloud Solutions for Your Needs</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-in-depth-examination-of-videoshow-24/"><u>[New] In-Depth Examination of VideoShow '24</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-optimize-clarity-mastering-close-up-techniques-in-videoleap/"><u>[Updated] Optimize Clarity Mastering Close-Up Techniques in Videoleap</u></a></li>
+<li><a href="https://discover-help.techidaily.com/1-winxvideo-ai-ultimate-tutorial-enhance-your-videos-with-cutting-edge-colorization-editing-and-conversion-techniques/"><u>1. Winxvideo AI Ultimate Tutorial: Enhance Your Videos with Cutting-Edge Colorization, Editing & Conversion Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breaking-language-barriers-mastering-complex-word-sounds/"><u>Breaking Language Barriers: Mastering Complex Word Sounds</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-words-and-hearts-overcoming-language-obstacles-in-romance/"><u>Bridging Words & Hearts: Overcoming Language Obstacles in Romance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-bengali-fast-learn-each-day-achieve-tomorrow/"><u>Conquer Bengali Fast: Learn Each Day, Achieve Tomorrow</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-lithuanian-language-digital-mastery-steps/"><u>Conquer Lithuanian Language: Digital Mastery Steps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daily-10-minute-commitment-to-latvian-mastery/"><u>Daily 10-Minute Commitment to Latvian Mastery</u></a></li>
+<li><a href="https://win-able.techidaily.com/how-to-update-or-repair-oculus-vr-graphics-drivers-solved/"><u>How to Update or Repair Oculus VR Graphics Drivers – Solved</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/online-m4r-movavi/"><u>Online 무료 비디오 M4R파일 바이트 단위로 변환: Movavi의 속도적인 방법</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/photoshop-cs8-installation-tutorial-for-windows-users-start-editing/"><u>Photoshop CS8 Installation Tutorial for Windows Users - Start Editing</u></a></li>
+</ul></div>
 

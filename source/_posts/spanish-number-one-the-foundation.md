@@ -1,7 +1,7 @@
 ---
 title: "Spanish Number One: The Foundation"
-date: 2024-09-01T00:33:12.652Z
-updated: 2024-09-02T00:33:12.652Z
+date: 2024-09-26T17:49:55.412Z
+updated: 2024-10-01T18:44:13.290Z
 tags:
   - speak
   - english
@@ -35,6 +35,13 @@ thumbnail: https://thmb.techidaily.com/2e909ca12d5d0ef3819e924e4b2acc53554680366
  Until then, here’s cool audio of a fluent speaker pronouncing the Spanish numbers 1 to 10:
 
 **Good to know:** _uno_becomes an article and changes to_un_if it’s in front of a noun. For example,_un cerdo_translates to “a pig” in English.
+
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Spanish numbers to 40
 
@@ -71,8 +78,12 @@ thumbnail: https://thmb.techidaily.com/2e909ca12d5d0ef3819e924e4b2acc53554680366
  As you can see, up to 30 (“thirty”), the numbers are bound together, but from there on they part ways to make counting in Spanish even easier for you. Basically, you won’t say “thirty-one”, but “thirty**and** one”:_treinta y uno_ .
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Count to 100 in Spanish
 
  As we already settled, counting in Spanish is all about mastering the basics. Now that you know how to count to 40, counting to 100 in Spanish is a piece of cake. Just learn the tens and you are ready to go.
@@ -103,8 +114,18 @@ thumbnail: https://thmb.techidaily.com/2e909ca12d5d0ef3819e924e4b2acc53554680366
 * 98 –_noventa y ocho_
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Spanish numbers to 1000 and beyond
 
  Hundreds shouldn’t scare you either. They are just as simple. Once you know how the hundreds are, you’ll also know the numbers in between.
@@ -143,8 +164,12 @@ Here are some more examples:
 ![count in Spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/07/count-in-spanish-960x663.jpg "Spanish Numbers: How To Count Numbers In Spanish 4")
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Barcelona, Spain
 
  If you want to go even further, thousands and millions work exactly like in English: number +_mil_ (“thousand”) or_millón_ (“million”). Here are some examples:
@@ -185,8 +210,6 @@ Here are some more examples:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -194,4 +217,22 @@ Here are some more examples:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-2023-fb-live-essentials-watching-made-easy/"><u>[New] 2024 Approved 2023 FB Live Essentials Watching Made Easy</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-comprehending-drone-systems-mechanics-and-applications-explained/"><u>[Updated] Comprehending Drone Systems Mechanics and Applications Explained</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-downloading-insta-videos-in-two-simple-ways-for-2024/"><u>[Updated] Downloading Insta Videos in Two Simple Ways for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-top-8-facebook-movie-downloaders/"><u>[Updated] In 2024, Top 8 Facebook Movie Downloaders</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-legendary-loops-leading-10-rogues-for-2024/"><u>[Updated] Legendary Loops Leading 10 Rogues for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-compendium-of-popular-german-expressions-top-25/"><u>A Compendium of Popular German Expressions (Top 25)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-decade-of-digital-harmony-mondly/"><u>A Decade of Digital Harmony - Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/boost-your-speaking-credentials-with-these-9-strategies/"><u>Boost Your Speaking Credentials with These 9 Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-languages-with-mondly-the-leading-app-of-2022/"><u>Conquer Languages with Mondly - The Leading App of 2022</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-insights-basic-social-interactions-for-south-american-travelers/"><u>Cultural Insights: Basic Social Interactions for South American Travelers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/education-unplugged-mondlys-acclaim-in-2017-apps-guide/"><u>Education Unplugged: Mondly's Acclaim in 2017 Apps Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embarking-on-language-learning-post-forty-four-motivating-reasons-for-seniors/"><u>Embarking on Language Learning Post-Forty: Four Motivating Reasons for Seniors</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/expert-fixes-for-when-grand-theft-auto-v-keeps-freezing-solved/"><u>Expert Fixes for When Grand Theft Auto V Keeps Freezing - Solved</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolving-wwe-2k-correcting-the-dx11-feature-level-100-issue/"><u>Resolving WWE 2K: Correcting the DX11 Feature Level 10.0 Issue</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/secure-survival-housing-in-minecraft/"><u>Secure Survival Housing in Minecraft</u></a></li>
+</ul></div>
 

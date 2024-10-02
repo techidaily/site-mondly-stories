@@ -1,7 +1,7 @@
 ---
 title: "The Art of Formality: Expressing 'Bonjour' In French Culture"
-date: 2024-09-19T19:10:19.807Z
-updated: 2024-09-26T20:57:50.412Z
+date: 2024-09-27T16:20:26.182Z
+updated: 2024-10-01T20:38:02.115Z
 tags:
   - speak
   - english
@@ -45,16 +45,10 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
  But take notice! French speakers generally use it when they are saying goodbye, so you should follow their lead and avoid using it at the beginning of a conversation.
 
 <!-- affiliate ads begin -->
-<span id="1899850">
-					<video width="486" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. “Good evening” in French –_Bonsoir!_
@@ -67,13 +61,6 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
 ![french greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/11/french-greetings-scaled-722x960.jpg "How To Say Hello In French: 12 Useful French Greetings 2")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “French fashion” by Charles 🇵🇭©
 
 ## 6\. Hello? –_Allô?_
@@ -82,16 +69,16 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  Usually expressed with the raising tone of a question,_Allô_ is what you could say over the phone to check whether the person you are talking to is still on the other end of the line or not:_Allô?_
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 7\. Excuse me? –_Excusez-moi?_
 
  Looking for a polite way to get someone’s attention in French? Maybe there’s someone blocking your way in the store or maybe you want to get noticed by the office clerk. In these situations, a classic greeting would be a bit redundant. So instead you could use this “question-like”_Excusez-moi?_ that has a double meaning and works as both a greeting and a way to get someone’s attention.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 8\. “How are you” in French –_Comment ça va?_
 
@@ -101,22 +88,29 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  Or you can play it simple, follow the lead of the French speakers and answer directly with_Et toi?_ (“And you?”) since the_Ça va bien_ (“I’m good”) answer is usually implied.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 9\. What’s up? –_Ça va?_
 
  The English translation of_Ça va?_ , the little and cooler brother of_Comment ça va?_ , is “how’s it going” or literally “does it go?” and it can be used exactly the same like in the previous examples.
 
  The only slight difference is the level for formality associated of each phrase:_Ça va?_ is obviously more suitable for informal interactions with friends and family.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 10\. What’s up? –_Quoi de neuf?_
 
  Want to spice up and diversify your “ça-va”s? Go with the informal_Quoi de neuf_ that translates to “what’s up?” or “what’s new?”.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 11\. The cute Bonjour:_Coucou!_
 
@@ -125,6 +119,13 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
  Although extremely cute, you shouln’t use_Coucou_ in formal contexts. It would be a bit weird to greet your boss using_Coucou_ , wouldn’t it?
 
 ![bonjour](https://edge.mondly.com/blog/wp-content/uploads/2019/11/bonjour-scaled-960x641.jpg "How To Say Hello In French: 12 Useful French Greetings 3")
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  “Coucou! Is me! The Frenchie!” by Graham Holtshausen©
 
@@ -136,13 +137,6 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Here’s how to learn French in just 10 minutes a day
 
@@ -173,24 +167,21 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-guidance.techidaily.com/new-methods-to-resuscitate-windows-photo-viewer-on-latest-os/"><u>[New] Methods to Resuscitate Windows Photo Viewer on Latest OS</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-ideal-cloud-storage-solutions-for-your-android-device-2024-guide/"><u>[Updated] Ideal Cloud Storage Solutions for Your Android Device - 2024 Guide</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-identifying-ideal-release-moments-for-podcasts/"><u>[Updated] Identifying Ideal Release Moments for Podcasts</u></a></li>
-<li><a href="https://howto.techidaily.com/7-solutions-to-fix-chrome-crashes-or-wont-open-on-vivo-v29e-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Chrome Crashes or Wont Open on Vivo V29e | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/arabic-basics-unwrapped-for-starters/"><u>Arabic Basics Unwrapped for Starters</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/comparative-analysis-brazilian-vs-european-pt-shortcuts/"><u>Comparative Analysis: Brazilian vs European PT Shortcuts</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/german-wochentage-lernzielreich/"><u>German Wochentage: Lernzielreich</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/hello-in-indonesian-a-quick-guide-to-indonesian-greetings/"><u>Hello in Indonesian: A Quick Guide to Indonesian Greetings</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Asus ROG Phone 8 | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-expert-tips-on-mastering-the-preview-application-on-mac/"><u>In 2024, Expert Tips on Mastering the Preview Application on Mac</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-two-ways-to-sync-contacts-from-motorola-edge-40-pro-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Two Ways to Sync Contacts from Motorola Edge 40 Pro to Gmail | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/latin-laughter-and-learning-journey/"><u>Latin Laughter & Learning Journey</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/nombren-fauna-un-listado-de-animales-espanoles/"><u>Nombren Fauna: Un Listado De Animales Españoles</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/revamping-virtual-communication-top-strategies-for-zoom-format-conversion/"><u>Revamping Virtual Communication Top Strategies for Zoom Format Conversion</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/saber-el-esquema-del-mes-dias-en-espanol-de-a-a-f/"><u>Saber El Esquema Del Mes: Días en Español De A a F</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/swipe-up-for-a-dose-of-self-reflection-curated-instagramcaptions/"><u>Swipe up for a Dose of Self-Reflection - Curated #InstagramCaptions</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/top-6-appsservices-to-trace-any-apple-iphone-15-pro-location-by-mobile-number-drfone-by-drfone-virtual-ios/"><u>Top 6 Apps/Services to Trace Any Apple iPhone 15 Pro Location By Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/transform-careers-with-multilingual-prowess/"><u>Transform Careers with Multilingual Prowess</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581723463-transformative-language-experience-unveiling-7-compelling-advantages-of-hindi-study-online-with-mondly/"><u>Transformative Language Experience: Unveiling 7 Compelling Advantages of Hindi Study Online with Mondly!</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-screen-time-saviors-expert-evaluations-of-video-tech/"><u>[New] In 2024, Screen Time Saviors Expert Evaluations of Video Tech</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-leveraging-zoom-for-superior-skype-interactions-and-communication/"><u>[Updated] 2024 Approved Leveraging Zoom for Superior Skype Interactions & Communication</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-how-to-start-a-google-meet-on-laptops-and-mobile-for-2024/"><u>[Updated] How to Start a Google Meet on Laptops & Mobile for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-immersive-insight-amd-radeon-update/"><u>[Updated] In 2024, Immersive Insight AMD Radeon Update</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/windows-118/"><u>💻Windows 11の最高スクリーンレコーダー：画面キャプチャの達人8つを紹介しよう！</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-phantom-pitches-is-this-magical-talker-an-illusion-or-reality-explore-more-options/"><u>2024 Approved Phantom Pitches Is This Magical Talker an Illusion or Reality? Explore More Options</u></a></li>
+<li><a href="https://fox-place.techidaily.com/guide-restoring-removed-imessage-history-from-your-iphone/"><u>Guide: Restoring Removed iMessage History From Your iPhone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/high-ranking-asian-vernaculars-archive-access-swiftly/"><u>High-Ranking Asian Vernaculars: Archive, Access Swiftly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/intrepid-infatuations-through-film/"><u>Intrepid Infatuations Through Film</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-romanian-the-locally-developed-way/"><u>Learning Romanian, The Locally-Developed Way</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-made-my-language-journey-easier-and-more-effective-the-ultimate-10-tips/"><u>Mondly Made My Language Journey Easier and More Effective - The Ultimate 10 Tips</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-outshines-competitors-germanys-language-utopia/"><u>Mondly Outshines Competitors - Germany’s Language Utopia</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-turkeys-alphabet-an-intuitive-learning-resource-for-foreigners/"><u>Navigating Turkey's Alphabet: An Intuitive Learning Resource for Foreigners</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/resolving-audio-interruptions-from-bluetooth-devices-on-your-pc-with-windows-1110/"><u>Resolving Audio Interruptions From Bluetooth Devices on Your PC with Windows 11/10</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Realme 11 Pro+? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/your-israeli-itinerary-crucial-guidance-and-language-basics/"><u>Your Israeli Itinerary: Crucial Guidance and Language Basics</u></a></li>
 </ul></div>
 

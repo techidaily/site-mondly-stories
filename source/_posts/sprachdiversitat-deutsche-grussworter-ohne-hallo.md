@@ -1,7 +1,7 @@
 ---
 title: "Sprachdiversität: Deutsche Grußwörter Ohne 'Hallo'"
-date: 2024-09-01T00:30:26.721Z
-updated: 2024-09-02T00:30:26.721Z
+date: 2024-09-24T20:13:15.204Z
+updated: 2024-10-01T18:00:04.836Z
 tags:
   - speak
   - english
@@ -36,9 +36,6 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 
  Since we’re discussing diminutives, let’s also mention that_tschüss_ (‘bye’) can become_tschüssi_ . How cute!
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 3\. Guten Tag – “Hello” or “Good day”
 
  Time to put your tie on!_Guten Tag_ is how you keep things formal. If you want to say ‘hello’ in German to a stranger or maybe to someone you respect, this is the best choice for you.
@@ -55,9 +52,6 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 * _Tag!_
 * _Abend!_
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 4\. Wie geht es dir? – “How’s it going?”
 
  Don’t we all sometimes throw in a “how are you” instead of “hello” just to mix things up? Well, Germans do the same.
@@ -66,18 +60,12 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 
  If you want to be as word-efficient as a native, you can also just say the shortened_wie geht’s?_ version.
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 5\. Alles klar? – “Everything alright?”
 
  While_alles klar_ can also mean “everything is clear?” or “all fine?”, in the context of greetings is the same as saying “what’s up?” in English.
 
  The simplest way to answer to_alles klar?_ is by saying_ya, danke_ meaning “yes, thanks”. As one would expect, this German greeting is mostly used by youngsters.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ## 6\. Was ist los? – “What’s up?”
 
  Very similar to_alles klar?_ ,_was ist los?_ is appropriate for very casual conversations.
@@ -87,17 +75,22 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 !['German greetings' by Angelo Abear©](https://edge.mondly.com/blog/wp-content/uploads/2022/05/german-greetings-960x640.jpg "Hello In German: 10+ German Greetings Beyond Hallo 2")
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Regional German greetings
 
  Now that you have enough greetings to get by in the entire German-speaking world, it’s time to get into specifics. These next greetings are generally used in just a few regions.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. Na – “Hey, how are you?”
 
@@ -116,6 +109,13 @@ _– Na._ (“Fine. Thanks!”)
 
 **Localization:** mostly northern Germany.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Moin moin – “Hi”
 
  The ‘harsh’ German language strikes again. Imagine you’re in Hamburg and people are cheerfully saying_moin_ or_moin moin_ or even_moinsten_ to you. What do you do? You say_moin_ back, of course!
@@ -124,14 +124,18 @@ _– Na._ (“Fine. Thanks!”)
 
 **Localization:** northern Germany, especially in and around Hamburg.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 3\. Grüezi – “Hello”
 
 _Grüezi_ is a greeting you can use in formal situations, such as speaking with people you don’t know.
 
 **Localization:** Switzerland.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. Grüß Gott – “God bless you”
 
@@ -180,8 +184,6 @@ _Tschüss!_ (‘Goodbye!’)
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -189,4 +191,26 @@ _Tschüss!_ (‘Goodbye!’)
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-turn-your-memories-into-moments-share-pics-instantly/"><u>[New] 2024 Approved Turn Your Memories Into Moments Share Pics Instantly</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-creating-ken-burns-transitions-in-camtasia-9-a-step-by-step-guide/"><u>[New] In 2024, Creating Ken Burns Transitions in Camtasia 9 A Step-by-Step Guide</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-astonishing-critique-and-substitutes-guide/"><u>[Updated] Astonishing Critique & Substitutes Guide</u></a></li>
+<li><a href="https://solve-help.techidaily.com/1-access-complimentary-copyright-permissions-quickly/"><u>1. Access Complimentary Copyright Permissions Quickly</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/ai-meets-fun-time-unveiling-the-finest-game-selection-available-on-chatgpt/"><u>AI Meets Fun Time: Unveiling the Finest Game Selection Available on ChatGPT</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ou-need-to-know-about-the-youtube-shorts-fund/"><u>All You Need to Know About the YouTube Shorts Fund</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhance-accent-intense-tongue-twister-training/"><u>Enhance Accent: Intense Tongue Twister Training</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/entry-points-to-arabic-language-exploration/"><u>Entry Points to Arabic Language Exploration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/express-with-authority-top-50-latin-expressions-revealed/"><u>Express with Authority: Top 50 Latin Expressions Revealed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fifty-something-language-learning-why-it-matters-now/"><u>Fifty-Something Language Learning: Why It Matters Now</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/francais-du-lunis-a-dimanche/"><u>Français Du Lunis À Dimanche</u></a></li>
+<li><a href="https://howto.techidaily.com/gmail-not-working-on-samsung-galaxy-f34-5g-7-common-problems-and-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Gmail Not Working on Samsung Galaxy F34 5G 7 Common Problems & Fixes | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fixing-foneazy-mockgo-not-working-on-asus-rog-phone-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Fixing Foneazy MockGo Not Working On Asus ROG Phone 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-make-the-most-of-your-iphone-13-pro-max-lock-screen-with-notifications-by-drfone-ios/"><u>In 2024, How to Make the Most of Your iPhone 13 Pro Max Lock Screen with Notifications?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-horizons-10-reasons-for-bilingual-mastery/"><u>Linguistic Horizons: 10 Reasons for Bilingual Mastery</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/navigating-the-micromobility-universe-key-events-latest-updates-and-insider-information/"><u>Navigating the Micromobility Universe: Key Events, Latest Updates & Insider Information</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/optimal-language-selection-for-my-future-growth/"><u>Optimal Language Selection for My Future Growth</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/twinspeak-tutorials/"><u>Twinspeak Tutorials</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/eyxh-kalwn-piatwn-gkreman/"><u>Ευχή Καλών Πιάτων Γκρεμάν</u></a></li>
+</ul></div>
 

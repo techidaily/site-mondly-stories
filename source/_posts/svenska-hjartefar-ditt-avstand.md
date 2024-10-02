@@ -1,7 +1,7 @@
 ---
 title: "Svenska Hjärtefär: Ditt Avstånd"
-date: 2024-09-19T20:11:29.916Z
-updated: 2024-09-26T16:18:48.945Z
+date: 2024-09-28T19:04:54.526Z
+updated: 2024-10-01T23:13:09.254Z
 tags:
   - speak
   - english
@@ -31,52 +31,52 @@ thumbnail: https://thmb.techidaily.com/987e27a7892f02906f099613af94ad907edd8b772
  In more formal circumstances, you can use the word **“hallå”** (/haˈloː/). Sometimes, Swedes like to articulate the word when greeting someone by saying **“** **Hallå, hallå!”**  or even use it when they’re irritated and what to bring more attention to a situation they’re telling you about.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to answer the phone in Swedish
 
  Even if you’re just visiting, you might have to answer the phone at the hotel or when you’re expecting a call from the embassy, for example. The easiest way to do this is to say “Hello” followed by introducing yourself. This sounds something like : **“** **Hallå! Det här är \[your name\].”**  This will not only impress the person on the other end, but they might mistake you for a local. That would be a good thing, but you need to let them know you don’t speak Swedish fluently before they start talking faster.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to say “Good Morning!” in Swedish
 
  At the restaurant, cafés, or when you enter a building, saying “Good Morning!” is a sign of respect and will help you establish a connection with those around you. The Swedish equivalent of the morning greeting is **“God morgon!”**  . It’s important to use all the common greetings, even as a foreigner because you will most likely make a good impression.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052062/7443" target="_top" id="2052062">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052062" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052062/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to say “Good evening!” in Swedish
 
 **“God kväll!”** is a rather formal greeting in [Swedish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  , but you might hear this in theaters, or when the evening news show starts. Usually, this greeting is not used between family and friends. “Kväll” is pronounced _kvell_ and the “g” can be silent.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to say “Goodnight!” in Swedish
 
  After getting acquainted with Swedes, you will most likely enjoy late night talks and drinks, so a proper Goodnight is needed to end the day properly. **“Godnatt!”** , often pronounced _goo-natt_  is the way to wish locals a good night’s rest and let them know you can’t wait to hang out again soon.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to say “What’s up?” in Swedish
 
  What better way to find out more about your Swedish friends’ day or how they’re feeling than asking “what’s up?”? **“Hur är det?”** or **“hur går det?”**  are what is used to ask “how is it?” and “how is it going?”. They are both informal ways of getting a conversation started and can be used when talking on the phone as well, just after you introduce yourself.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to say “Goodbye!” in Swedish
 
@@ -106,18 +106,18 @@ thumbnail: https://thmb.techidaily.com/987e27a7892f02906f099613af94ad907edd8b772
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-fixing-absence-of-color-on-game-feedback/"><u>[Updated] Fixing Absence of Color on Game Feedback</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-diving-deep-reviewing-your-old-tweets/"><u>[Updated] In 2024, Diving Deep Reviewing Your Old Tweets</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-elite-hd-visuals-selecting-top-quality-recorders/"><u>[Updated] In 2024, Elite HD Visuals Selecting Top Quality Recorders</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bienvenue-en-france-mots-francais-du-reconnaitre/"><u>Bienvenue en France: Mots Français Du Reconnaître</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discovering-verbal-affection-in-magyar-speech/"><u>Discovering Verbal Affection in Magyar Speech</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-frp-hijacker-by-hagard-download-and-bypass-your-samsung-galaxy-xcover-6-pro-tactical-edition-frp-locks-by-drfone-android/"><u>In 2024, FRP Hijacker by Hagard Download and Bypass your Samsung Galaxy XCover 6 Pro Tactical Edition FRP Locks</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-sync-up-success-sharing-youtube-on-ig-stories/"><u>In 2024, Sync Up Success Sharing YouTube on IG Stories</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlock-your-nokia-105-classic-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>In 2024, Unlock Your Nokia 105 Classic Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-the-sounds-of-russian-cyrillic/"><u>Mastering the Sounds of Russian Cyrillic</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-ditch-sony-vegas-find-a-better-video-editing-solution-for-your-windows-pc/"><u>New In 2024, Ditch Sony Vegas Find a Better Video Editing Solution for Your Windows PC</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/simplified-techniques-for-blurring-faces-in-pictures/"><u>Simplified Techniques for Blurring Faces in Pictures</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/why-choose-mondly-discover-the-unmatched-advantages/"><u>Why Choose Mondly? Discover the Unmatched Advantages</u></a></li>
-<li><a href="https://techidaily.com/your-complete-guide-to-reset-vivo-y200e-5g-drfone-by-drfone-reset-android-reset-android/"><u>Your Complete Guide To Reset Vivo Y200e 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-rapid-shot-mastery-the-ultimate-guide-to-homemade-cinematography-for-2024/"><u>[New] Rapid Shot Mastery The Ultimate Guide to Homemade Cinematography for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-channel-up-your-wealth-profit-from-effective-use-of-youtube-shorts/"><u>[Updated] 2024 Approved Channel Up Your Wealth Profit From Effective Use of YouTube Shorts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-melodic-mockery-best-laugh-inspired-songs/"><u>[Updated] 2024 Approved Melodic Mockery Best Laugh-Inspired Songs</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/3-ways-to-unlock-your-apple-iphone-15-pro-for-free-by-drfone-ios/"><u>3 Ways to Unlock Your Apple iPhone 15 Pro for Free</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/best-practices-for-seamless-transitions-using-b-roll-for-2024/"><u>Best Practices for Seamless Transitions Using B Roll for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-and-latest-version-of-corsair-k55-keyboard-drivers/"><u>Download & Latest Version of Corsair K55 Keyboard Drivers</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-fix-when-apple-account-locked-on-iphone-se-by-drfone-ios/"><u>In 2024, How to Fix when Apple Account Locked On iPhone SE?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-basic-spanish-salutations-top-10-phrases-to-know/"><u>Mastering Basic Spanish Salutations: Top 10 Phrases To Know</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-launches-the-first-vr-language-app-mondlyar/"><u>Mondly Launches The First VR Language App - MondlyAR</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saying-i-love-you-in-over-50-countries-today/"><u>Saying 'I Love You' In Over 50 Countries Today</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/seek-these-six-no-cost-ai-options-similar-to-sora/"><u>Seek These Six No-Cost AI Options Similar to Sora</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-british-american-linguistic-divide/"><u>The British-American Linguistic Divide</u></a></li>
+<li><a href="https://win-answers.techidaily.com/the-repetitive-nature-of-its-resource-management-and-building-systems-limited-long-term-engagement-without-significant-content-updates-or-game-mechanic-chan491/"><u>The Repetitive Nature of Its Resource Management and Building Systems Limited Long-Term Engagement without Significant Content Updates or Game Mechanic Changes</u></a></li>
 </ul></div>
 

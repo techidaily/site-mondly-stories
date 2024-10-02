@@ -1,7 +1,7 @@
 ---
 title: The Essential Dictionary of Casual Speech
-date: 2024-09-19T21:05:51.380Z
-updated: 2024-09-26T16:34:27.912Z
+date: 2024-09-29T22:10:06.531Z
+updated: 2024-10-01T18:33:21.995Z
 tags:
   - speak
   - english
@@ -40,13 +40,6 @@ thumbnail: https://thmb.techidaily.com/3f943451ad9f20674a4982a12bf6e3782b7a46fb4
 
  According to Oxford,**“slang”** is **“a type of language consisting of words and phrases that are regarded as very informal, are more common in speech than writing, and are typically restricted to a particular context or group of people”.** For example, the slang words and phrases we are going to talk about today are defining for two generations known as “millennials” and “gen z” – but mostly “gen z” because – let’s face it – today’s teenagers have come up with tons of new slang terms that even I, as a millennial, have trouble understanding. Praised be the mighty internet for slang dictionaries!
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Why is it important to learn English slang words?
 
  It may be indecent, colorful, or obscene, but slang is a crucial part of any language. Just think about how criminals started using slang so police or other people who are not in their crime circle would not understand what they are saying. Isn’t that great evidence of how creative people can be? Regardless of their social status or intentions.
@@ -54,6 +47,13 @@ thumbnail: https://thmb.techidaily.com/3f943451ad9f20674a4982a12bf6e3782b7a46fb4
  But besides being understood only within a particular group, slang can also be general. For instance, almost every native English speaker knows that to be “filthy rich” doesn’t mean to be dirty, but to have a lot of money. In this situation, as [Eric Partridge observes](https://archive.org/details/in.ernet.dli.2015.58766/page/n8) , slang changes its objective of being limited to a certain group to easing social intercourse and to reducing the solemnity, pomposity, and excessive seriousness of a conversation.
 
  **Thus, it’s important to know English slang words because they bring us closer and while also enriching the language.**
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **History of English slang words**
 
@@ -68,6 +68,13 @@ thumbnail: https://thmb.techidaily.com/3f943451ad9f20674a4982a12bf6e3782b7a46fb4
  In the 20th century, slang went mainstream through media and pop culture. Social media and the internet have further amplified its influence, resulting in a rapid evolution that incorporates words and phrases from various languages and cultures.
 
  Currently, slang remains an integral part of our daily language, used to express humor, irony, and social identity. Although some slang words become obsolete quickly, others become part of the lexicon and can stay_lit_ for generations.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **Examples of historical slang words and their meanings**
 
@@ -106,13 +113,6 @@ _She invited the entire school to her birthday. She’s so extra!_
 
 _Nick is so salty since his parents took away his car!_
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## To ghost someone
 
  When you cut off communication with someone you’re no longer interested in.
@@ -130,13 +130,6 @@ _– Andrew’s trying to flex with that new no-name smartphone of his._
 _– Yeah. Like weird flex but OK._
 
 ![flex](https://media.giphy.com/media/mEDj3oXP1t55pE0fCh/giphy-downsized-large.gif "Popular English Slang Words And Phrases – How To Talk Like Gen Z 4")
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Lowkey & highkey
 
@@ -162,13 +155,6 @@ _What happened at Jessica’s birthday party? Come on, spill the tea!_
 
 ![english slang](https://edge.mondly.com/blog/wp-content/uploads/2019/11/english-slang-1024x810.jpg "Popular English Slang Words And Phrases – How To Talk Like Gen Z 5")
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “Teenagers” by Jed Villejo©
 
 ## To clap back
@@ -185,6 +171,13 @@ _– You were rude. I’m gonna leave now._
 
 _– Bye, Felicia!_
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Mood
 
 Used to express something that is relatable.
@@ -192,13 +185,6 @@ Used to express something that is relatable.
 _– Ugh! I wish I was in Bora Bora right now._
 
 _– Mood!_
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Hangry
 
@@ -211,6 +197,13 @@ _I’m so hangry right now I could eat five burgers in one sitting!_
 Not Gonna Lie. Another way of saying “to tell you the truth”.
 
 _NGL, I’m not in the mood to go out tonight._
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Slay
 
@@ -228,18 +221,18 @@ _– How do you know Jamie is cheating on Sylvie?_
 
 _– Honey, I got all the receipts._
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Sus
 
 Something that is questionable, dishonest or suspicious.
 
 _Ok, now you’re just sus. I don’t believe you!_
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## OK Boomer
 
@@ -261,6 +254,13 @@ This is used when someone is bold and doesn’t care about consequences.
 _– Gaby is gonna report the teacher to the principal._
 _– OMG, savage!_
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Stan
 
  An extremely or excessively enthusiastic and devoted fan. As a verb, it means “to exhibit fandom to an extreme excessive degree.”
@@ -271,6 +271,13 @@ _– Whoa, don’t be such a stan._
 ![jon](https://media.giphy.com/media/3o7qE2fiT5seO2lIre/giphy.gif "Popular English Slang Words And Phrases – How To Talk Like Gen Z 7")
 
  **Other_lit_ mentions:** _gucci_ (good, doing well, feeling fine),_TFW_ (that feeling when),_squad_ (a group of friends),_JOMO_ (Joy Of Missing Out),_fam_ (a group of friends that feels like family),_dank_ (really cool),_basic_ (interested in mainstream or very popular things),_woke_ (being aware of current events).
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Regional variations in English slang**
 
@@ -339,10 +346,10 @@ _– Whoa, don’t be such a stan._
 !['English slang words' by RODNAE Productions©](https://edge.mondly.com/blog/wp-content/uploads/2023/03/english-slang-words-960x640.jpg "Popular English Slang Words And Phrases – How To Talk Like Gen Z 8")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **How to use slang words in conversation**
@@ -367,13 +374,6 @@ _– Whoa, don’t be such a stan._
 * **Revisit this list:** Whenever you feel like your slang knowledge has_ghosted_ you, revisit this list. Or, if you feel like you’re ready for a lot more, the Urban Dictionary will always have your back.
 
  Just remember: slang words can vary based on region, social group, and generation, so it’s essential to consider the context when using them.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Are you ready to_slay?_
 
@@ -417,22 +417,19 @@ Okay, so what did we learn so far? Let’s recap:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-expert-selection-prime-auto-tracking-tech-review/"><u>[New] Expert Selection Prime Auto Tracking Tech Review</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-navigating-small-group-setups-in-zoom-for-2024/"><u>[New] Navigating Small Group Setups in Zoom for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-from-one-world-to-another-connecting-instagram-and-facebook/"><u>[Updated] 2024 Approved From One World to Another Connecting Instagram & Facebook</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-expert-advice-on-flawless-ipad-screen-captures/"><u>2024 Approved Expert Advice on Flawless iPad Screen Captures</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/apple-and-mondly-merge-success-10-ed-tech-app-accolade/"><u>Apple & Mondly Merge Success: #10 Ed-Tech App Accolade</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/assistance-by-danny-from-colombia-for-the-disadvantaged/"><u>Assistance by Danny From Colombia for the Disadvantaged</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/comprender-y-tener-conocimiento-del-tiempo-en-espanol/"><u>Comprender Y Tener Conocimiento Del Tiempo en Espaňol</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fast-track-to-fluent-polish/"><u>Fast-Track to Fluent Polish</u></a></li>
-<li><a href="https://techidaily.com/how-to-perform-hard-reset-on-realme-c67-4g-drfone-by-drfone-reset-android-reset-android/"><u>How to Perform Hard Reset on Realme C67 4G? | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-your-honor-magic-6-pro-lock-screen-password-by-drfone-android/"><u>In 2024, How to Reset your Honor Magic 6 Pro Lock Screen Password</u></a></li>
-<li><a href="https://blog-min.techidaily.com/keine-ausgaben-optimaler-dvd-decodeur-zum-herunterladen-die-allround-losung-fur-alle-dvds-frei-verfugbar/"><u>Keine Ausgaben, Optimaler DVD-Decodeur Zum Herunterladen: Die Allround-Lösung Für Alle DVDs Frei Verfügbar</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580989032-lifetime-language-pass-your-0-investment-today/"><u>Lifetime Language Pass - Your $0 Investment Today</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-unleashed-the-ultimate-linguistic-journey/"><u>Mondly Unleashed: The Ultimate Linguistic Journey</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigate-corporate-dialogue-a-guide-to-fluency-and-proficiency/"><u>Navigate Corporate Dialogue: A Guide to Fluency & Proficiency</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-in-2024-what-is-ai-voice-text-to-speech/"><u>New In 2024, What Is AI Voice Text to Speech?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/transform-workforce-dynamics-elite-linguistic-expertise-for-biz/"><u>Transform Workforce Dynamics: Elite Linguistic Expertise for Biz</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/troubleshooting-guide-resolving-google-hangouts-microphone-issues-instantly/"><u>Troubleshooting Guide: Resolving Google Hangouts Microphone Issues Instantly</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-setup-procedure-for-google-meet-users/"><u>[Updated] 2024 Approved Setup Procedure for Google Meet Users</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-mastering-video-broadcasts-wirecast-and-its-allies/"><u>[Updated] Mastering Video Broadcasts Wirecast and Its Allies</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-the-ultimate-link-from-instas-photos-to-tiks-videos-for-2024/"><u>[Updated] The Ultimate Link From Insta's Photos to Tik's Videos for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-zoom-in-on-content-expert-methods-to-minimize-background/"><u>2024 Approved Zoom In on Content – Expert Methods to Minimize Background</u></a></li>
+<li><a href="https://techtrends.techidaily.com/a-step-by-step-guide-how-to-mute-voice-navigation-on-samsung-tvs/"><u>A Step-by-Step Guide: How to Mute Voice Navigation on Samsung TVs</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-effortless-ways-to-transfer-data-from-your-apple-iphone-15-pro-max-to-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>In 2024, Effortless Ways to Transfer Data from Your Apple iPhone 15 Pro Max to iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-learn-how-to-lock-stolen-your-apple-iphone-8-plus-properly-drfone-by-drfone-ios/"><u>In 2024, Learn How To Lock Stolen Your Apple iPhone 8 Plus Properly | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/skyrocket-sales-harnessing-the-power-of-articulate-dialogue/"><u>Skyrocket Sales: Harnessing the Power of Articulate Dialogue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-10-list-of-spanish-salutations-and-greetings/"><u>The Ultimate 10 List of Spanish Salutations & Greetings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transcending-barriers-international-birthday-talk/"><u>Transcending Barriers: International Birthday Talk</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/universal-happiness-linguistic-birthday-gems/"><u>Universal Happiness: Linguistic Birthday Gems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-fluency-learning-russian-letter-sounds/"><u>Unlock Fluency: Learning Russian Letter Sounds</u></a></li>
+<li><a href="https://some-skills.techidaily.com/unravel-time-on-your-mobile-screen-with-videos-for-2024/"><u>Unravel Time on Your Mobile Screen with Videos for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sygkentrwsh-eyxes-piatoy/"><u>Συγκέντρωση Ευχές Πιάτου</u></a></li>
 </ul></div>
 

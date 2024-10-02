@@ -1,7 +1,7 @@
 ---
 title: Saudações Básicas Em Português Para Ficar De Olho
-date: 2024-09-22T16:09:39.521Z
-updated: 2024-09-26T20:31:04.716Z
+date: 2024-09-27T16:58:10.099Z
+updated: 2024-10-01T18:38:50.187Z
 tags:
   - speak
   - english
@@ -25,10 +25,16 @@ thumbnail: https://thmb.techidaily.com/9e8b456962dede45b52947713c8978e1ca5454c2b
  “Hello” is a [powerful word](https://www.merriam-webster.com/words-at-play/the-origin-of-hello) . It opens doors. It makes people smile. And said the right way and at the right time, “hello” can impact someone’s day and you wouldn’t even know it. So here are the right ways to say “hello” in Portuguese and open doors everywhere you go.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### “Hello” in Portuguese – Olá
@@ -38,10 +44,16 @@ _Olá_ is the best choice for most social situations regardless of the person yo
  Be careful with your Portuguese pronunciation though! A lot of people accidentally mistake Portuguese for Spanish. You don’t want to do that. Just say “OH-lah” and everybody from Brazil to Mozambique will understand that you are saying “hello” in Portuguese.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### “Hi” in Portuguese – Oi
@@ -49,6 +61,13 @@ _Olá_ is the best choice for most social situations regardless of the person yo
  Friendly and very informal,_Oi!_ is one of the most common ways to greet your friends in Brazil (people from Portugal use it as well, but not as much as_olá)_ . This is how you could greet your mates and close colleagues, but never the people you don’t really know. Don’t stress it tough! When the time comes, you will feel and just know what’s the required Portuguese greeting for that particular situation.
 
 ![hi in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-portuguese-1024x658.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 2")
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  “Lisbon, Portugal” by Diego García©
 
@@ -72,10 +91,10 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ![good morning in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/good-morning-in-portuguese-1024x642.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 3")
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
-  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  “Rio de Janeiro, Brazil” by Raphael Nogueira©
@@ -128,13 +147,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ![obrigado](https://edge.mondly.com/blog/wp-content/uploads/2019/08/obrigado-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 5")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “Gruta do Lago Azul, Brazil” by Ademir Alves©
 
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fhello-in-portuguese-basic-portuguese-greetings-you-need%2F&t=Hello+in+Portuguese+and+Other+Basic+Portuguese+Greetings+You+Need+to+Know "Share on Facebook")
@@ -173,14 +185,17 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-how-to-create-youtube-channel-in-mobile-with-ease-personal-and-business/"><u>[New] 2024 Approved How to Create YouTube Channel in Mobile with Ease [Personal & Business]</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-capturing-screenshots-like-a-pro-the-best-recorder-reviews/"><u>[Updated] In 2024, Capturing Screenshots Like a Pro The Best Recorder Reviews</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-strategic-use-of-jump-cuts-for-non-linear-storytelling/"><u>2024 Approved Strategic Use of Jump Cuts for Non-Linear Storytelling</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/free-logitech-gamepad-software-compatible-with-windows-7-8-and-10/"><u>Free Logitech Gamepad Software: Compatible with Windows 7, 8 & 10</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/innovative-apps-transforming-linguistic-skills/"><u>Innovative Apps Transforming Linguistic Skills</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learning-french-greetings-with-ease-and-flair-a-practical-guide/"><u>Learning French Greetings with Ease & Flair: A Practical Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-german-letters-and-phonetics-for-beginners/"><u>Navigating German Letters and Phonetics for Beginners</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-mobile-video-production-made-easy-top-apps-with-music-features-for-2024/"><u>New Mobile Video Production Made Easy Top Apps with Music Features for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-like-an-italian-100plus-useful-travel-language-guide/"><u>Speak Like an Italian: 100+ Useful Travel Language Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-the-dji-drone-visor-revolution-an-in-depth-review/"><u>[New] 2024 Approved The DJI Drone Visor Revolution An In-Depth Review</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-mastering-the-art-of-incorporating-film-into-lessons/"><u>[Updated] 2024 Approved Mastering the Art of Incorporating Film Into Lessons</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-luts-galore-complimentary-package-now-available-to-dji-fans/"><u>[Updated] LUTs Galore - Complimentary Package Now Available to DJI Fans</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/9-best-phone-monitoring-apps-for-samsung-galaxy-s23-tactical-edition-drfone-by-drfone-virtual-android/"><u>9 Best Phone Monitoring Apps for Samsung Galaxy S23 Tactical Edition | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/edit-and-send-fake-location-on-telegram-for-your-infinix-note-30-vip-in-3-ways-drfone-by-drfone-virtual-android/"><u>Edit and Send Fake Location on Telegram For your Infinix Note 30 VIP in 3 Ways | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-after-switching-from-honor-magic-vs-2-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data After Switching From Honor Magic Vs 2 to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-downloading-samfw-frp-tool-30-for-oneplus-nord-ce-3-lite-5g-by-drfone-android/"><u>In 2024, Downloading SamFw FRP Tool 3.0 for OnePlus Nord CE 3 Lite 5G</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-eye-catching-youtube-most-followed-channels/"><u>In 2024, Eye-Catching YouTube Most Followed Channels</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-unveiled-with-googled-editors-choice-mondly/"><u>Language Learning Unveiled with Googled Editors' Choice - Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-liberation-via-mondly-for-ukrainians/"><u>Linguistic Liberation via Mondly for Ukrainians</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-language-of-respectfulness-perfecting-excusez-moi-in-french/"><u>The Language of Respectfulness: Perfecting 'Excusez-Moi' In French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-mysteries-of-affection-in-hungarian-tongue/"><u>Unveiling the Mysteries of Affection in Hungarian Tongue</u></a></li>
 </ul></div>
 

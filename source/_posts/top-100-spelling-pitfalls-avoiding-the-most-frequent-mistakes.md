@@ -1,7 +1,7 @@
 ---
 title: "Top 100 Spelling Pitfalls: Avoiding the Most Frequent Mistakes"
-date: 2024-09-01T00:32:33.559Z
-updated: 2024-09-02T00:32:33.559Z
+date: 2024-09-30T23:07:53.493Z
+updated: 2024-10-02T00:23:37.957Z
 tags:
   - speak
   - english
@@ -30,11 +30,25 @@ thumbnail: https://thmb.techidaily.com/01a9c6a754e21b99c858623b51177464f69009a94
 
  This one will haunt some of us for the rest of our days because it also describes how we feel when we realize we’ve just misspelled a word.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Believe not belive
 
  There’s a famous rhyme in English that says I before E, except after C. The exact same rule applies to “believe”, so it’s advisable to use this mnemonic when in doubt.
 
 Careful, though – there are some exceptions to it.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Embarrassed not embarassed
 
@@ -42,9 +56,6 @@ Also commonly misspelled as: embarrased
 
  This is another classic case of two sets of double letters. You’ll reduce the chances of finding yourself in an embarrassing bad spelling situation if you remember this one.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 4\. Entrepreneur not enterpreneur
 
 Also commonly misspelled as: entrepeneur , entreprenur , entreperneur
@@ -57,10 +68,6 @@ Also commonly misspelled as: entrepeneur , entreprenur , entreperneur
 
 Your best bet is to just remember the correct spelling.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 6\. License not lisence
 
  This is a special situation. In American English, it’s always spelled “license” – no matter what. On the other hand, in British English, it’s spelled “license” when it’s a verb and “licence” when it’s a noun.
@@ -68,37 +75,52 @@ Your best bet is to just remember the correct spelling.
  Basically, the only wrong spelling is “lisense”. However, once you decide which spelling you’re going to use – American or British – it’s best to go forward with that one don’t combine both.
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 7\. Receive not recieve
 
  Remember the “I before E, except after C” rule? This is the kind of word where the rule applies. It also applies to “niece” and “siege”, but it doesn’t apply to “weird” or “seize”. So trust the rule, but keep in mind it has some exceptions.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 8\. Successful not successfull
 
 Also commonly misspelled as: succesful, sucessful
 
  There are so many double consonants in English that it becomes tempting to double them all sometimes. But for the love of English, don’t do that to “successful”.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 9\. Thorough not thourough
 
  You probably heard this tongue twister before: “English can be understood through tough thorough thought, though.” It’s hard not to get confused with so many similar-looking words. You add an O to “through” and its pronunciation changes completely.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 10\. Until not untill
 
  This one is somehow similar to the “successful” situation, but not entirely. As a matter of fact, “until” was spelled with two Ls in the Middle Ages. If it helps you remember, you can think it just lost some weight but getting rid of the last L (unlike “still”).
 
 !["Hard words to spell" by Julia M Cameron©](https://edge.mondly.com/blog/wp-content/uploads/2022/12/hard-words-to-spell-960x641.jpg "Top 100 Most Misspelled Words In English 2")
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Why Spelling Matters
 
  English has drawn inspiration from many different languages, so it’s perfectly normal to get confused because of its double consonants and silent letters. We all know that moment when you stare at a word for ages and still can’t believe it has two sets of double letters. But it’s true. There are many such examples. In fact, “misspelled” is one of them and people often misspell it.
@@ -126,9 +148,6 @@ Coming Soon
 * **You respect your readers:** Regardless of how many people will read your work, good spelling shows that you value the time they take to do it.
 * **You have a strong educational background:** Proficiency in spelling often indicates a good grasp of the language. It suggests that you had the opportunity to learn and practice language skills extensively.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Commonly Misspelled Words Table (Top 100)
 
  Search:
@@ -252,9 +271,6 @@ Let’s recap. To improve your spelling, you can:
 * **Use spell-checkers:** Grammarly is the best at keeping your written communication tidy, but we can also rely on Word’s built-in spell-checker or even ask ChatGPT or Google when you’re not sure whether your word is spelled right or not.
 * **Memorize challenging words:** We all have some words we keep getting wrong. So, our recommendation would be to take a pen and a piece of paper and write them by hand a few times until they stick. It’s traditional but it works.
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ## Why Some Words Are Tricky
 
  When it comes to spelling, the English language is a real maverick. No wonder there are spelling bee competitions organized for young English-speaking students.
@@ -278,6 +294,13 @@ English words can be tricky to spell for several reasons:
 ### What are most Misspelled Words in America?
 
  Lists of commonly misspelled words in America often include words like “necessary”, “embarrassment”, “maintenance”, “occurrence” and “rhythm”. However, these can differ based on regional dialects, local vernacular, and other influences.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Why is the word “misspelled” often misspelt as “misspelt”?
 
@@ -310,8 +333,6 @@ English words can be tricky to spell for several reasons:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -319,4 +340,21 @@ English words can be tricky to spell for several reasons:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-easy-ways-to-add-music-to-imovie-from-youtube/"><u>[New] 2024 Approved Easy Ways to Add Music to iMovie From YouTube</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-unlocking-vimeo-content-step-by-step-free-and-licensed-tools-guide/"><u>[New] 2024 Approved Unlocking Vimeo Content Step-by-Step Free & Licensed Tools Guide</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-ideal-android-video-recording-tools-ranked-five-best/"><u>[New] Ideal Android Video Recording Tools Ranked Five Best</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-step-by-step-livestreaming-to-facebook-from-iphonestablets/"><u>[Updated] In 2024, Step-by-Step Livestreaming to Facebook From iPhones/Tablets</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/abbyys-live-ocr-technology-revolutionizing-your-path-towards-a-faster-smarter-digital-world/"><u>ABBYY's Live OCR Technology: Revolutionizing Your Path Towards a Faster, Smarter Digital World</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accelerate-advocacy-with-precision-in-professional-vernacular/"><u>Accelerate Advocacy with Precision in Professional Vernacular</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/best-foreign-flicks-to-learn-a-new-tongue/"><u>Best Foreign Flicks To Learn A New Tongue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578479086-celebrate-new-beginnings-by-saving-big-with-mondly-pros-free-access/"><u>Celebrate New Beginnings by Saving Big with Mondly Pro's Free Access!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/echoes-of-avon-words-from-a-bygone-era-remain/"><u>Echoes of Avon: Words From a Bygone Era Remain</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effektive-deutsche-entschuldigungen/"><u>Effektive Deutsche Entschuldigungen</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-8-best-apps-for-screen-mirroring-motorola-edge-40-pro-pc-drfone-by-drfone-android/"><u>In 2024, 8 Best Apps for Screen Mirroring Motorola Edge 40 Pro PC | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-premier-tools-for-tiktok-video-creators/"><u>In 2024, Premier Tools for TikTok Video Creators</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/lightweight-pc-video-grabber-w10-compatible/"><u>Lightweight PC Video Grabber, W10 Compatible</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-ambiguity-a-close-look-at-vague-storytelling/"><u>Social Media Ambiguity: A Close Look at Vague Storytelling</u></a></li>
+</ul></div>
 

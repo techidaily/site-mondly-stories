@@ -1,7 +1,7 @@
 ---
 title: "The Unwritten Rules of German Speech: Alphabet Fundamentals"
-date: 2024-09-05T04:37:56.902Z
-updated: 2024-09-06T04:37:56.902Z
+date: 2024-09-29T20:25:52.269Z
+updated: 2024-10-01T23:21:13.442Z
 tags:
   - speak
   - english
@@ -20,30 +20,12 @@ thumbnail: https://thmb.techidaily.com/5a5f384c827d740eb2982c66293aa6c9bc671df02
 
  However, German pronunciation being difficult is just a myth._Oh ja,_ you read that right. German is actually one of the few languages where pronunciation makes sense. Once you know the rules, all you have to do is flex those pronunciation muscles and speak like a true German. It’s really not as hard as you think. Let’s break the myth together.
 
-<!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The basics of the German alphabet
 
  We’ll naturally start with the basics. Much like English, the German alphabet consists of 26 standard letters. In addition to that, it also features the letter ß – known as the German ligature – and umlauted forms of three vowels: ä, ö and ü. In total,_das Alphabet_ has 8 vowels and 22 consonants.
 
  Considering you’re already familiar with all the other letters, let’s continue by taking a closer look at these four special letters: ß, ä, ö and ü.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### ß also known as ‘sharp S’, ‘eszett’ or ‘scharfes S’
 
  Although it looks different from everything you’ve ever seen in English, ß shouldn’t intimidate you. Vaguely resembling a capital ‘B’,**the letter ß is pronounced like a sharp S** (like the ‘s’ in ‘see’) – hence its name ‘eszett’ or ‘scharfes S’.
@@ -53,11 +35,12 @@ thumbnail: https://thmb.techidaily.com/5a5f384c827d740eb2982c66293aa6c9bc671df02
  Eszett not having a capitalized version sparked debates for a long time, so the Council for German Orthography [officially adopted](https://www.sueddeutsche.de/bildung/rechtschreibung-das-alphabet-bekommt-einen-neuen-buchstaben-1.3566309) a capital in 2017\. The capital of ß is ẞ.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### German umlauts: ä, ö, ü
 
  While highly representative for the German language, the German umlauts are ‘guilty’ of making the most uncommon sounds to English speakers.
@@ -75,11 +58,18 @@ Now round off your lips and start practicing!
 ![german alphabet](https://edge.mondly.com/blog/wp-content/uploads/2022/04/german-alphabet-960x640.jpg "A Beginner’s Guide To The German Pronunciation &Amp; Alphabet 2")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## German pronunciation guide for single letters
 
  Now that we’ve settled the matters with ß, ä, ö and ü, it’s time to move on to more familiar letters and see how their pronunciation differs from English.
@@ -95,11 +85,12 @@ Now round off your lips and start practicing!
 5. **E** – If you see an _e_ at the end of a German word, make sure to pronounce it like this: ‘eh’. Come on! Loud and clear: _Katze_ (‘cat’)!
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## German pronunciation guide for letter combinations
 
  Just a few more examples and you’ll soon be ready to speak like a German! Let’s see how you should pronounce certain letter combinations in German:
@@ -118,11 +109,12 @@ Now round off your lips and start practicing!
  Did you recognize_ze rules_ in this example?
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to pronounce long German words
 
 _Ja,_ the German language is famous for its very long words, but once again – this shouldn’t intimidate you. Most [German words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) are, in fact, compounds.
@@ -160,8 +152,6 @@ _Tschüss!_
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -169,4 +159,26 @@ _Tschüss!_
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-pro-tips-for-the-best-pc-snipping-software-of-today/"><u>[New] 2024 Approved Pro Tips for the Best PC Snipping Software of Today</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-scripting-stimulating-screen-grabbers-for-2024/"><u>[New] Scripting Stimulating Screen-Grabbers for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-best-free-open-source-video-conferencing-software-ranked-by-industry-for-2024/"><u>[Updated] Best Free Open Source Video Conferencing Software Ranked by Industry for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-graduating-from-novice-to-3d-lut-maestro/"><u>[Updated] Graduating From Novice to 3D LUT Maestro</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-beginners-primer-on-chinese-graciousness/"><u>A Beginner's Primer on Chinese Graciousness</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aggregate-of-best-danish-productions-for-language-acquisition/"><u>Aggregate of Best Danish Productions for Language Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/best-scandinavian-film-selections-for-aspiring-danespeakers/"><u>Best Scandinavian Film Selections for Aspiring Danespeakers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beyond-40-the-priceless-value-of-language-learning-in-later-life/"><u>Beyond 40: The Priceless Value of Language Learning in Later Life</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/building-bridges-through-effective-business-communication/"><u>Building Bridges Through Effective Business Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprension-total-de-partes-vitales-una-jornada-completa-desde-el-torax-a-los-pies-en-espanol/"><u>Comprensión Total De Partes Vitales: Una Jornada Completa Desde El Tórax A Los Pies En Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/digital-finnish-language-lessons-for-maximum-retention/"><u>Digital Finnish Language Lessons for Maximum Retention</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-the-top-16-ways-to-demonstrate-gratitude-in-german/"><u>Discover the Top 16 Ways to Demonstrate Gratitude in German</u></a></li>
+<li><a href="https://network-issues.techidaily.com/effortlessly-overcome-playback-pauses/"><u>Effortlessly Overcome Playback Pauses</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-realme-gt-5-240w-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Realme GT 5 (240W) | Dr.fone</u></a></li>
+<li><a href="https://win-answers.techidaily.com/overcome-minecraft-pc-issues-latest-tips-to-eliminate-freezing-and-crashes/"><u>Overcome Minecraft PC Issues - Latest Tips to Eliminate Freezing & Crashes</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/prime-techniques-to-salvage-problematic-vids/"><u>Prime Techniques to Salvage Problematic Vids</u></a></li>
+<li><a href="https://media-tips.techidaily.com/simple-steps-converting-mpg-files-individually-or-en-masse/"><u>Simple Steps: Converting MPG Files Individually or En Masse</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/snapchats-ai-vs-microsoft-bings-ai-face-off-on-skype-exploring-the-top-8-distinctions/"><u>Snapchat's AI Vs. Microsoft Bing's AI Face-Off on Skype: Exploring the Top 8 Distinctions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576839584-unlock-your-potential-quickly-choose-8-best-advantages-of-hindi-study-online-with-mondly/"><u>Unlock Your Potential Quickly: Choose 8 Best Advantages of Hindi Study Online with Mondly!</u></a></li>
+</ul></div>
 

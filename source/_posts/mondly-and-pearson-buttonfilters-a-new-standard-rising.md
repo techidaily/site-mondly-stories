@@ -1,7 +1,7 @@
 ---
 title: "Mondly & Pearson ButtonFilters: A New Standard Rising"
-date: 2024-09-05T04:37:55.619Z
-updated: 2024-09-06T04:37:55.619Z
+date: 2024-09-30T16:42:09.693Z
+updated: 2024-10-01T20:20:36.783Z
 tags:
   - speak
   - english
@@ -14,18 +14,6 @@ keywords: Mondly ButtonFilters Integration,Advanced Communication Tools,Personal
 thumbnail: https://thmb.techidaily.com/85034a62a15df819e619fec4e6d0909e5ab4845fbca98b126bdfe343d56fc596.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Mondly & Pearson ButtonFilters: A New Standard Rising
 
 **London, 29th April 2022 –** [Pearson](https://www.pearson.com/) , the world’s leading learning company, today announced it has [acquired Mondly](https://plc.pearson.com/en-US/news/pearson-acquires-leading-online-language-learning-platform) , a global online language learning platform. The acquisition will allow Pearson to offer a full range of ways for people to learn and prove their English skills – adding online self-study to its existing diagnosis and learning tools and assessment portfolio.
@@ -47,22 +35,17 @@ thumbnail: https://thmb.techidaily.com/85034a62a15df819e619fec4e6d0909e5ab4845fb
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **About Pearson**
 
  At Pearson, our purpose is simple: to add life to a lifetime of learning. We believe that every learning opportunity is a chance for a personal breakthrough. That’s why our c.20,000 Pearson employees are committed to creating vibrant and enriching learning experiences designed for real-life impact. We are the world’s leading learning company, serving customers in more than 200 countries with digital content, assessments, qualifications, and data. For us, learning isn’t just what we do. It’s who we are. Visit us at pearsonplc.com
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **About Mondly**
 
  Mondly is a leading language learning platform that has been named “Regional App of the Year” by Facebook, “App of the Day” by Apple, and “Editors’ Choice” by Google Play. Launched in 2014, it quickly became a leading app in the mobile space. According to Statista, Mondly is currently in the Top 5 language learning apps worldwide by number of downloads.
@@ -75,8 +58,6 @@ thumbnail: https://thmb.techidaily.com/85034a62a15df819e619fec4e6d0909e5ab4845fb
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -84,4 +65,24 @@ thumbnail: https://thmb.techidaily.com/85034a62a15df819e619fec4e6d0909e5ab4845fb
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-effective-methods-for-downloading-audio-tracks-from-pinterest-videos/"><u>[Updated] 2024 Approved Effective Methods for Downloading Audio Tracks From Pinterest Videos</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-streamlined-video-download-from-linkedin-using-this-top-6-app-selection/"><u>[Updated] In 2024, Streamlined Video Download From LinkedIn Using This Top 6 App Selection</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-unlock-your-creativity-editing-and-revamping-youtube-clips-in-wmm/"><u>[Updated] Unlock Your Creativity Editing and Revamping YouTube Clips in WMM</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/asias-big-talkers-quick-backup-of-preferred-speeches/"><u>Asia's Big Talkers: Quick Backup of Preferred Speeches</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/basic-russian-expressions-boosting-travel-confidence/"><u>Basic Russian Expressions Boosting Travel Confidence</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/best-practices-in-linguistics-top-5-teaching-technologies/"><u>Best Practices in Linguistics: Top 5 Teaching Technologies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brief-but-effective-guide-to-japanese-numerals/"><u>Brief but Effective Guide to Japanese Numerals</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-urdu-in-minutes-a-day/"><u>Conquer Urdu in Minutes a Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cross-border-favorite-the-days-apple-app/"><u>Cross-Border Favorite: The Day's Apple App</u></a></li>
+<li><a href="https://discover-bits.techidaily.com/efficient-drm-free-conversion-how-to-extract-and-remove-drm-from-your-adobe-pdfs/"><u>Efficient DRM-Free Conversion: How to Extract and Remove DRM From Your Adobe PDFs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/empowerment-through-the-lens-of-honterus/"><u>Empowerment Through the Lens of Honterus</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-xiaomi-redmi-k70e-phone-without-any-data-loss-by-drfone-android/"><u>How to Unlock Xiaomi Redmi K70E Phone without Any Data Loss</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-gentle-fading-audio-paths-in-live/"><u>In 2024, Gentle Fading Audio Paths in Live</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-vivo-y36-drfone-by-drfone-virtual-android/"><u>In 2024, How to Watch Hulu Outside US On Vivo Y36 | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-max-360-vs-hero-11-discovering-the-gopro-video-champion/"><u>In 2024, Max 360 Vs. Hero 11 - Discovering the GoPro Video Champion</u></a></li>
+<li><a href="https://review-topics.techidaily.com/inside-the-world-of-quick-clicks-with-nzxt-lift-2-symm-a-pro-gamers-speed-review/"><u>Inside the World of Quick Clicks with NZXT Lift 2 Symm - A Pro Gamer’s Speed Review</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580763861-is-german-hard-to-study/"><u>Is German Hard To Study?</u></a></li>
+</ul></div>
 

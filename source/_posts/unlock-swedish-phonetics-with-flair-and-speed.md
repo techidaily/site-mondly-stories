@@ -1,7 +1,7 @@
 ---
 title: Unlock Swedish Phonetics with Flair & Speed
-date: 2024-09-25T16:57:14.223Z
-updated: 2024-09-26T18:19:40.006Z
+date: 2024-09-27T18:54:35.326Z
+updated: 2024-10-01T17:07:06.389Z
 tags:
   - speak
   - english
@@ -28,6 +28,13 @@ thumbnail: https://thmb.techidaily.com/cd918524a7d7688c6ef6414ad8dfa9dc1bddfeb0b
 
  The current alphabet is considered modern because it arrived in Sweden together with the Christianization of Scandinavia that took place between the 8th and the 12th centuries. As a matter of fact, the translation of the New Testament into Swedish in 1526 actually marks the beginning of modern Swedish.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How was Swedish written before the Latin script?
 
  **Swedish used runes before the arrival of the Latin script in Scandinavia.** The [runic alphabet](https://www.britannica.com/topic/runic-alphabet) , also known as Futhark, was the first writing system the Norse and other Germanic people used for centuries. As it happens, isolated communities in a remote part of Sweden only [stopped using runes](https://sciencenordic.com/language-linguistics-runes/isolated-people-in-sweden-only-stopped-using-runes-100-years-ago/1418110) 100 years ago. To this day, the runic alphabet is considered a writing system of uncertain origin as scholars cannot find solid proof to support its ancestry.
@@ -36,14 +43,14 @@ thumbnail: https://thmb.techidaily.com/cd918524a7d7688c6ef6414ad8dfa9dc1bddfeb0b
 
 ![swedish runes on stones](https://edge.mondly.com/blog/wp-content/uploads/2021/11/swedish-runic-alphabet-960x686.jpg "Quick Introduction To The Swedish Alphabet And Its Fascinating History 2")
 
- “Swedish runes” by petr sidorov©
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ “Swedish runes” by petr sidorov©
 
 ## The Swedish language in a nutshell
 
@@ -57,13 +64,6 @@ thumbnail: https://thmb.techidaily.com/cd918524a7d7688c6ef6414ad8dfa9dc1bddfeb0b
 
  Similar to the transformation the [Romance languages](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) went through over time, Old East Norse dialects were influenced by numerous factors. For example, between 800 and 1100 AD, Runic Swedish was only slightly different from Runic Danish, but they began to diverge during the 12th century. However, some aspects stayed the same. That’s why is easier to learn Swedish when you already know Danish and vice versa.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Pronunciation rules and usage
 
  Being a Germanic language makes Swedish one of the easiest languages to learn by native English speakers. In fact, according to the FSI (Foreign Service Institute) of the US government, an English speaker would need about [575 hours](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) or 23 weeks of practice to become fluent in Swedish. That makes Swedish even easier to learn than any Romance language such as Spanish, French or Italian.
@@ -72,13 +72,6 @@ thumbnail: https://thmb.techidaily.com/cd918524a7d7688c6ef6414ad8dfa9dc1bddfeb0b
 
  Would you like to have access to more content like this? Get Mondly and master the Swedish pronunciation in no time with real-life conversations recorded by fluent voice actors.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Uncommon letters
 
  Before jumping to pronunciation rules, you should know that**Swedes don’t really use the letters Q, W and Z.** So, in truth, the Swedish alphabet has the same number of letters as English: 26.
@@ -86,6 +79,13 @@ thumbnail: https://thmb.techidaily.com/cd918524a7d7688c6ef6414ad8dfa9dc1bddfeb0b
  Q, W, and Z will only appear in some loanwords such as queer, squash, web, or zon (zone).
 
  Though officially in the Swedish alphabet, there are two other letters you’ll probably see in Swedish: ü and è. But again, these letters are only common in some loanwords.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### General pronunciation rules
 
@@ -108,10 +108,10 @@ thumbnail: https://thmb.techidaily.com/cd918524a7d7688c6ef6414ad8dfa9dc1bddfeb0b
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### From 0 to conversational in Swedish
@@ -144,22 +144,19 @@ thumbnail: https://thmb.techidaily.com/cd918524a7d7688c6ef6414ad8dfa9dc1bddfeb0b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-video-mastery-on-instagram-tips-and-tricks-for-2024/"><u>[New] Video Mastery on Instagram Tips and Tricks for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-streamline-editing-with-these-10-leading-software-tools/"><u>[Updated] In 2024, Streamline Editing with These 10 Leading Software Tools</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-eye-openers-yearly-infographics-on-yts-surprising-stats-17/"><u>2024 Approved Eye-Openers! Yearly Infographics on YT's Surprising Stats ('17)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/aprendizaje-basico-de-hora-y-contadores-en-espanol/"><u>Aprendizaje Básico De Hora Y Contadores en Espaňol</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/bridging-the-gap-between-facebook-videos-and-apple-tv-compatibility/"><u>Bridging the Gap Between Facebook Videos and Apple TV Compatibility</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719574561356-dive-into-new-tongues-for-just-055-per-lesson-this-year/"><u>Dive Into New Tongues for Just $0.55 Per Lesson This Year!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expressive-speech-mastery-in-minimal-time/"><u>Expressive Speech Mastery in Minimal Time</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/getting-started-with-urdu-essential-linguistic-tools/"><u>Getting Started with Urdu: Essential Linguistic Tools</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-word-goliaths-uncovering-the-longest-title/"><u>Global Word Goliaths: Uncovering the Longest Title</u></a></li>
-<li><a href="https://solve-news.techidaily.com/gratuit-verbeteren-van-ts-naar-avi-onlinerekening-veejournalisten/"><u>Gratuit Verbeteren Van Ts Naar Avi - Onlinerekening Veejournalisten</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/hofliches-aussprechen-von-reue-in-deutsch/"><u>Höfliches Aussprechen Von Reue in Deutsch</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-universal-unlock-pattern-for-realme-12-pro-5g-by-drfone-android/"><u>In 2024, Universal Unlock Pattern for Realme 12 Pro 5G</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-israel-top-5-tips-and-vital-language-skills/"><u>Navigating Israel: Top 5 Tips and Vital Language Skills</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/novel-selection-for-francophones-starting-their-journey/"><u>Novel Selection for Francophones Starting Their Journey</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/ps5-console-showdown-slim-vs-regular-edition-features-unveiled/"><u>PS5 Console Showdown: Slim Vs. Regular Edition Features Unveiled</u></a></li>
-<li><a href="https://win11.techidaily.com/quick-guide-seven-ways-to-bridge-obs-studios-network-gap-in-windows/"><u>Quick Guide: Seven Ways to Bridge OBS Studio's Network Gap in Windows</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/-strategies-tailoring-your-microphone-to-align-with-your-youtube-channel-for-2024/"><u>Sound Strategies Tailoring Your Microphone to Align With Your YouTube Channel for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-outro-mastery-top-6-free-video-closers/"><u>[New] 2024 Approved Outro Mastery Top 6 Free Video Closers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-expert-tips-to-transform-lengthy-videos-into-engaging-segmented-content/"><u>[Updated] In 2024, Expert Tips to Transform Lengthy Videos Into Engaging, Segmented Content</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-harmony-hub-tech-evolution/"><u>[Updated] In 2024, Harmony Hub Tech Evolution</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/get-ready-to-meet-your-new-ai-conversation-partner/"><u>Get Ready to Meet Your New AI Conversation Partner</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-vernacular-vanguard-ranking-1-15/"><u>Global Vernacular Vanguard: Ranking 1-15</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/googles-2017-choice-mondly-a-kid-friendly-companion/"><u>Google's 2017 Choice: Mondly - A Kid-Friendly Companion</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-oppo-a78-drfone-by-drfone-virtual-android/"><u>In 2024, How to Watch Hulu Outside US On Oppo A78 | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/overcoming-windows-dciman32dll-disappearance-problems-with-ease-and-confidence/"><u>Overcoming Windows dciman32.dll Disappearance Problems with Ease and Confidence</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/precision-tools-for-gif-to-video-conversion-best-5/"><u>Precision Tools for GIF to Video Conversion (Best 5)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speedy-bokmal-acquisition-in-daily-dashes/"><u>Speedy Bokmål Acquisition in Daily Dashes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-oxford-3000-learn-the-most-important-words-in-english/"><u>The Oxford 3000: Learn the Most Important Words in English</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-in-2024-transforming-raw-footage-into-masterpieces-sony-camcorder-video-editing/"><u>Updated In 2024, Transforming Raw Footage Into Masterpieces Sony Camcorder Video Editing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/verschiedene-wege-deutschsprachige-grussformeln-zu-finden/"><u>Verschiedene Wege, Deutschsprachige Grußformeln Zu Finden</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-fake-gps-location-pro-and-is-it-good-on-xiaomi-13-ultra-drfone-by-drfone-virtual-android/"><u>What is Fake GPS Location Pro and Is It Good On Xiaomi 13 Ultra? | Dr.fone</u></a></li>
 </ul></div>
 

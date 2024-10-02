@@ -1,7 +1,7 @@
 ---
 title: Salutations Across Cultures
-date: 2024-09-01T00:33:56.130Z
-updated: 2024-09-02T00:33:56.130Z
+date: 2024-09-28T00:29:11.387Z
+updated: 2024-10-01T21:25:20.171Z
 tags:
   - speak
   - english
@@ -54,9 +54,6 @@ _안녕하세요 (Annyeonghaseyo)_ is the most popular semi-formal Korean hello.
 
 ![hello in japanese](https://edge.mondly.com/blog/wp-content/uploads/2021/06/hello-in-japanese-960x640.jpg "How To Say &Quot;Hello&Quot; In Different Languages 3")
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
  “Mount Fuji, Japan” by David Edelstein©
 
 ## Hello in French — Bonjour
@@ -66,6 +63,13 @@ _안녕하세요 (Annyeonghaseyo)_ is the most popular semi-formal Korean hello.
  And France makes no exception. **The most common way to say ‘hello’ in French is definitely_Bonjour_ ,** but if you need something a little more informal, you can safely go with S_alut_ . Furthermore, if it’s getting dark, don’t forget to switch to_Bonsoir,_ which is ‘good evening’ in French.
 
  Wanna find out more? Here are [12 French greetings beyond Bonjour](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Hello in German — Hallo
 
@@ -85,36 +89,44 @@ _안녕하세요 (Annyeonghaseyo)_ is the most popular semi-formal Korean hello.
 
 ![hello in french](https://edge.mondly.com/blog/wp-content/uploads/2021/06/hello-in-french-960x640.jpg "How To Say &Quot;Hello&Quot; In Different Languages 4")
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  “Antibes, France” by Reuben Mcfeeters©
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Hello in Italian — Ciao
 
  The Italian_Ciao_ is so popular that it has also been borrowed by other countries to be used between friends as a joke or even seriously. Together with_Capisce_ and_Grazie_ ,_Ciao_ forms the Holy Trinity of the Italian language. Anyone who wants to summon his or her inner Italian just uses these three words and automatically becomes Italian. Oh, let’s not forget about the famous [Italian hand gesture](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ! (Admit it. You tried that, too, at some point.)
 
 ![hello in different languages](https://media.giphy.com/media/DqZKCC1rRht8FmnKbv/giphy.gif "How To Say &Quot;Hello&Quot; In Different Languages 5")
 
+<!-- affiliate ads begin -->
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Back to seriousness, Italians are all about respecting their elders, so if you need a more formal**‘hello’ in Italian** , you can safely use **_Salve_ .**
 
  If you want to learn more about how to say**‘hi’ in Italian,** you can check out this in-depth **[guide on Italian greetings](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .**
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
-<!-- affiliate ads end -->
 ## Hello in Chinese — 你好 (Nǐ hǎo)
 
  The Chinese language is just as rich in greetings as any other language, but the most popular way to say**‘hello’ in Chinese** is definitely**你好 (Nǐ hǎo).** And when we say ‘popular’, it’s 1 billion people popular because, as you probably already know, Chinese is the [most spoken language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) in the world by the total number of native speakers.
 
  Of course, like in many other languages, this is not the only way to say ‘hello’ in Chinese. To find out what are other ways to say ‘hi’ in Chinese, here’s an [in-depth guide on](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) **Chinese greetings.**
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ## Hello in Portuguese — Olá
 
 **_Olá_ or_Oi_ ?** What’s your Portuguese hello of choice?
@@ -124,13 +136,24 @@ _Olá_ , just like the Spanish_Hola_ , is suitable for any situation regardless 
  To learn more about Portuguese greetings, check out our guide on how to say [**‘** **hello’ in Portuguese**](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Hello in different languages
 
  Now that we’ve properly covered some of the most spoken languages in the world let’s move on to the real gold mine of**‘hello’ in different languages.** From ‘hello’ in Arabic to ‘hello’ in Catalan and even Latin, you’ll find them all here. Besides, if you want to hear them in action in real conversations, spoken by fluent speakers, you can always get Mondly. Just choose the language you always wanted to speak, and you can be conversational from day 1.
 
 ![hello in spanish](https://edge.mondly.com/blog/wp-content/uploads/2021/06/hello-in-spanish-960x640.jpg "How To Say &Quot;Hello&Quot; In Different Languages 6")
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  “Hello” by Octavian Dan©
 
@@ -191,8 +214,6 @@ _Olá_ , just like the Spanish_Hola_ , is suitable for any situation regardless 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -200,4 +221,17 @@ _Olá_ , just like the Spanish_Hola_ , is suitable for any situation regardless 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-videos.techidaily.com/109-funny-jokes-and-riddles-to-share-online/"><u>109 Funny Jokes & Riddles to Share Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brief-introduction-to-streamlined-czech-learning-online/"><u>Brief Introduction to Streamlined Czech Learning Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decipher-the-netflix-phenomenon-learn-korean/"><u>Decipher the Netflix Phenomenon: Learn Korean</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-language-growth-in-international-film/"><u>Discover Language Growth in International Film</u></a></li>
+<li><a href="https://win-answers.techidaily.com/how-microsofts-new-ai-strategy-may-challenge-the-future-of-mobile-gaming-computers/"><u>How Microsoft's New AI Strategy May Challenge the Future of Mobile Gaming Computers</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-a-lost-vivo-y27-4g-for-free-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track a Lost Vivo Y27 4G for Free? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/mastering-the-art-of-viral-videos-1mplus-audience-journey-for-2024/"><u>Mastering the Art of Viral Videos 1M+ Audience Journey for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580256637-pinnacle-online-hubs-learn-and-conquer-new-tongues-with-ease/"><u>Pinnacle Online Hubs: Learn and Conquer New Tongues with Ease</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/top-9-apple-iphone-x-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-ios/"><u>Top 9 Apple iPhone X Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/updated-top-10-ai-subtitle-translators-for-content-creators/"><u>Updated Top 10 AI Subtitle Translators for Content Creators</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Mondly Rewrites the Future of Multilingual Education with AR
-date: 2024-09-15T19:25:28.023Z
-updated: 2024-09-16T18:33:41.862Z
+date: 2024-09-24T23:40:07.840Z
+updated: 2024-10-01T21:35:07.105Z
 tags:
   - speak
   - english
@@ -30,6 +30,19 @@ thumbnail: https://thmb.techidaily.com/e02c41a99d42d63b7e95bafe0fe0df1b7497d09e9
 
 _ ![AUGMENTED REALITY LION](https://media.giphy.com/media/ckAvyr8RNxvc0Tbued/giphy.gif "The New Augmented Reality App From Mondly Is The Future Of Language Learning 2") _
 
+<!-- affiliate ads begin -->
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## _An out of this world encounter_
 
  _The**new augmented reality experience from Mondly** introduces us to a new character named Mondly with whom you can talk in various contexts (she can even change her outfit and become a waitress at the restaurant) and [learn a new language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) in the meantime. After all, we all know it is easier to learn a new language when you are being social. The rendez-vous  between me and my new virtual friend started after we scanned the room we were in using just the iPad’s camera. She immediately and seamlessly appeared in front of me. Her eyes met mine and I froze. It this even possible? That was just the beginning, but I already felt like a character in one of my favorite sci-fi shows._
@@ -42,6 +55,13 @@ _ ![AR Mondly Languages](https://media.giphy.com/media/5eF84ByiI55ql9Xyrk/giphy.
 
 _ ![AUGMENTED REALITY MONDLY LANGUAGES](https://media.giphy.com/media/gC1iUtDE9Tkh0wDx3O/giphy.gif "The New Augmented Reality App From Mondly Is The Future Of Language Learning 4") _
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## _Building the future of learning and teaching_
 
  _On a more serious note, the **new augmented reality app from [Mondly](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-1295&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-1295%26utm%5Fsource%3Dblog-post-id-1295&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-1295%26utm%5Fsource%3Dblog-post-id-1295&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-1295%26utm%5Fsource%3Dblog-post-id-1295&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-1295%26mt%3D8)**  uses technologies like chatbot and speech recognition and brings your conversational friend in your environment for a “face to face” interaction. For a more realistic effect, your virtual language learning assistant uses a human voice especially for you and uses your input to respond accordingly._
@@ -53,10 +73,10 @@ _ ![AR language learning app](https://media.giphy.com/media/C9pYCWN2mjxuWD0ufF/g
  _Now, I was indeed amazed, but there may be room for improvement. I’m sure that until the launch they will work more on the conversation topics, but when technology makes it possible I expect the character and the animals to be more realistic. I’ve seen it in games, so I’m sure that this will soon be possible in AR._
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115915/19272" target="_top" id="2115915">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115915" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115915/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## _Pokémon Go is cool, but can’t we all be a little more productive?_
@@ -66,10 +86,10 @@ _ ![AR language learning app](https://media.giphy.com/media/C9pYCWN2mjxuWD0ufF/g
 _ ![MondlyAR app](https://media.giphy.com/media/2yyH5SzNqpUzwwN3TZ/giphy.gif "The New Augmented Reality App From Mondly Is The Future Of Language Learning 6") _
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  _As I left their headquarters in my 2004 Peugeot 206, I realized that these people live in the future and I am a decade behind them. Hopefully, smart use of technology like theirs will help us make our way to the future._
@@ -96,5 +116,26 @@ _ ![MondlyAR app](https://media.giphy.com/media/2yyH5SzNqpUzwwN3TZ/giphy.gif "Th
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-enhance-visual-magnification-without-quality-loss/"><u>[New] Enhance Visual Magnification without Quality Loss</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-crafting-engaging-live-streamed-gaming-experiences/"><u>[Updated] Crafting Engaging Live-Streamed Gaming Experiences</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-how-to-use-luts-in-premiere-pro-for-2024/"><u>[Updated] How To Use LUTs In Premiere Pro for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-unveiling-the-mystery-of-private-storymaking-in-snapchat/"><u>[Updated] In 2024, Unveiling the Mystery of Private Storymaking in Snapchat</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/2024-approved-synchronized-group-challenges-in-anime-inspired-tiktok-videos/"><u>2024 Approved Synchronized Group Challenges in Anime-Inspired TikTok Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprender-y-leer-la-hora-el-primer-paso-en-espanol/"><u>Comprender Y Leer La Hora: El Primer Paso en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-the-heart-of-uk-vernacular/"><u>Discovering the Heart of UK Vernacular</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578993417-dive-into-a-new-culture-mastering-croatian-here-are-the-top-7-reasons/"><u>Dive Into a New Culture - Mastering Croatian: Here Are The Top 7 Reasons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-haste-make-fluent-urdu-within-minutes/"><u>Embrace Haste: Make Fluent Urdu Within Minutes</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-lost-data-from-motorola-moto-g-stylus-5g-2023-by-fonelab-android-recover-data/"><u>How to recover lost data from Motorola Moto G Stylus 5G (2023)?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-find-ispoofer-pro-activation-key-on-vivo-y55s-5g-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How to Find iSpoofer Pro Activation Key On Vivo Y55s 5G (2023)? | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-optical-stabilization-advantage-in-mobile-cinematography/"><u>In 2024, Optical Stabilization Advantage in Mobile Cinematography</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576640752-learn-slovak-swiftly-with-our-quick-10-minute-online-methods/"><u>Learn Slovak Swiftly with Our Quick 10-Minute Online Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580674820-mondly-merges-with-pearson-academics-inc/"><u>Mondly Merges with Pearson Academics Inc.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-where-quality-efficiency-and-fun-meet/"><u>Mondly: Where Quality, Efficiency, and Fun Meet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/portuguese-parallelism-brazilians-vs-europeans/"><u>Portuguese Parallelism: Brazilians Vs. Europeans</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/rapid-results-elevate-images-on-windows-11-for-2024/"><u>Rapid Results Elevate Images on Windows 11 for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-days-of-the-week-in-korean/"><u>The Days of the Week in Korean</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/what-is-msdia80dll-and-how-does-it-affect-your-pc-performance/"><u>What Is msdia80.dll and How Does It Affect Your PC Performance?</u></a></li>
+</ul></div>
 

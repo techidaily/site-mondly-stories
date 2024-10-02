@@ -1,7 +1,7 @@
 ---
 title: Russian Numbers – Learn How to Count in Russian
-date: 2024-09-21T18:53:18.176Z
-updated: 2024-09-26T20:01:50.862Z
+date: 2024-09-27T21:08:38.329Z
+updated: 2024-10-01T20:41:52.375Z
 tags:
   - speak
   - english
@@ -37,10 +37,10 @@ thumbnail: https://thmb.techidaily.com/50b8c0240239aa64db52b1f5d6c9798f04334cb3a
 * neuter: одно _(odno)_ ; два _(dva)_
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Learn how to count to 20 in Russian
@@ -64,10 +64,10 @@ If you did manage, good job! You must be a natural.
 ![russian numbers](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-numbers-600x424.jpg "Russian Numbers - Learn How To Count In Russian 4")
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Russian tens
@@ -87,10 +87,10 @@ And guess what! It works the same with the hundreds.
 ![russian hundreds](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-hundreds-600x424.jpg "Russian Numbers - Learn How To Count In Russian 5")
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Russian hundreds
@@ -100,10 +100,10 @@ And guess what! It works the same with the hundreds.
 Not as hard as you’d expect, is it?
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Russian ordinal numbers
@@ -151,22 +151,22 @@ Not as hard as you’d expect, is it?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/updated-how-video-testimonials-shape-perception-and-trust/"><u>[Updated] How Video Testimonials Shape Perception and Trust</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/communications-kings-in-asia-top-3-languages/"><u>Communication's Kings in Asia: Top 3 Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cultivate-communication-skills-with-pearson/"><u>Cultivate Communication Skills with Pearson</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/effortlessly-merge-gpt-4-with-your-current-chatgpt-use/"><u>Effortlessly Merge GPT-4 with Your Current ChatGPT Use</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/elite-aerial-camera-assistants-for-gopro-enthusiasts/"><u>Elite Aerial Camera Assistants for GoPro Enthusiasts</u></a></li>
-<li><a href="https://fox-that.techidaily.com/fast-solutions-resolve-issues-with-predictive-emojis-on-your-iphoneipad/"><u>Fast Solutions: Resolve Issues with Predictive Emojis on Your iPhone/iPad</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/fixing-the-infamous-video-dxgkrnl-bsod-issue-in-windows-11-step-by-step-guide/"><u>Fixing the Infamous Video Dxgkrnl BSOD Issue in Windows 11: Step-by-Step Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-competency-the-edge-of-being-bilingualmultilingual/"><u>Global Competency: The Edge Of Being Bilingual/Multilingual</u></a></li>
-<li><a href="https://change-location.techidaily.com/home-button-not-working-on-xiaomi-redmi-note-13-pro-5g-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on Xiaomi Redmi Note 13 Pro 5G? Here Are Real Fixes | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/romantic-revelations-love-verses-in-multiple-dialects/"><u>Romantic Revelations: Love Verses in Multiple Dialects</u></a></li>
-<li><a href="https://common-error.techidaily.com/solving-the-application-failed-to-load-error-code-0xc000007b-a-complete-guide/"><u>Solving the 'Application Failed to Load Error Code 0xC000007B' – A Complete Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/supercharge-your-second-language-skills-fast/"><u>Supercharge Your Second Language Skills, Fast!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-learning-croatian-top-7-reasons-explored/"><u>The Ultimate Guide to Learning Croatian – Top 7 Reasons Explored</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-5-apps-for-language-teachers/"><u>Top 5 Apps For Language Teachers</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/updated-final-cut-pro-tutorial-reversing-video-clips-made-easy-for-2024/"><u>Updated Final Cut Pro Tutorial Reversing Video Clips Made Easy for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/usb-audio-driver-updates-a-step-by-step-guide-for-windows-11107-users/"><u>USB Audio Driver Updates: A Step-by-Step Guide for Windows 11/10/7 Users</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/why-choose-german-herere-10-key-points/"><u>Why Choose German? Here're 10 Key Points</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-screen-to-air-assessing-obs-and-twitch-studios-features/"><u>[New] 2024 Approved Screen to Air Assessing OBS and Twitch Studio's Features</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-youtube-income-calculating-adsense-per-1k-viewer-for-2024/"><u>[Updated] Unlocking YouTube Income Calculating AdSense Per 1K Viewer for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/after-all-shed-say-if-it-worked-for-generations-why-change-it/"><u>After All, She'd Say, if It Worked for Generations, Why Change It?</u></a></li>
+<li><a href="https://android-frp.techidaily.com/easy-guide-how-to-bypass-nokia-g22-frp-android-10111213-by-drfone-android/"><u>Easy Guide How To Bypass Nokia G22 FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/honterus-a-man-of-purpose-and-passion/"><u>Honterus: A Man of Purpose and Passion</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-itel-p40plus-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Itel P40+ Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-honor-play-40c-by-drfone-android/"><u>In 2024, AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Honor Play 40C</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-integrates-with-pearson-education-hub/"><u>Mondly Integrates with Pearson Education Hub</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/reconhecidos-gritos-de-alegria-em-portugal-todas-as-variedades/"><u>Reconhecidos Gritos De Alegria Em Portugal - Todas as Variedades</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/serenades-of-solitude-intimate-italian-invitations/"><u>Serenades of Solitude: Intimate Italian Invitations</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-samsung-galaxy-s23-ultra-by-drfone-android/"><u>The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Samsung Galaxy S23 Ultra</u></a></li>
+<li><a href="https://video-capture.techidaily.com/the-ultimate-technique-for-converting-your-wide-videos-into-tall-formats/"><u>The Ultimate Technique for Converting Your Wide Videos Into Tall Formats</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/this-is-the-best-way-to-learn-finnish-online/"><u>This Is the Best Way to Learn Finnish Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transcending-tongues-the-key-to-romantic-success/"><u>Transcending Tongues: The Key to Romantic Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-truths-how-to-successfully-learn-new-languages/"><u>Unveiling Truths: How to Successfully Learn New Languages</u></a></li>
+<li><a href="https://article-tips.techidaily.com/win-and-mac-basic-guide-for-embedding-captions-in-images/"><u>Win & Mac Basic Guide for Embedding Captions in Images</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/your-guide-to-croatian-proficiency-understand-these-7-advantages/"><u>Your Guide to Croatian Proficiency: Understand These 7 Advantages!</u></a></li>
 </ul></div>
 

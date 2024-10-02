@@ -1,7 +1,7 @@
 ---
 title: プレゼンターズの日 (Japanese)
-date: 2024-09-22T18:28:04.162Z
-updated: 2024-09-26T21:02:49.691Z
+date: 2024-09-28T23:57:22.400Z
+updated: 2024-10-02T00:57:01.096Z
 tags:
   - speak
   - english
@@ -56,18 +56,32 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
 
 ![merry christmas in spanish](https://edge.mondly.com/blog/wp-content/uploads/2019/12/merry-christmas-in-spanish-1024x758.jpg "How To Say Merry Christmas In 21 Different Languages 2")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  “Santa and a fan” by Mike Arney©
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## French –_Joyeux Noël!_
 
  Do you want to see what Christmas magic and miracles really mean? Then add the movie with the same name –_Joyeux Noël_ – on your Christmas movies list and thank me later. I promise it won’t be cheesy. On the contrary!
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## German –_Frohe Weihnachten!_
 
@@ -89,16 +103,22 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
 
  Did you know that one of the most beautiful Christmas markets in Europe takes place in Sibiu? It’s almost like Santa had scattered magic dust all over the place. It’s breathtakingly beautiful!
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
-  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Russian –_Счастливого Рождества! (Schastlivogo Rozhdestva!)_
 
  While most countries celebrate Christmas on the 25th of December, Russia celebrates it on the 7th of January because the Russian Orthodox church uses “The old calendar” or the Julian calendar. And the 25th of December on the Julian calendar corresponds to the 7th of January in the Gregorian calendar.
+
+<!-- affiliate ads begin -->
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Swedish – _God Jul!_
 
@@ -124,13 +144,6 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
 
  “Christmas home” by Євгенія Височина©
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Icelandic –_Gleðileg Jól!_
 
  Jól (“Yule” or “Christmas”) in Iceland also includes the [New Year](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) celebrations.
@@ -138,6 +151,13 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
  It all starts on December 23 with Þorláksmessa or St. Thorlakur’s Day, when people eat a simple meal of_skata_ or_skate_ and decorate the Christmas tree. Then it continues with Aðfangadagur (Christmas Eve or Jól Eve), Jóladagur (Christmas Day or Jól Day) when the extended family meets and eats_Hangikjöt_ (a leg of roast lamb), Annar Jóladagur (Boxing Day) with more visiting and eating, Gamlárskvöld / Nýársdagur (New Year’s Eve / New Year’s Day) and – finally – Þrettándinn (Epiphany) that takes place on the 6th of January.
 
  I don’t know about you, but I think I’m moving to Iceland because Christmas sounds like a lot of fun there!
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Polish –_Wesołych Świąt!_
 
@@ -147,31 +167,24 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "How To Say Merry Christmas In 21 Different Languages 5")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Get on Santa's Nice List
 
  Last chance to get on Santa’s “Nice List” by learning languages with Mondly. 🎅
 
 [Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-4426&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4426&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4426&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4426&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-4426%26mt%3D8)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151872/7443" target="_top" id="2151872">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151872" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151872/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Dutch –_Vrolijk Kerstfeest!_
 
  Dutch tradition says that_Sinterklaas_ (or Sint-Nicolaas) lives in Spain and every year, on the 5th of December (St. Nicholas’ Eve), he arrives in a different harbor in The Netherlands so as many children as possible get a chance to see him.
 
  But Dutch Christmas celebrations are separate from the visit of Sinterklaas. On Christmas Eve,_Kerstman_ (“Christmas Man”) comes from Lapland to bring even more presents (Dutch kids are the luckiest!). Then, on Christmas Day, the celebration continues with a Church Service and family meal.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Croatian –_Sretan Božić!_
 
@@ -191,13 +204,6 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
 
  If you want to say “Merry Christmas” in Japanese, you can simply use the phrase “Merīkurisumasu!” which is a transliteration or adaptation of the English phrase “Merry Christmas”.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Latin –_Felicem Natalem Christi!_
 
  To say “Merry Christmas” in Latin, you can use the phrase “Felicem Natalem Christi”. This expression is derived from the Latin words “felicem”, which means ‘happy’ or ‘joyful’; “natalem”, which means ‘birthday’ or ‘nativity’; and “Christi”, which is the genitive form of “Christus”, meaning Christ. Therefore,_Felicem Natalem Christi_ can be translated as “happy birthday of Christ” or “joyful nativity of Christ” in reference to the birth of Jesus Christ.
@@ -214,18 +220,18 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
 
 “Merry Christmas” in Korean writing looks like this: 메리 크리스마스.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Irish –_Nollaig Shona!_
 
  Just like anywhere else, in Ireland, Christmas is a time for celebrating with family and friends. Many people attend church services and celebrate the holiday with traditional meals and activities. Christmas Eve is typically a time for visiting with friends, while Christmas Day is spent at home with family. Popular traditions include decorating the Christmas tree, singing carols, and exchanging gifts.
 
  “Merry Christmas” in Irish is_Nollaig Shona_ and it translates to “Merry Christmas to you”, rather than simply “Merry Xmas”.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Bonus: How to say Merry Christmas in 100 more languages
 
@@ -342,10 +348,10 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How does Santa know so many languages? This is his secret
@@ -379,20 +385,24 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-capturing-desktop-anytime-on-windows/"><u>[New] 2024 Approved Capturing Desktop, Anytime on Windows</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-peephole-to-private-facebook-worlds/"><u>2024 Approved Peephole to Private Facebook Worlds</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/advance-your-teaching-with-these-top-5-language-apps/"><u>Advance Your Teaching with These Top 5 Language Apps</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/it-master/"><u>ArtEdit Master</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/crafting-impressive-videos-with-the-best-methods-for-obs-studio/"><u>Crafting Impressive Videos with the Best Methods for OBS Studio</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/echoes-in-english-the-ever-present-bards-speech/"><u>Echoes in English: The Ever-Present Bard's Speech</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/german-vs-french-assessing-linguistic-practicality/"><u>German vs French: Assessing Linguistic Practicality</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-revive-lost-iphone-x-key-tips-and-tricks-shared-here/"><u>In 2024, Revive Lost iPhone X Key Tips and Tricks Shared Here</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-stealth-mode-a-guide-to-living-large-unlabeled/"><u>In 2024, Stealth Mode A Guide to Living Large, Unlabeled</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-unlocking-the-power-of-smart-lock-a-beginners-guide-for-vivo-s17e-users-by-drfone-android/"><u>In 2024, Unlocking the Power of Smart Lock A Beginners Guide for Vivo S17e Users</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/multilingual-cupids-arrow-say-i-love-you-more-ways/"><u>Multilingual Cupid’s Arrow: Say 'I Love You' More Ways!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/nombre-de-bichos-en-espanol-60-puntos-clave/"><u>Nombre De Bichos en Español: 60 Puntos Clave</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/1723016453253-troubleshooting-the-non-functional-logitech-g633-mic-solutions-inside/"><u>Troubleshooting the Non-Functional Logitech G633 Mic - Solutions Inside!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/turkish-korean-conversation-mysteries-unraveled/"><u>Turkish-Korean Conversation Mysteries Unraveled</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/two-anniversary-mondlylanguages-unforgettable-aspirations/"><u>Two Anniversary: MondlyLanguages, Unforgettable Aspirations</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-launching-winning-steps-for-an-epic-youtube-gaming-channel/"><u>[New] 2024 Approved Launching Winning Steps for an Epic YouTube Gaming Channel</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-constructing-captivating-valorant-youtube-thumbnails-for-2024/"><u>[New] Constructing Captivating Valorant YouTube Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/levate-your-videos-visibility-with-perfect-thumbnail-sizing/"><u>[New] Elevate Your Video's Visibility with Perfect Thumbnail Sizing</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/define-objectives-and-research-questions/"><u>Define Objectives and Research Questions:</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-lost-data-from-iphone-13-pro-max-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How To Recover Lost Data from iPhone 13 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-resolve-oppo-a1-5g-screen-not-working-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Resolve Oppo A1 5G Screen Not Working | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-honor-90-lite-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Honor 90 Lite? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jours-francais-traditionnel/"><u>Jours Français Traditionnel</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oldest-languages-a-journey-through-time-and-sound/"><u>Oldest Languages: A Journey Through Time and Sound</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/policy-updates-for-better-privacy/"><u>Policy Updates for Better Privacy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-glance-mastering-french-colorful-speech/"><u>Quick Glance: Mastering French Colorful Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saying-thanks-right-learning-chinese-formalities/"><u>Saying Thanks Right: Learning Chinese Formalities</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/serene-sentiments-on-silver-screen/"><u>Serene Sentiments on Silver Screen</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/soluciones-rapidas-para-quitar-ojos-rojos-en-fotografias-usando-movavis-tools/"><u>Soluciones Rápidas Para Quitar Ojos Rojos en Fotografías Usando Movavi's Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-bulgarian-flawlessly-minutes-only/"><u>Speak Bulgarian Flawlessly - Minutes Only</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-conversing-naturally-with-french-expressions/"><u>The Art of Conversing Naturally with French Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukranian-skills-amp-up-with-daily-10-min-sessions-103-chars/"><u>Ukranian Skills: Amp up with Daily 10-Min Sessions (103 Chars)</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/ultimate-guide-recording-your-youtube-livestreams/"><u>Ultimate Guide Recording Your YouTube Livestreams</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/visual-unity-ai-driven-instavideo-compilation/"><u>Visual Unity AI-Driven InstaVideo Compilation</u></a></li>
 </ul></div>
 

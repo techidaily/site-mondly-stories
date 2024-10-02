@@ -1,7 +1,7 @@
 ---
 title: "Packed with Phrases: Top 100+ Expressions for French Tourists"
-date: 2024-09-01T00:33:24.644Z
-updated: 2024-09-02T00:33:24.644Z
+date: 2024-09-27T17:19:22.445Z
+updated: 2024-10-01T20:20:52.744Z
 tags:
   - speak
   - english
@@ -90,9 +90,6 @@ thumbnail: https://thmb.techidaily.com/84772a0e20318a50277b6d80239d31259f3d754cb
 * Is this seat taken? –_Est-ce que cette place est libre?_
 * I would like to change my seat. –_J’aimerais changer de place._
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ## 3\. Basic French for travelers who need help
 
  Getting lost in Paris, Nice, Marseille, or Cannes wouldn’t be so bad, wouldn’t it? It actually sounds like the perfect vacation, but the harsh reality of having a plane to catch and a boss to make happy will eventually ruin your dream.**Do you know how to say “where is the airport” in French** ? Or “where is a pharmacy”? Switch your survival mode on and learn to ask the best questions in French.
@@ -111,10 +108,6 @@ thumbnail: https://thmb.techidaily.com/84772a0e20318a50277b6d80239d31259f3d754cb
 
 ![basic french phrases](https://edge.mondly.com/blog/wp-content/uploads/2018/09/basic-french-phrases-1024x686.jpg "100+ French Travel Phrases You'Ll Need To Fall In Love With Paris 5")
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
  “Nice, France” by @Oscar Nord
 
 * Where is a pharmacy? –_Où est la pharmacie?_
@@ -140,14 +133,25 @@ thumbnail: https://thmb.techidaily.com/84772a0e20318a50277b6d80239d31259f3d754cb
 ![basic french sentences](https://edge.mondly.com/blog/wp-content/uploads/2018/09/basic-french-sentences-scaled-960x641.jpg "100+ French Travel Phrases You'Ll Need To Fall In Love With Paris 6")
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Paris by night by ©Jez Timms
 
 * Thank you for your help. –_Merci pour votre aide._
 * How was your stay with us? –_Comment a été votre séjour chez nous?_
 * Very pleasant, thank you. –_Très agréable, merci._
 * Here is your bill, please look it over. –_Voici votre facture, vérifiez-la, s’il vous plaît._
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. French travel phrases to help you experience French cuisine like a native
 
@@ -166,6 +170,13 @@ thumbnail: https://thmb.techidaily.com/84772a0e20318a50277b6d80239d31259f3d754cb
 
 ![french expressions](https://edge.mondly.com/blog/wp-content/uploads/2018/09/french-expressions-1024x682.jpg "100+ French Travel Phrases You'Ll Need To Fall In Love With Paris 7")
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  “Des crêpes” by ©Alisa Anton
 
 * I would like a tea with lemon. –_Je voudrais un thé au citron._
@@ -180,6 +191,13 @@ thumbnail: https://thmb.techidaily.com/84772a0e20318a50277b6d80239d31259f3d754cb
 * We would like to have lunch. –_Nous voudrions déjeuner._
 * We would like to have dinner. –_Nous voudrions dîner._
 * What would you like for breakfast? –_Que désirez-vous pour le petit déjeuner?_
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 6\. Common French phrases for tourists who want to have fun
 
@@ -215,17 +233,18 @@ thumbnail: https://thmb.techidaily.com/84772a0e20318a50277b6d80239d31259f3d754cb
 * Can I have some ice cream? –_Je peux avoir une glace?_
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 8\. French love quotes and expressions for French love stories
 
  A short love story or an unexpected marriage proposal is every girl’s secret dream when traveling to France. Boys, don’t tie your shoelaces in Paris! You’ve been warned!
 
 ![basic french travel phrases](https://edge.mondly.com/blog/wp-content/uploads/2018/09/basic-french-travel-phrases-scaled-640x960.jpg "100+ French Travel Phrases You'Ll Need To Fall In Love With Paris 9")
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
  ©Gijs Coolen
 
  But if you manage to get caught up in a passionate love story – “by mistake”, of course – it will be so much better if you have your**French phrasebook** on point. It’s time to get real and admit it! Travel phrases are not just for travel, they are also for connecting with new friends or maybe even… lovers?! Who knows? Poor Prince Charming could be stuck in a tree somewhere waiting. Travel as much as possible and find him when you least expect it.
@@ -241,9 +260,6 @@ thumbnail: https://thmb.techidaily.com/84772a0e20318a50277b6d80239d31259f3d754cb
 
 ![french love quotes](https://edge.mondly.com/blog/wp-content/uploads/2018/09/french-love-quotes-683x1024.jpg "100+ French Travel Phrases You'Ll Need To Fall In Love With Paris 10")
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<!-- affiliate ads end -->
  “Love” by ©Cedric Klei
 
 * May I kiss you? –_Puis-je t’embrasser?_
@@ -277,8 +293,6 @@ thumbnail: https://thmb.techidaily.com/84772a0e20318a50277b6d80239d31259f3d754cb
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -286,4 +300,19 @@ thumbnail: https://thmb.techidaily.com/84772a0e20318a50277b6d80239d31259f3d754cb
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-skills.techidaily.com/new-speedy-sound-solutions-for-smartphone-users/"><u>[New] Speedy Sound Solutions for Smartphone Users</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-rise-above-the-noise-must-have-video-seo-tools/"><u>[Updated] Rise Above the Noise – Must-Have Video SEO Tools</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-premier-monitors-top-5-for-ps5-and-xbox-players/"><u>[Updated] The Premier Monitors Top 5 for PS5 & Xbox Players</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/5-profound-impacts-of-multilingual-communication/"><u>5 Profound Impacts of Multilingual Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/athenas-articulation-the-evolution-of-hellenic-speech/"><u>Athena’s Articulation: The Evolution of Hellenic Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aufforderungen-mit-bedauern-deutsche-formulierung-lernen/"><u>Aufforderungen Mit Bedauern – Deutsche Formulierung Lernen</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/break-the-cycle-of-interruptions-remedies-to-prevent-your-pc-from-freezing/"><u>Break the Cycle of Interruptions: Remedies to Prevent Your PC From Freezing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/choosing-the-most-useful-european-language-germanfrench-dilemshift/"><u>Choosing the Most Useful European Language: German/French Dilemshift</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/distinct-keyboard-shortcuts-analyzing-brazilian-and-european-pt/"><u>Distinct Keyboard Shortcuts: Analyzing Brazilian & European PT</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-ultimate-guide-to-free-pptp-vpn-for-beginners-on-honor-x9b-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Free PPTP VPN For Beginners On Honor X9b | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/insights-and-assessment-the-google-wireless-nest-doorbell-experience/"><u>Insights and Assessment: The Google Wireless Nest Doorbell Experience</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/which-tool-reigns-supreme-in-translations-analyzing-chatgpt-against-google-translate/"><u>Which Tool Reigns Supreme in Translations? Analyzing ChatGPT Against Google Translate</u></a></li>
+</ul></div>
 

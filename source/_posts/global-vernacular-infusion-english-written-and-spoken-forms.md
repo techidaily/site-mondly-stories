@@ -1,7 +1,7 @@
 ---
 title: "Global Vernacular Infusion: English' Written and Spoken Forms"
-date: 2024-09-22T19:18:52.604Z
-updated: 2024-09-26T17:51:44.034Z
+date: 2024-09-24T16:42:21.093Z
+updated: 2024-10-01T16:08:19.564Z
 tags:
   - speak
   - english
@@ -37,6 +37,13 @@ thumbnail: https://thmb.techidaily.com/459b794516e41ca817af82c1c22066d193c455f48
  Early Modern English began in the late 15th century with the Renaissance trend of borrowing Latin and Greek words and roots, which also coincided with the Great Vowel Shift. The era culminated in the King James Bible and the works of William Shakespeare.
 
  While the question may sound funny (“where did English come from?”), it is a popular inquiry among Google users for obvious reasons. After all, 1.3 billion people worldwide speak English either natively or as a second language. It’s only natural for them to be curious about the origin of the English language.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## English Words from Foreign Languages
 
@@ -81,28 +88,15 @@ thumbnail: https://thmb.techidaily.com/459b794516e41ca817af82c1c22066d193c455f48
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "100+ English Words Borrowed From Other Languages 5")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Improve your English fast 🚀
 
  With Mondly, English mastery is at your fingertips – and in your native tongue. Start today ![Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-9827&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-9827%26mt%3D8)
 
 <!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## French loanwords: English words that are actually French
@@ -133,6 +127,13 @@ thumbnail: https://thmb.techidaily.com/459b794516e41ca817af82c1c22066d193c455f48
 
  Did you know that approximately**30% of the English vocabulary** consists of words that have their origins in**French and Latin** ? Considering that French was the language of the English king and his court for over 300 years, it’s no surprise. During that time, as many as 10,000 French loanwords came into English.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Spanish loanwords: English words that are actually Spanish
 
 | Chinchilla |
@@ -154,13 +155,6 @@ thumbnail: https://thmb.techidaily.com/459b794516e41ca817af82c1c22066d193c455f48
 | Guacamole  |
 
  Unlike French loanwords which have been adapted into British English, most of the**Spanish loanwords entered English via the North American English route.** Cultural exchanges between [Spanish-speaking](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and English-speaking communities led to an influx of loanwords related to food and music in particular. For example, words like “guacamole”, “salsa” and “piñata” have been borrowed into English from Spanish due to the popularity of the Mexican culture in the United States.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Italian loanwords: English words that are actually Italian
 
@@ -215,10 +209,10 @@ thumbnail: https://thmb.techidaily.com/459b794516e41ca817af82c1c22066d193c455f48
  Some of the first German words were borrowed into English during the interactions between Germanic-speaking tribes and English-speaking communities in early medieval Europe. Words related to everyday life, family, and community were among the earliest borrowings. Later, thanks to Germany’s influence in various fields, English borrowed German words related to science and technology, music, philosophy, literature and engineering.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Understanding the Size of the English Vocabulary
@@ -279,20 +273,14 @@ Coming Soon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-the-ten-pillars-of-meme-creation/"><u>[Updated] 2024 Approved The Ten Pillars of Meme Creation</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-channel-image-makeovers-on-the-house/"><u>[Updated] Channel Image Makeovers on the House</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-unlock-the-power-of-podcasts-15-task-filled-activities-to-do-while-listening-to-your-favorite-talk-shows/"><u>[Updated] Unlock the Power of Podcasts 15 Task-Filled Activities to Do While Listening to Your Favorite Talk Shows</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-closer-look-at-five-false-beliefs-in-language-education/"><u>A Closer Look at Five False Beliefs in Language Education</u></a></li>
-<li><a href="https://media-tips.techidaily.com/best-alternative-applications-to-format-your-drive-on-mac-or-windows-11-systems/"><u>Best Alternative Applications to Format Your Drive on Mac or Windows 11 Systems</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/comenzar-a-conocer-el-tiempo-en-espanol/"><u>Comenzar a Conocer El Tiempo en Español</u></a></li>
-<li><a href="https://common-error.techidaily.com/how-to-correctly-resolve-error-code-0x80072f8f-on-your-pc-windows/"><u>How to Correctly Resolve Error Code 0X80072F8F on Your PC (Windows)</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-delete-icloud-account-remove-your-apple-id-permanently-on-iphone-xs-by-drfone-ios/"><u>How To Delete iCloud Account Remove Your Apple ID Permanently On iPhone XS</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-ensuring-long-term-youtube-success-with-creative-commons-mainteninas/"><u>In 2024, Ensuring Long-Term YouTube Success with Creative Commons Mainteninas</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/knowledge-for-all-honoring-the-1500th-of-costless-daily-lessons/"><u>Knowledge for All: Honoring the 1500Th of Costless Daily Lessons</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-family-edition-google-plays-best-kids-app-of-the-year/"><u>Mondly Family Edition: Google Play's Best Kids App of the Year</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/transforming-gaming-logs-alternatives-to-fbx-recording/"><u>Transforming Gaming Logs Alternatives to FBX Recording</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ukrainian-and-russian-how-similar-are-these-two-languages/"><u>Ukrainian and Russian: How Similar Are These Two Languages?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-team-efficiency-the-best-language-learning-apps/"><u>Unlocking Team Efficiency: The Best Language Learning Apps</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unveiling-the-basics-of-chinese-social-interactions/"><u>Unveiling the Basics of Chinese Social Interactions</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-charting-success-navigating-youtube-statistics-with-social-blade/"><u>[New] In 2024, Charting Success Navigating YouTube Statistics with Social Blade</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-google-ar-stickers-explained-with-comparative-alternatives/"><u>2024 Approved Google AR Stickers Explained with Comparative Alternatives</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-expertly-selected-360-cameras-for-youtube-and-facebook/"><u>In 2024, Expertly Selected 360° Cameras for YouTube & Facebook</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-simplysnap-screen-shots-for-w10-users/"><u>In 2024, SimplySnap Screen Shots for W10 Users</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/low-cost-lift-offs-the-most-affordable-drone-options-for-2024/"><u>Low-Cost Lift-Offs The Most Affordable Drone Options for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-editor-choice-for-enhanced-language-acquisition/"><u>Mondly's Editor Choice for Enhanced Language Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-lifespan-in-learning-7-triumphant-years/"><u>Mondly's Lifespan in Learning: 7 Triumphant Years</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/reflecting-on-10-years-mondlybacks-filters-evolution/"><u>Reflecting on 10 Years: MondlyBack's Filters Evolution</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speech-clarity-100-eng-exerited-tongue-challenges/"><u>Speech Clarity: 100 Eng Exerited Tongue Challenges</u></a></li>
 </ul></div>
 

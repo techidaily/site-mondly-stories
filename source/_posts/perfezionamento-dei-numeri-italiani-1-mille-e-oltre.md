@@ -1,7 +1,7 @@
 ---
 title: "Perfezionamento Dei Numeri Italiani: 1 - Mille E Oltre"
-date: 2024-09-01T00:32:25.656Z
-updated: 2024-09-02T00:32:25.656Z
+date: 2024-09-30T00:21:06.606Z
+updated: 2024-10-01T16:11:13.484Z
 tags:
   - speak
   - english
@@ -52,6 +52,13 @@ Here’s how to write and pronounce the Italian numbers 1-10:
 
 **Good to know:**Italian cardinal numbers don’t change suffixes according to the gender of the noun they determine. The only exception is 1_(uno)_. Thus, when you talk about a feminine noun, you’ll say_una_instead of_uno_:_Ho comprato una casa_(“I bought a house.”)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087262/19272" target="_top" id="2087262">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087262" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087262/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Italian numbers 11-20
 
  Imagine this: you are on the famous Amalfi Coast. The weather is perfect. And let’s say you want to buy 12 slices of the yummiest Italian pizza you’ve ever seen: two slices for you and each one of your friends. The problem is you only have 10 fingers to sign to the lady at the counter. Wouldn’t it be easier if you knew some [Italian expressions](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ?
@@ -89,8 +96,12 @@ Let’s see some examples:
 * to say “20 children”, you’ll say_venti bambini_
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Italian numbers to 30 and beyond
 
  Essentially, Italian numbers are very similar to English numbers. Once you get to 20, you just put together the tens with the single numbers (units). The best part is that Italian doesn’t even require spaces or hyphens. For example, if you want to say 22 (“twenty-two”), in Italian you say venti (20) + due (2) = _**venti** due_ (22).
@@ -103,9 +114,6 @@ Let’s see some examples:
 
  See how easy Italian numbers are? The only thing you have to remember is that the final vowel of the tens disappears when you add 1_(uno)_ or 8_(otto)_ . Thus, you’ll say _**vent** uno_ and not “ventiuno”. Additionally, number 3_(tre)_ gains an accent mark on the final vowel. For example, 33 will be_trentatré_ and 83 will be_ottantatré._
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
 ### Count tens in Italian
 
  Except for 10_(dieci)_ and 20_(venti)_ , all tens digits in Italian are based on their roots. Once you know all of them, you’ll know how to count to 100 – which is_cento_ – in Italian.
@@ -140,8 +148,12 @@ Let’s see some examples:
 * 98 – _novant**otto**_
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Italian numbers 100 to 1000 and beyond
 
  The same rules apply to bigger numbers as well. Add the suffix_cento_ to the multiplier digit and here are your hundreds:
@@ -171,8 +183,12 @@ Let’s see some examples:
 ![italian numbers pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2020/05/italian-numbers-pronunciation-960x640.jpg "Italian Numbers Made Easy - Count To 1000 And Beyond In Italian 3")
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  “The Amalfi Coast” by Gregory Smirnov©
 
  Back to counting, from 100 and beyond, the bigger the number is, the longer its written form. Italian doesn’t isolate hundreds, tens and ones. They become one long word with no hyphens or spaces. For example:
@@ -235,8 +251,6 @@ Let’s see some examples:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -244,4 +258,21 @@ Let’s see some examples:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-virality-voyage-navigating-newsfeeds-with-noteworthy-posts/"><u>[Updated] 2024 Approved Virality Voyage Navigating Newsfeeds with Noteworthy Posts</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-dial-up-the-tempo-top-apps-speed-up-videos-for-2024/"><u>[Updated] Dial Up the Tempo Top Apps Speed Up Videos for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-prime-hash-monitoring-apps-for-social-media-giants-fb-tweetinsta/"><u>[Updated] Prime Hash Monitoring Apps for Social Media Giants (FB, Tweet/Insta)</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-youtube-tricks-for-enhancing-screen-real-estate/"><u>[Updated] YouTube Tricks for Enhancing Screen Real Estate</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-minutes-a-day-bengali-made-simple/"><u>10 Minutes a Day: Bengali Made Simple</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bilingual-bliss-dive-into-new-language-realities-with-vr/"><u>Bilingual Bliss: Dive Into New Language Realities with VR</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/break-barriers-with-mondly-1-for-language-learning-2022-edition/"><u>Break Barriers with Mondly: #1 for Language Learning, 2022 Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cifre-e-parole-unisciamo-la-comunicazione-con-i-numeri-italiani/"><u>Cifre E Parole - Unisciamo La Comunicazione Con I Numeri Italiani</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/colloquial-contrasts-rio-vs-romes-linguistic-landscapes/"><u>Colloquial Contrasts: Rio Vs. Rome's Linguistic Landscapes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevate-your-speaking-with-pearson-language-services/"><u>Elevate Your Speaking with Pearson Language Services</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/how-to-erase-everything-from-your-iphone-top-10-software-recommendations/"><u>How to Erase Everything From Your iPhone: Top 10 Software Recommendations</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-oneplus-ace-3-fixed-drfone-by-drfone-virtual-android/"><u>iSpoofer is not working On OnePlus Ace 3? Fixed | Dr.fone</u></a></li>
+<li><a href="https://win-answers.techidaily.com/macavi/"><u>Mac上でAVIファイルをスムーズに再生するコツとエラー対策</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/the-hidden-perils-behind-budget-windows-activation-codes/"><u>The Hidden Perils Behind Budget Windows Activation Codes</u></a></li>
+</ul></div>
 

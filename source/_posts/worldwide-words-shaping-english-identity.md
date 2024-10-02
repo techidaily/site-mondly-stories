@@ -1,7 +1,7 @@
 ---
 title: Worldwide Words Shaping English Identity
-date: 2024-09-25T16:29:52.928Z
-updated: 2024-09-26T16:35:25.780Z
+date: 2024-09-29T19:31:34.694Z
+updated: 2024-10-01T16:21:58.786Z
 tags:
   - speak
   - english
@@ -73,13 +73,6 @@ thumbnail: https://thmb.techidaily.com/014d79402613effc6daacc66a3f2a300ba2df5a4c
 
 ![English foreign words](https://edge.mondly.com/blog/wp-content/uploads/2024/01/english-foreign-words-600x600.png "100+ English Words Borrowed From Other Languages 4")
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
-  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Although we usually call them “borrowed words”, these are also known as loanwords. According to Oxford Languages,**a loanword** is_“a word adopted from a foreign language with little or no modification”_ . The transition from one language to another can happen through:
 
 * **Transcription,** which means borrowing words while preserving their original pronunciation in the borrowed language;
@@ -89,10 +82,10 @@ thumbnail: https://thmb.techidaily.com/014d79402613effc6daacc66a3f2a300ba2df5a4c
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "100+ English Words Borrowed From Other Languages 5")
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ##### Improve your English fast 🚀
@@ -100,17 +93,10 @@ thumbnail: https://thmb.techidaily.com/014d79402613effc6daacc66a3f2a300ba2df5a4c
  With Mondly, English mastery is at your fingertips – and in your native tongue. Start today ![Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-9827&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-9827%26mt%3D8)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## French loanwords: English words that are actually French
@@ -163,6 +149,19 @@ thumbnail: https://thmb.techidaily.com/014d79402613effc6daacc66a3f2a300ba2df5a4c
 
  Unlike French loanwords which have been adapted into British English, most of the**Spanish loanwords entered English via the North American English route.** Cultural exchanges between [Spanish-speaking](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and English-speaking communities led to an influx of loanwords related to food and music in particular. For example, words like “guacamole”, “salsa” and “piñata” have been borrowed into English from Spanish due to the popularity of the Mexican culture in the United States.
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Italian loanwords: English words that are actually Italian
 
 | Zucchini  |
@@ -190,6 +189,13 @@ thumbnail: https://thmb.techidaily.com/014d79402613effc6daacc66a3f2a300ba2df5a4c
 | Balcony   |
 
  Thanks to Italy’s cultural influence throughout history, especially during the Renaissance period, many languages borrowed its words. Italian words related to art, music, architecture and cuisine have an especially high predominance in the English vocabulary.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## German loanwords: English words that are actually German
 
@@ -273,21 +279,22 @@ Coming Soon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/ransformative-tutorials-into-thriving-treasuries-for-2024/"><u>[New] Transformative Tutorials Into Thriving Treasuries for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-circumventing-edgenuity-effortlessly-a-students-guide-for-2024/"><u>[Updated] Circumventing Edgenuity Effortlessly A Student's Guide for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-experts-pick-essential-plugins-to-elevate-your-ae-projects/"><u>2024 Approved Expert's Pick Essential Plugins to Elevate Your AE Projects</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-how-to-share-videos-on-facebook/"><u>2024 Approved How to Share Videos on Facebook?</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-mp3-from-tweeted-media-a-step-by-step-guide/"><u>2024 Approved MP3 From Tweeted Media A Step-by-Step Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/comparative-analysis-of-german-vs-french-languages-usability/"><u>Comparative Analysis of German vs French Languages' Usability</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-android-to-apple-how-to-transfer-photos-from-honor-90-lite-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Android to Apple How To Transfer Photos From Honor 90 Lite to iPad Easily | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-ultimate-guide-on-samsung-galaxy-a25-5g-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide on Samsung Galaxy A25 5G FRP Bypass</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-motorola-moto-g84-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Motorola Moto G84 5G | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580253916-quick-language-leap-slovak-essentials-learned-in-10-minute-spurts/"><u>Quick Language Leap: Slovak Essentials Learned in 10-Minute Spurts!</u></a></li>
-<li><a href="https://review-topics.techidaily.com/quickly-remove-google-frp-lock-on-itel-p55-by-drfone-android-unlock-remove-google-frp/"><u>Quickly Remove Google FRP Lock on Itel P55</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-blueprint-behind-mondlys-education/"><u>The Blueprint Behind Mondly's Education</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-mastering-spaniard-diacritical-marks/"><u>The Ultimate Guide to Mastering Spaniard Diacritical Marks</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unearthing-the-worlds-largest-word-existence/"><u>Unearthing the World's Largest Word Existence</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/vr-linguistics-redefined-by-mondlys-innovative-ar-app/"><u>VR Linguistics Redefined by Mondly's Innovative AR App</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/words-worth-dining-with-top-tier-phrases-for-romantic-encounters/"><u>Words Worth Dining With: Top-Tier Phrases for Romantic Encounters</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-unveiling-the-art-of-cinematography-basic-shots-explained/"><u>2024 Approved Unveiling the Art of Cinematography Basic Shots Explained</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/enhance-visibility-with-any-channel-title-through-free-makers/"><u>Enhance Visibility With Any Channel Title Through Free Makers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/future-of-fun-elite-gaming-consoles-set-to-rock-2024/"><u>Future of Fun: Elite Gaming Consoles Set to Rock 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-grats-learn-thank-you-in-30-diverse-languages-156/"><u>Global Grats: Learn Thank You in 30 Diverse Languages (156)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/heartfelt-harbingers-love-in-italian-vernacular/"><u>Heartfelt Harbingers: Love in Italian Vernacular</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-downgrade-iphone-6-plus-without-data-loss-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone 6 Plus without Data Loss? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-remove-honor-v-purse-pin-by-drfone-android-unlock-android-unlock/"><u>How to remove Honor V Purse PIN</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unlocking-creativity-free-animation-techniques/"><u>In 2024, Unlocking Creativity Free Animation Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/key-words-for-successful-journeys-top-93-spanish-travel-essentials/"><u>Key Words for Successful Journeys: Top 93 Spanish Travel Essentials</u></a></li>
+<li><a href="https://review-topics.techidaily.com/remove-google-frp-lock-on-camon-20-premier-5g-by-drfone-android-unlock-remove-google-frp/"><u>Remove Google FRP lock on Camon 20 Premier 5G</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/restoring-playback-quality-of-damaged-mov-files-on-macos/"><u>Restoring Playback Quality of Damaged MOV Files on macOS</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spirits-and-spuds-global-trends-of-halloween/"><u>Spirits and Spuds: Global Trends of Halloween</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sweet-notion-romance-in-italys-lexicon/"><u>Sweet Notion: Romance in Italy's Lexicon</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-cognitive-boost-of-language-mastery-after-50/"><u>The Cognitive Boost of Language Mastery After 50</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-enchantment-of-farsi-history-and-its-skills-payoff/"><u>The Enchantment of Farsi History & Its Skills Payoff</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlimited-premium-mondly-for-a-limited-price/"><u>Unlimited Premium Mondly for a Limited Price</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/unlock-your-device-icloud-dns-bypass-explained-and-tested-plus-easy-alternatives-on-apple-iphone-14-by-drfone-ios/"><u>Unlock Your Device iCloud DNS Bypass Explained and Tested, Plus Easy Alternatives On Apple iPhone 14</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Navigating Through Basic German Letters & Sounds
-date: 2024-09-01T00:34:07.629Z
-updated: 2024-09-02T00:34:07.629Z
+date: 2024-09-28T16:07:01.082Z
+updated: 2024-10-01T17:56:08.993Z
 tags:
   - speak
   - english
@@ -26,6 +26,13 @@ thumbnail: https://thmb.techidaily.com/749e7224dc77351db9654f3d5b625401a4538e3e0
 
  Considering you’re already familiar with all the other letters, let’s continue by taking a closer look at these four special letters: ß, ä, ö and ü.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### ß also known as ‘sharp S’, ‘eszett’ or ‘scharfes S’
 
  Although it looks different from everything you’ve ever seen in English, ß shouldn’t intimidate you. Vaguely resembling a capital ‘B’,**the letter ß is pronounced like a sharp S** (like the ‘s’ in ‘see’) – hence its name ‘eszett’ or ‘scharfes S’.
@@ -34,9 +41,6 @@ thumbnail: https://thmb.techidaily.com/749e7224dc77351db9654f3d5b625401a4538e3e0
 
  Eszett not having a capitalized version sparked debates for a long time, so the Council for German Orthography [officially adopted](https://www.sueddeutsche.de/bildung/rechtschreibung-das-alphabet-bekommt-einen-neuen-buchstaben-1.3566309) a capital in 2017\. The capital of ß is ẞ.
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### German umlauts: ä, ö, ü
 
  While highly representative for the German language, the German umlauts are ‘guilty’ of making the most uncommon sounds to English speakers.
@@ -54,11 +58,19 @@ Now round off your lips and start practicing!
 ![german alphabet](https://edge.mondly.com/blog/wp-content/uploads/2022/04/german-alphabet-960x640.jpg "A Beginner’s Guide To The German Pronunciation &Amp; Alphabet 2")
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## German pronunciation guide for single letters
 
  Now that we’ve settled the matters with ß, ä, ö and ü, it’s time to move on to more familiar letters and see how their pronunciation differs from English.
@@ -74,8 +86,12 @@ Now round off your lips and start practicing!
 5. **E** – If you see an _e_ at the end of a German word, make sure to pronounce it like this: ‘eh’. Come on! Loud and clear: _Katze_ (‘cat’)!
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## German pronunciation guide for letter combinations
 
  Just a few more examples and you’ll soon be ready to speak like a German! Let’s see how you should pronounce certain letter combinations in German:
@@ -93,9 +109,6 @@ Now round off your lips and start practicing!
 
  Did you recognize_ze rules_ in this example?
 
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to pronounce long German words
 
 _Ja,_ the German language is famous for its very long words, but once again – this shouldn’t intimidate you. Most [German words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) are, in fact, compounds.
@@ -133,8 +146,6 @@ _Tschüss!_
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -142,4 +153,26 @@ _Tschüss!_
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-selecting-the-superior-hexacopters-for-2024/"><u>[New] Selecting the Superior HexaCopters for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/6-must-see-danish-productions-boosting-language-gain/"><u>6 Must-See Danish Productions Boosting Language Gain</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/android-screencasting-methods-unveiled/"><u>Android Screencasting Methods Unveiled</u></a></li>
+<li><a href="https://extra-information.techidaily.com/cheap-yet-superior-4k-equipment/"><u>Cheap Yet Superior 4K Equipment</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/clearing-the-way-for-smooth-steam-disk-operations/"><u>Clearing the Way for Smooth Steam Disk Operations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cognitive-enhancement-and-social-connectivity-why-learn-languages-after-forty/"><u>Cognitive Enhancement & Social Connectivity – Why Learn Languages After Forty?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conhecer-gritos-de-saudade-todas-as-formas-do-portugues/"><u>Conhecer Gritos De Saudade: Todas as Formas Do Português</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daily-bengali-routine-minimal-time/"><u>Daily Bengali Routine, Minimal Time</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daily-life-deciphered-korean-weekday-insights/"><u>Daily Life Deciphered: Korean Weekday Insights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-deep-into-bulgarian-language-10mday/"><u>Dive Deep Into Bulgarian Language - 10M/Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/educational-snacking-excellence-by-mondly-kids-honored-on-google-play-2017/"><u>Educational Snacking Excellence by Mondly Kids, Honored on Google Play 2017</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/enhance-your-pcs-core-download-drivers-compatible-with-msi-z370-a-pro-motherboard/"><u>Enhance Your PC's Core - Download Drivers Compatible with MSI Z370-A PRO Motherboard</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/fine-tuning-the-art-of-recording-in-audacity/"><u>Fine-Tuning the Art of Recording in Audacity</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fixing-the-problem-of-a-non-functional-corsair-hs70-microphone-a-step-by-step-guide/"><u>Fixing the Problem of a Non-Functional Corsair HS70 Microphone: A Step-by-Step Guide</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722978509352-hp-scanjet-driver-update-for-windows-users-windows-10-8-and-7-download-instantly/"><u>HP Scanjet Driver Update for Windows Users (Windows 10, 8, and 7) - Download Instantly!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577720294-speak-like-a-native-slovak-lesson-quick-fixes-online/"><u>Speak Like a Native - Slovak Lesson Quick Fixes Online</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-a-to-z-guide-for-delivering-captivating-streams-using-zoom-and-youtube-for-2024/"><u>The A-to-Z Guide for Delivering Captivating Streams Using Zoom & YouTube for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576509926-the-path-to-fluency-unveil-8-superior-benefits-of-learning-hindi-online-with-mondly/"><u>The Path to Fluency: Unveil 8 Superior Benefits of Learning Hindi Online with Mondly</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/two-ways-to-sync-contacts-from-vivo-y36i-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Two Ways to Sync Contacts from Vivo Y36i to Gmail | Dr.fone</u></a></li>
+</ul></div>
 

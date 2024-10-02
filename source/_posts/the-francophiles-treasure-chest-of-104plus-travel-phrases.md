@@ -1,7 +1,7 @@
 ---
 title: The Francophile's Treasure Chest of 104+ Travel Phrases
-date: 2024-09-01T00:34:01.219Z
-updated: 2024-09-02T00:34:01.219Z
+date: 2024-09-28T18:06:13.963Z
+updated: 2024-10-01T19:29:17.049Z
 tags:
   - speak
   - english
@@ -90,6 +90,13 @@ thumbnail: https://thmb.techidaily.com/df4c1493c2f3e813888bfc3942921b3c21459900f
 * Is this seat taken? –_Est-ce que cette place est libre?_
 * I would like to change my seat. –_J’aimerais changer de place._
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. Basic French for travelers who need help
 
  Getting lost in Paris, Nice, Marseille, or Cannes wouldn’t be so bad, wouldn’t it? It actually sounds like the perfect vacation, but the harsh reality of having a plane to catch and a boss to make happy will eventually ruin your dream.**Do you know how to say “where is the airport” in French** ? Or “where is a pharmacy”? Switch your survival mode on and learn to ask the best questions in French.
@@ -108,9 +115,6 @@ thumbnail: https://thmb.techidaily.com/df4c1493c2f3e813888bfc3942921b3c21459900f
 
 ![basic french phrases](https://edge.mondly.com/blog/wp-content/uploads/2018/09/basic-french-phrases-1024x686.jpg "100+ French Travel Phrases You'Ll Need To Fall In Love With Paris 5")
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
  “Nice, France” by @Oscar Nord
 
 * Where is a pharmacy? –_Où est la pharmacie?_
@@ -124,8 +128,12 @@ thumbnail: https://thmb.techidaily.com/df4c1493c2f3e813888bfc3942921b3c21459900f
 * I’ll be back immediately. –_Je reviens tout de suite._
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 4\. French for tourists who need a place to spend the night
 
  Staying in an Airbnb apartment or at a hotel requires some human interaction as well. The hotel staff is required to know English, but if you rent an apartment via Airbnb, there’s a big chance to bump into locals that don’t speak English at all. It’s simply better to be safe than sorry.
@@ -138,15 +146,25 @@ thumbnail: https://thmb.techidaily.com/df4c1493c2f3e813888bfc3942921b3c21459900f
 
 ![basic french sentences](https://edge.mondly.com/blog/wp-content/uploads/2018/09/basic-french-sentences-scaled-960x641.jpg "100+ French Travel Phrases You'Ll Need To Fall In Love With Paris 6")
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Paris by night by ©Jez Timms
 
 * Thank you for your help. –_Merci pour votre aide._
 * How was your stay with us? –_Comment a été votre séjour chez nous?_
 * Very pleasant, thank you. –_Très agréable, merci._
 * Here is your bill, please look it over. –_Voici votre facture, vérifiez-la, s’il vous plaît._
+
+<!-- affiliate ads begin -->
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. French travel phrases to help you experience French cuisine like a native
 
@@ -165,9 +183,6 @@ thumbnail: https://thmb.techidaily.com/df4c1493c2f3e813888bfc3942921b3c21459900f
 
 ![french expressions](https://edge.mondly.com/blog/wp-content/uploads/2018/09/french-expressions-1024x682.jpg "100+ French Travel Phrases You'Ll Need To Fall In Love With Paris 7")
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  “Des crêpes” by ©Alisa Anton
 
 * I would like a tea with lemon. –_Je voudrais un thé au citron._
@@ -183,9 +198,6 @@ thumbnail: https://thmb.techidaily.com/df4c1493c2f3e813888bfc3942921b3c21459900f
 * We would like to have dinner. –_Nous voudrions dîner._
 * What would you like for breakfast? –_Que désirez-vous pour le petit déjeuner?_
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
-<!-- affiliate ads end -->
 ## 6\. Common French phrases for tourists who want to have fun
 
  Probably the most important phrases – for some of us – are those related to fun. Going out might tell you a lot about the country you are visiting. Are people drunk, friendly and talkative even at 2 or 3 a.m.? Is the city center empty at 11 o’clock? Never miss a chance to explore a city and know its people. Sleep is for the weak! Having fun is for travelers!
@@ -219,6 +231,13 @@ thumbnail: https://thmb.techidaily.com/df4c1493c2f3e813888bfc3942921b3c21459900f
 * What would you like? –_Que désirez-vous?_
 * Can I have some ice cream? –_Je peux avoir une glace?_
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 8\. French love quotes and expressions for French love stories
 
  A short love story or an unexpected marriage proposal is every girl’s secret dream when traveling to France. Boys, don’t tie your shoelaces in Paris! You’ve been warned!
@@ -226,8 +245,12 @@ thumbnail: https://thmb.techidaily.com/df4c1493c2f3e813888bfc3942921b3c21459900f
 ![basic french travel phrases](https://edge.mondly.com/blog/wp-content/uploads/2018/09/basic-french-travel-phrases-scaled-640x960.jpg "100+ French Travel Phrases You'Ll Need To Fall In Love With Paris 9")
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  ©Gijs Coolen
 
  But if you manage to get caught up in a passionate love story – “by mistake”, of course – it will be so much better if you have your**French phrasebook** on point. It’s time to get real and admit it! Travel phrases are not just for travel, they are also for connecting with new friends or maybe even… lovers?! Who knows? Poor Prince Charming could be stuck in a tree somewhere waiting. Travel as much as possible and find him when you least expect it.
@@ -276,8 +299,6 @@ thumbnail: https://thmb.techidaily.com/df4c1493c2f3e813888bfc3942921b3c21459900f
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -285,4 +306,24 @@ thumbnail: https://thmb.techidaily.com/df4c1493c2f3e813888bfc3942921b3c21459900f
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-choosing-the-best-iphone-video-editor-filmorago-or-cameo/"><u>[New] 2024 Approved Choosing the Best iPhone Video Editor FilmoRaGo or Cameo?</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-effective-wellness-ads-on-social-media-platforms/"><u>[New] 2024 Approved Effective Wellness Ads on Social Media Platforms</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-quick-vocal-alteration-tricks-for-pubg-players/"><u>[New] Quick Vocal Alteration Tricks for PUBG Players</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-find-the-top-10-affordable-online-image-format-switchers/"><u>[Updated] Find the Top 10 Affordable Online Image Format Switchers</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-comprehensive-skype-screencasting-with-obs/"><u>2024 Approved Comprehensive Skype Screencasting with OBS</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/animals-in-spanish-60-animal-names-you-need-to-learn/"><u>Animals In Spanish: 60 Animal Names You Need To Learn</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/black-friday-transform-your-communication-skills-effortlessly/"><u>Black Friday: Transform Your Communication Skills, Effortlessly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/celebrating-100-years-of-eu-languages-unite-diverge/"><u>Celebrating 100 Years of EU - Languages Unite, Diverge</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/crafting-clear-effective-verbal-communication/"><u>Crafting Clear, Effective Verbal Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/demystifying-language-learning-with-mondly-my-top-10-experience-highlights/"><u>Demystifying Language Learning with Mondly – My Top 10 Experience Highlights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/diverse-expressions-of-hello/"><u>Diverse Expressions of Hello</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581267362-empower-yourself-with-japan-education-for-free/"><u>Empower Yourself with Japan Education, For Free!</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-ultimate-guide-to-androids-premium-music-video-watching-apps/"><u>In 2024, The Ultimate Guide to Android's Premium Music Video Watching Apps</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-depth-look-at-ankers-bulky-reliable-qi-wireless-power-bank-with-66k-capacity-a-detailed-iphone-compatibility-review/"><u>In-Depth Look at Anker's Bulky, Reliable Qi Wireless Power Bank with 6.6K Capacity: A Detailed iPhone Compatibility Review</u></a></li>
+<li><a href="https://android-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-nokia-g310frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Nokia G310FRP Lock</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579057583-open-new-doors-in-life-and-career-by-learning-hindi-reveal-top-8-reasons-to-choose-mondlys-platform/"><u>Open New Doors in Life and Career by Learning Hindi: Reveal Top 8 Reasons to Choose Mondly's Platform!</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshooting-guide-for-dead-by-daylight-crashes-pro-tips-for-a-smooth-2-cuppy-sized-5-expert-fixes-for-uninterrupted-dead-by-daylight-gameplay/"><u>Troubleshooting Guide for Dead by Daylight Crashes - Pro Tips for a Smooth 2 Cuppy-Sized, 5) Expert Fixes for Uninterrupted Dead by Daylight Gameplay</u></a></li>
+</ul></div>
 

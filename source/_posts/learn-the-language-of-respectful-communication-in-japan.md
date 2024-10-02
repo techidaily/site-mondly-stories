@@ -1,7 +1,7 @@
 ---
 title: Learn the Language of Respectful Communication in Japan
-date: 2024-09-23T19:26:59.525Z
-updated: 2024-09-26T18:20:40.866Z
+date: 2024-09-27T18:33:23.404Z
+updated: 2024-10-01T20:50:04.603Z
 tags:
   - speak
   - english
@@ -45,6 +45,13 @@ thumbnail: https://thmb.techidaily.com/32a49341dcd2e3ff58b1a58ec7c331011d71244cd
 
  Curious about why there are multiple types of characters in Japanese? Here’s everything there is to know about the [Japanese writing system](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **How to say “hello” on the phone in Japanese: moshi moshi (もしもし)**
 
  Unlike English, which uses the same “hello” for a lot of different social contexts, the Japanese language has a dedicated “hello” for answering the phone:**moshi moshi (もしもし).** Doesn’t that sound cute?
@@ -64,13 +71,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
 **Bonus tip:** Morning and evening are more carefully delimited in the Japanese culture than in the West. So it’s important to know your**_Konnichiwa_** and never use it instead of**_Konbanwa_** or**_Oyasuminasai._**
 
 ![hi in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-japanese-960x639.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 3")
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  “Meguro River, Matsuno, Japan” by Sora Sagano©
 
@@ -92,10 +92,10 @@ This greeting is used both as a “hello” and as a “goodbye”.
 ![goodbye in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/goodbye-in-japanese-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 4")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  “See you soon, human” by Alain Pham©
@@ -127,10 +127,10 @@ This greeting is used both as a “hello” and as a “goodbye”.
  “Kyoto, Japan” by Andre Benz©
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Don’t forget about the Japanese bow
@@ -148,6 +148,13 @@ This greeting is used both as a “hello” and as a “goodbye”.
  – 30-degree bows are for people you just met or are of a higher social status than you;
 
  – 45-degree bows are used for greetings only if you meet a very important person like the Emperor or the Prime Minister.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Bonus: basic conversation in Japanese
 
@@ -169,13 +176,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
 * No problem. – _Daijōbudesu._
 
 ![sayonara](https://edge.mondly.com/blog/wp-content/uploads/2019/08/sayonara-1024x680.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 6")
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  “Tenryu-ji Temple, Kyōto-shi, Japan” by Masaaki Komori©
 
@@ -209,20 +209,18 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-your-first-steps-in-the-digital-world-course-recommendations/"><u>[New] Your First Steps in the Digital World Course Recommendations</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-innovative-tips-producing-instagram-ready-loop-videos/"><u>[Updated] 2024 Approved Innovative Tips Producing Instagram-Ready Loop Videos</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-chorus-closet-capture-download-and-listen-to-tunes-for-2024/"><u>[Updated] Chorus Closet Capture, Download & Listen to Tunes for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-excellence-in-streaming-zooms-6-cam-selection/"><u>2024 Approved Excellence in Streaming - Zoom’s #6 Cam Selection</u></a></li>
-<li><a href="https://apple-account.techidaily.com/apple-id-unlock-on-iphone-15-pro-how-to-fix-it-by-drfone-ios/"><u>Apple ID Unlock On iPhone 15 Pro? How to Fix it?</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/in-2024-a-compreranly-approach-to-high-quality-ps3-video-capture/"><u>In 2024, A Compreranly Approach to High-Quality PS3 Video Capture</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-master-avi-gif-transformation-an-all-inclusive-guide-by-filmora/"><u>In 2024, Master AVI-GIF Transformation An All-Inclusive Guide by Filmora</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-spanish-diacritics-and-accented-typography/"><u>Mastering Spanish Diacritics & Accented Typography</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-and-apple-a-topping-team-at-global-educational-summit/"><u>Mondly and Apple: A Topping Team at Global Educational Summit</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-unlocks-ukrainians-global-communication-with-no-cost/"><u>Mondly Unlocks Ukrainians' Global Communication with No Cost</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/repairing-a-non-functional-kotion-each-g2000-mic-a-step-by-step-guide/"><u>Repairing a Non-Functional Kotion Each G2000 Mic: A Step-by-Step Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/spanish-english-grammar-clash-por-que-vs-por-que/"><u>Spanish-English Grammar Clash: Por Que vs Por Qué</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/swiftly-master-colorful-french-expressions/"><u>Swiftly Master Colorful French Expressions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-art-of-respectful-addresses-in-japan/"><u>The Art of Respectful Addresses in Japan</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-20-tips-for-effortless-online-lithuanian-learning/"><u>Top 20 Tips for Effortless Online Lithuanian Learning</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-insiders-guide-to-mastering-windows-10/"><u>[New] The Insider's Guide to Mastering WINDOWS 10</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unfolding-cinema-narratives/"><u>[Updated] Unfolding Cinema Narratives</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-nail-art-masterclass-series/"><u>2024 Approved Nail Art Masterclass Series</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/a-complete-guide-to-oem-unlocking-on-xiaomi-14-by-drfone-android/"><u>A Complete Guide To OEM Unlocking on Xiaomi 14</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-high-speed-photo-inspector-for-windows-11/"><u>In 2024, High-Speed Photo Inspector for Windows 11</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-looking-for-a-location-changer-on-oppo-find-n3-flip-look-no-further-drfone-by-drfone-virtual-android/"><u>In 2024, Looking For A Location Changer On Oppo Find N3 Flip? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-ecosystem-foreign-words-thriving-in-eng/"><u>Linguistic Ecosystem: Foreign Words Thriving in ENG</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oui-bienvenue-en-france-une-douceur-exprimee/"><u>Oui, Bienvenue! En France: Une Douceur Exprimée</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/reflecting-on-10-years-mondlys-odyssey/"><u>Reflecting on 10 Years: Mondly's Odyssey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-with-confidence-learn-tagalog-each-day/"><u>Speak with Confidence: Learn Tagalog Each Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/streamlined-privacy-policy-now-available/"><u>Streamlined Privacy Policy Now Available</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/weekday-wisdom-discovering-the-layers-of-korean-culture/"><u>Weekday Wisdom: Discovering the Layers of Korean Culture</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/end-roundup-top-youtube-music-reaction-videos-for-2024/"><u>Year-End Roundup Top YouTube Music Reaction Videos for 2024</u></a></li>
 </ul></div>
 

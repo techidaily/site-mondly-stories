@@ -1,7 +1,7 @@
 ---
 title: Italian Numbers Made Easy - Count To 1000 And Beyond In Italian
-date: 2024-09-01T00:31:26.007Z
-updated: 2024-09-02T00:31:26.007Z
+date: 2024-09-25T19:00:49.096Z
+updated: 2024-10-01T22:07:46.385Z
 tags:
   - speak
   - english
@@ -52,6 +52,13 @@ Here’s how to write and pronounce the Italian numbers 1-10:
 
 **Good to know:**Italian cardinal numbers don’t change suffixes according to the gender of the noun they determine. The only exception is 1_(uno)_. Thus, when you talk about a feminine noun, you’ll say_una_instead of_uno_:_Ho comprato una casa_(“I bought a house.”)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Italian numbers 11-20
 
  Imagine this: you are on the famous Amalfi Coast. The weather is perfect. And let’s say you want to buy 12 slices of the yummiest Italian pizza you’ve ever seen: two slices for you and each one of your friends. The problem is you only have 10 fingers to sign to the lady at the counter. Wouldn’t it be easier if you knew some [Italian expressions](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ?
@@ -89,8 +96,12 @@ Let’s see some examples:
 * to say “20 children”, you’ll say_venti bambini_
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Italian numbers to 30 and beyond
 
  Essentially, Italian numbers are very similar to English numbers. Once you get to 20, you just put together the tens with the single numbers (units). The best part is that Italian doesn’t even require spaces or hyphens. For example, if you want to say 22 (“twenty-two”), in Italian you say venti (20) + due (2) = _**venti** due_ (22).
@@ -104,8 +115,12 @@ Let’s see some examples:
  See how easy Italian numbers are? The only thing you have to remember is that the final vowel of the tens disappears when you add 1_(uno)_ or 8_(otto)_ . Thus, you’ll say _**vent** uno_ and not “ventiuno”. Additionally, number 3_(tre)_ gains an accent mark on the final vowel. For example, 33 will be_trentatré_ and 83 will be_ottantatré._
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Count tens in Italian
 
  Except for 10_(dieci)_ and 20_(venti)_ , all tens digits in Italian are based on their roots. Once you know all of them, you’ll know how to count to 100 – which is_cento_ – in Italian.
@@ -140,8 +155,12 @@ Let’s see some examples:
 * 98 – _novant**otto**_
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Italian numbers 100 to 1000 and beyond
 
  The same rules apply to bigger numbers as well. Add the suffix_cento_ to the multiplier digit and here are your hundreds:
@@ -170,9 +189,6 @@ Let’s see some examples:
 
 ![italian numbers pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2020/05/italian-numbers-pronunciation-960x640.jpg "Italian Numbers Made Easy - Count To 1000 And Beyond In Italian 3")
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
  “The Amalfi Coast” by Gregory Smirnov©
 
  Back to counting, from 100 and beyond, the bigger the number is, the longer its written form. Italian doesn’t isolate hundreds, tens and ones. They become one long word with no hyphens or spaces. For example:
@@ -235,8 +251,6 @@ Let’s see some examples:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -244,4 +258,18 @@ Let’s see some examples:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-free-skype-mp3-logger-101-guide-for-2024/"><u>[New] Free Skype Mp3 Logger 101 Guide for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-funny-faces-and-posts-your-adobe-way-for-2024/"><u>[New] Funny Faces and Posts Your Adobe Way for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-navigating-youtube-tv-the-ultimate-guide/"><u>[New] Navigating YouTube TV The Ultimate Guide</u></a></li>
+<li><a href="https://location-fake.techidaily.com/8-solutions-to-fix-find-my-friends-location-not-available-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>8 Solutions to Fix Find My Friends Location Not Available On Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-updated-lenovo-t450-drivers-swift-hassle-free-process-steps-inside/"><u>Download Updated Lenovo T450 Drivers - Swift, Hassle-Free Process Steps Inside!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/english-echoes-worldwide-deciphering-canadian-aussie-and-brit-pronunciation/"><u>English Echoes Worldwide: Deciphering Canadian, Aussie, and Brit Pronunciation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enlightenment-without-cost-celebrating-1500-daily-no-fee-lessons/"><u>Enlightenment Without Cost: Celebrating 1500 Daily No-Fee Lessons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-our-linguistic-antiquitys-greats/"><u>Exploring Our Linguistic Antiquity's Greats</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-lisbon-to-rio-de-janeiro-eu-and-south-american-portunol/"><u>From Lisbon to Rio De Janeiro: EU and South American Portuñol</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-whatsapp-messages-on-motorola-moto-g84-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track WhatsApp Messages on Motorola Moto G84 5G Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/taming-high-bit-rate-in-obs-for-2024/"><u>Taming High-Bit Rate in OBS for 2024</u></a></li>
+</ul></div>
 

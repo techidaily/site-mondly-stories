@@ -1,7 +1,7 @@
 ---
 title: The Dawn of Verbalized Augmented Experiences
-date: 2024-09-25T16:12:43.291Z
-updated: 2024-09-26T19:05:45.163Z
+date: 2024-09-25T18:21:21.433Z
+updated: 2024-10-02T01:01:13.458Z
 tags:
   - speak
   - english
@@ -43,10 +43,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 > _We started working on Mondly AR in August 2017 and by the time [Blade Runner 2049](http://www.imdb.com/title/tt1856101/) was released, we already had a working demo. Watching Blade Runner 2049 made me realize that we were beginning to build the future. To me, Joi (the holographic companion of officer K) looked like a super advanced version of Mondly – the character we were creating. They can both understand speech, reply with a human voice and change outfits. Of course, Mondly is not as smart and realistic as Joi. Yet. But she can teach you 7 languages. And this is just the beginning._
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044582/7443" target="_top" id="2044582">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044582" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044582/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Here’s what you should know about Mondly AR
@@ -65,16 +65,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 ---
 
 <!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facts and figures about Mondly
@@ -91,10 +85,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 * [Mondly Press Kit](https://www.dropbox.com/sh/vo4j5214zvwdxy5/AAC20VxIgpuiEe7ED2%5F37VNEa?dl=0)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Media mentions about Mondly
@@ -126,22 +120,18 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-in-2024-bilateral-screen-tracking/"><u>[New] In 2024, Bilateral Screen Tracking</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-from-studio-to-screen-uploading-melodies-online-for-2024/"><u>[Updated] From Studio to Screen Uploading Melodies Online for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-mastering-gopro-selection-a-comparative-review/"><u>[Updated] Mastering Gopro Selection A Comparative Review</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/boost-your-language-skills-and-networking-through-mondly-vr/"><u>Boost Your Language Skills & Networking Through Mondly VR</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bridging-knowledge-gaps-with-ai-assistance/"><u>Bridging Knowledge Gaps With AI Assistance</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discover-the-countries-that-santa-can-speak-too/"><u>Discover the Countries That Santa Can Speak Too</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/earths-dominant-tongues-leading-fifteen-list/"><u>Earth's Dominant Tongues: Leading Fifteen List</u></a></li>
-<li><a href="https://techidaily.com/how-to-install-the-latest-ios-beta-version-on-apple-iphone-12-pro-max-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Install the Latest iOS Beta Version on Apple iPhone 12 Pro Max? | Dr.fone</u></a></li>
-<li><a href="https://win-tips.techidaily.com/how-to-safely-stream-and-download-all-spongebob-squarepants-tv-show-seasons/"><u>How to Safely Stream and Download All SpongeBob SquarePants TV Show Seasons</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/in-2024-vimeos-complimentary-guide-essential-video-editing-skills/"><u>In 2024, Vimeo’s Complimentary Guide Essential Video Editing Skills</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/local-lingo-made-simple-speak-like-an-aussie/"><u>Local Lingo Made Simple: Speak Like an Aussie</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-the-best-watermark-free-video-joining-software-for-you/"><u>New In 2024, The Best Watermark-Free Video Joining Software for You</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/overcoming-application-stalls-with-easy-fixes-for-error-1053/"><u>Overcoming Application Stalls with Easy Fixes for Error 1053</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/solace-for-strugglers-dannys-foundation-in-colombia/"><u>Solace for Strugglers: Danny's Foundation in Colombia</u></a></li>
-<li><a href="https://windows11.techidaily.com/the-essential-methods-for-verifying-windows-11-installation/"><u>The Essential Methods for Verifying Windows 11 Installation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/us-birthday-a-universal-happiness/"><u>U.S. Birthday: A Universal Happiness</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-the-secrets-of-mondly-excellence/"><u>Unlocking the Secrets of Mondly Excellence</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-screen-saga-a-thousand-stories-one-channel-at-a-time/"><u>[New] 2024 Approved Screen Saga A Thousand Stories, One Channel at a Time</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/best-free-iphone-xs-imei-checker-by-drfone-ios/"><u>Best Free iPhone XS IMEI Checker</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fixing-foneazy-mockgo-not-working-on-oppo-f23-5g-drfone-by-drfone-virtual-android/"><u>Fixing Foneazy MockGo Not Working On Oppo F23 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-proficiency-unlocked-here-are-10-advantages/"><u>German Proficiency Unlocked: Here Are 10 Advantages</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-xiaomi-redmi-k70-phone-password-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Xiaomi Redmi K70 Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-samsung-galaxy-m34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Samsung Galaxy M34 5G | Dr.fone</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/in-2024-the-great-dvr-debate-tivo-vs-comcasts-features-and-pricing/"><u>In 2024, The Great DVR Debate TiVo vs Comcasts Features and Pricing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/israelian-journey-guide-top-8-vital-tips-and-languages/"><u>Israelian Journey Guide: Top 8 Vital Tips and Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rapid-rooting-of-new-words-through-these-brain-workouts/"><u>Rapid Rooting of New Words Through These Brain Workouts</u></a></li>
+<li><a href="https://video-capture.techidaily.com/seamless-guide-on-transferring-dvd-content-from-disc-to-portable-usb-player/"><u>Seamless Guide on Transferring DVD Content From Disc to Portable USB Player</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/solving-the-xinput13dll-file-absent-issue-a-step-by-step-guide/"><u>Solving the xinput1_3.dll File Absent Issue: A Step-by-Step Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-selection-of-mouse-alternatives-for-ios-devices/"><u>Ultimate Selection of Mouse Alternatives for iOS Devices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-opportunities-through-english-mastery/"><u>Unlock Opportunities Through English Mastery</u></a></li>
 </ul></div>
 

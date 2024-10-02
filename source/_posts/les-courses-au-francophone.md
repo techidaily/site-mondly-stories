@@ -1,7 +1,7 @@
 ---
 title: Les Courses Au Francophone
-date: 2024-09-21T19:45:32.235Z
-updated: 2024-09-26T17:00:07.017Z
+date: 2024-09-24T19:42:51.723Z
+updated: 2024-10-02T00:47:16.734Z
 tags:
   - speak
   - english
@@ -74,10 +74,10 @@ The days of the week in French are:
  Planning to spend an entire week in France? Dont stop at_les jours de la semaine en français_ . French people are known to be proud of their language and heritage. Surprise them with your French skills and go beyond “Friday” in French with these [100+ French travel phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . You’ll thank me later.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Usage rules
@@ -124,22 +124,22 @@ The days of the week in French are:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-a-step-by-step-process-for-twitch-streamers/"><u>[New] In 2024, A Step-by-Step Process for Twitch Streamers</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-advanced-microphone-recorders-for-mac-users-our-five-superstar-picks-for-2024/"><u>[Updated] Advanced Microphone Recorders for Mac Users Our Five Superstar Picks for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-elite-brain-teasers-general-knowledge/"><u>[Updated] Elite Brain Teasers - General Knowledge</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-peek-into-innovation-with-microsofts-hololens-review/"><u>[Updated] In 2024, Peek Into Innovation with Microsoft's HoloLens Review</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/adopt-a-romanian-heart-through-our-app/"><u>Adopt a Romanian Heart Through Our App</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ancient-lexicons-ranking-the-worlds-time-tested-tongues/"><u>Ancient Lexicons: Ranking the World’s Time-Tested Tongues</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579200830-best-language-learning-management-systems-for-efficient-study/"><u>Best Language Learning Management Systems for Efficient Study</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/bring-sound-effects-into-premiere-pro/"><u>Bring Sound Effects Into Premiere Pro</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/browse-and-learn-any-language-all-year-round/"><u>Browse & Learn Any Language, All-Year Round</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-on-tecno-camon-20-premier-5g-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location on Tecno Camon 20 Premier 5G | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-connecting-twitter-videos-with-facebook-friends/"><u>In 2024, Connecting Twitter Videos with Facebook Friends</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-a-locked-xiaomi-14-ultra-phone-by-drfone-android/"><u>In 2024, How to Reset a Locked Xiaomi 14 Ultra Phone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-global-lexicon-of-inspiring-teaching-voices/"><u>The Global Lexicon of Inspiring Teaching Voices</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-turkish-script-decoded-simplified-alphabet-and-sound-guide/"><u>The Turkish Script Decoded: Simplified Alphabet & Sound Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/turkish-korean-linguistics-unveiled/"><u>Turkish-Korean Linguistics Unveiled</u></a></li>
-<li><a href="https://some-tips.techidaily.com/ultimate-guide-to-gopro-max-or-hero-11-in-2024/"><u>Ultimate Guide to GoPro Max or Hero 11, In 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unleash-the-power-of-croatian-language-with-these-top-7-benefits/"><u>Unleash the Power of Croatian Language with These Top 7 Benefits!</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-forge-corporate-icons-without-spending-a-dime-for-2024/"><u>[New] Forge Corporate Icons Without Spending a Dime for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-quick-recording-visuals-plus-verbal-input/"><u>[New] Quick Recording Visuals + Verbal Input</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-explore-the-8-premium-websites-for-free-3d-text-psd-files/"><u>[Updated] Explore the 8 Premium Websites for FREE 3D Text PSD Files</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/1725287692987-digiartydvd/"><u>Digiarty公式ブログで学ぶ、デジタル時代の安全なDVDコピー方法</u></a></li>
+<li><a href="https://win-dash.techidaily.com/ensure-seamless-connectivity-ch340-usb-communication-chip-drivers-updated-for-windows-10/"><u>Ensure Seamless Connectivity: CH340 USB Communication Chip Drivers Updated for Windows 10</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/essential-tips-convert-and-download-vimeo-hd-to-mp4/"><u>Essential Tips Convert and Download Vimeo HD to MP4</u></a></li>
+<li><a href="https://driver-download.techidaily.com/latest-zebra-printer-drivers-available-free-downloads-and-update-guides-for-windows-users/"><u>Latest Zebra Printer Drivers Available: Free Downloads & Update Guides for Windows Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leading-edtech-in-languages-top-5-instructors-choices/"><u>Leading EdTech in Languages: Top 5 Instructor's Choices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/nordic-narratives-revisited-what-did-the-vikings-speak/"><u>Nordic Narratives Revisited: What Did the Vikings Speak?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/preparing-for-interaction-with-an-advanced-ai-ally/"><u>Preparing for Interaction with an Advanced AI Ally</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-vs-portuguese-romance-language-clash-analysis/"><u>Spanish Vs. Portuguese: Romance Language Clash Analysis</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-spirits-turkish-korean-relation/"><u>Speaking Spirits: Turkish-Korean Relation</u></a></li>
+<li><a href="https://win-answers.techidaily.com/star-wars-jedi-fallen-order-fixing-game-crashes-on-your-windows-computer/"><u>Star Wars Jedi: Fallen Order - Fixing Game Crashes on Your Windows Computer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-fastest-way-to-learn-korean-at-home-choose-wisely/"><u>The Fastest Way to Learn Korean at Home – Choose Wisely!</u></a></li>
+<li><a href="https://extra-information.techidaily.com/under-1k-discover-best-4k-mirrorless-choices/"><u>Under $1K? Discover Best 4K Mirrorless Choices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-full-featured-mondly-pro-save-up-to-96/"><u>Unlock Full-Featured Mondly Pro, Save Up To 96%</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/world-languages-at-your-fingertips-discover-mondly-vr-learning-platform/"><u>World Languages at Your Fingertips - Discover Mondly VR Learning Platform</u></a></li>
 </ul></div>
 

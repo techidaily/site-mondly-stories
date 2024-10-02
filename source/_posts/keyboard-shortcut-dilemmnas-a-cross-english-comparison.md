@@ -1,7 +1,7 @@
 ---
 title: "Keyboard Shortcut Dilemmnas: A Cross-English Comparison"
-date: 2024-09-05T04:37:57.236Z
-updated: 2024-09-06T04:37:57.236Z
+date: 2024-09-24T18:10:07.325Z
+updated: 2024-10-01T23:32:28.562Z
 tags:
   - speak
   - english
@@ -14,18 +14,6 @@ keywords: Keyboard Shortcuts Tips,English vs English Keyboard Shortcuts,Comparin
 thumbnail: https://thmb.techidaily.com/dd77f8cbbec8ed8ce40dfd9ce55bda6a399ba6919afea3bdd375bc2f3e522289.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1983474">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Keyboard Shortcut Dilemmnas: A Cross-English Comparison
 
  British vs American: the ultimate language battle. The same, but different. But how different after all? Bernard Shaw, Irish playwright and political activist, famously said that The United States and Great Britain are**“two countries divided by a common language”** . Still, Brits and Americans always had this ongoing “fight” about “which English is best?” or “who speaks proper English?”. This is, of course, a joke_(or is it? hehe)_ . After all, British English and American English are not entirely different languages.
@@ -36,24 +24,6 @@ thumbnail: https://thmb.techidaily.com/dd77f8cbbec8ed8ce40dfd9ce55bda6a399ba6919
 
 ![British vs American](https://media.giphy.com/media/SqmkZ5IdwzTP2/giphy.gif "British English Vs American English Differences: Spelling, Pronunciation And More 2")
 
-<!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The English language in the Americas
 
  Before diving into the most important differences between [British English](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and American English, let’s put some historical context around the matter.
@@ -65,11 +35,12 @@ thumbnail: https://thmb.techidaily.com/dd77f8cbbec8ed8ce40dfd9ce55bda6a399ba6919
  Let’s dive into a little more detail and analyze each point of differentiation.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## British vs American: most common vocabulary differences
 
  Although the accent represents the most noticeable difference between British and American English, there are also words that differ completely depending on whether you are in Europe or across the Atlantic ocean. For example, as already mentioned, what Americans call a “sweater” is known as “jumper” or “pullover” in the United Kingdom. In the same fashion, what is known as football across the European continent Americans call soccer.
@@ -98,6 +69,13 @@ thumbnail: https://thmb.techidaily.com/dd77f8cbbec8ed8ce40dfd9ce55bda6a399ba6919
  Showing 1 to 10 of 40 entries
 
  Previous  Next
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Spellings differences: is it “colour” or “color”?
 
@@ -143,6 +121,13 @@ thumbnail: https://thmb.techidaily.com/dd77f8cbbec8ed8ce40dfd9ce55bda6a399ba6919
 
  Many verbs that are irregular in the past tense in British English (_dreamt, burnt, learnt_), have been made regular in American English (_dreamed, burned, learned_).
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Got or gotten?
 
  In the UK, the past participle of “get” – “gotten” – is considered archaic and was replaced with “got” some time ago. Americans, on the other hand, still use “gotten” as the past participle of “get”.
@@ -157,26 +142,21 @@ thumbnail: https://thmb.techidaily.com/dd77f8cbbec8ed8ce40dfd9ce55bda6a399ba6919
 
  Thus, in Britain, you’ll say**“I’ve been to the supermarket”** and in the US you’ll say**“I went to the supermarket”** .
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Prepositions
 
  In British English, “at” is generally used in relation to time and place. In contrast, in American English, “on” is used in relation to time and “in” is used in relation to place.
 
 ![british american english](https://edge.mondly.com/blog/wp-content/uploads/2020/06/british-american-english-600x600.jpg "British English Vs American English Differences: Spelling, Pronunciation And More 3")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  British English vs American English
 
-<!-- affiliate ads begin -->
-<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
-  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Other grammar differences
 
  Generally, the British are more likely to use formal speech, while Americans will rather go with informal expressions. For instance, Brits will use “shall” where Americans use “will” or “should”.
@@ -190,11 +170,12 @@ thumbnail: https://thmb.techidaily.com/dd77f8cbbec8ed8ce40dfd9ce55bda6a399ba6919
  American accent is rhotic and Americans pronounce their “R’s” loud and clear. On the other hand, the British accent is non-rhotic and Brits usually replace their “R’s” with “H’s”. Thus, words like “water” or “card” will be pronounced_wa-tuh_ or_caahd_ .
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## British vs American: which one should you learn and use?
 
  It doesn’t matter whether you learn British English or American English. There is no such thing as “the best English”. Learn whichever you feel and like. Of course, if you intend to move to the United States, it is best to study and get used to the American accent.
@@ -210,12 +191,6 @@ thumbnail: https://thmb.techidaily.com/dd77f8cbbec8ed8ce40dfd9ce55bda6a399ba6919
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Brush up your English in just 10 minutes a day
 
  Do you want to speak English like a true American? Or maybe you dream of acquiring the classy British accent? With [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5309&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5309&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5309) you can train for both.
@@ -232,8 +207,6 @@ thumbnail: https://thmb.techidaily.com/dd77f8cbbec8ed8ce40dfd9ce55bda6a399ba6919
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -241,4 +214,26 @@ thumbnail: https://thmb.techidaily.com/dd77f8cbbec8ed8ce40dfd9ce55bda6a399ba6919
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-horizontal-vs-vertical-best-for-fb-videos-in-2024/"><u>[New] Horizontal Vs. Vertical Best for FB Videos, In 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-how-to-utilize-your-appletv-for-a-smooth-view-of-fb-videos-online-for-2024/"><u>[New] How to Utilize Your AppleTV for a Smooth View of FB Videos Online for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-pioneering-prospects-cutting-edge-strategies-in-telegram-advertising-for-2024/"><u>[New] Pioneering Prospects Cutting-Edge Strategies in Telegram Advertising for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-accessible-quality-sunglasses-to-enhance-vr-experience/"><u>[Updated] Accessible, Quality Sunglasses to Enhance VR Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/100plus-basic-russian-phrases-every-traveler-needs-to-know/"><u>100+ Basic Russian Phrases Every Traveler Needs To Know</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578225825-2022-speak-anywhere-for-a-bargain-priced-language-bundle/"><u>2022: Speak Anywhere for a Bargain-Priced Language Bundle!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-guide-to-the-body-language-in-everyday-italian-life/"><u>A Guide to the Body Language in Everyday Italian Life</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/achieve-fluency-in-finnish-with-expert-online-guidance/"><u>Achieve Fluency in Finnish with Expert Online Guidance</u></a></li>
+<li><a href="https://techtrends.techidaily.com/avoiding-registration-a-comprehensive-guide-to-viewing-public-instagrams/"><u>Avoiding Registration: A Comprehensive Guide to Viewing Public Instagrams</u></a></li>
+<li><a href="https://fox-access.techidaily.com/biometric-battleground-face-id-vs-samsungs-facial-identification/"><u>Biometric Battleground Face ID Vs. Samsung's Facial Identification</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/boost-your-tagalog-skills-10-minute-study-sessions/"><u>Boost Your Tagalog Skills - 10-Minute Study Sessions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-japanese-online-paths-for-independent-and-free-learning/"><u>Conquer Japanese: Online Paths for Independent and Free Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciding-your-perfect-next-linguistic-endeavor/"><u>Deciding Your Perfect Next Linguistic Endeavor</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/die-deutsche-sprache-zur-reue-nutzen/"><u>Die Deutsche Sprache Zur Reue Nutzen</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-edit-and-send-fake-location-on-telegram-for-your-tecno-camon-20-premier-5g-in-3-ways-drfone-by-drfone-virtual-android/"><u>In 2024, Edit and Send Fake Location on Telegram For your Tecno Camon 20 Premier 5G in 3 Ways | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-latest-guide-how-to-bypass-infinix-frp-without-computer-by-drfone-android/"><u>In 2024, Latest Guide How To Bypass Infinix FRP Without Computer</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-ultimate-guide-from-google-pixel-fold-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide from Google Pixel Fold FRP Bypass</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579736864-the-best-way-to-study-portuguese-6-tips-that-will-work-wonders/"><u>The Best Way to Study Portuguese – 6 Tips That Will Work Wonders</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-and-solutions-for-winodws-10s-persistent-0x800705b4-update-problem-resolved/"><u>Troubleshooting & Solutions for Winodws 10'S Persistent 0X800705b4 Update Problem [Resolved]</u></a></li>
+</ul></div>
 
