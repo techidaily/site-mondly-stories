@@ -1,7 +1,7 @@
 ---
 title: "Worldwide Breakfast Banter: How to Say 'Good Morning'"
-date: 2024-09-28T20:03:56.462Z
-updated: 2024-10-01T16:58:22.175Z
+date: 2024-10-02T22:11:47.484Z
+updated: 2024-10-07T05:51:17.214Z
 tags:
   - speak
   - english
@@ -37,6 +37,13 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 
  It is also important to note that in some countries from South America it’s common to say “buen día” which is literally the singular form of “buenos días”. However, if you go to Spain, it’s best to stick with “buenos días”.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Good morning in French:_Bon matin !_
 
  **Remember this: in European French, there is no exact translation for the phrase “good morning”.** Therefore, in France, you should always use [“bonjour”](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) instead of “bon matin” if you want to “good morning” in French.
@@ -57,6 +64,13 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 
  Literally meaning “good day”, “buongiorno” can safely be used in all kinds of social contexts from morning until after lunch.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 5\. Good morning in Portuguese:_Bom dia!_
 
  In Portuguese, “bom dia” is how you say “good morning”. Literally translated as “good day”, this greeting is commonly used between the hours of 5:30 a.m. and 12:00 – 1:00 p.m.
@@ -66,13 +80,6 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
  **Learn how to say “good morning” in over 40 languages with Mondly! 👇**
 
 [Learn with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-7421&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-7421&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-7421)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 6\. Good morning in Russian:_Доброе утро!_
 
@@ -89,10 +96,10 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
  The same as the English “good morning”, 早 (zǎo) can be used in most social settings provided it’s morning, of course.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 8\. Good morning in Japanese:_おはようございます！_
@@ -104,10 +111,10 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 !["Good morning in Spanish" by Dawid Zawiła©](https://edge.mondly.com/blog/wp-content/uploads/2023/01/good-morning-in-spanish-960x640.jpg "How To Say Good Morning In 10 Different Languages 2")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 9\. Good morning in Arabic:_صباح الخير!_
@@ -123,13 +130,6 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
  To say “good morning” in [Hindi](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , you can use the phrase सुप्रभात_(Suprabhaat) _ . This is a common and polite way to greet someone in the morning and it is appropriate for both formal and informal settings.
 
  If you want to ask about the person’s well-being after greeting them, you can add क्या हाल है?_(kya haal hai?)_ which means “how are you?”.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Bonus: Good morning in Romanian:_bună dimineața!_
 
@@ -173,22 +173,24 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-streamlining-the-editing-process-elevating-your-youtube-content-with-pc/"><u>[Updated] Streamlining the Editing Process Elevating Your YouTube Content with PC</u></a></li>
-<li><a href="https://windows11.techidaily.com/bypassing-the-gpsvc-wait-issue-on-pcs/"><u>Bypassing the GPSVC Wait Issue on PCs</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-zte-nubia-flip-5g-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass ZTE Nubia Flip 5G FRP In 3 Different Ways</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-repair-corrupt-mp4-and-mov-files-of-14-ultra-using-video-repair-utility-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair corrupt MP4 and MOV files of 14 Ultra using Video Repair Utility on Windows?</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-charting-your-course-in-the-world-of-youtube-tracking-success-and-monetary-value/"><u>In 2024, Charting Your Course in the World of YouTube Tracking Success & Monetary Value</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-reviving-old-photos-through-snapchats-memories-feature/"><u>In 2024, Reviving Old Photos Through Snapchat's Memories Feature</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-the-8-best-zombie-games/"><u>In 2024, The 8 Best Zombie Games</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/initiating-your-adventure-with-hanzi/"><u>Initiating Your Adventure with Hanzi</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/is-fake-gps-location-spoofer-a-good-choice-on-samsung-galaxy-a05-drfone-by-drfone-virtual-android/"><u>Is Fake GPS Location Spoofer a Good Choice On Samsung Galaxy A05? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/languages-of-unity-and-diversity-in-belgium/"><u>Languages of Unity and Diversity in Belgium</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lure-and-lovesickness-through-french-phrases/"><u>Lure and Lovesickness Through French Phrases</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pearsons-advance-in-education-the-gsl-mondly-combo/"><u>Pearson’s Advance in Education: The GSL-Mondly Combo</u></a></li>
-<li><a href="https://windows11.techidaily.com/pinpointing-your-internet-ip-using-terminal-commands/"><u>Pinpointing Your Internet IP Using Terminal Commands</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/step-into-the-future-meet-an-advanced-ai-partner/"><u>Step Into the Future: Meet an Advanced AI Partner</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-best-language-app-mondlys-acclaimed-journey/"><u>The Best Language App : Mondly’s Acclaimed Journey</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/timeless-lines-everyday-words-from-the-bards-vocabulary/"><u>Timeless Lines: Everyday Words From the Bard's Vocabulary</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/turbocharged-learning-techniques-for-global-lingua-franca/"><u>Turbocharged Learning Techniques for Global Lingua Franca</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-fast-framerates-in-photos-innovating-with-windows-paint-app/"><u>[New] Fast Framerates in Photos Innovating with Windows Paint App</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-depth-exploration-of-razers-kiyo-cam/"><u>[New] In-Depth Exploration of Razer's Kiyo Cam</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-expert-tips-top-free-tools-to-extract-and-save-instagram-videos-windowsos-x/"><u>[Updated] Expert Tips Top Free Tools to Extract and Save Instagram Videos (Windows/OS X)</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-joke-journey-begins-for-free-our-meme-toolset/"><u>[Updated] Joke Journey Begins for Free - Our Meme Toolset</u></a></li>
+<li><a href="https://extra-information.techidaily.com/chime-connoisseurs-curated-list-of-download-websites-for-2024/"><u>Chime Connoisseurs Curated List of Download Websites for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/como-articular-colores-en-espanol/"><u>Cómo Articular Colores en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fluency-in-english-for-non-native-speakers/"><u>Fluency in English for Non-Native Speakers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-good-to-great-elevating-english-with-mondly/"><u>From Good to Great: Elevating English with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-lexicon-leaders-fifteen-fifteen/"><u>Global Lexicon Leaders Fifteen-Fifteen</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-no-cost-screen-recording-tricks-for-pc-users/"><u>In 2024, No-Cost Screen Recording Tricks for PC Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-mandarin-salutations-essential-chinese-greetings/"><u>Mastering Mandarin Salutations: Essential Chinese Greetings</u></a></li>
+<li><a href="https://program-issues.techidaily.com/overcoming-functionality-errors-making-your-steelseries-gg-engine-work-flawlessly-in-windows/"><u>Overcoming Functionality Errors: Making Your SteelSeries GG Engine Work Flawlessly in Windows</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/overcoming-linguistic-labyrinths-winning-with-difficult-languages/"><u>Overcoming Linguistic Labyrinths: Winning With Difficult Languages</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/revive-silent-audio-devices-pc-edition/"><u>Revive Silent Audio Devices – PC Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-adventurers-guide-to-understanding-vietnamese/"><u>The Adventurer's Guide to Understanding Vietnamese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-language-map-of-vietnamese-expressions/"><u>The Ultimate Language Map of Vietnamese Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/time-saving-tips-for-japanese-number-mastery/"><u>Time-Saving Tips for Japanese Number Mastery</u></a></li>
+<li><a href="https://change-location.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-vivo-v27-pro-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Vivo V27 Pro | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unlock-creative-potential-utilizing-dall-e-3-free-with-microsofts-bing-engine/"><u>Unlock Creative Potential: Utilizing DALL-E 3 Free with Microsoft's Bing Engine</u></a></li>
 </ul></div>
 

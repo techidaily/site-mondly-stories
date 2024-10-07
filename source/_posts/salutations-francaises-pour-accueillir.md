@@ -1,7 +1,7 @@
 ---
 title: Salutations Françaises Pour Accueillir
-date: 2024-09-24T22:43:24.619Z
-updated: 2024-10-01T18:40:08.532Z
+date: 2024-09-29T19:53:21.766Z
+updated: 2024-10-07T06:12:37.144Z
 tags:
   - speak
   - english
@@ -48,6 +48,13 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
 
  “Strasbourg, France” by Patrick Robert Doyle©
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052062/7443" target="_top" id="2052062">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052062" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052062/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. The informal “you’re welcome”:_je t’en prie_
 
  Like_‘de rien’_ , which is certainly the most casual way to say you’re welcome in French, ‘_je t’en prie’_ is another informal way to respond to someone who expressed their gratitude towards you.
@@ -64,13 +71,6 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
 
  B:_Je t’en prie !_ (“You’re welcome!”)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3\. The formal “you’re welcome”:_je vous en prie_
 
  You’ll notice that this particular way to say ‘you’re welcome’ in French is very similar to the previous example. In fact, the phrase is almost identical. The only thing that’s changed is the personal pronoun. Instead of using the informal you –_‘tu’_ – we use the formal counterpart –_‘vous’_ .
@@ -78,10 +78,10 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
  This should make_‘je vous en prie’_ nice and easy to remember. Just be careful not to use it with close friends. Using_‘vous’_ will sound unnatural if you are in close company. Likewise, always use this version of you’re welcome in French if you are speaking with somebody you do not know, no matter their level of seniority.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### The literal translation of_‘je vous en prie’_
@@ -100,11 +100,31 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
 
 ![you're welcome](https://edge.mondly.com/blog/wp-content/uploads/2021/05/youre-welcome-960x640.jpg "4 Popular Ways To Say You’re Welcome In French 3")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  “Southern France, Toulouse” by DAT VO©
 
 ## 4\. The easiest to remember:_pas de problème_
 
  When you’re in the early stages of [learning French](https://travel-lingual.com/how-long-take-to-learn-french/) , sometimes the most sensible thing to do is use what you can remember. The word_‘problème’_ in this particular French expression resembles the English word ‘problem’ and should not be too difficult for you to learn. Be cautious of the [French grave accent](https://travel-lingual.com/french-accent-marks/) on the_‘e’_ as this alters the pronunciation of the word.
+
+<!-- affiliate ads begin -->
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### The literal translation of_‘pas de problème’_
 
@@ -119,13 +139,6 @@ Example:
  B:_Non, desolé, aucune idée !_ (“No, sorry. No idea!”)
 
  A:_Pas de problème. Merci._ (“No problem. Thanks.”)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Bonus: Less common ways to say “you’re welcome” in French
 
@@ -156,13 +169,6 @@ _Th_ _is post is delivered to you by James A. Smith._
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Speak French fluently in just 10 minutes a day
 
  **Do you want to [speak French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) like a fluent speaker?** Get Mondly, the award-winning language learning app that will help you speak French as if you were Paris-born.
@@ -188,15 +194,20 @@ _Th_ _is post is delivered to you by James A. Smith._
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-the-economics-of-youtube-marketing-strategies/"><u>[Updated] In 2024, The Economics of YouTube Marketing Strategies</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/how-to-quickly-resolve-sound-issues-a-5-stage-guide-for-windows-11-users/"><u>How to Quickly Resolve Sound Issues: A 5-Stage Guide for Windows 11 Users</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-easy-guide-to-samsung-galaxy-a05s-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Samsung Galaxy A05s FRP Bypass With Best Methods</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-french-efficiently-from-home-guide/"><u>Learn French Efficiently From Home Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/multicultural-mastery-the-art-of-interacting-across-borders/"><u>Multicultural Mastery: The Art of Interacting Across Borders</u></a></li>
-<li><a href="https://driver-error.techidaily.com/overcome-iphone-mtp-usb-compatibility-challenges-a-step-by-step-solution/"><u>Overcome iPhone MTP USB Compatibility Challenges – A Step-by-Step Solution</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/transform-your-webm-files-to-ogv-at-no-cost-use-our-step-by-step-guide-online/"><u>Transform Your WebM Files to OGV at No Cost - Use Our Step-by-Step Guide Online!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unleashing-potential-with-johannes-honterus/"><u>Unleashing Potential with Johannes Honterus</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-mastering-video-editing-on-mac-fast-and-easy-techniques-for-cutting-large-files/"><u>Updated Mastering Video Editing on Mac Fast and Easy Techniques for Cutting Large Files</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/vielfalt-in-der-deutschen-sprache-grusselworter-ohne-hallo/"><u>Vielfalt in Der Deutschen Sprache: Grüßelwörter Ohne Hallo</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-premium-picks-recommended-spots-for-procuring-snapchat-chime/"><u>[New] 2024 Approved Premium Picks Recommended Spots for Procuring Snapchat Chime</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-a-deep-dive-into-exceptional-screen-recording-using-adobe-captivity/"><u>[New] In 2024, A Deep Dive Into Exceptional Screen Recording Using Adobe Captivity</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-key-to-click-through-success-top-thumbnail-size-recommendations/"><u>[New] The Key to Click-Through Success Top Thumbnail Size Recommendations</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-top-picks-user-friendly-software-for-new-game-recorders-and-editors/"><u>[New] Top Picks User-Friendly Software for New Game Recorders & Editors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bengalian-easy-fast-language-learning-each-day/"><u>Bengalian Easy: Fast Language Learning Each Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decadent-delights-multilingual-names/"><u>Decadent Delights, Multilingual Names</u></a></li>
+<li><a href="https://program-issues.techidaily.com/error-code-80asteroids-97-in-cod-black-ops-cold-war-heres-your-ultimate-fix/"><u>Error Code 80Asteroids 97 in COD: Black Ops Cold War? Here's Your Ultimate Fix</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/find-the-most-effective-strategy-to-learn-finnish-online/"><u>Find the Most Effective Strategy to Learn Finnish Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leveraging-apples-tech-to-amplify-student-potential-with-mondly/"><u>Leveraging Apple's Tech to Amplify Student Potential with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-popularity-in-asia-tri-tiered-leaders/"><u>Linguistic Popularity in Asia: Tri-Tiered Leaders</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/mastering-the-craft-integrating-gpt-my-bots-into-hobbies-and-artistry/"><u>Mastering the Craft: Integrating GPT-My Bots Into Hobbies and Artistry</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speedy-polish-comprehensibility-strategy/"><u>Speedy Polish Comprehensibility Strategy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-journey-into-hanguls-heart-adopting-korean-for-squid-game/"><u>The Journey Into Hangul's Heart - Adopting Korean for Squid Game</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-ultimate-guide-to-the-latest-and-greatest-mkv-conversion-tools-ranking-1-13/"><u>The Ultimate Guide to the Latest & Greatest MKV Conversion Tools - Ranking #1-#13</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-durability-and-reliable-energy-of-motorolas-moto-g-power/"><u>Unveiling the Durability & Reliable Energy of Motorola's Moto G Power</u></a></li>
 </ul></div>
 

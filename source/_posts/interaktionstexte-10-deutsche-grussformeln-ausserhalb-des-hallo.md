@@ -1,7 +1,7 @@
 ---
 title: "Interaktionstexte: 10 Deutsche Grußformeln Außerhalb Des 'Hallo'"
-date: 2024-09-26T21:08:39.819Z
-updated: 2024-10-01T20:47:35.848Z
+date: 2024-09-29T16:30:10.746Z
+updated: 2024-10-06T21:20:31.334Z
 tags:
   - speak
   - english
@@ -28,19 +28,6 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 
  First, some good news! As it turns out, Germans use_hi_ too. Careful though: as you already know,_hi_ is more informal than_hallo_ so you should keep this one between friends.
 
-<!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2\. Hallöchen – ‘Hello’ (lit. ‘little hello’)
 
  If you want to avoid repetition and diversify your vocabulary, you can also say_hallöchen,_ which is literally a ‘little hello’. It’s best to use_hallöchen_ to greet… whoever says German is a harsh language 🤭.
@@ -48,13 +35,6 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
  Kidding, but you did get the point. This tiny, little hello is reserved for very informal situations.
 
  Since we’re discussing diminutives, let’s also mention that_tschüss_ (‘bye’) can become_tschüssi_ . How cute!
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 3\. Guten Tag – “Hello” or “Good day”
 
@@ -80,6 +60,13 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 
  If you want to be as word-efficient as a native, you can also just say the shortened_wie geht’s?_ version.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 5\. Alles klar? – “Everything alright?”
 
  While_alles klar_ can also mean “everything is clear?” or “all fine?”, in the context of greetings is the same as saying “what’s up?” in English.
@@ -94,9 +81,23 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 
 !['German greetings' by Angelo Abear©](https://edge.mondly.com/blog/wp-content/uploads/2022/05/german-greetings-960x640.jpg "Hello In German: 10+ German Greetings Beyond Hallo 2")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Regional German greetings
 
  Now that you have enough greetings to get by in the entire German-speaking world, it’s time to get into specifics. These next greetings are generally used in just a few regions.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. Na – “Hey, how are you?”
 
@@ -115,13 +116,6 @@ _– Na._ (“Fine. Thanks!”)
 
 **Localization:** mostly northern Germany.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Moin moin – “Hi”
 
  The ‘harsh’ German language strikes again. Imagine you’re in Hamburg and people are cheerfully saying_moin_ or_moin moin_ or even_moinsten_ to you. What do you do? You say_moin_ back, of course!
@@ -131,10 +125,10 @@ _– Na._ (“Fine. Thanks!”)
 **Localization:** northern Germany, especially in and around Hamburg.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Grüezi – “Hello”
@@ -199,16 +193,19 @@ _Tschüss!_ (‘Goodbye!’)
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-skills.techidaily.com/new-perfecting-fading-audio-tracks-through-audacitys-tools/"><u>[New] Perfecting Fading Audio Tracks Through Audacity's Tools</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-affordable-high-definition-top-mirrorless-cameras-(1k/"><u>[Updated] Affordable High-Definition Top Mirrorless Cameras (<$1K)</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-binge-on-savings-top-tiktok-items-now-at-bargain-prices-on-amazon/"><u>[Updated] Binge on Savings Top TikTok Items Now at Bargain Prices on Amazon</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/updated-in-2024-deciphering-the-twitter-archive-a-beginners-tutorial/"><u>[Updated] In 2024, Deciphering the Twitter Archive A Beginner's Tutorial</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-mastering-skype-calls-on-pc-and-mac-free-vs-paid-recording-tips/"><u>2024 Approved Mastering Skype Calls on PC & Mac Free vs Paid Recording Tips</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-how-to-convert-twitter-videos-to-gifs/"><u>In 2024, How To Convert Twitter Videos To GIFS?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/informal-lingo-unveiled-definitions-of-everyday-terms/"><u>Informal Lingo Unveiled: Definitions of Everyday Terms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lexiconvr-the-new-era-of-learning-languages/"><u>LexiconVR: The New Era of Learning Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/modern-classroom-essentials-top-5-linguistic-tools/"><u>Modern Classroom Essentials: Top 5 Linguistic Tools</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-sea-slang-the-ultimate-pirate-lexicon/"><u>Navigating Sea Slang: The Ultimate Pirate Lexicon</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/yarrr-phrases-for-true-buccaneers/"><u>Yarrr! Phrases for True Buccaneers</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-open-world-opus-top-10-similar-video-games/"><u>[New] 2024 Approved Open World Opus Top 10 Similar Video Games</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-advanced-practices-for-capturing-iptv-visuals-for-2024/"><u>[New] Advanced Practices for Capturing IPTV Visuals for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-blocking-unwanted-youtube-channels-pc-and-mobile-edition/"><u>[New] Blocking Unwanted Youtube Channels PC & Mobile Edition</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/astering-vlogs-the-finest-camera-selections-of-the-year/"><u>[New] Mastering Vlogs The Finest Camera Selections of the Year</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-step-into-innovation-top-10-youtube-vr-creations/"><u>[Updated] Step Into Innovation Top 10 YouTube VR Creations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/como-identificar-animales-con-nombres-hispanos/"><u>Cómo Identificar Animales Con Nombres Hispanos</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-and-update-the-tp-link-ub400-bluetooth-adapter-compatible-drivers/"><u>Download and Update the TP-Link UB400 Bluetooth Adapter - Compatible Drivers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hora-y-segundo-un-curso-inicial-en-espanol/"><u>Hora Y Segundo: Un Curso Inicial en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-essentials-greetings-expressions-and-vocabulary-for-latin-america/"><u>Language Essentials: Greetings, Expressions & Vocabulary for Latin America</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-10-innovative-methods-revolutionizing-learning-languages/"><u>Mondly’s 10 Innovative Methods Revolutionizing Learning Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/perfectly-poached-or-poured-tips-for-excellent-fried-eggs-106-characters-slightly-over-but-within-acceptable-limits-if-slight-adjustments-are-made-to-avoid-1/"><u>Perfectly Poached or Poured? Tips for Excellent Fried Eggs (106 Characters, Slightly over but Within Acceptable Limits if Slight Adjustments Are Made to Avoid Including Non-Relevant Content.)</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-music-back-from-nokia-xr21-by-fonelab-android-recover-music/"><u>Simple ways to get lost music back from Nokia XR21</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-pedagogy-of-mondlys-learning-system/"><u>The Pedagogy of Mondly's Learning System</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/ultra-screen-recorder-how-to-use/"><u>Ultra Screen Recorder - How to Use</u></a></li>
 </ul></div>
 

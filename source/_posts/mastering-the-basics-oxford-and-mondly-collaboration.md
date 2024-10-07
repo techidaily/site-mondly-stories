@@ -1,7 +1,7 @@
 ---
 title: "Mastering the Basics: Oxford & Mondly Collaboration"
-date: 2024-09-01T00:25:30.640Z
-updated: 2024-09-02T00:25:30.640Z
+date: 2024-09-30T06:11:05.319Z
+updated: 2024-10-06T18:20:51.307Z
 tags:
   - speak
   - english
@@ -33,6 +33,13 @@ thumbnail: https://thmb.techidaily.com/f33adb8a41f790bc858c47b5fb66f5998fe40f100
  As [Oxford University Press](https://elt.oup.com/feature/global/expert/oxford-3000?cc=ro&selLanguage=en) explains, _the original list was compiled by looking at word frequency information from the British National Corpus, a large database of English texts (100 million words) composed of a wide range of written and spoken genres which can be seen as representing language usage in general. While frequency was the main guiding principle in compiling the list, raw frequency data can throw up a number of anomalies that make little sense from a teaching perspective. For example, some words that are clearly useful for learners, such as “passport” and “apple”, are not very high frequency in a general corpus. For this reason, compilers took into account not just frequency, but also familiarity (…) as judged by a panel of 70 teachers._
 
  Since its inception, the Oxford 3000 has been revised to reflect the language in daily use that has changed a lot due to the growth of the internet and social media.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The most important words in English and their relation to CEFR levels
 
@@ -76,8 +83,6 @@ thumbnail: https://thmb.techidaily.com/f33adb8a41f790bc858c47b5fb66f5998fe40f100
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -85,8 +90,26 @@ thumbnail: https://thmb.techidaily.com/f33adb8a41f790bc858c47b5fb66f5998fe40f100
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-unlocking-the-vault-of-online-videos-via-facebook/"><u>[New] 2024 Approved Unlocking the Vault of Online Videos via Facebook</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-mastery-techniques-for-embedding-social-media-live-videos/"><u>[New] Mastery Techniques for Embedding Social Media Live Videos</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-enhance-gameplay-the-ultimate-guide-to-using-steams-switch-controller/"><u>[Updated] Enhance Gameplay The Ultimate Guide to Using Steam's Switch Controller</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-how-to-for-transforming-your-profile-photo-on-major-social-platforms/"><u>[Updated] In 2024, How-To for Transforming Your Profile Photo on Major Social Platforms</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/2024-approved-mastering-your-movements-the-complete-guide-to-slow-mo-in-tiktok/"><u>2024 Approved Mastering Your Movements The Complete Guide to Slow Mo in TikTok</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-veiled-viewer-in-the-social-sphere/"><u>2024 Approved Veiled Viewer in the Social Sphere</u></a></li>
+<li><a href="https://article-posts.techidaily.com/best-tales-spun-8-divisions-of-cinematic-genres/"><u>Best Tales Spun 8 Divisions of Cinematic Genres</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/black-friday-bonanza-learn-any-language-zero-cost/"><u>Black Friday Bonanza: Learn Any Language, Zero Cost</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/complete-guide-to-overcome-unreal-engine-4-crashes-in-windowsmacos/"><u>Complete Guide to Overcome Unreal Engine 4 Crashes in Windows/MacOS</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprendiendo-botones-de-relojes-ensenanza-basica/"><u>Comprendiendo Botones De Relojes - Enseñanza Básica</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-dialect-diversity-get-a-staggering-95-off-languages-this-year/"><u>Dive Into Dialect Diversity - Get a Staggering 95% Off Languages This Year</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581448693-epic-deals-on-global-communication-today-only/"><u>Epic Deals on Global Communication Today Only!</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/explore-the-best-3d-printers-of-2024-from-advanced-resin-tech-to-economical-fdm-systems/"><u>Explore the Best 3D Printers of 2024: From Advanced Resin Tech to Economical FDM Systems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/harmonizing-brain-power-music-driven-language-acquisition-techniques/"><u>Harmonizing Brain Power: Music-Driven Language Acquisition Techniques</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-oneplus-ace-2v-phone-by-drfone-android/"><u>In 2024, How to Use Google Assistant on Your Lock Screen Of OnePlus Ace 2V Phone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-precision-meets-gsl-excellence-from-pearson/"><u>Mondly's Precision Meets GSL Excellence From Pearson</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pinnacle-online-hubs-learn-and-conquer-new-tongues-with-ease/"><u>Pinnacle Online Hubs: Learn and Conquer New Tongues with Ease!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-skill-sharpen-back-button-focus/"><u>Speaking Skill Sharpen: Back Button Focus</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/whats-the-best-way-to-learn-a-language-online/"><u>What's The Best Way To Learn A Language Online</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

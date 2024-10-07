@@ -1,7 +1,7 @@
 ---
 title: Quick Language Acquisition with Oxford 3000, Mondly Style
-date: 2024-09-01T00:24:38.934Z
-updated: 2024-09-02T00:24:38.934Z
+date: 2024-10-04T00:06:57.470Z
+updated: 2024-10-07T00:59:45.317Z
 tags:
   - speak
   - english
@@ -33,6 +33,13 @@ thumbnail: https://thmb.techidaily.com/ea52c7c75e7b3032041ebf8f7a073a81be8689646
  As [Oxford University Press](https://elt.oup.com/feature/global/expert/oxford-3000?cc=ro&selLanguage=en) explains, _the original list was compiled by looking at word frequency information from the British National Corpus, a large database of English texts (100 million words) composed of a wide range of written and spoken genres which can be seen as representing language usage in general. While frequency was the main guiding principle in compiling the list, raw frequency data can throw up a number of anomalies that make little sense from a teaching perspective. For example, some words that are clearly useful for learners, such as “passport” and “apple”, are not very high frequency in a general corpus. For this reason, compilers took into account not just frequency, but also familiarity (…) as judged by a panel of 70 teachers._
 
  Since its inception, the Oxford 3000 has been revised to reflect the language in daily use that has changed a lot due to the growth of the internet and social media.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The most important words in English and their relation to CEFR levels
 
@@ -76,8 +83,6 @@ thumbnail: https://thmb.techidaily.com/ea52c7c75e7b3032041ebf8f7a073a81be8689646
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -85,8 +90,24 @@ thumbnail: https://thmb.techidaily.com/ea52c7c75e7b3032041ebf8f7a073a81be8689646
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://mondly-stories.techidaily.com/10-culturally-rich-foreign-movies/"><u>10 Culturally Rich Foreign Movies</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/el-design-mastery-selecting-the-right-yt-banner-and-art-sizes/"><u>Channel Design Mastery Selecting the Right YT Banner & Art Sizes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/connect-cultures-with-pearsons-language-portal/"><u>Connect Cultures with Pearson's Language Portal</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/cross-platform-strategies-for-maximum-instagram-exposure/"><u>Cross-Platform Strategies for Maximum Instagram Exposure</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-the-hp-universal-printer-driver-for-windows-latest-version/"><u>Download the HP Universal Printer Driver for Windows - Latest Version</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-vocabulary-kit-for-vietnam-exploration/"><u>Essential Vocabulary Kit for Vietnam Exploration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-market-access-benefits-of-being-multilingual/"><u>Global Market Access: Benefits of Being Multilingual</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/happy-4th-of-july-celebrating-in-multiple-languages/"><u>Happy 4Th Of July: Celebrating In Multiple Languages</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/illustrators-secret-creating-seamless-image-movement/"><u>Illustrator's Secret Creating Seamless Image Movement</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-vivo-t2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Vivo T2 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-salutations-guide/"><u>International Salutations Guide</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/lock-your-honor-play-40c-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>Lock Your Honor Play 40C Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mosaic-of-mankind-understanding-african-languages/"><u>Mosaic of Mankind: Understanding African Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ranking-the-most-common-non-native-languages-in-american-schools/"><u>Ranking the Most Common Non-Native Languages in American Schools</u></a></li>
+<li><a href="https://techidaily.com/unlock-iphone-se-2022-lock-with-apple-id-by-drfone-ios-unlock-ios-unlock/"><u>Unlock iPhone SE (2022) lock with Apple ID</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/unveiling-the-secrets-of-self-playing-fb-videos-for-2024/"><u>Unveiling the Secrets of Self-Playing FB Videos for 2024</u></a></li>
+<li><a href="https://techidaily.com/what-should-i-do-if-i-dont-find-the-deleted-iphone-11-files-after-scanning-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>What should I do if I dont find the deleted iPhone 11 files after scanning? | Stellar</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->

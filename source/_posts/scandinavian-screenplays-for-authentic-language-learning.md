@@ -1,7 +1,7 @@
 ---
 title: Scandinavian Screenplays for Authentic Language Learning
-date: 2024-09-01T00:26:26.742Z
-updated: 2024-09-02T00:26:26.742Z
+date: 2024-09-30T00:10:54.472Z
+updated: 2024-10-06T17:09:52.350Z
 tags:
   - speak
   - english
@@ -34,6 +34,13 @@ Grab the popcorn and enjoy!
 
  Elmer and Erik try to become “invisible”, but that doesn’t spare them from being bullied by some of the older boys. Are they gonna find salvation? Watch it and find out.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 5\. Adams Æbler (2005) (Adam’s Apples)
 
 [**IMDb rating: 7,8**](https://www.imdb.com/title/tt0418455/?ref%5F=nv%5Fsr%5F1?ref%5F=nv%5Fsr%5F1)
@@ -45,8 +52,12 @@ Grab the popcorn and enjoy!
  “Adams Æbler” is a successful combination of black humor and drama guaranteed to keep you glued to the screen.
 
 <!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 4\. Efter brylluppet (2006) (After the Wedding)
 
 [**IMDb rating: 7,7**](https://www.imdb.com/title/tt0457655/?ref%5F=nv%5Fsr%5F1?ref%5F=nv%5Fsr%5F1)
@@ -58,8 +69,12 @@ Grab the popcorn and enjoy!
  This is only the second movie in the list blessed with the presence of Mads Mikkelsen, but hang in there! There’s more on the way.
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 3\. Hævnen (2010) (In a Better World)
 
 [**IMDb rating: 7,6**](https://www.imdb.com/title/tt1340107/?ref%5F=nv%5Fsr%5F1?ref%5F=nv%5Fsr%5F1)
@@ -71,8 +86,18 @@ Grab the popcorn and enjoy!
  Academy Award winner for Best Foreign Language Film of the Year in 2011 (already convinced, aren’t you?), “Hævnen” is a story about friendship, choices, revenge, forgiveness and the consequences of our actions. There’s no way you won’t find yourself in it.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 2\. En kongelig affære (2012) (A Royal Affair)
 
 [**IMDb rating: 7,5**](https://www.imdb.com/title/tt1276419/?ref%5F=fn%5Fal%5Ftt%5F1)
@@ -83,9 +108,6 @@ Grab the popcorn and enjoy!
 
  The two lovers use their influence on King Christian to start a revolution that will change the nation forever. But will this be in their own best interest? Believe me, you absolutely have to watch this. Not only that this film was also nominated for an Oscar, but the costume design and the acting are absolutely amazing. Time watching it will not be time wasted.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 1\. Jagten (2012) (The Hunt)
 
 [**IMDb rating: 8,3**](https://www.imdb.com/title/tt2106476/)
@@ -117,8 +139,6 @@ Grab the popcorn and enjoy!
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -126,4 +146,22 @@ Grab the popcorn and enjoy!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unveiling-the-secret-of-affordable-video-ad-creation-on-youtube/"><u>[New] Unveiling the Secret of Affordable Video Ad Creation on YouTube</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-family-fantasy-films-this-summers-best-10-classics/"><u>[Updated] 2024 Approved Family Fantasy Films This Summer's Best 10 Classics</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-mastering-the-art-of-capturing-live-hulu-content-across-platforms/"><u>[Updated] In 2024, Mastering the Art of Capturing Live Hulu Content Across Platforms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/an-in-depth-guide-to-hiragana-and-katakana/"><u>An In-Depth Guide to Hiragana and Katakana</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-cultures-2-years-of-mondly-language-adventure/"><u>Bridging Cultures: 2 Years of Mondly Language Adventure</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/1721433766016-dont-trust-unverified-ai-services-spot-the-fakes/"><u>Don't Trust Unverified AI Services - Spot the Fakes!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevate-your-communication-skills-fastest-way-7-ways-through-mondlys-afrikaans-lessons/"><u>Elevate Your Communication Skills Fastest Way - 7 Ways Through Mondly's Afrikaans Lessons</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-unlock-honor-magic-6-lite-without-password-by-drfone-android-unlock-android-unlock/"><u>How to Unlock Honor Magic 6 Lite Without Password?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/huawei-users-get-ready-for-mondly/"><u>Huawei Users, Get Ready for Mondly!</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-unleash-your-brand-11-best-free-animated-logo-design-tools/"><u>New 2024 Approved Unleash Your Brand 11 Best Free Animated Logo Design Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oxford-unleashes-language-potential-essentials-first/"><u>Oxford Unleashes Language Potential: Essentials First</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/staying-engaged-and-sharp-learning-languages-beyond-fifty/"><u>Staying Engaged and Sharp: Learning Languages Beyond Fifty</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/the-sincere-evaluation-of-a-digital-audio-player-for-2024/"><u>The Sincere Evaluation of a Digital Audio Player for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/top-apps-and-online-tools-to-track-xiaomi-redmi-note-12-4g-phone-withwithout-imei-number-by-drfone-android/"><u>Top Apps and Online Tools To Track Xiaomi Redmi Note 12 4G Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-ranked-methods-for-mastering-lithuaninas-online/"><u>Top-Ranked Methods for Mastering Lithuaninas Online</u></a></li>
+</ul></div>
 

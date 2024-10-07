@@ -1,7 +1,7 @@
 ---
 title: Nations Unified by Castilian Roots
-date: 2024-09-01T00:28:22.733Z
-updated: 2024-09-02T00:28:22.733Z
+date: 2024-09-30T23:41:10.517Z
+updated: 2024-10-06T17:11:42.425Z
 tags:
   - speak
   - english
@@ -42,6 +42,13 @@ thumbnail: https://thmb.techidaily.com/770723973e178e7a8930f29e3f500f2a61aa4b3cc
 
  Now just imagine how many new friends you could make if you started [learning Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) now!
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## List of Spanish-speaking countries
 
  **Formally, Spanish is the official language of 20 countries and one dependent territory: Argentina, Bolivia, Chile, Colombia, Costa Rica, Cuba, Dominican Republic, Ecuador, El Salvador, Equatorial Guinea, Guatemala, Honduras, Mexico, Nicaragua, Panama, Paraguay, Peru, Spain, Uruguay, Venezuela and Puerto Rico.**
@@ -52,13 +59,17 @@ thumbnail: https://thmb.techidaily.com/770723973e178e7a8930f29e3f500f2a61aa4b3cc
 
 !['How many people speak Spanish' by Cecy Alvarado©](https://edge.mondly.com/blog/wp-content/uploads/2022/11/how-many-people-speak-spanish-960x640.jpg "Full List Of Spanish-Speaking Countries — How Many People Speak Spanish? 2")
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  In addition to the 20 countries, Spanish is also the official language of several international organizations. These include the United Nations, the European Union, the Organization of American States, the Union of South American Nations, the Community of Latin American and Caribbean States, the [African](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) Union and many other international organizations.
 
  Now let’s go into a little more detail and split the countries into continents.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
-<!-- affiliate ads end -->
 ### Spanish-speaking countries in South America
 
  Since the Americas boast the highest number of Spanish-speaking countries in the world, we figured it’s best to start our exploration in South America. Out of the thirteen countries in the South American continent, nine are Spanish speaking. This means there are more Spanish-speaking countries here than anywhere else in the world.
@@ -94,9 +105,6 @@ thumbnail: https://thmb.techidaily.com/770723973e178e7a8930f29e3f500f2a61aa4b3cc
 
 * Mexico — 97% (percentage of the entire population speaking Spanish)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Spanish-speaking countries in the Caribbean
 
  If Mexico is the country with the most Spanish speakers in the world, Cuba is the country with the largest proportion of Spanish speakers in the world.
@@ -105,14 +113,18 @@ thumbnail: https://thmb.techidaily.com/770723973e178e7a8930f29e3f500f2a61aa4b3cc
 * Dominican Republic — 98%
 * Puerto Rico — 99%
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Spanish-speaking countries in Europe
 
  We’re finally almost at the end of our exploration with Spain: the home country of the Spanish language. It’s truly surprising how few people speak Spanish here! The reason for this is that a significant number of people in Spain speak Catalan.
 
 * Spain — 92% (percentage of the entire population speaking Spanish)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Spanish-speaking countries in Africa
 
@@ -123,8 +135,12 @@ thumbnail: https://thmb.techidaily.com/770723973e178e7a8930f29e3f500f2a61aa4b3cc
 !['Spanish speakers' by Florian Wehde©](https://edge.mondly.com/blog/wp-content/uploads/2022/11/spanish-speakers-960x640.jpg "Full List Of Spanish-Speaking Countries — How Many People Speak Spanish? 3")
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Countries where Spanish is spoken although it’s not an official language
 
  Spanish is spoken in many countries around the world, although it is not an official language in all of them. Naturally, there can be a number of reasons why this happens.
@@ -133,9 +149,6 @@ thumbnail: https://thmb.techidaily.com/770723973e178e7a8930f29e3f500f2a61aa4b3cc
 
  Other countries with large minorities of Spanish speakers are Belize, the Philippines (Spanish was an official language here from 1565 to 1973), Gibraltar and Andorra.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## A brief history of the Spanish language
 
  If you want to understand how did the Spanish language become so widespread, you’ll have to turn to history.
@@ -155,9 +168,6 @@ thumbnail: https://thmb.techidaily.com/770723973e178e7a8930f29e3f500f2a61aa4b3cc
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Speak Spanish like a local fast
 
  Do you want to feel at home in over 20 countries and speak Spanish fluently fast? Try Mondly, the award-winning language app that is serious about making learning Spanish fun.
@@ -180,8 +190,6 @@ thumbnail: https://thmb.techidaily.com/770723973e178e7a8930f29e3f500f2a61aa4b3cc
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -189,4 +197,26 @@ thumbnail: https://thmb.techidaily.com/770723973e178e7a8930f29e3f500f2a61aa4b3cc
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-lessons.techidaily.com/new-12plus-ways-to-immerse-in-international-cricket-via-streaming/"><u>[New] 12+ Ways to Immerse in International Cricket via Streaming</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-converting-avian-videos-avi-into-graphic-images-gif-using-filmora/"><u>[New] Converting Avian Videos (AVI) Into Graphic Images (GIF) Using Filmora</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-enhancing-snaps-incorporating-funny-lenses-on-snapchat/"><u>[New] In 2024, Enhancing Snaps Incorporating Funny Lenses on Snapchat</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-step-by-step-guide-to-edges-pip-functionality/"><u>[New] In 2024, Step-by-Step Guide to Edge’s PIP Functionality</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-achieving-cohesion-in-content-with-flv-video-integration/"><u>[Updated] Achieving Cohesion in Content with FlV Video Integration</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-unbeatable-hard-drives-to-upgrade-your-xbox-gear/"><u>[Updated] In 2024, Unbeatable Hard Drives to Upgrade Your Xbox Gear</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-quick-fix-valorant-thumbnails-professionally-done-now/"><u>[Updated] Quick-Fix Valorant Thumbnails Professionally Done Now</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-realme-c51-drfone-by-drfone-android/"><u>How To Use Allshare Cast To Turn On Screen Mirroring On Realme C51 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/how-to-watch-facebook-videos-on-my-apple-tv/"><u>How to Watch Facebook Videos on My Apple TV?</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/how-to-watch-multiple-youtube-videos-at-one-time-in-2024/"><u>How To Watch Multiple YouTube Videos at One Time, In 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/italy-uncovered-essential-phrases-for-a-rich-experience/"><u>Italy Uncovered: Essential Phrases for a Rich Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-adventures-interactive-and-lively-teaching/"><u>Latin Adventures: Interactive & Lively Teaching</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/maximize-marketing-with-mastery-in-effective-biz-communication/"><u>Maximize Marketing With Mastery in Effective Biz Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/myth-and-mouth-movement-the-language-of-vikings/"><u>Myth and Mouth Movement: The Language of Vikings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/playful-persuasion-the-best-choice-of-pickup-line-tactics/"><u>Playful Persuasion: The Best Choice of Pickup Line Tactics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-start-learn-urdu-every-day/"><u>Quick Start: Learn Urdu, Every Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/turkish-and-korean-exploring-the-language-mysteryback-buttonfilter-button/"><u>Turkish And Korean: Exploring The Language MysteryBack ButtonFilter Button</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/universal-breeze-simplified-language-mastery-rankings/"><u>Universal Breeze: Simplified Language Mastery Rankings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gnwsh-glwttothpeioy-paradoseis-eyxethmatos/"><u>Γνώση Γλωττοτηπειού Παραδόσεις Ευχετήματος</u></a></li>
+</ul></div>
 

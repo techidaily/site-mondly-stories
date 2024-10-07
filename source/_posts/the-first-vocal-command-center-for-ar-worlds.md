@@ -1,7 +1,7 @@
 ---
 title: The First Vocal Command Center for AR Worlds
-date: 2024-09-01T00:24:33.843Z
-updated: 2024-09-02T00:24:33.843Z
+date: 2024-10-02T04:43:23.768Z
+updated: 2024-10-06T20:30:19.760Z
 tags:
   - speak
   - english
@@ -42,6 +42,13 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 > _We started working on Mondly AR in August 2017 and by the time [Blade Runner 2049](http://www.imdb.com/title/tt1856101/) was released, we already had a working demo. Watching Blade Runner 2049 made me realize that we were beginning to build the future. To me, Joi (the holographic companion of officer K) looked like a super advanced version of Mondly – the character we were creating. They can both understand speech, reply with a human voice and change outfits. Of course, Mondly is not as smart and realistic as Joi. Yet. But she can teach you 7 languages. And this is just the beginning._
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Here’s what you should know about Mondly AR
 
 * Is available on [Google Play](https://play.google.com/store/apps/details?id=com.atistudios.mondlyar.languages&hl=en)
@@ -58,14 +65,12 @@ Alex Iliescu, our CEO, spoke about the launch:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Facts and figures about Mondly
 
 * 30 million downloads, in over 190 countries
@@ -80,8 +85,12 @@ Alex Iliescu, our CEO, spoke about the launch:
 * [Mondly Press Kit](https://www.dropbox.com/sh/vo4j5214zvwdxy5/AAC20VxIgpuiEe7ED2%5F37VNEa?dl=0)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Media mentions about Mondly
 
 * **INC.com** – “The New Way to Learn Languages”
@@ -102,8 +111,6 @@ Alex Iliescu, our CEO, spoke about the launch:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -111,4 +118,20 @@ Alex Iliescu, our CEO, spoke about the launch:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-enhance-youtube-views-leveraging-outro-content-partnerships/"><u>[New] 2024 Approved Enhance YouTube Views Leveraging Outro Content Partnerships</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-simplified-guide-to-using-virtual-whiteboards-in-zoom-platforms/"><u>[Updated] 2024 Approved Simplified Guide to Using Virtual Whiteboards in Zoom Platforms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-relatable-situations-youll-understand-only-if-you-ever-dated-a-foreigner/"><u>10 Relatable Situations You’ll Understand Only If You Ever Dated a Foreigner</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-intense-moment-capture-iphone-burst-mode/"><u>2024 Approved Intense Moment Capture IPhone Burst Mode</u></a></li>
+<li><a href="https://win-answers.techidaily.com/beat-the-slow-down-expert-fixes-for-assassins-creed-valhalla-latency/"><u>Beat the Slow Down: Expert Fixes for Assassin's Creed: Valhalla Latency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effortless-norsk-acquisition-short-sessions/"><u>Effortless Norsk Acquisition - Short Sessions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fluent-in-just-a-few-weeks-learn-tagalog-fast/"><u>Fluent in Just a Few Weeks? Learn Tagalog Fast!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-expert-mastering-language-with-mondly-2022/"><u>From Novice to Expert: Mastering Language with Mondly, 2022</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-to-tell-if-twitch-is-really-down-or-if-theres-a-local-problem/"><u>How To Tell If Twitch Is Really Down or If There's A Local Problem</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-samsung-galaxy-a14-5g-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Samsung Galaxy A14 5G to Outlook | Dr.fone</u></a></li>
+<li><a href="https://driver-download.techidaily.com/install-epson-artisan-amo-1430-drivers-on-windows-11108-secure-your-printing-experience/"><u>Install Epson Artisan Amo 1430 Drivers on Windows 11/10/8 – Secure Your Printing Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579840764-language-learning-revolution-at-your-fingertips-free-and-cheap/"><u>Language Learning Revolution at Your Fingertips, Free & Cheap</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/svenska-grev-valkommen-till-sverige/"><u>Svenska Grev: Välkommen Till Sverige</u></a></li>
+</ul></div>
 

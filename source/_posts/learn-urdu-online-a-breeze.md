@@ -1,7 +1,7 @@
 ---
 title: Learn Urdu Online – A Breeze!
-date: 2024-09-01T00:27:51.071Z
-updated: 2024-09-02T00:27:51.071Z
+date: 2024-10-02T02:19:16.098Z
+updated: 2024-10-07T03:31:16.352Z
 tags:
   - speak
   - english
@@ -34,6 +34,13 @@ thumbnail: https://thmb.techidaily.com/337350c11ae587c77e044eafd70c0e67c4637d755
 
  Moreover, in the 19th century, the Hindi–Urdu [controversy](https://en.wikipedia.org/wiki/Hindi%E2%80%93Urdu%5Fcontroversy) arose in colonial India. The debate was whether Hindi or Urdu should be chosen as a national language. In 1900, the government issued a decree granting symbolic equal status to both Hindi and Urdu. But then, Gandhi proposed using either Devanagari or Urdu script, under the traditional generic term Hindustani. Therefore, in 1950, Hindi, in the Devanagari script, along with English, replaced Urdu as one of the official languages of India.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Learn Urdu from Hindi, Arabic, English, Korean and more
 
  You spoke. We listened! Because the vast majority of people want to learn Urdu from popular languages like Hindi (although similar, you still need some help to learn both), Arabic, English or Korean, we worked hard and finally made it possible.
@@ -41,8 +48,12 @@ thumbnail: https://thmb.techidaily.com/337350c11ae587c77e044eafd70c0e67c4637d755
  Starting right now, you can [learn Urdu](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4511&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4511?mother%5Flang=en%5Fus?target%5Flang=ur&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4511?mother%5Flang=en%5Fus?target%5Flang=ur) from Hindi, Arabic, English, Korean and 29 other languages only with Mondly.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 10 basic Urdu words and phrases you can learn right now
 
  Are you excited to learn Urdu yet? Let’s not waste any more time and start with your first “Urdu for beginners” course right now. Here are the top 10 basic Urdu words and phrases everybody should know. Transliteration included so you’ll easily know how to pronounce them.
@@ -64,8 +75,12 @@ thumbnail: https://thmb.techidaily.com/337350c11ae587c77e044eafd70c0e67c4637d755
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Speak Urdu today
 
  It can be really tricky to master Urdu pronunciation if you don’t actively live in Pakistan. But with Mondly, the award-winning language learning app, you can learn Urdu naturally with practical topics, authentic conversations and bite-sized Daily Lessons.
@@ -80,8 +95,6 @@ thumbnail: https://thmb.techidaily.com/337350c11ae587c77e044eafd70c0e67c4637d755
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -89,4 +102,20 @@ thumbnail: https://thmb.techidaily.com/337350c11ae587c77e044eafd70c0e67c4637d755
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-engage-more-with-facebook-sharing-panoramic-photos-via-iosandroid-apps/"><u>[New] Engage More with Facebook Sharing Panoramic Photos via iOS/Android Apps</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-laughlens-lab-snapsatiricals/"><u>[New] LaughLens Lab SnapSatiricals</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-unlocking-whatsapps-vocal-messaging-secrets/"><u>2024 Approved Unlocking WhatsApp's Vocal Messaging Secrets</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/5-solutions-for-oppo-a58-4g-unlock-without-password-by-drfone-android/"><u>5 Solutions For Oppo A58 4G Unlock Without Password</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/avi-bestanden-verklapt-wat-het-mean-en-de-oplossingen-om-te-openbarsten/"><u>Avi-Bestanden Verklapt: Wat Het Mean En De Oplossingen Om Te Openbarsten</u></a></li>
+<li><a href="https://win11.techidaily.com/return-to-standard-touch-keyboard-alignment-in-windows-11/"><u>Return to Standard Touch Keyboard Alignment in Windows 11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/shakespeares-sonnet-scribbled-into-todays-vernacular/"><u>Shakespeare’s Sonnet Scribbled Into Today's Vernacular</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-facebooks-visibility-settings-to-protect-privacy/"><u>Tailoring Facebook's Visibility Settings to Protect Privacy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/thankful-talk-multilingual-manners-and-phrases-155/"><u>Thankful Talk: Multilingual Manners and Phrases (155)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-language-matrix-decoding-complex-verbal-systems-in-star-wars/"><u>The Language Matrix: Decoding Complex Verbal Systems in Star Wars</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/uniting-the-world-of-learning-betts-mission/"><u>Uniting the World of Learning - BETT's Mission</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vermeidung-von-falschen-deutschen-entschuldigungen/"><u>Vermeidung Von Falschen Deutschen Entschuldigungen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-start-with-arabic-experience-the-adventure-with-mondly-online-6-reasons/"><u>Why Start with Arabic? Experience the Adventure with Mondly Online (6 Reasons)</u></a></li>
+</ul></div>
 

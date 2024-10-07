@@ -1,7 +1,7 @@
 ---
 title: Mondly’s Pedagogical Strategies Revealed
-date: 2024-09-01T00:23:29.533Z
-updated: 2024-09-02T00:23:29.533Z
+date: 2024-10-02T02:00:04.757Z
+updated: 2024-10-07T00:32:14.055Z
 tags:
   - speak
   - english
@@ -19,8 +19,6 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
  How do [children learn languages](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) so easily? Biologically, a child’s brain is prepared for learning, but you never see kids study conjugations, do you? So how can this be possible?
 
  The answer is simpler than you think. They learn by doing. And that’s the best approach for you too.
-
-
 
  After years of working abroad and learning several languages, the founders of what would soon become Mondly made a decision. They needed to bring this amazing approach to an app. And they did.
 
@@ -44,6 +42,13 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
 
  Basically, what happens in the app is that new and more difficult words or phrases will be shown together with older and less difficult ones. But as you progress, the old information will be shown less and less frequently than the new one. This technique makes sure that the information you learned is well-cemented in your brain before moving on to new concepts.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Lexical coverage: focus on the most common words
 
  Improving your vocabulary is, without a doubt, one of the key aspects of language learning. The more words you’ll know, the closer you’ll be to fluency. But keep in mind that not all words are equally important.
@@ -51,6 +56,13 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
 [Studies](https://academic.oup.com/applij/article-abstract/34/4/457/199564?redirectedFrom=fulltext) have shown that knowing as little as 100 words helps you understand 50% of any text in the language you’re learning. Surprising as it may seem, it’s true. Knowing 1,000 words will give you a high coverage of 75% of any text. Here’s how much lexical coverage you need to reach fluency in almost any language:
 
 ![lexical coverage](https://edge.mondly.com/blog/wp-content/uploads/2021/10/lexical-coverage-960x761.png "The Learning Method Behind Mondly 5")
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lexical coverage overview
 
@@ -64,8 +76,12 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Take Mondly for a test drive
 
  Take your language learning experience to the next level. With Mondly, you’ll learn by doing.
@@ -82,8 +98,6 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -91,4 +105,22 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-innovative-screen-capture-tools-review-top-10-free-selections/"><u>[New] 2024 Approved Innovative Screen Capture Tools Review Top 10 Free Selections</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-diy-lol-gameplay-tapes-mastering-three-methods-for-2024/"><u>[Updated] DIY LOL Gameplay Tapes Mastering Three Methods for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-unseen-streamer-how-to-live-stream-privately-on-instagram-for-2024/"><u>[Updated] Unseen Streamer How to Live-Stream Privately on Instagram for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/connect-better-mondly-now-available-on-huawei/"><u>Connect Better: Mondly Now Available on Huawei</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/easy-to-follow-instructions-to-add-apps-to-your-samsung-smart-tv/"><u>Easy-to-Follow Instructions to Add Apps to Your Samsung Smart TV</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-restore-sound-from-a-plugged-in-speaker-that-isnt-working-in-windows/"><u>How to Restore Sound From a Plugged-In Speaker that Isn’t Working in Windows</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-sony-xperia-1-v-lock-screen-password-by-drfone-android/"><u>In 2024, How To Change Sony Xperia 1 V Lock Screen Password?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/languages-of-love-july-4th-commemoration/"><u>Languages of Love, July 4Th Commemoration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-secret-to-exceptional-communication-skills/"><u>Mondly's Secret to Exceptional Communication Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oculus-quest-embraces-worldwide-linguistics-via-mondly/"><u>Oculus Quest Embraces Worldwide Linguistics via 'Mondly'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/premier-asian-linguistic-trinity-backup-and-organize-lists/"><u>Premier Asian Linguistic Trinity: Backup & Organize Lists</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/step-by-step-guide-recovering-irreversibly-removed-pictures-on-ios-devices/"><u>Step-by-Step Guide: Recovering Irreversibly Removed Pictures on iOS Devices</u></a></li>
+<li><a href="https://howto.techidaily.com/super-easy-ways-to-deal-with-oneplus-12r-unresponsive-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Super Easy Ways To Deal with OnePlus 12R Unresponsive Screen | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/terms-update-enhanced-privacy-focus/"><u>Terms Update - Enhanced Privacy Focus</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/unfolding-details-on-the-next-gen-foldable-iphone-pricing-predictions-availability-date-and-feature-overview/"><u>Unfolding Details on the Next-Gen Foldable iPhone: Pricing Predictions, Availability Date, and Feature Overview</u></a></li>
+</ul></div>
 

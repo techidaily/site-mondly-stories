@@ -1,7 +1,7 @@
 ---
 title: The Fundamentals of Fluent Russian Communication
-date: 2024-09-30T20:29:20.269Z
-updated: 2024-10-01T22:25:02.917Z
+date: 2024-10-01T00:51:05.917Z
+updated: 2024-10-06T18:56:54.288Z
 tags:
   - speak
   - english
@@ -32,6 +32,13 @@ thumbnail: https://thmb.techidaily.com/e35da50e74d4ad42a2d4ca6cbb01ed72157240229
 
  Rooted in the phrase “to be healthy and well”, it’s not just a greeting, but a wish for good health.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Привет (Privyet): Hi in Russian
 
 **Привет** is the most popular informal Russian greeting. It’s what you would use with your friends – the same way we use “hi” in English. Short, sweet and easy to say!
@@ -54,10 +61,10 @@ Good job, you!
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Russian Greetings: Common Phrases And Basic Words 2")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ##### Learn Russian today
@@ -65,13 +72,6 @@ Good job, you!
  Build practical Russian skills for real life with Mondly.
 
 [Start Now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-2406&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2406&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2406&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2406&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-2406%26mt%3D8)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 3\. Additional Russian greetings Russians use
 
@@ -86,16 +86,10 @@ Good job, you!
 ![hi in russian](https://edge.mondly.com/blog/wp-content/uploads/2018/11/hi-in-russian.jpg "Russian Greetings: Common Phrases And Basic Words 3")
 
 <!-- affiliate ads begin -->
-<span id="1983473">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. Russian farewells
@@ -143,6 +137,13 @@ Good job, you!
 
  If you feel like you need more information on Russian greetings, here are some frequently asked questions. Maybe you’ll find your answer here.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How can I learn to pronounce Russian words correctly?
 
  Use transliteration. It can be tricky to get the hang of Russian words using the Cyrillic alphabet, so resources that use transliteration will always come in handy.
@@ -151,22 +152,15 @@ Good job, you!
 
  Здравствуйте (Zdravstvuyte) is generally used for slightly formal hellos, while Привет (Privyet) is more suitable for casuals settings. The most common way to say “goodbye” in Russian is До свидания (Do svidaniya).
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How can I greet someone respectfully in Russian if I don’t know their name?
 
  To greet someone respectfully in Russian you can say Здравствуйте (Zdravstvuyte) or use the time specific greetings.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Are there specific greetings for different times of the day in Russian?
@@ -203,19 +197,18 @@ Good job, you!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/hanneling-success-navigating-the-new-youtube-membership-model-for-2024/"><u>[New] Channeling Success Navigating the New YouTube Membership Model for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-cultivate-connections-top-10-agrigames-for-farm-tastic-fun/"><u>[New] Cultivate Connections Top 10 AgriGames for Farm-Tastic Fun</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-rhythmic-recording-music-infused-snapchat-adventures/"><u>[Updated] Rhythmic Recording Music-Infused Snapchat Adventures</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-financial-forecast-shooting-a-music-video/"><u>2024 Approved Financial Forecast Shooting a Music Video</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-streamline-your-content-twitter-video-integration/"><u>2024 Approved Streamline Your Content Twitter Video Integration</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-streamlining-your-youtube-video-logging-process/"><u>2024 Approved Streamlining Your YouTube Video Logging Process</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/gpt-driven-strategies-for-effortless-home-life/"><u>GPT-Driven Strategies for Effortless Home Life</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/heartbeats-in-verona-italian-charming-quips/"><u>Heartbeats in Verona: Italian Charming Quips</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-melodic-mockery-best-laugh-inspired-songs/"><u>In 2024, Melodic Mockery Best Laugh-Inspired Songs</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/infatuation-inkling-german-flirtations/"><u>Infatuation Inkling: German Flirtations</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-languages-made-easy-googles-choice-mondly/"><u>Navigating Languages Made Easy: Google's Choice Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/saber-a-melhora-na-qualquer-comuniccao-no-portugues/"><u>Saber a Melhora Na Qualquer Comunicção No Português</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sprint-your-way-through-urdu-ten-minutes-daily/"><u>Sprint Your Way Through Urdu: Ten Minutes Daily</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unveiling-hungarian-languages-lovestory-tactics/"><u>Unveiling Hungarian Language's Lovestory Tactics</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-get-paid-on-instagram-the-leading-money-making-strategies/"><u>[New] In 2024, Get Paid on Instagram The Leading Money-Making Strategies</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/rosperous-gaming-vids-through-smart-hash-implementation-for-2024/"><u>[New] Prosperous Gaming Vids Through Smart Hash Implementation for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apple-enthusiasts-applaud-mondly-for-securing-10-ed-app-status/"><u>Apple Enthusiasts Applaud Mondly for Securing #10 Ed-App Status</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/crafting-expressions-of-love-in-hungarian-vocabulary/"><u>Crafting Expressions of Love in Hungarian Vocabulary</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/demystifying-file-not-writable-ones-on-pcs/"><u>Demystifying 'File Not Writable' Ones on PCs</u></a></li>
+<li><a href="https://windows11.techidaily.com/from-edge-to-frontline-quick-fixes-for-lost-off-screen-windows/"><u>From Edge to Frontline: Quick Fixes for Lost Off-Screen Windows</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-pronunciation-basics-for-new-learners/"><u>German Pronunciation Basics for New Learners</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-your-logitech-driving-force-gt-controller-on-windows-supports-win-7-to-win-11/"><u>Get Your Logitech Driving Force GT Controller on Windows – Supports Win 7 to Win 11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580999287-heres-how-to-say-chocolate-in-34-different-languages/"><u>Here’s How to Say Chocolate in 34 Different Languages</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-can-we-unlock-our-samsung-galaxy-a23-5g-phone-screen-by-drfone-android/"><u>How Can We Unlock Our Samsung Galaxy A23 5G Phone Screen?</u></a></li>
+<li><a href="https://win11.techidaily.com/key-driven-awakening-mouse-and-keyboards-role-on-windows-1011/"><u>Key-Driven Awakening: Mouse & Keyboard's Role on Windows 10/11</u></a></li>
+<li><a href="https://common-error.techidaily.com/overcoming-audio-hurdles-restoring-dolby-entertainment-features-on-windows-11-systems/"><u>Overcoming Audio Hurdles: Restoring Dolby Entertainment Features on Windows 11 Systems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tracing-earths-extremely-long-lexical-lineage/"><u>Tracing Earth's Extremely Long Lexical Lineage</u></a></li>
 </ul></div>
 

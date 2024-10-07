@@ -1,7 +1,7 @@
 ---
 title: Motivation Maestro - The Honterus Way
-date: 2024-09-01T00:28:55.606Z
-updated: 2024-09-02T00:28:55.606Z
+date: 2024-10-02T02:38:33.360Z
+updated: 2024-10-06T22:41:15.227Z
 tags:
   - speak
   - english
@@ -26,6 +26,19 @@ thumbnail: https://thmb.techidaily.com/c39d96a0392062878f0d55bc9ae4650b6150e40d8
 
  In our journey to help those who need it most, we draw inspiration from Honterus and pledge to give students the tools to succeed and the opportunity to learn in ways they never could have imagined. This is why we unveiled multiple state-of-the-art [iMac labs](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) at the Transilvania University of Brașov and several other high schools. In total, there are now 60 brand new iMacs helping young minds innovate in schools all over Brașov.
 
+<!-- affiliate ads begin -->
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Rudimenta Cosmographica, the first European-wide manual
 
  After graduating from the University of Vienna between 1520 and 1525 with a_magister artium_ title, Honterus moved to Poland to teach at the Kraków’s Jagiellonian University. During his stay, he published two of his most important works: a Latin grammar and_Rudimenta Cosmographica_ , a cosmography manual. Then, he moved to Basel and practiced printing, publishing and wood engraving. This is where he came into contact with printers Heinrich Petri, Johann Bebel and Michael Isengrin. His connections with all four printing workshops in Basel at that time prove to be especially relevant when he returns to native Transylvania and decides to set up a printing press.
@@ -34,13 +47,24 @@ thumbnail: https://thmb.techidaily.com/c39d96a0392062878f0d55bc9ae4650b6150e40d8
 
 ![honterus map](https://edge.mondly.com/blog/wp-content/uploads/2020/06/honterus-map-600x467.jpeg "Great Personalities Who Inspire Us: Johannes Honterus 2")
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The map of the world by Johannes Honterus
 
  Additionally,_Rudimenta Cosmographica_ contained 13 maps of all known parts of the world engraved by Honterus himself. The book proved to be so successful that there were printed 39 editions of it in Brașov, Basel, Prague, Zürich, Antwerp and Cologne. Many consider_Rudimenta Cosmographica_ to be the first European-wide manual and the first Minor Atlas in Central and South-Eastern Europe.
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
+  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Draw inspiration from the best
 
  Everything Johannes Honterus did throughout his life is an inspiration for us at Mondly. He literally put Romania on the map before the unified nation was even born and our ambition is to continue his endeavor.
@@ -65,16 +89,17 @@ thumbnail: https://thmb.techidaily.com/c39d96a0392062878f0d55bc9ae4650b6150e40d8
 Get Mondly now and speak any language like you never dreamed you would ![Get Mondly now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-5187&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-5187%26utm%5Fsource%3Dblog-post-id-5187&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-5187%26utm%5Fsource%3Dblog-post-id-5187&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-5187%26utm%5Fsource%3Dblog-post-id-5187&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-5187%26mt%3D8 "Get Mondly now")
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -83,4 +108,26 @@ Get Mondly now and speak any language like you never dreamed you would ![Get Mon
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-best-practices-for-filming-and-sharing-immersive-content-on-fb/"><u>[Updated] 2024 Approved Best Practices for Filming and Sharing Immersive Content on FB</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-top-10-gratis-video-call-tools-for-virtual-gatherings-for-2024/"><u>[Updated] Top 10 Gratis Video Call Tools for Virtual Gatherings for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/dose-life360-notify-me-when-someone-checks-my-location-on-motorola-razr-40-drfone-by-drfone-virtual-android/"><u>Dose Life360 Notify Me When Someone Checks My Location On Motorola Razr 40? | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/elevate-your-inbox-management-skills-implementing-smart-gmail-filters-and-handling-extra-email-addresses-with-ease/"><u>Elevate Your Inbox Management Skills: Implementing Smart Gmail Filters & Handling Extra Email Addresses with Ease</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-corrupt-video-files-of-oneplus-12r-using-video-repair-utility-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Fix corrupt video files of OnePlus 12R using Video Repair Utility on Windows?</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-5-best-route-generator-apps-you-should-try-on-xiaomi-redmi-k70-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Best Route Generator Apps You Should Try On Xiaomi Redmi K70 | Dr.fone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-game-recording-made-easy-3-options-for-every-gamer/"><u>In 2024, Game Recording Made Easy 3 Options for Every Gamer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-days-of-gratitude-similar-to-us-thanksgiving/"><u>International Days of Gratitude Similar to US Thanksgiving</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/japenese-expressions-friendliness-and-respect-on-display/"><u>Japenese Expressions: Friendliness & Respect on Display</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-through-time-with-earths-oldest-language/"><u>Journey Through Time with Earth’s Oldest Language</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/new-must-use-livestream-shopping-apps-for-seamless-online-system-for-2024/"><u>New Must-Use Livestream Shopping Apps for Seamless Online System for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/temps-des-jours-francais/"><u>Temps Des Jours Français</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-tecno-spark-go-2023-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Tecno Spark Go (2023) | Dr.fone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/unleashing-the-full-potential-of-horizon-zero-dawn-frame-rate-boost-and-speed-enhancements/"><u>Unleashing the Full Potential of Horizon Zero Dawn - Frame Rate Boost & Speed Enhancements</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-multilingualism-integrating-sound-science-and-effective-learning-techniques/"><u>Unlocking Multilingualism: Integrating Sound, Science & Effective Learning Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vielfaltig-sein-eine-auswahl-deutscher-begrussungen-ohne-hallo/"><u>Vielfältig Sein: Eine Auswahl Deutscher Begrüßungen Ohne Hallo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/want-to-understand-the-squid-game-in-korean-learn-the-language/"><u>Want To Understand The Squid Game In Korean? Learn The Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/words-weaving-worlds-mondlylanguages-2-years-of-ambition/"><u>Words Weaving Worlds - MondlyLanguages, 2 Years of Ambition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ta-sygkrismata-glwttothpeioy-ston-eyxhs/"><u>Τα Συγκρίσματα Γλωττοτηπειού Στον Ευχής</u></a></li>
+</ul></div>
 

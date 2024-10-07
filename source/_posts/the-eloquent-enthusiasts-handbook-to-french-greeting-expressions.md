@@ -1,7 +1,7 @@
 ---
 title: The Eloquent Enthusiast's Handbook to French Greeting Expressions
-date: 2024-09-29T22:26:10.433Z
-updated: 2024-10-01T23:48:44.592Z
+date: 2024-10-02T03:01:29.974Z
+updated: 2024-10-06T18:23:18.174Z
 tags:
   - speak
   - english
@@ -32,6 +32,13 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  Meaning “hi”, “hello” or sometimes even “bye”,_Salut_ is the informal French greeting you can use with family and friends but not with your boss or teacher.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. “Good morning” in French –_Bon matin!_
 
  European French doesn’t have an equivalent for “good morning”. So it’s good to know that while in France you shouldn’t use Bon matin. But if you happen to spend a charming morning in Paris, you can safely use – you guessed it –_Bonjour!_
@@ -56,6 +63,13 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  “French fashion” by Charles 🇵🇭©
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 6\. Hello? –_Allô?_
 
  Although it is not specific to face to face interactions,_Allô_ is still considered a greeting.
@@ -75,10 +89,10 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
  Or you can play it simple, follow the lead of the French speakers and answer directly with_Et toi?_ (“And you?”) since the_Ça va bien_ (“I’m good”) answer is usually implied.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 9\. What’s up? –_Ça va?_
@@ -88,22 +102,15 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
  The only slight difference is the level for formality associated of each phrase:_Ça va?_ is obviously more suitable for informal interactions with friends and family.
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 10\. What’s up? –_Quoi de neuf?_
 
  Want to spice up and diversify your “ça-va”s? Go with the informal_Quoi de neuf_ that translates to “what’s up?” or “what’s new?”.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 11\. The cute Bonjour:_Coucou!_
 
@@ -113,14 +120,14 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
 
 ![bonjour](https://edge.mondly.com/blog/wp-content/uploads/2019/11/bonjour-scaled-960x641.jpg "How To Say Hello In French: 12 Useful French Greetings 3")
 
- “Coucou! Is me! The Frenchie!” by Graham Holtshausen©
-
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ “Coucou! Is me! The Frenchie!” by Graham Holtshausen©
 
 ## 12\. How’s it going? –_Ça roule?_
 
@@ -130,19 +137,6 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Here’s how to learn French in just 10 minutes a day
 
@@ -173,18 +167,22 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-top-5-gaming-chairs-on-a-shoestring-budget/"><u>[New] 2024 Approved Top 5 Gaming Chairs on a Shoestring Budget</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/7-top-ways-to-resolve-apple-id-not-active-issue-for-iphone-xs-drfone-by-drfone-ios/"><u>7 Top Ways To Resolve Apple ID Not Active Issue For iPhone XS | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/identifying-israels-official-speech/"><u>Identifying Israel's Official Speech</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-everything-you-need-to-know-about-unlocked-apple-iphone-xs-by-drfone-ios/"><u>In 2024, Everything You Need To Know About Unlocked Apple iPhone XS</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-premium-tech-choices-top-15-4k-cameras/"><u>In 2024, Premium Tech Choices Top 15 4K Cameras</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/introducing-the-new-asus-mini-gaming-powerhouse-a-portable-14-beast-in-your-bag/"><u>Introducing the New ASUS Mini Gaming Powerhouse: A Portable 14 Beast in Your Bag!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-languages-from-tv-shows-and-movies/"><u>Learn Languages From TV Shows and Movies</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/streaming-for-success-learn-german-from-dark-on-tv/"><u>Streaming for Success: Learn German From Dark on TV</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-polyglot-saint-nick-language-exploration/"><u>The Polyglot Saint Nick: Language Exploration</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/understanding-the-roots-of-us-and-uk-vernaculars/"><u>Understanding the Roots of US and UK Vernaculars</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/upgrading-your-cinematic-story-with-video-edges/"><u>Upgrading Your Cinematic Story with Video Edges</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/verbal-victory-triumphing-over-difficult-word-enunciation/"><u>Verbal Victory: Triumphing Over Difficult Word Enunciation</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/what-is-a-502-bad-gateway-clear-explanations-for-resolution-steps/"><u>What Is a 502 Bad Gateway? Clear Explanations for Resolution Steps</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-exploring-methods-for-rapid-tiktok-editing/"><u>[New] 2024 Approved Exploring Methods for Rapid TikTok Editing</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-best-of-the-best-10-acclaimed-online-vimeo-downloaders-for-2024/"><u>[Updated] Best of the Best 10 Acclaimed Online Vimeo Downloaders for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-deep-dive-gopro-hero5-performance-for-2024/"><u>[Updated] Deep Dive GoPro Hero5 Performance for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-expert-audio-guide-for-vloggers-for-2024/"><u>[Updated] Expert Audio Guide for Vloggers for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-play-without-payment-top-10-free-online-roleplaying-games/"><u>[Updated] Play Without Payment Top 10 Free Online Roleplaying Games</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/2024-approved-2023-how-to-share-screen-on-facebook-live/"><u>2024 Approved 2023 | How to Share Screen on Facebook Live?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/delving-into-the-world-of-chinese-social-communication/"><u>Delving Into the World of Chinese Social Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/edunets-voyage-linking-teachers-globally/"><u>Edunet's Voyage: Linking Teachers Globally</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ernsthaftes-erlernen-von-deutschen-tagen-der-woche/"><u>Ernsthaftes Erlernen Von Deutschen Tagen Der Woche</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expertly-guiding-through-english-grammars-maze-9-essential-hints-from-an-esl-maestro/"><u>Expertly Guiding Through English Grammar's Maze: 9 Essential Hints From an ESL Maestro</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/i-migliori-programmi-video-per-presentare-le-foto-su-macos-analizzati-in-dettaglio/"><u>I Migliori Programmi Video per Presentare Le Foto Su macOS Analizzati in Dettaglio</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-essential-insights-for-integrating-hashtags-into-game-focused-yt-content/"><u>In 2024, Essential Insights for Integrating Hashtags Into Game-Focused YT Content</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/one-of-the-best-mondly-for-kids-on-google-play/"><u>One Of The Best: Mondly for Kids on Google Play</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-love-no-matter-the-language/"><u>Speak Love, No Matter the Language</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/streamline-your-channel-with-easy-image-upload-for-2024/"><u>Streamline Your Channel with Easy Image Upload for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sunrise-speak-a-guide-to-mornings-in-10-cultures/"><u>Sunrise Speak: A Guide to Mornings in 10 Cultures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-witchcraft-and-trick-or-treating/"><u>Worldwide Witchcraft and Trick-or-Treating</u></a></li>
 </ul></div>
 

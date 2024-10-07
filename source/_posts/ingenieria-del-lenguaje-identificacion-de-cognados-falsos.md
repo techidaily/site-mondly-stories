@@ -1,7 +1,7 @@
 ---
 title: "Ingeniería Del Lenguaje: Identificación De Cognados Falsos"
-date: 2024-09-01T00:28:16.386Z
-updated: 2024-09-02T00:28:16.386Z
+date: 2024-10-03T03:02:21.139Z
+updated: 2024-10-07T02:05:05.414Z
 tags:
   - speak
   - english
@@ -49,8 +49,12 @@ thumbnail: https://thmb.techidaily.com/b52695e8d8e71746809895655de9f8c6acd7b0659
  But before going there, we have one more type of English-Spanish cognates: near-perfect cognates or words that have the same meaning in both languages, but slightly different spelling.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Spanish Cognates that change “-tion” to “-ción”
 
 * ac**tion** and   _ac**ción**_
@@ -64,9 +68,6 @@ thumbnail: https://thmb.techidaily.com/b52695e8d8e71746809895655de9f8c6acd7b0659
 * erup**tion** and   _erup**ción**_
 * addi**tion** and   _adi**ción**_
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Spanish Cognates that change “-nt” to “-nte”
 
 * abunda**nt** and   _abunda**nte**_
@@ -80,9 +81,6 @@ thumbnail: https://thmb.techidaily.com/b52695e8d8e71746809895655de9f8c6acd7b0659
 * evide**nt** and   _evide**nte**_
 * preside**nt** and   _preside**nte**_
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Spanish cognates that change “-ate” to “ar”
 
 * abbrevi**ate** and   _abrevi**ar**_
@@ -98,19 +96,14 @@ thumbnail: https://thmb.techidaily.com/b52695e8d8e71746809895655de9f8c6acd7b0659
 
 ![english spanish cognates](https://edge.mondly.com/blog/wp-content/uploads/2020/04/english-spanigh-cognates-600x399.jpg "50+ Most Popular English-Spanish Cognates And False Cognates 3")
 
-<!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  “Mommy, what are cognates?” by Josh Applegate©
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Spanish cognates that add an “-o”
 
@@ -124,6 +117,13 @@ thumbnail: https://thmb.techidaily.com/b52695e8d8e71746809895655de9f8c6acd7b0659
 * basic and   _básic**o**_
 * artistic and   _artístic**o**_
 * dynamic and   _dinámic**o**_
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Spanish cognates that add an “-ar” or an “-ir”
 
@@ -141,8 +141,12 @@ thumbnail: https://thmb.techidaily.com/b52695e8d8e71746809895655de9f8c6acd7b0659
 * control and   _control**ar**_
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Spanish cognates that change “-ly” to “-mente”
 
 * absolute**ly** and   _absoluta**mente**_
@@ -186,9 +190,6 @@ thumbnail: https://thmb.techidaily.com/b52695e8d8e71746809895655de9f8c6acd7b0659
 
 ![false cognates](https://edge.mondly.com/blog/wp-content/uploads/2020/04/false-cognates-600x400.jpg "50+ Most Popular English-Spanish Cognates And False Cognates 4")
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  “Haha! Gotcha!” by olio creative©
 
 * **_enviar_ and to envy**
@@ -238,8 +239,6 @@ _Realizar_ in Spanish means “to do” or “to perform” and not “to realiz
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -247,4 +246,24 @@ _Realizar_ in Spanish means “to do” or “to perform” and not “to realiz
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-the-pitfall-of-superficial-engagement-on-insta-for-2024/"><u>[New] The Pitfall of Superficial Engagement on Insta for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-mastering-keywords-the-best-7-no-cost-youtube-taggers/"><u>[Updated] In 2024, Mastering Keywords The Best 7 No-Cost Youtube Taggers</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-obsudio-screen-recorder-analysis-your-best-choices-explored/"><u>[Updated] In 2024, Obsudio Screen Recorder Analysis Your Best Choices Explored</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-the-future-of-editing-shines-with-magix-video-pro-x/"><u>2024 Approved The Future of Editing Shines with Magix Video Pro X</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-take-your-english-to-the-next-level-mondly/"><u>How To Take Your English To The Next Level - Mondly</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-sony-xperia-5-v-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Sony Xperia 5 V? | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/leveraging-machine-learning-for-personalized-content/"><u>Leveraging Machine Learning for Personalized Content</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lexicon-origins-shakespearean-words-in-modern-chatter/"><u>Lexicon Origins: Shakespearean Words in Modern Chatter</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/mastering-alias-transformation-on-google-meet-platforms/"><u>Mastering Alias Transformation on Google Meet Platforms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/orators-oasis-premier-training-for-verbal-proficiency/"><u>Orator’s Oasis: Premier Training for Verbal Proficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pioneering-filters-the-mondly-pearson-collaboration/"><u>Pioneering Filters: The Mondly-Pearson Collaboration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/privacy-policy-just-updated/"><u>Privacy Policy Just Updated</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saudar-a-portugal-com-flauta-dos-dialetos/"><u>Saudar a Portugal Com Flauta Dos Dialetos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/simultaneous-sentence-synthesis/"><u>Simultaneous Sentence Synthesis</u></a></li>
+<li><a href="https://some-skills.techidaily.com/tactics-for-securing-royalty-free-creative-pieces-for-2024/"><u>Tactics for Securing Royalty-Free Creative Pieces for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/the-ultimate-guide-to-motorola-moto-g34-5g-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>The Ultimate Guide to Motorola Moto G34 5G Pattern Lock Screen Everything You Need to Know</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/whispers-of-love-the-art-of-italian-pick-up-linesback-buttonfilter-button/"><u>Whispers Of Love: The Art Of Italian Pick Up LinesBack ButtonFilter Button</u></a></li>
+</ul></div>
 

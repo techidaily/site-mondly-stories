@@ -1,7 +1,7 @@
 ---
 title: Inaugural App Fusing Voice & Augmented Reality
-date: 2024-09-26T21:00:31.479Z
-updated: 2024-10-01T16:50:57.346Z
+date: 2024-10-03T20:50:30.084Z
+updated: 2024-10-07T07:24:15.612Z
 tags:
   - speak
   - english
@@ -43,10 +43,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 > _We started working on Mondly AR in August 2017 and by the time [Blade Runner 2049](http://www.imdb.com/title/tt1856101/) was released, we already had a working demo. Watching Blade Runner 2049 made me realize that we were beginning to build the future. To me, Joi (the holographic companion of officer K) looked like a super advanced version of Mondly – the character we were creating. They can both understand speech, reply with a human voice and change outfits. Of course, Mondly is not as smart and realistic as Joi. Yet. But she can teach you 7 languages. And this is just the beginning._
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Here’s what you should know about Mondly AR
@@ -65,10 +65,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facts and figures about Mondly
@@ -85,10 +85,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 * [Mondly Press Kit](https://www.dropbox.com/sh/vo4j5214zvwdxy5/AAC20VxIgpuiEe7ED2%5F37VNEa?dl=0)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Media mentions about Mondly
@@ -120,22 +120,20 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-earning-in-a-world-dominated-by-youtubers/"><u>[New] 2024 Approved Earning in a World Dominated by YouTubers</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-how-to-craft-compelling-fb-video-covers-from-scratch-for-2024/"><u>[New] How to Craft Compelling FB Video Covers From Scratch for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-mastering-the-art-top-5-hand-to-hand-combat-games-for-2024/"><u>[New] Mastering the Art Top 5 Hand-to-Hand Combat Games for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-charting-creators-fortune-revenue-generated-from-youtube-advertisements-in-2024/"><u>[Updated] Charting Creator's Fortune Revenue Generated From Youtube Advertisements, In 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/full-guide-on-mirroring-your-tecno-pova-5-to-your-pcmac-drfone-by-drfone-android/"><u>Full Guide on Mirroring Your Tecno Pova 5 to Your PC/Mac | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-phrasecraft-tools-for-intercultural-harmony-communication/"><u>Global Phrasecraft: Tools for Intercultural Harmony Communication</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/how-to-brighten-a-dark-video-on-iphone-3-simple-methods-for-2024/"><u>How to Brighten a Dark Video on Iphone| 3 Simple Methods for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-exporting-snapchat-content-to-your-phones-gallery/"><u>In 2024, Exporting SnapChat Content to Your Phone's Gallery</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-leverage-tubebuddy-for-top-tier-youtube-management/"><u>In 2024, Leverage TubeBuddy for Top-Tier YouTube Management</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/journey-through-the-seasons-korean-weekday-insights/"><u>Journey Through the Seasons: Korean Weekday Insights</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/la-secta-semanal-los-diez-nombres-en-espanol-y-su-significado/"><u>La Secta Semanal: Los Diez Nombres en Español Y Su Significado</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-driven-joy-global-birthday-phrases/"><u>Language-Driven Joy: Global Birthday Phrases</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-english-dialogue-top-9-conversation-methods/"><u>Mastering English Dialogue: Top 9 Conversation Methods</u></a></li>
-<li><a href="https://fox-info.techidaily.com/pioneering-the-art-of-storytelling-top-youtubers-of-year-2023/"><u>Pioneering the Art of Storytelling - Top YouTubers of Year 2023</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/simple-path-to-proficiency-in-latin-online/"><u>Simple Path to Proficiency in Latin Online</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-best-way-to-learn-a-foreign-language-in-the-21st-century/"><u>The Best Way to Learn a Foreign Language in the 21St Century</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-vocabulary-voyage-unraveling-the-nordic-narrative/"><u>The Vocabulary Voyage: Unraveling the Nordic Narrative</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-essential-illumination-products-for-video-creators/"><u>[New] 2024 Approved Essential Illumination Products for Video Creators</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-the-overlooked-elements-of-success-with-instagram-reels/"><u>[New] 2024 Approved The Overlooked Elements of Success with Instagram Reels</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-revolutionize-your-webcam-experience-now/"><u>[New] In 2024, Revolutionize Your Webcam Experience Now</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/comment-deverrouiller-le-drm-de-les-fichiers-adobe-une-aide-pour-la-suppression-du-drm-des-pdf-and-epub/"><u>Comment Déverrouiller Le DRM De Les Fichiers Adobe: Une Aide Pour La Suppression Du DRM Des PDF & ePub</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/educational-advancement-powered-by-mondlys-apple-initiative/"><u>Educational Advancement Powered by Mondly’s Apple Initiative</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-aussie-vernacular-sayings-and-more/"><u>Exploring Aussie Vernacular, Sayings & More</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/from-beats-to-broadcast-a-compreesive-guide-to-editing-your-podcast/"><u>From Beats to Broadcast A Compreesive Guide to Editing Your Podcast</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/get-chatty-with-these-17-streetwise-spanish-terms/"><u>Get Chatty with These 17 Streetwise Spanish Terms</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-unlink-apple-id-from-apple-iphone-11-pro-max-by-drfone-ios/"><u>In 2024, How To Unlink Apple ID From Apple iPhone 11 Pro Max</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-samsung-galaxy-f34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Samsung Galaxy F34 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/israeli-peoples-chosen-dialect/"><u>Israeli People’s Chosen Dialect?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-now-supported-by-huawei/"><u>Mondly Now Supported by Huawei</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/professional-4k-at-your-fingertips-benq-bl2711u-uncovered/"><u>Professional 4K at Your Fingertips BenQ BL2711U Uncovered</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spearhead-sales-the-power-of-polished-professional-prose/"><u>Spearhead Sales: The Power of Polished Professional Prose</u></a></li>
+<li><a href="https://blog-min.techidaily.com/transformar-videos-wmv-em-formatos-compativeis-livremente-online-pelo-movavi-solucao-inovadora-sem-custo/"><u>Transformar Vídeos WMV Em Formatos Compatíveis Livremente Online Pelo Movavi – Solução Inovadora Sem Custo</u></a></li>
 </ul></div>
 

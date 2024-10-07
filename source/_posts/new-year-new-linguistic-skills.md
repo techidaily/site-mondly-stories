@@ -1,7 +1,7 @@
 ---
 title: New Year, New Linguistic Skills!
-date: 2024-09-30T21:16:28.929Z
-updated: 2024-10-01T22:07:57.023Z
+date: 2024-10-01T01:05:12.723Z
+updated: 2024-10-06T19:27:15.806Z
 tags:
   - speak
   - english
@@ -28,6 +28,13 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
 
  The success of New Year’s resolutions varies greatly. For some, they serve as a beneficial source of motivation for instigating positive transformations, while others may encounter difficulties maintaining their resolutions over the long term. The key to successful New Year’s resolutions often lies in setting realistic, specific, and achievable goals, accompanied by a well-structured plan to follow through on them.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## SMART Goals for Language Learning
 
  Our biggest problem when setting New Year’s resolutions is our apparent inability to regard each resolution as a**SMART goal** (Specific, Measurable, Achievable, Relevant, Time-bound). For example, a faulty resolution could be “I want to learn a new language this year”. That’s not enough to motivate you.
@@ -37,19 +44,6 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
  But wait! Now, instead of imagining how accomplished you are going to feel when you reach that certain goal, you should envision the process towards it and enjoy every second of it. Otherwise, you will just end up procrastinating.
 
 ![language learning 2024](https://edge.mondly.com/blog/wp-content/uploads/2019/01/language-learning-2024-600x600.png "New Year, New Language: Your New Year Aspirations 5")
-
-<!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### A SMART Goal is
 
@@ -61,29 +55,22 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
 
  Studies show that breaking down your SMART goals into even smaller steps, like learning 1,000 French words by March, further boosts motivation and reward. Achieving this will let you understand 75% of written French without a dictionary. Moreover, involving a friend enhances motivation through competition, unlike sharing goals on social media. According to a [2019 research](https://as.nyu.edu/faculty/peter-m-gollwitzer.html/09%5FGollwitzer%5FSheeran%5FSeifert%5FMichalski%5FWhen%5FIntentions%5F.pdf) , public goal-sharing may diminish determination, as early social recognition acts as a premature reward. In contrast, friendly competition in learning a language or losing weight can spur your competitive spirit, with the reward being your improvement.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## The Mental Health Benefits of Language Learning
 
  Why should learning a new language be included in your New Year’s resolutions list? Because language learning is [good for your brain](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . According to multiple studies, the benefits for your cognitive health and well-being are undeniable.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Cognitive Benefits
 
  Your brain is like a muscle: train it now, and you will enjoy the health benefits later. And learning a second or a third language is a great way of training your brain – especially if you are not a student anymore and the information flow is not as good as it used to be. More precisely, various studies have shown that learning a new language is directly linked to a slower rate of mental decline in patients with [Alzheimer’s](https://www.dailymail.co.uk/health/article-5363123/Learning-language-protect-ALZHEIMERS.html) disease and [dementia prevention](https://www.telegraph.co.uk/news/science/science-news/12156709/Students-should-learn-second-language-to-prevent-dementia-in-later-life.html) .
 
  Moreover, language learning will give a great boost to your memory. In fact, it can increase the size of your brain! This is what [Swedish scientists discovered](https://www.theguardian.com/education/2014/sep/04/what-happens-to-the-brain-language-learning) when they used brain scans to monitor what happens when someone learns a second language.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052062/7443" target="_top" id="2052062">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052062" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052062/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Mental Well-Being Benefits
 
@@ -96,6 +83,13 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
  Make this the year you learn a new language with Mondly.
 
 [Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-2519&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2519&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2519&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2519&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-2519%26mt%3D8)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Economic Advantages of Language Learning
 
@@ -130,10 +124,10 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## New Year, New Language
@@ -166,22 +160,24 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-uncomplicated-pc-record-functionality/"><u>[New] 2024 Approved Uncomplicated PC Record Functionality</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-optimal-visual-experience-pondering-ultrawide-vs-uhd-4k-monitors/"><u>[Updated] Optimal Visual Experience Pondering UltraWide vs UHD 4K Monitors</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-chucklechasm-exciting-places-to-get-comical-calls/"><u>2024 Approved ChuckleChasm Exciting Places to Get Comical Calls</u></a></li>
-<li><a href="https://win-blog.techidaily.com/how-to-fix-counter-strike-2-not-launching/"><u>How to Fix Counter-Strike 2 Not Launching</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/key-world-languages-ranked-1-15/"><u>Key World Languages Ranked 1-15</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-evolution-cutting-edge-techniques-for-contemporary-learners/"><u>Language Evolution: Cutting-Edge Techniques for Contemporary Learners</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/navigating-cloud-entertainment-the-definitive-guide-for-xbox-game-pass-ultimate-users/"><u>Navigating Cloud Entertainment: The Definitive Guide for Xbox Game Pass Ultimate Users</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/samsung-tv-showdown-the-ultimate-guide-to-crystal-uhd-vs-qled-displays-on-zdnet/"><u>Samsung TV Showdown: The Ultimate Guide to Crystal UHD Vs. QLED Displays on ZDNET</u></a></li>
-<li><a href="https://media-tips.techidaily.com/seamless-techniques-for-changing-video-formats-on-macos-and-windows-pcs/"><u>Seamless Techniques for Changing Video Formats on macOS & Windows PCs</u></a></li>
-<li><a href="https://fox-access.techidaily.com/the-future-of-home-entertainment-tv-or-projection-for-4k/"><u>The Future of Home Entertainment TV or Projection for 4K?</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-xiaomi-redmi-note-12-proplus-5g-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Xiaomi Redmi Note 12 Pro+ 5G IMEI without Root A Comprehensive Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ukranian-proficiency-in-piecemeal-daily-doses-105-chars/"><u>Ukranian Proficiency in Piecemeal Daily Doses (105 Chars)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/understanding-mondlys-instruction-model/"><u>Understanding Mondly's Instruction Model</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unveiling-santas-secretive-sapien-symphony/"><u>Unveiling Santa's Secretive Sapien Symphony</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/venetian-vignettes-poetic-italian-flirting/"><u>Venetian Vignettes: Poetic Italian Flirting</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/world-english-voices-analyzing-cockney-yankese-and-aussie-rhythms/"><u>World English Voices: Analyzing Cockney, Yankese, and Aussie Rhythms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/syggnwmh-ths-gkreman-neoy/"><u>Συγγνώμη Της Γκρεμάν Νέου</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-a-closer-look-at-high-end-vr-walking-machines/"><u>[Updated] A Closer Look at High-End VR Walking Machines</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-comprehensive-vlc-use-manual-for-mac-users/"><u>[Updated] In 2024, Comprehensive VLC Use Manual for Mac Users</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-the-essential-guide-to-using-vsdc-and-comparing-it-with-others-for-2024/"><u>[Updated] The Essential Guide to Using VSDC & Comparing It with Others for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unveiling-exclusive-templates-for-tiktok-backdrops/"><u>2024 Approved Unveiling Exclusive Templates for TikTok Backdrops</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/8-essential-guidelines-for-perfecting-english-grammar-advised-by-an-esl-guru/"><u>8 Essential Guidelines for Perfecting English Grammar, Advised by an ESL Guru</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/accelerer-le-codage-hevch265-solutions-pour-une-compression-video-plus-efficace/"><u>Accélérer Le Codage HEVC/H.265 : Solutions Pour Une Compression Vidéo Plus Efficace</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bangla-unlocked-10-minute-daily-learning-sessions/"><u>Bangla Unlocked: 10-Minute Daily Learning Sessions</u></a></li>
+<li><a href="https://win-able.techidaily.com/effective-solutions-for-troubleshooting-a-non-launching-lethal-brand/"><u>Effective Solutions for Troubleshooting a Non-Launching 'Lethal' Brand</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/free-logitech-t630-installation-software-for-windows-users-windows-7810/"><u>Free Logitech T630 Installation Software for Windows Users (Windows 7/8/10)</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-a-comprehensive-guide-to-apple-iphone-se-blacklist-removal-tips-and-tools-drfone-by-drfone-ios/"><u>In 2024, A Comprehensive Guide to Apple iPhone SE Blacklist Removal Tips and Tools | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/interactive-learning-from-screen-dialogues/"><u>Interactive Learning From Screen Dialogues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introduction-to-spanish-salutations-top-10-ways-to-say-hello/"><u>Introduction to Spanish Salutations: Top 10 Ways To Say Hello</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-soars-to-10-applauded-by-apple-as-ed-tech-vanguard/"><u>Mondly Soars to #10, Applauded by Apple as Ed-Tech Vanguard</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-and-craft-of-english-language-contractions-explained/"><u>The Art & Craft of English Language Contractions Explained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-comprehensive-starter-guide-to-german-pronunciation-and-script/"><u>The Comprehensive Starter Guide to German Pronunciation & Script</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/top-16-applications-de-camera-video-libres-pour-windows-10-guide-complet/"><u>Top 16 Applications De Caméra Vidéo Libres Pour Windows 10: Guide Complet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unleashing-your-potential-in-the-new-year/"><u>Unleashing Your Potential in the New Year</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/unlocking-games-again-steams-achievement-reboot/"><u>Unlocking Games Again: Steam's Achievement Reboot</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580002711-unlocking-hindi-potential-with-mondly-the-best-reasons-why/"><u>Unlocking Hindi Potential with Mondly: The Best Reasons Why</u></a></li>
 </ul></div>
 

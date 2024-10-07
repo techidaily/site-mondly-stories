@@ -1,7 +1,7 @@
 ---
 title: What Are The Romance Languages?
-date: 2024-09-01T00:26:03.225Z
-updated: 2024-09-02T00:26:03.225Z
+date: 2024-10-03T18:57:59.455Z
+updated: 2024-10-06T18:29:16.372Z
 tags:
   - speak
   - english
@@ -18,8 +18,6 @@ thumbnail: https://thmb.techidaily.com/57a65c2b181c750fb6364283d0997e4f78e21ce13
 
  The Romance languages have grown to become one of the most prominent language families in the world. Despite being just a subgroup of the Indo-European language family, the Romance languages are still the most famous language family there is. Although having (almost) nothing to do with love, we all love them. In fact, they are some of the most popular foreign languages that English speakers want to learn. Still, one question remains: what are the Romance languages exactly?
 
-
-
 ## What are the Romance languages?
 
  **The Romance languages are a group of related languages that gradually evolved from Vulgar Latin in the first ten centuries CE. Bound together by the common ancestor, they form a subgroup of the Italic branch of the Indo-European language family.** The [most widely spoken](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) Romance languages are Spanish, Portuguese, French, Italian, Romanian, and Catalan.
@@ -35,8 +33,12 @@ thumbnail: https://thmb.techidaily.com/57a65c2b181c750fb6364283d0997e4f78e21ce13
  However, you should know that categorizing languages is fairly difficult because of their existence on a continuum. Therefore, the exact number of languages in this family may vary depending on the source you are looking at.
 
 <!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Why are they called Romance languages?
 
  It’s true that their name has nothing to do with ‘romance’, but why are they called Romance languages?
@@ -51,9 +53,6 @@ thumbnail: https://thmb.techidaily.com/57a65c2b181c750fb6364283d0997e4f78e21ce13
 
  “Mont Saint-Michel, France” by Fab Lentz©
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Latin-based languages – where do they come from?
 
  The [origin story](https://www.britannica.com/topic/Romance-languages) of the Romance languages was (and in some cases still is) highly disputed between historians and linguists. Less commonly known as Latin-based languages or simply Latin languages, they share Latin as the common ancestor. That you already know. But how did this happen?
@@ -61,8 +60,12 @@ thumbnail: https://thmb.techidaily.com/57a65c2b181c750fb6364283d0997e4f78e21ce13
  As the Roman Empire spread throughout Europe, the local population in most of those areas adopted two forms of Latin. One of them was Classical Latin, which was the formal language used by the upper classes. The other one was Vulgar Latin.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### What does ‘Vulgar Latin’ mean?
 
  Like ‘romance’, the word ‘vulgar’ in ‘Vulgar Latin’ doesn’t mean what you think it means. People didn’t use a special kind of Latin to be rude to one another.
@@ -72,8 +75,12 @@ thumbnail: https://thmb.techidaily.com/57a65c2b181c750fb6364283d0997e4f78e21ce13
 ![italian](https://edge.mondly.com/blog/wp-content/uploads/2021/07/italian-960x768.jpg "What Are The Romance Languages? 6")
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  “Manarola, Italy” by Robert Aniței©
 
  Back to our origin story, as you might have guessed, Vulgar Latin is the Latin that spread amongst the local populations of the Roman Empire. Then, over time, it evolved separately into different varieties of spoken Latin all over the empire.
@@ -88,12 +95,16 @@ thumbnail: https://thmb.techidaily.com/57a65c2b181c750fb6364283d0997e4f78e21ce13
 
 ![latin based languages](https://edge.mondly.com/blog/wp-content/uploads/2021/07/latin-based-languages.png "What Are The Romance Languages? 7")
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Romanian is always the odd one out.
 
  Although all the modern Romance languages are definitely closer to each other than to Latin, if you really are passionate about languages, it might prove fun to learn Latin (which, by the way, you can do with [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6018&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6018&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6018) ). Discovering the origin of these languages will surely help you make connections and learn faster.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027176/19272" target="_top" id="2027176">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027176" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027176/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Is English a Romance language?
 
@@ -104,9 +115,6 @@ thumbnail: https://thmb.techidaily.com/57a65c2b181c750fb6364283d0997e4f78e21ce13
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### From 0 to conversational in any Romance language
 
  Do you want to speak Spanish fluently fast? Or maybe French? Get Mondly, the award-winning language learning app that will help you speak any of the main Romance languages and even their ancestor, Latin, in just 10 minutes a day.
@@ -123,8 +131,6 @@ thumbnail: https://thmb.techidaily.com/57a65c2b181c750fb6364283d0997e4f78e21ce13
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -132,4 +138,16 @@ thumbnail: https://thmb.techidaily.com/57a65c2b181c750fb6364283d0997e4f78e21ce13
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-screenscapes-the-new-tech-frontier-for-2024/"><u>[New] Screenscapes The New Tech Frontier for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/avoiding-common-nocturnal-photography-errors-for-2024/"><u>Avoiding Common Nocturnal Photography Errors for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/captivating-classrooms-joyful-language-study/"><u>Captivating Classrooms: Joyful Language Study</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-oppo-k11-5g-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix Oppo K11 5G Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-easy-ways-to-manage-your-honor-magic5-ultimate-location-settings-drfone-by-drfone-virtual/"><u>In 2024, Easy Ways to Manage Your Honor Magic5 Ultimate Location Settings | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-maximizing-your-youtube-earnings-with-smart-tactics/"><u>In 2024, Maximizing Your YouTube Earnings with Smart Tactics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/old-norse-voices-unveiling-viking-communication/"><u>Old Norse Voices: Unveiling Viking Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sverige-mojligen-valkommen-hjartligvis/"><u>Sverige Möjligen: Välkommen Hjärtligvis</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-future-of-language-learning-how-to-do-it-in-the-21st-century/"><u>The Future Of Language Learning: How To Do It In The 21St Century!</u></a></li>
+</ul></div>
 

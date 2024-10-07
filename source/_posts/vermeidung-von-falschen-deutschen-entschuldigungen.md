@@ -1,7 +1,7 @@
 ---
 title: Vermeidung Von Falschen Deutschen Entschuldigungen
-date: 2024-09-26T21:34:43.261Z
-updated: 2024-10-02T00:07:59.940Z
+date: 2024-10-02T06:09:29.709Z
+updated: 2024-10-06T22:28:44.361Z
 tags:
   - speak
   - english
@@ -27,10 +27,10 @@ thumbnail: https://thmb.techidaily.com/3119c4d644ca38982b7a0f68d251b6e048a299751
  However, this is not strictly a German thing. It’s true Germans say sorry once in a blue moon, but there are some other countries like France or Russia where over-apologizing can be regarded as insincere as well.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to apologize in German
@@ -46,10 +46,10 @@ Here are some practical examples of apologies in German:
 * _Tut mir leid, ich mag die Suppe nicht._ – Sorry, I don’t like the soup.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to say sorry in German – the “Excuse me” sorry
@@ -61,10 +61,10 @@ Here are some practical examples of apologies in German:
  Hear the formal_Entschuldigen Sie_ in action in this basic conversation in German:
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Other ways to say sorry in German
@@ -110,10 +110,10 @@ Here are some practical examples of apologies in German:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
-  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### From 0 to conversational in German
@@ -147,20 +147,20 @@ Here are some practical examples of apologies in German:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-how-to-record-iphoneipads-screen-2023-latest-method/"><u>[New] In 2024, How to Record iPhone/iPad’s Screen [2023 Latest Method]</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-elevate-your-profile-picture-game-with-these-high-end-online-services-for-2024/"><u>[Updated] Elevate Your Profile Picture Game with These High-End Online Services for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-4-feasible-ways-to-fake-location-on-facebook-for-your-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>In 2024, 4 Feasible Ways to Fake Location on Facebook For your Apple iPhone 6s | Dr.fone</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-decoding-love-for-filmora-the-editors-prime-traits/"><u>In 2024, Decoding Love for Filmora The Editor’s Prime Traits</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-find-ispoofer-pro-activation-key-on-xiaomi-redmi-note-12-pro-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Find iSpoofer Pro Activation Key On Xiaomi Redmi Note 12 Pro 4G? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-infinix-note-30-vip-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Infinix Note 30 VIP? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/launching-the-next-gen-faq-platform-with-mondly/"><u>Launching the Next-Gen FAQ Platform with Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguistic-leap-learning/"><u>Linguistic Leap Learning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lundi-semaine-francais/"><u>Lundi Semaine Français</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/mover-videos-de-mkv-a-linea-libre-gratuitamente-con-movavi-una-guia-completa/"><u>Mover Videos De MKV a Línea Libre Gratuitamente Con Movavi: Una Guía Completa</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/parallel-phrase-perfection/"><u>Parallel Phrase Perfection</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/rune-carved-rhetoric-the-voice-of-vikings-unveiled/"><u>Rune-Carved Rhetoric: The Voice of Vikings Unveiled</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-significance-showdown-decoding-status-hierarchies-in-twitter-and-meta/"><u>Social Significance Showdown: Decoding Status Hierarchies in Twitter and Meta</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unveiling-the-secrets-of-russian-numbers-for-new-learners/"><u>Unveiling the Secrets of Russian Numbers for New Learners</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/word-warriors-in-search-of-greatest-lexicon-gigantic/"><u>Word Warriors in Search of Greatest Lexicon Gigantic</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-detailed-analysis-vlc-for-video-capture/"><u>[Updated] Detailed Analysis VLC for Video Capture</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-ultimate-tutorial-how-to-add-a-countdown-timer-in-obs/"><u>[Updated] In 2024, Ultimate Tutorial How To Add a Countdown Timer in OBS</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-ultimate-shooter-showdown-our-best-picks/"><u>[Updated] Ultimate Shooter Showdown - Our Best Picks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-comprehensive-guide-to-chinese-polite-addresses/"><u>A Comprehensive Guide to Chinese Polite Addresses</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/convert-your-dvd-to-high-quality-mp4-format-with-winx-the-ultimate-free-ripper-for-pc-and-iphones/"><u>Convert Your DVD to High-Quality MP4 Format with WinX - The Ultimate Free Ripper for PC & iPhones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-diverse-languages-with-googles-editor-selection-mondly/"><u>Dive Into Diverse Languages With Google's Editor Selection - Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fast-track-korean-acquisition-with-these-top-6-e-learning-tools/"><u>Fast-Track Korean Acquisition with These Top 6 E-Learning Tools</u></a></li>
+<li><a href="https://driver-download.techidaily.com/find-and-install-hp-universal-print-drivers-on-your-windows-machine-easily/"><u>Find and Install HP Universal Print Drivers on Your Windows Machine Easily</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-facebook-live-vs-youtube-live-vs-twitter-periscope/"><u>In 2024, Facebook Live Vs YouTube Live Vs Twitter Periscope</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-for-people-wanting-to-mock-gps-on-asus-rog-phone-7-devices-drfone-by-drfone-virtual/"><u>In 2024, For People Wanting to Mock GPS on Asus ROG Phone 7 Devices | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-perfecting-the-science-of-converting-speech-to-text-with-google/"><u>In 2024, Perfecting the Science of Converting Speech to Text with Google</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-triumph-in-apples-educational-apps-top-ten-countdown/"><u>Mondly’s Triumph in Apple's Educational Apps Top Ten Countdown</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/romance-linguistics-a-study-guide/"><u>Romance Linguistics: A Study Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-up-your-language-game-with-dark-on-netflix/"><u>Step Up Your Language Game with Dark on Netflix</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/totan-banerjees-expertise-in-restoring-digital-legacies/"><u>Totan Banerjee’s Expertise in Restoring Digital Legacies</u></a></li>
 </ul></div>
 

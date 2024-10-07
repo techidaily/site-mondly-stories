@@ -1,7 +1,7 @@
 ---
 title: "Swift Steps to Expertise: Learn Latin Easily"
-date: 2024-09-01T00:28:59.454Z
-updated: 2024-09-02T00:28:59.454Z
+date: 2024-09-30T06:48:06.420Z
+updated: 2024-10-06T19:02:21.162Z
 tags:
   - speak
   - english
@@ -40,6 +40,13 @@ _Ergo_ (“therefore”), the easiest way to learn Latin online is now literally
 
 _Ergo_ , history makes Latin the backbone of many present-day languages and studying it could help you gain valuable insight into the infrastructure of many other languages.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Latin grammar and the Latin alphabet
 
  The Latin alphabet that many languages use today evolved from the visually similar Etruscan alphabet, which – in turn – evolved from the Cumaean Greek version of the Greek alphabet, which was itself descended from the Phoenician alphabet that derived from Egyptian hieroglyphics. As a result of Etruscans ruling early Rome, over time, their alphabet developed into the Latin alphabet that many centuries later became the writing system we all know today.
@@ -49,8 +56,18 @@ A fascinating origin story, isn’t it?
  With three distinct genders, up to seven noun cases, five declensions, four verb conjugations, six tenses, three persons, three moods, two voices, two or three aspects and two numbers, Latin grammar may seem complicated. But once you start your Latin classes with Mondly and learn to read Latin, you’ll be surprised how fast you can actually master this language due to the knowledge you already possess.
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Common Latin phrases and expressions we still use today
 
  **Far from being a dead language, Latin is very much alive in our day-to-day conversations.** _Carpe diem_ ,_et cetera_ ,_et alii_ ,_habemus papam_ ,_in vitro_ ,_magna cum laude_ ,_curriculum vitae_ and_mea culpa_ are just a few of the [Latin phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) we still use today.
@@ -78,8 +95,12 @@ A fascinating origin story, isn’t it?
 * _amor vincit omnia_ – love conquers all (is also the name of a painting by the Italian Baroque artist Caravaggio)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Reasons to learn Latin
 
  Forget about the Latin dictionary and the countless hours of studying Latin grammar. **The best way to learn Latin is online,[for free with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4492&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4492?mother%5Flang=en%5Fus?target%5Flang=la&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4492?mother%5Flang=en%5Fus?target%5Flang=la) .**
@@ -98,8 +119,12 @@ A fascinating origin story, isn’t it?
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Start learning Latin today
 
  The Latin language is no longer is secret code meant only for scholars or the Catholic Church. Starting right now, you can learn Latin with Mondly using bite-sized lessons and practical topics to help you discover how Romans conversed in their day-to-day life.
@@ -114,8 +139,6 @@ A fascinating origin story, isn’t it?
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -123,4 +146,20 @@ A fascinating origin story, isn’t it?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-notable-creators-superior-insta-highlight-craftsmen/"><u>[New] In 2024, Notable Creators Superior Insta Highlight Craftsmen</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-top-10-beauty-influencers-dominating-2024-youtube-trends/"><u>[New] Top 10 Beauty Influencers Dominating 2024 YouTube Trends</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-unlocking-viewership-growth-on-twitch-top-4-strategies/"><u>2024 Approved Unlocking Viewership Growth on Twitch Top 4 Strategies</u></a></li>
+<li><a href="https://techtrends.techidaily.com/how-to-fix-avcodecdll-not-found-or-missing-errors/"><u>How to Fix Avcodec.dll Not Found or Missing Errors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-the-first-augmented-reality-language-app-with-speech-recognition/"><u>Introducing the First Augmented Reality Language App with Speech Recognition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-bridge-by-locals-learn-romanian/"><u>Language Bridge by Locals, Learn Romanian</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/mastering-the-art-of-selecting-top-online-vhs-image-adjustments/"><u>Mastering the Art of Selecting Top Online VHS Image Adjustments</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-expand-your-speech-free-of-charge/"><u>Mondly: Expand Your Speech - Free of Charge</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/navigating-the-convergence-of-obs-and-zoom-for-enhanced-streaming/"><u>Navigating the Convergence of OBS & Zoom for Enhanced Streaming</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/openai-countermeasure-against-gpt-generated-deceptions/"><u>OpenAI Countermeasure Against GPT-Generated Deceptions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/semaine-francaise-la-palette-des-jours/"><u>Semaine Française: La Palette Des Jours</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-most-in-demand-world-languages-in-us-education/"><u>The Most In-Demand World Languages in U.S. Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/where-do-people-feast-on-thanksgiving/"><u>Where Do People Feast on Thanksgiving?</u></a></li>
+</ul></div>
 

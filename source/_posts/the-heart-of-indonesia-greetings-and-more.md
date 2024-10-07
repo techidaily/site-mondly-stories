@@ -1,7 +1,7 @@
 ---
 title: "The Heart of Indonesia: Greetings and More"
-date: 2024-09-30T22:25:34.727Z
-updated: 2024-10-01T20:53:14.816Z
+date: 2024-10-06T06:44:55.345Z
+updated: 2024-10-07T06:49:37.346Z
 tags:
   - speak
   - english
@@ -32,13 +32,6 @@ thumbnail: https://thmb.techidaily.com/44b00e7ceffa68921ecf622a184f48a9d902f80a5
 
  Last but not least, if someone greets you using the_wai_ gesture (slight bow with the palms put together in front of the chest), you can show respect towards their culture by returning the same gesture.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to say ‘hello’ in Indonesian
 
  **If you want to say ‘hello’ in Indonesian, you can simply say_halo_ .** It’s short, sweet and almost identical to the English ‘hello’ you already know and use. Besides, it’s friendly and works great in most social situations.
@@ -48,10 +41,10 @@ thumbnail: https://thmb.techidaily.com/44b00e7ceffa68921ecf622a184f48a9d902f80a5
  On the other hand, if someone asks you how you are doing, you can say_kabar baik,_ which means “I am fine” or “I am well”. Here’s what a basic conversation in Indonesian sounds like:
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ‘Hi’ in Indonesian
@@ -61,10 +54,10 @@ thumbnail: https://thmb.techidaily.com/44b00e7ceffa68921ecf622a184f48a9d902f80a5
 Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Indonesian greetings for different times of day
@@ -80,10 +73,10 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 ![indonesian words](https://edge.mondly.com/blog/wp-content/uploads/2022/07/indonesian-words.png "Hello In Indonesian: A Quick Guide To Indonesian Greetings 2")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The same way we say “morning!’ in English, Indonesians sometimes drop the_selamat_ . This results in a very informal greeting that can be used with friends and family.
@@ -102,6 +95,13 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Start learning Indonesian today
 
@@ -134,24 +134,22 @@ Get Mondly today and learn Indonesian naturally with the following:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-advanced-movie-editing-saving-and-enhancing-mov-files-in-windows-11/"><u>[New] 2024 Approved Advanced Movie Editing Saving and Enhancing MOV Files in Windows 11</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-navigating-facebooks-high-def-download-routes/"><u>[New] In 2024, Navigating Facebook's High-Def Download Routes</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-elite-ai-for-high-fidelity-image-editing/"><u>[Updated] 2024 Approved Elite AI for High-Fidelity Image Editing</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-simplify-your-creative-process-with-these-9-user-friendly-editors/"><u>[Updated] Simplify Your Creative Process with These 9 User-Friendly Editors</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-the-art-of-timestamped-media-on-the-gotube-platform/"><u>2024 Approved The Art of Timestamped Media on the GoTube Platform</u></a></li>
-<li><a href="https://discover-forum.techidaily.com/3gpm4v-movavi/"><u>移動網路下，無成本地變更3GP影片格式到M4V - Movavi 轉換工具</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/cookiebot-enabled-sites-enhancing-user-experience-with-personalization/"><u>Cookiebot-Enabled Sites: Enhancing User Experience with Personalization</u></a></li>
-<li><a href="https://howto.techidaily.com/fixing-persistent-pandora-crashes-on-oppo-a78-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixing Persistent Pandora Crashes on Oppo A78 5G | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/guide-de-la-physiologie-composants-bodily-en-francais/"><u>Guide De La Physiologie: Composants Bodily en Français</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-advancements-in-quantum-hdr-technology-explained/"><u>In 2024, Advancements in Quantum HDR Technology Explained</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lyric-learning-labyrinas-accelerated-speech-through-song/"><u>Lyric Learning Labyrinas: Accelerated Speech Through Song</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-the-collaborative-language-learning-experience-approved-by-google/"><u>Mondly: The Collaborative Language Learning Experience, Approved by Google</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/new-language-feature-on-oculus-quest-with-mondly-integration/"><u>New Language Feature on Oculus Quest with Mondly Integration</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/overcoming-communication-hurdles-with-your-samsung-galaxy-watch/"><u>Overcoming Communication Hurdles with Your Samsung Galaxy Watch</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speed-up-french-color-pronunciation/"><u>Speed Up French Color Pronunciation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-endless-enigma-of-earths-ultimate-term/"><u>The Endless Enigma of Earth's Ultimate Term</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-screenplays-from-diverse-cultures-to-learn-languages/"><u>Top Screenplays From Diverse Cultures to Learn Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/universal-introduction-strategies/"><u>Universal Introduction Strategies</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/world-languages-fusing-into-the-english-phonetic-palette/"><u>World Languages Fusing Into the English Phonetic Palette</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-connect-with-stars-write-inspiring-biographies-on-whatsapp/"><u>2024 Approved Connect with Stars – Write Inspiring Biographies on WhatsApp</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breaking-language-barriers-at-lifes-best-time/"><u>Breaking Language Barriers at Life's Best Time</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effortless-polyglots-playlist-top-10-simple-tongues/"><u>Effortless Polyglots' Playlist: Top 10 Simple Tongues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/express-yourself-with-confidence-using-japanese-phrases/"><u>Express Yourself with Confidence Using Japanese Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/germans-premier-learning-portal-mondly-emerges-victorious/"><u>German's Premier Learning Portal - Mondly Emerges Victorious</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-downgrade-iphone-13-mini-to-an-older-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone 13 mini to an Older Version? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/i-cento-e-piu-numero-italiani-esplorati/"><u>I Cento E Più Numero Italiani Esplorati</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-dominate-youtube-with-these-strategic-freefire-video-hashtags/"><u>In 2024, Dominate YouTube with These Strategic FreeFire Video Hashtags</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-upgrade-to-professionalism-the-most-advanced-9-filter-techniques/"><u>In 2024, Upgrade to Professionalism The Most Advanced 9 Filter Techniques</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-depth-look-at-samsungutation-studio-features-for-2024/"><u>In-Depth Look at Samsung'utation Studio Features for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/japenese-phrases-for-polite-introduction/"><u>Japenese Phrases for Polite Introduction</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/lock-your-vivo-y78-5g-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>Lock Your Vivo Y78 5G Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-global-networks-with-language-skills/"><u>Navigating Global Networks with Language Skills</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/safeguard-creativity-validating-content-for-tiktok-posting-for-2024/"><u>Safeguard Creativity Validating Content for TikTok Posting for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sharpen-your-verbal-skills-9-english-communication-hacks/"><u>Sharpen Your Verbal Skills: 9 English Communication Hacks</u></a></li>
+<li><a href="https://techidaily.com/top-8-iphone-13-mini-smsmessagetext-recovery-software-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Top 8 iPhone 13 mini SMS/Message/Text Recovery Software | Stellar</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-from-basic-to-brilliant-advanced-title-techniques-in-fcpx/"><u>Updated From Basic to Brilliant Advanced Title Techniques in FCPX</u></a></li>
 </ul></div>
 

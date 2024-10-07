@@ -1,7 +1,7 @@
 ---
 title: The Science Behind Mondly's Learning
-date: 2024-09-25T19:44:51.691Z
-updated: 2024-10-01T23:49:47.783Z
+date: 2024-10-05T03:24:28.958Z
+updated: 2024-10-07T00:49:49.491Z
 tags:
   - speak
   - english
@@ -43,10 +43,10 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
  Basically, what happens in the app is that new and more difficult words or phrases will be shown together with older and less difficult ones. But as you progress, the old information will be shown less and less frequently than the new one. This technique makes sure that the information you learned is well-cemented in your brain before moving on to new concepts.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Lexical coverage: focus on the most common words
@@ -58,10 +58,10 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 ![lexical coverage](https://edge.mondly.com/blog/wp-content/uploads/2021/10/lexical-coverage-960x761.png "The Learning Method Behind Mondly 5")
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lexical coverage overview
@@ -76,16 +76,10 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 ---
 
 <!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Take Mondly for a test drive
@@ -113,18 +107,19 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-the-ultimate-handbook-for-youtube-video-creation/"><u>[New] 2024 Approved The Ultimate Handbook for YouTube Video Creation</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-enhance-video-popularity-with-strategic-timestamps-for-2024/"><u>[New] Enhance Video Popularity with Strategic Timestamps for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-revolutionize-your-social-network-creating-captivating-facebook-slides/"><u>[New] In 2024, Revolutionize Your Social Network Creating Captivating Facebook Slides</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-mastering-waveform-overlaps-the-crossfade-method-for-2024/"><u>[Updated] Mastering Waveform Overlaps The Crossfade Method for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-guide-to-accessing-price-null-picture-content/"><u>2024 Approved Guide to Accessing Price-Null Picture Content</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/3-best-tools-to-hard-reset-honor-100-pro-drfone-by-drfone-reset-android-reset-android/"><u>3 Best Tools to Hard Reset Honor 100 Pro | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-motorola-moto-g73-5g-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Motorola Moto G73 5G Phone and Remove Locked Screen</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/grab-the-best-electronics-bargains-amazon-prime-day-sales-event-of-2024-awaits-you/"><u>Grab the Best Electronics Bargains: Amazon Prime Day Sales Event of 2024 Awaits You!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/latin-language-in-a-playful-palette/"><u>Latin Language in a Playful Palette</u></a></li>
-<li><a href="https://games-able.techidaily.com/maximizing-your-bg3-experience-with-dlc-and-upgrades/"><u>Maximizing Your BG3 Experience with DLC & Upgrades</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-must-know-16-phrases-for-gratitude-in-german-culture/"><u>The Must-Know 16 Phrases for Gratitude in German Culture</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-synergy-of-speaking-two-discover-6-gains/"><u>The Synergy of Speaking Two: Discover 6 Gains</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-speech-perfection-english-tongue-twister-workout/"><u>Unlocking Speech Perfection: English Tongue Twister Workout</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-monthly-earnings-potential-on-youtube/"><u>[Updated] Monthly Earnings Potential on YouTube</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/boost-your-productivity-expert-tips-for-using-google-duet-with-gmail/"><u>Boost Your Productivity: Expert Tips for Using Google Duet with Gmail</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brit-language-for-travelers-a-compreited-guide/"><u>Brit Language for Travelers: A Compreited Guide</u></a></li>
+<li><a href="https://win11.techidaily.com/does-your-system-qualify-for-next-gen-windows-11/"><u>Does Your System Qualify for Next-Gen Windows 11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fast-track-to-fluency-bengali/"><u>Fast-Track to Fluency: Bengali</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changefake-your-realme-narzo-n53-location-on-viber-drfone-by-drfone-virtual-android/"><u>How to Change/Fake Your Realme Narzo N53 Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-apple-iphone-7-apples-new-iphone-drfone-by-drfone-ios/"><u>How to Unlock Apple iPhone 7, Apples New iPhone | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-ice-prowess-unleashed-2022-olympics-sprinting-spectacles/"><u>In 2024, Ice Prowess Unleashed 2022 Olympics Sprinting Spectacles</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-at-40plus-four-ways-it-can-improve-your-quality-of-life/"><u>Language Learning at 40+: Four Ways It Can Improve Your Quality of Life</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/m4a-windows-1011/"><u>M4Aファイルの非劣化編集手順 - Windows 10/11向けガイド</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigate-global-conversation-skills-mondlys-new-edition/"><u>Navigate Global Conversation Skills: Mondly’s New Edition</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/resolving-corsair-h115i-compatibility-problems-on-windows-8-10-and-11/"><u>Resolving Corsair H115i Compatibility Problems on Windows 8, 10 & 11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukrainian-aspirants-now-easily-access-free-language-lessons-through-mondly/"><u>Ukrainian Aspirants Now Easily Access Free Language Lessons Through Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-startlingly-skilled-in-languages-over-50-heres-why/"><u>Why Startlingly Skilled in Languages Over 50? Here's Why</u></a></li>
 </ul></div>
 

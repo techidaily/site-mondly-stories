@@ -1,7 +1,7 @@
 ---
 title: "Mondly: Insights Into Its Pedagogy"
-date: 2024-09-01T00:28:56.882Z
-updated: 2024-09-02T00:28:56.882Z
+date: 2024-10-04T05:10:38.302Z
+updated: 2024-10-06T16:19:05.038Z
 tags:
   - speak
   - english
@@ -19,8 +19,6 @@ thumbnail: https://thmb.techidaily.com/97b0ddc570e6ff11d98aa739ad9094bf8b6916f3c
  How do [children learn languages](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) so easily? Biologically, a child’s brain is prepared for learning, but you never see kids study conjugations, do you? So how can this be possible?
 
  The answer is simpler than you think. They learn by doing. And that’s the best approach for you too.
-
-
 
  After years of working abroad and learning several languages, the founders of what would soon become Mondly made a decision. They needed to bring this amazing approach to an app. And they did.
 
@@ -44,6 +42,13 @@ thumbnail: https://thmb.techidaily.com/97b0ddc570e6ff11d98aa739ad9094bf8b6916f3c
 
  Basically, what happens in the app is that new and more difficult words or phrases will be shown together with older and less difficult ones. But as you progress, the old information will be shown less and less frequently than the new one. This technique makes sure that the information you learned is well-cemented in your brain before moving on to new concepts.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Lexical coverage: focus on the most common words
 
  Improving your vocabulary is, without a doubt, one of the key aspects of language learning. The more words you’ll know, the closer you’ll be to fluency. But keep in mind that not all words are equally important.
@@ -51,6 +56,13 @@ thumbnail: https://thmb.techidaily.com/97b0ddc570e6ff11d98aa739ad9094bf8b6916f3c
 [Studies](https://academic.oup.com/applij/article-abstract/34/4/457/199564?redirectedFrom=fulltext) have shown that knowing as little as 100 words helps you understand 50% of any text in the language you’re learning. Surprising as it may seem, it’s true. Knowing 1,000 words will give you a high coverage of 75% of any text. Here’s how much lexical coverage you need to reach fluency in almost any language:
 
 ![lexical coverage](https://edge.mondly.com/blog/wp-content/uploads/2021/10/lexical-coverage-960x761.png "The Learning Method Behind Mondly 5")
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lexical coverage overview
 
@@ -64,8 +76,12 @@ thumbnail: https://thmb.techidaily.com/97b0ddc570e6ff11d98aa739ad9094bf8b6916f3c
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Take Mondly for a test drive
 
  Take your language learning experience to the next level. With Mondly, you’ll learn by doing.
@@ -82,8 +98,6 @@ thumbnail: https://thmb.techidaily.com/97b0ddc570e6ff11d98aa739ad9094bf8b6916f3c
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -91,4 +105,26 @@ thumbnail: https://thmb.techidaily.com/97b0ddc570e6ff11d98aa739ad9094bf8b6916f3c
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-expertly-crafted-video-making-software-iphone-android-for-2024/"><u>[New] Expertly Crafted Video-Making Software (iPhone, Android) for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-make-every-podcast-session-count-with-these-15-powerful-activities/"><u>[New] Make Every Podcast Session Count with These 15 Powerful Activities</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-unveiling-inauthentic-accounts-on-brand-pages/"><u>[New] Unveiling Inauthentic Accounts on Brand Pages</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/deciphering-the-function-of-an-hdmi-arc-inputoutput-in-modern-televisions/"><u>Deciphering the Function of an HDMI-ARC Input/Output in Modern Televisions</u></a></li>
+<li><a href="https://extra-information.techidaily.com/essential-insights-for-aspiring-editors-into-final-cut-pro/"><u>Essential Insights for Aspiring Editors Into Final Cut Pro</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-change-motorola-edge-40-neo-lock-screen-password-by-drfone-android/"><u>How To Change Motorola Edge 40 Neo Lock Screen Password?</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-realme-c33-2023-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove Realme C33 2023 Fingerprint Lock</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/kinder-to-grade-school-in-spanish-a-kids-journey/"><u>Kinder to Grade School in Spanish: A Kid's Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-liberation-mondlys-no-cost-offering-awaits-ukraines-learners/"><u>Language Learning Liberation: Mondly's No-Cost Offering Awaits Ukraine's Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/les-jours-de-la-semaine-en-francais/"><u>Les Jours De La Semaine en Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-hindi-made-easy-top-8-reasons-why-choose-mondlys-online-platform/"><u>Mastering Hindi Made Easy: Top 8 Reasons Why Choose Mondly's Online Platform</u></a></li>
+<li><a href="https://win11.techidaily.com/overcoming-windows-non-automatic-timezone-change/"><u>Overcoming Windows' Non-Automatic Timezone Change</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/pixelated-past-x-era-selfies-with-iphone-x/"><u>Pixelated Past X-Era Selfies with iPhone X</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/premier-apps-fueling-fluency-journey/"><u>Premier Apps Fueling Fluency Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-roadmap-to-korean-mastery-selecting-your-best-resources/"><u>The Roadmap to Korean Mastery: Selecting Your Best Resources</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/thrilling-trials-and-daring-escapades-a-curated-list-of-greatest-games-top-10/"><u>Thrilling Trials & Daring Escapades A Curated List of Greatest Games (Top 10)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/thriving-in-british-conversation-a-reference-guide/"><u>Thriving in British Conversation: A Reference Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-9-challenging-tongues-overcoming-language-barriers/"><u>Top 9 Challenging Tongues: Overcoming Language Barriers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-your-linguistic-skills-through-dark-on-streaming/"><u>Transform Your Linguistic Skills Through Dark on Streaming</u></a></li>
+</ul></div>
 

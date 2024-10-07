@@ -1,7 +1,7 @@
 ---
 title: Unraveling Five Misconceptions in Acquiring New Tongues
-date: 2024-09-27T23:52:47.064Z
-updated: 2024-10-01T16:25:42.551Z
+date: 2024-10-05T19:09:17.198Z
+updated: 2024-10-06T18:32:08.224Z
 tags:
   - speak
   - english
@@ -25,36 +25,36 @@ thumbnail: https://thmb.techidaily.com/42aa8d9afd78cc4e28f215cb4f97cf62596e277c3
  False! Everyone with the right motivation can learn a foreign language. The amount of effort and time invested is different for experienced learners and beginners, but the fact remains that anyone can do it. Once you ‘learn how to learn’, certain patterns become visible, especially with grammar, and this makes learning much faster.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. Language learning requires a high IQ
 
  So untrue! There are so many smart people who only speak one language. This is because a high IQ doesn’t make anyone a natural-born [polyglot](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . An average IQ combined with persuasiveness, sensitivity and lots of practice is a much better recipe for becoming fluent in another language.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. Failing to learn a language in school makes the student incompetent
 
  There are so many stories of students who left school thinking that they were incapable of learning French or Spanish, and later in life, they became fluent within a few months of living in Latin countries. The reason why students fail to learn a language in school is mostly due to the professor’s incompetence.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 4\. Grammar is difficult
 
  Here’s a fun fact: grammar is a language’s least difficult element and it takes the least time to master. Every language, no matter how remote, is built on clear grammar rules and the experienced learner can easily figure out patterns that he or she can use to accelerate the learning process.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. Conversations require fluency
@@ -83,10 +83,16 @@ Thank YOU, Alan!
 Get Mondly now and speak any language like you never dreamed you would ![Learn a new language](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-72&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-72%26utm%5Fsource%3Dblog-post-id-72&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-72%26utm%5Fsource%3Dblog-post-id-72&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-72%26utm%5Fsource%3Dblog-post-id-72&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-72%26mt%3D8 "Learn a new language")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
@@ -104,18 +110,19 @@ Get Mondly now and speak any language like you never dreamed you would ![Learn a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-making-a-statement-standout-content-via-fb-slideshows/"><u>[Updated] 2024 Approved Making a Statement Standout Content via FB Slideshows</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-stopping-auto-capture-in-apples-recorder/"><u>[Updated] Stopping Auto-Capture in Apple's Recorder</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-how-to-direct-encouraging-content-for-daily-living-vids/"><u>2024 Approved How to Direct Encouraging Content for Daily Living Vids</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/guida-speciale-ai-conti-italiani-da-1-a-migliaia-di-cifre/"><u>Guida Speciale Ai Conti Italiani - Da 1 a Migliaia Di Cifre</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-change-lock-screen-wallpaper-on-xiaomi-redmi-k70e-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Xiaomi Redmi K70E</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-nokia-g22-drfone-by-drfone-virtual-android/"><u>How to Simulate GPS Movement in AR games On Nokia G22? | Dr.fone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-streamlining-conferencing-using-zoom-to-extend-skype-capabilities/"><u>In 2024, Streamlining Conferencing Using Zoom to Extend Skype Capabilities</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguistic-landscape-belgiums-native-and-foreign-speeches/"><u>Linguistic Landscape: Belgium's Native and Foreign Speeches</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/polyglot-pursuits-no-time-limit-only-passion/"><u>Polyglot Pursuits: No Time Limit, Only Passion</u></a></li>
-<li><a href="https://howto.techidaily.com/quick-fixes-for-why-is-my-poco-c50-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Poco C50 Black and White | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/reworked-tandc-now-available/"><u>Reworked T&C Now Available</u></a></li>
-<li><a href="https://app-tips.techidaily.com/tech-turmoil-unpacking-russias-invasion-effects-on-ukraines-it-landscape-analysis-by-zdnet/"><u>Tech Turmoil: Unpacking Russia's Invasion Effects on Ukraine's IT Landscape | Analysis by ZDNet</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-10-minute-bulbarian-challenge/"><u>The 10-Minute Bulbarian Challenge</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-a-step-by-step-guide-to-youtube-stats-analysis-via-social-blade-platform/"><u>[New] In 2024, A Step-by-Step Guide to YouTube Stats Analysis via Social Blade Platform</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-streamline-your-writing-process-transcribing-with-microsoft-word/"><u>[New] Streamline Your Writing Process Transcribing with Microsoft Word</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-tailoring-twitter-video-thumbnails-a-step-by-step-guide/"><u>[Updated] Tailoring Twitter Video Thumbnails A Step-by-Step Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-movies-that-make-you-a-language-connoisseur/"><u>10 Movies That Make You a Language Connoisseur</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-quest-for-the-ultimate-linguistic-giant/"><u>A Quest for the Ultimate Linguistic Giant</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/break-language-barriers-with-mondlys-freshest-phrasebook/"><u>Break Language Barriers with Mondly's Freshest Phrasebook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/east-coast-vs-west-us-english-peculiarities/"><u>East Coast vs West: US English Peculiarities</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fluent-in-finesse-top-25-must-know-german-phrases/"><u>Fluent in Finesse - Top 25 Must-Know German Phrases</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-oppo-reno-8t-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of Oppo Reno 8T Without PUK Codes</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/master-the-art-of-pip-on-microsoft-edge-for-2024/"><u>Master the Art of PIP on Microsoft Edge for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/the-ultimate-tech-source-unveiling-new-trends-in-electronics-at-toms-domain/"><u>The Ultimate Tech Source: Unveiling New Trends in Electronics at Tom's Domain</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/top-6-mobile-phones-snapchats-ultimate-video-editing-companions-for-2024/"><u>Top 6 Mobile Phones Snapchat's Ultimate Video Editing Companions for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-language-mastery-mondly-languageleader/"><u>Top Language Mastery: Mondly, #LanguageLeader</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/ultimate-guide-on-capturing-and-storing-your-favorite-yarns-and-needles-crafting-lessons-online/"><u>Ultimate Guide on Capturing & Storing Your Favorite Yarns & Needles Crafting Lessons Online</u></a></li>
 </ul></div>
 

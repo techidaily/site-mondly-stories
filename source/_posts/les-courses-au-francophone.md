@@ -1,7 +1,7 @@
 ---
 title: Les Courses Au Francophone
-date: 2024-09-24T19:42:51.723Z
-updated: 2024-10-02T00:47:16.734Z
+date: 2024-09-30T03:16:24.053Z
+updated: 2024-10-07T07:17:08.380Z
 tags:
   - speak
   - english
@@ -74,10 +74,10 @@ The days of the week in French are:
  Planning to spend an entire week in France? Dont stop at_les jours de la semaine en français_ . French people are known to be proud of their language and heritage. Surprise them with your French skills and go beyond “Friday” in French with these [100+ French travel phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . You’ll thank me later.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Usage rules
@@ -124,22 +124,24 @@ The days of the week in French are:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-forge-corporate-icons-without-spending-a-dime-for-2024/"><u>[New] Forge Corporate Icons Without Spending a Dime for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-quick-recording-visuals-plus-verbal-input/"><u>[New] Quick Recording Visuals + Verbal Input</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-explore-the-8-premium-websites-for-free-3d-text-psd-files/"><u>[Updated] Explore the 8 Premium Websites for FREE 3D Text PSD Files</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/1725287692987-digiartydvd/"><u>Digiarty公式ブログで学ぶ、デジタル時代の安全なDVDコピー方法</u></a></li>
-<li><a href="https://win-dash.techidaily.com/ensure-seamless-connectivity-ch340-usb-communication-chip-drivers-updated-for-windows-10/"><u>Ensure Seamless Connectivity: CH340 USB Communication Chip Drivers Updated for Windows 10</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/essential-tips-convert-and-download-vimeo-hd-to-mp4/"><u>Essential Tips Convert and Download Vimeo HD to MP4</u></a></li>
-<li><a href="https://driver-download.techidaily.com/latest-zebra-printer-drivers-available-free-downloads-and-update-guides-for-windows-users/"><u>Latest Zebra Printer Drivers Available: Free Downloads & Update Guides for Windows Users</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/leading-edtech-in-languages-top-5-instructors-choices/"><u>Leading EdTech in Languages: Top 5 Instructor's Choices</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/nordic-narratives-revisited-what-did-the-vikings-speak/"><u>Nordic Narratives Revisited: What Did the Vikings Speak?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/preparing-for-interaction-with-an-advanced-ai-ally/"><u>Preparing for Interaction with an Advanced AI Ally</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/spanish-vs-portuguese-romance-language-clash-analysis/"><u>Spanish Vs. Portuguese: Romance Language Clash Analysis</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speaking-spirits-turkish-korean-relation/"><u>Speaking Spirits: Turkish-Korean Relation</u></a></li>
-<li><a href="https://win-answers.techidaily.com/star-wars-jedi-fallen-order-fixing-game-crashes-on-your-windows-computer/"><u>Star Wars Jedi: Fallen Order - Fixing Game Crashes on Your Windows Computer</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-fastest-way-to-learn-korean-at-home-choose-wisely/"><u>The Fastest Way to Learn Korean at Home – Choose Wisely!</u></a></li>
-<li><a href="https://extra-information.techidaily.com/under-1k-discover-best-4k-mirrorless-choices/"><u>Under $1K? Discover Best 4K Mirrorless Choices</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-full-featured-mondly-pro-save-up-to-96/"><u>Unlock Full-Featured Mondly Pro, Save Up To 96%</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/world-languages-at-your-fingertips-discover-mondly-vr-learning-platform/"><u>World Languages at Your Fingertips - Discover Mondly VR Learning Platform</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-cutting-edge-content-the-ultimate-guide-to-tiktok-editing/"><u>[Updated] 2024 Approved Cutting-Edge Content The Ultimate Guide to TikTok Editing</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-diving-into-4k-luxury-a-comprehensive-look-at-the-p2715q-monitor/"><u>[Updated] 2024 Approved Diving Into 4K Luxury - A Comprehensive Look at the P2715Q Monitor</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-reverse-the-ordinary-turning-images-upside-down-for-2024/"><u>[Updated] Reverse the Ordinary Turning Images Upside Down for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-art-of-accompanying-imagery-with-audio/"><u>2024 Approved The Art of Accompanying Imagery With Audio</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beyond-basic-babel-the-ultimate-challenge-of-learning-hard-languages/"><u>Beyond Basic Babel: The Ultimate Challenge of Learning Hard Languages</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/chatgpt-account-removal-process-explained/"><u>ChatGPT Account Removal Process Explained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cinematic-journey-selecting-films-for-linguistic-growth/"><u>Cinematic Journey: Selecting Films for Linguistic Growth</u></a></li>
+<li><a href="https://app-tips.techidaily.com/comprehensive-tutorial-on-securing-data-full-process-for-backing-up-and-synchronizing-your-iphone-via-icloud/"><u>Comprehensive Tutorial on Securing Data: Full Process for Backing Up & Synchronizing Your iPhone via iCloud</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dia-por-dia-secuencia-semanal-en-espanol-descubrimiento-desde-el-martes-hasta-el-domingo/"><u>Dia Por Dia, Secuencia Semanal en Español: Descubrimiento Desde El Martes Hasta El Domingo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/down-under-dialect-100plus-australian-terms/"><u>Down Under Dialect: 100+ Australian Terms</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/download-ios-18-complete-guide-on-installation-and-compatible-iphone-models-zdnet/"><u>Download IOS 18: Complete Guide on Installation & Compatible iPhone Models | ZDNET</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-the-intricacies-of-nippons-alphabet/"><u>Exploring the Intricacies of Nippon's Alphabet</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-all-must-knows-to-use-fake-gps-go-location-spoofer-on-tecno-camon-20-premier-5g-drfone-by-drfone-virtual-android/"><u>In 2024, All Must-Knows to Use Fake GPS GO Location Spoofer On Tecno Camon 20 Premier 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580890966-rapid-bokmal-mastery-in-daily-sprints/"><u>Rapid Bokmål Mastery in Daily Sprints</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/recent-amendment-to-tandcs/"><u>Recent Amendment to T&Cs</u></a></li>
+<li><a href="https://program-issues.techidaily.com/resolved-identifying-and-fixing-game-security-breach-alerts/"><u>Resolved: Identifying and Fixing Game Security Breach Alerts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-mental-gymnastics-of-language-learning-post-50/"><u>The Mental Gymnastics of Language Learning Post-50</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transformative-january-aspirations/"><u>Transformative January Aspirations</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-freeze-time-easy-video-editing-techniques/"><u>Updated Freeze Time Easy Video Editing Techniques</u></a></li>
 </ul></div>
 

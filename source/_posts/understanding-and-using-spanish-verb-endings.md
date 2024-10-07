@@ -1,7 +1,7 @@
 ---
 title: Understanding and Using Spanish Verb Endings
-date: 2024-09-28T19:07:14.840Z
-updated: 2024-10-01T18:41:48.542Z
+date: 2024-10-01T16:27:31.078Z
+updated: 2024-10-06T21:35:46.928Z
 tags:
   - speak
   - english
@@ -65,10 +65,10 @@ Spanish verbs conjugations make sense now, don’t they?
  Before moving on to irregular Spanish verbs and more examples, let’s also explore**the past and future of regular Spanish verbs** . What do you think? Wouldn’t that be useful?
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Spanish Preterite Tense – Regular Preterite Verb Endings
@@ -115,10 +115,16 @@ And the conjugation of comer will look like this:
  Keep in mind the fact that the first person singular (_yo_), third person singular (_él, ella_), and second person formal singular (_usted_) forms use tildes on the final letters of the verb endings. And one little tilde can make all the difference in the world! If you don’t know yet how accents work, take a look at our article on **[Spanish accents and how to master them all](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .**
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Spanish Simple Future Tense – Regular Simple Future Verb Endings
@@ -152,6 +158,13 @@ And the conjugation of comer will look like this:
 * _Nosotros /Nosotras escrib**iremos**_
 * _Vosotros / Vosotras escrib**iréis**_
 * _Ellos / Ellas / Ustedes escrib**irán**_
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Spanish verbs: how to master irregular Spanish verbs
 
@@ -213,13 +226,6 @@ And the conjugation of comer will look like this:
 
 _Adquirir_ (to acquire) and_inquirir_ (to inquire) are just as rebellious because to the final letter “i” of their stem, we will need to add an “e”. Thus, “I acquire” will be “Yo adquiero”.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Spanish verbs with an irregular “yo” form
 
  This category includes two types of verbs:  
@@ -245,10 +251,10 @@ _Adquirir_ (to acquire) and_inquirir_ (to inquire) are just as rebellious becaus
  –_ver_ (to see) –_Yo veo_ ,_Tú ves_
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Spanish verbs conjugation examples –_ser, estar, ir_
@@ -342,24 +348,14 @@ Well… this is it! This is our full lesson on**Spanish verbs.**
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-the-ultimate-checklist-for-successful-in-stream-fb-ads/"><u>[New] 2024 Approved The Ultimate Checklist for Successful In-Stream FB Ads</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-luminance-in-hd-boost-or-bust-in-hdr-world/"><u>[New] Luminance in HD Boost or Bust in HDR World?</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-unlock-screen-saving-potential-on-android-devices/"><u>[Updated] Unlock Screen Saving Potential on Android Devices</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-data-from-lava-blaze-2-by-fonelab-android-recover-data/"><u>Easy steps to recover deleted data from Lava Blaze 2</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/get-ready-for-unprecedented-conversations-with-ai/"><u>Get Ready for Unprecedented Conversations with AI</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-linguistic-impacts-anglicized-lexicon-adaptations/"><u>Global Linguistic Impacts: Anglicized Lexicon Adaptations</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-poco-f5-pro-5g-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Poco F5 Pro 5G Quickly? | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-ways-to-stop-parent-tracking-your-infinix-gt-10-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to stop parent tracking your Infinix GT 10 Pro | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-italian-phrases-quickly-the-ultimate-travel-companion/"><u>Learn Italian Phrases Quickly: The Ultimate Travel Companion</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/loves-language-creating-connection-without-confrontation/"><u>Love's Language: Creating Connection without Confrontation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-spanish-verb-forms-a-complete-guide/"><u>Mastering Spanish Verb Forms: A Complete Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/revel-in-santas-linguistic-legacy-from-around-earth/"><u>Revel in Santa’s Linguistic Legacy From Around Earth</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/seadog-slanguage-the-pinnacle-of-pirate-vocabulary/"><u>Seadog Slanguage: The Pinnacle of Pirate Vocabulary</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/successfully-updating-device-drivers-for-a-smooth-wow-experience/"><u>Successfully Updating Device Drivers for a Smooth WoW Experience</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-genesis-of-audio-enhanced-ar-solutions/"><u>The Genesis of Audio-Enhanced AR Solutions</u></a></li>
-<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-vivo-y100-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Vivo Y100 | Dr.fone</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/ultimate-insights-into-the-art-of-srt-file-creation-for-2024/"><u>Ultimate Insights Into the Art of SRT File Creation for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/verbal-versatility-innovative-language-training-techniques/"><u>Verbal Versatility: Innovative Language Training Techniques</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/ways-to-find-unlocking-codes-for-realme-11x-5g-phones-by-drfone-android/"><u>Ways To Find Unlocking Codes For Realme 11X 5G Phones</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-advanced-game-monitoring-tools-for-diverse-formats/"><u>[Updated] 2024 Approved Advanced Game Monitoring Tools for Diverse Formats</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-deciphering-fb-video-dimensions-for-perfect-sharing-for-2024/"><u>[Updated] Deciphering FB Video Dimensions for Perfect Sharing for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-peak-viewership-decoding-the-ideal-video-release-time/"><u>[Updated] Peak Viewership Decoding the Ideal Video Release Time</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-vimeo-revenue-a-step-by-step-money-making-blueprint-for-2024/"><u>[Updated] Vimeo Revenue A Step-by-Step Money-Making Blueprint for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-roots-of-duitsche-tongue/"><u>Linguistic Roots of Duitsche Tongue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-tools-portuguese-shortcuts-in-brazil-and-europe/"><u>Linguistic Tools: Portuguese Shortcuts in Brazil & Europe</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-enhances-oculus-quests-multi-language-support/"><u>Mondly Enhances Oculus Quest's Multi-Language Support</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unboxing-and-testing-the-samsung-ru7300-a-detailed-review-on-its-55-4k-curved-screen-performance/"><u>Unboxing and Testing the Samsung RU7300 - A Detailed Review on Its 55 4K Curved Screen Performance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-the-secrets-of-lithuanian-language-at-home/"><u>Unlocking the Secrets of Lithuanian Language at Home</u></a></li>
 </ul></div>
 

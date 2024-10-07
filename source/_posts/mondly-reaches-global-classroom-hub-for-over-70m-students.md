@@ -1,7 +1,7 @@
 ---
 title: Mondly Reaches Global Classroom Hub for Over 70M Students
-date: 2024-09-01T00:28:21.406Z
-updated: 2024-09-02T00:28:21.406Z
+date: 2024-10-01T06:11:34.798Z
+updated: 2024-10-07T07:20:40.084Z
 tags:
   - speak
   - english
@@ -35,6 +35,13 @@ thumbnail: https://thmb.techidaily.com/a4cc32918e39c53ac0181d3e14c0cb7c5573f6c68
 
  The amount of positive feedback we are getting for Hands-Free is astonishing. People everywhere are praising the voice-powered upgrade for its ability to make the process feel less like studying and more like talking to an old friend. That is why we are working harder than ever to make it available for Android learners too as soon as possible.
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## English progress tests created in partnership with Oxford University Press
 
  In 2020, many of us learned that every cloud has a silver lining. At Mondly, we are committed to offering learners everywhere access to high-quality language courses on their mobile phones. This is why we tried – and hopefully succeeded – to make 2020 brighter for the 1.5 billion people worldwide currently learning English.
@@ -50,8 +57,12 @@ thumbnail: https://thmb.techidaily.com/a4cc32918e39c53ac0181d3e14c0cb7c5573f6c68
  For many of those 1.5 billion people, learning English is not just a hobby, but the key to success. Therefore, it was essential for us to maximize the outcome of our partnership and make the trusted content from Oxford available in 33 native languages – including yours.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Mondly is now available on Huawei AppGallery too
 
  When it comes to our apps, accessibility is key. We want everyone to be able to learn new languages with Mondly, regardless of the device or platform they choose. Naturally, with the AppGallery in the top three app stores globally, we were thrilled when Huawei proposed to us to bring Mondly to their community too.
@@ -62,14 +73,8 @@ thumbnail: https://thmb.techidaily.com/a4cc32918e39c53ac0181d3e14c0cb7c5573f6c68
 
 ![mondly huawei](https://edge.mondly.com/blog/wp-content/uploads/2021/03/mondly-huawei-960x521.jpg "Mondly Surpasses 70 Million Learners Worldwide 3")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Huawei Developer Webinar – Grow with AppGallery in China
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Loved by learners, supported by experts
 
  Our mission at Mondly has always been to help people speak new languages fast through technological innovation. This is why we always drew inspiration from tech pioneers such as Google or Apple. Now, seeing all the incredible feedback coming from the very experts who inspired us, we couldn’t be prouder by what we have achieved so far.
@@ -77,8 +82,12 @@ thumbnail: https://thmb.techidaily.com/a4cc32918e39c53ac0181d3e14c0cb7c5573f6c68
  Following our series of exciting updates, Mondly has been featured multiple times in both Apple’s App Store and Huawei’s AppGallery.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### “App of the Day” in Apple’s App Store in 157 countries
 
  “Create Good Resolutions Now”, “Apps We Love Right Now” and “Learn a New Language” are only a few of the categories Mondly has been featured in the last few months. But the greatest honor of all was to be named [“App of the Day”](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) in 157 countries and to be featured on Apple’s celebratory story with the occasion of Romania’s National Day.
@@ -92,9 +101,18 @@ thumbnail: https://thmb.techidaily.com/a4cc32918e39c53ac0181d3e14c0cb7c5573f6c68
  We deeply admire everything Apple and Huawei do and hope to make it to their “Walk of Fame” many times over in the future.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<span id="1498635">
+					<video width="320" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## What’s next?
 
  We don’t know what the future holds in terms of quarantine, social distancing, or remote working and learning, but whatever the context, we pledge ourselves to never stop innovating. We will continue doing the work that will enrich people’s lives for years to come.
@@ -106,9 +124,6 @@ Here’s to 70 million learners and counting! 🥂
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ## **Give Mondly a go today**
 
  Haven’t had the chance to give [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5757&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5757&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5757) a go yet?
@@ -125,8 +140,6 @@ Here’s to 70 million learners and counting! 🥂
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -134,4 +147,23 @@ Here’s to 70 million learners and counting! 🥂
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-iphone-7-perfect-screen-recording-setup/"><u>[New] IPhone 7 Perfect Screen Recording Setup</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-boosting-engagement-youtube-strategies-for-increased-viewership-for-2024/"><u>[Updated] Boosting Engagement YouTube Strategies for Increased Viewership for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-from-virality-to-value-gauge-your-content-against-competing-craftsmen-for-2024/"><u>[Updated] From Virality to Value Gauge Your Content Against Competing Craftsmen for 2024</u></a></li>
+<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-xiaomi-redmi-k70-pro-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>4 Methods to Turn off Life 360 On Xiaomi Redmi K70 Pro without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://win-advanced.techidaily.com/convert-your-favorite-youtube-videos-into-premium-mp3-files-with-image-thumbnails/"><u>Convert Your Favorite YouTube Videos Into Premium MP3 Files With Image Thumbnails</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/converting-mp2-files-to-free-flac-format-online-effortless-with-movavi/"><u>Converting MP2 Files to Free Flac Format Online - Effortless with Movavi</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-bending-space-and-time-vrs-cinematic-innovation/"><u>In 2024, Bending Space and Time VR's Cinematic Innovation</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Honor 100 Pro | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/intuitive-online-classes-for-aspiring-latino-scholars/"><u>Intuitive Online Classes for Aspiring Latino Scholars</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-spanish-for-kids-from-spanish-for-kindergarten-to-elementary-school/"><u>Learn Spanish For Kids: From Spanish For Kindergarten To Elementary School</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/perfect-ru-alphabets-phonetics-recognition/"><u>Perfect RU Alphabets' Phonetics Recognition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pivotal-polyglots-the-top-15/"><u>Pivotal Polyglots – The Top 15</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sweet-speeches-unveil-the-world-of-chocolate-in-30-languages/"><u>Sweet Speeches: Unveil the World of Chocolate in 30 Languages</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/the-ultimate-tutorial-on-rejuvenating-windows-11107-usb-audio-device-drivers/"><u>The Ultimate Tutorial on Rejuvenating Windows 11/10/7 USB Audio Device Drivers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-your-potential-with-mondlys-unmatched-app/"><u>Unlock Your Potential with Mondly's Unmatched App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/your-handbook-to-conversational-russian-for-travelers/"><u>Your Handbook to Conversational Russian for Travelers</u></a></li>
+</ul></div>
 

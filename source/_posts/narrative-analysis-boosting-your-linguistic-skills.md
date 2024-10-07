@@ -1,7 +1,7 @@
 ---
 title: "Narrative Analysis: Boosting Your Linguistic Skills"
-date: 2024-09-01T00:24:10.312Z
-updated: 2024-09-02T00:24:10.312Z
+date: 2024-10-06T00:21:58.482Z
+updated: 2024-10-07T00:29:41.644Z
 tags:
   - speak
   - english
@@ -17,8 +17,6 @@ thumbnail: https://thmb.techidaily.com/1d642682ec5cb6a6ea7cd33f84c3c6bed241d468d
 ## Narrative Analysis: Boosting Your Linguistic Skills
 
  Language learning through TV shows and films sounds like a scenario straight out of science fiction, doesn’t it? Yet, it’s not. You might be thinking, “Why should I even bother googling this? It can’t be true.” But here you are. To save you some time: yes, you can learn languages from TV. Context plays a vital role in comprehension and retention when it comes to language learning, and what textbook can provide a more immersive visual context than “The Lord of the Rings” or “Game of Thrones”? Probably none.
-
-
 
  I grew up in Eastern Europe in the ‘90s and learned most of my English by watching cartoons and later movies. If only learning French later in school had been as easy! Luckily, the movie industry isn’t going anywhere, and I can catch up on my French by watching “Lupin” on Netflix._Oui, monsieur!_
 
@@ -40,9 +38,6 @@ thumbnail: https://thmb.techidaily.com/1d642682ec5cb6a6ea7cd33f84c3c6bed241d468d
 
  For example, watching South American or Spanish soap operas is a great way to learn Spanish. Although they tend to be a bit overly dramatic, this will actually boost the learning process. It’s the out-of-the-ordinary that we tend to remember. The stuff people actually say outside the classroom.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Binge-watching is study time
 
  There’s no denying that watching TV series and movies is addictive. While inch-thick textbooks can become dull after a while, a TV series you like will keep you glued to the screen until the end. That’s why it’s called binge-watching.
@@ -67,12 +62,6 @@ thumbnail: https://thmb.techidaily.com/1d642682ec5cb6a6ea7cd33f84c3c6bed241d468d
 
 ![learn languages from tv shows and movies](https://edge.mondly.com/blog/wp-content/uploads/2023/08/learn-languages-from-tv-shows-and-movies.jpg "Learn Languages From Tv Shows And Movies 4")
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Tips for improving pronunciation through movie dialogues
 
  Learning a language by watching TV will not only teach you the real language, it will also help you learn what’s the proper intonation and articulation for it. So here’s how to make the most of it:
@@ -92,9 +81,6 @@ thumbnail: https://thmb.techidaily.com/1d642682ec5cb6a6ea7cd33f84c3c6bed241d468d
 
  Of course, if you want to learn about the current situation, you’ll have to watch movies and TV shows set in the present day. A good example of modern-day Japan is the highly acclaimed movie “Drive My Car” (2021).
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Explore cultural and language diversity through movies
 
  Even within a single country, films and TV shows can capture the diversity of regional dialects, customs, and traditions. For instance, the difference between urban and rural life, young and old generations, or various social classes can be clearly depicted, offering a more comprehensive picture of society. Watching a wide array of content can, therefore, provide a multi-faceted understanding of the place and its people.
@@ -114,15 +100,22 @@ thumbnail: https://thmb.techidaily.com/1d642682ec5cb6a6ea7cd33f84c3c6bed241d468d
 ![watching tv in Spanish](https://edge.mondly.com/blog/wp-content/uploads/2023/08/watching-tv-in-spanish.jpg "Learn Languages From Tv Shows And Movies 5")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Another thing you can do is watch the movie with its original sound (if you’re unhappy with dubbed versions) and switch the subtitles to Spanish. You’ll do this for a long while, but the final level is to watch a movie in Spanish with no subtitles. Fingers crossed!
 
  Now, I’m not saying you shouldn’t use other streaming services as well, but Netflix seems to offer the most varied catalog of foreign language audios and subtitles. Just watch and learn!
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How to choose the best movies and TV shows for language learning
 
 Grab the popcorn and hit play.
@@ -137,25 +130,51 @@ Grab the popcorn and hit play.
 
  That’s it for now. If you still have questions about learning languages through TV shows and films, you can ask away in the comments or check the following frequently asked questions.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Does watching TV in another language help?
 
  Yes, watching TV in another language can help with listening comprehension, vocabulary building, and exposure to natural speech patterns.
+
+<!-- affiliate ads begin -->
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Should you use subtitles when learning a language?
 
  Yes, subtitles can be a useful tool, especially for beginners or intermediate learners. They can aid in understanding and allow learners to see how words are spelled and used in context.
 
 <!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### How effective is language learning through TV and film?
 
  Language learning through TV and film can be an effective learning method. It helps in immersion, understanding cultural nuances, and learning conversational speech. However, it’s often best combined with other learning tool for a better and faster result.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Is watching TV and movies in the target language necessary to learn it effectively?
 
@@ -188,8 +207,6 @@ With Mondly, you will learn languages naturally using:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -197,4 +214,22 @@ With Mondly, you will learn languages naturally using:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-accessible-alternatives-googles-simplicity-versus-samsungs-innovation/"><u>[New] In 2024, Accessible Alternatives Google's Simplicity Versus Samsung's Innovation</u></a></li>
+<li><a href="https://change-location.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-vivo-s18e-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Vivo S18e | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bokmaal-basics-accelerated-learning-path/"><u>Bokmaal Basics, Accelerated Learning Path</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/decoding-ais-vulnerability-prompt-injection-attacks-explained/"><u>Decoding AI's Vulnerability: Prompt Injection Attacks Explained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-arabic-world-discover-6-compelling-reasons-for-mondly-online-learning/"><u>Dive Into Arabic World - Discover 6 Compelling Reasons for Mondly Online Learning</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/tlessly-add-youtube-videos-to-google-slate-decks-for-2024/"><u>Effortlessly Add YouTube Videos to Google Slate Decks for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/essential-techniques-for-musical-tiktok-creation-for-2024/"><u>Essential Techniques for Musical TikTok Creation for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-update-apple-iphone-11-pro-max-without-data-loss-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update Apple iPhone 11 Pro Max without Data Loss? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-forgotten-the-voicemail-password-of-gionee-try-these-fixes-by-drfone-android/"><u>In 2024, Forgotten The Voicemail Password Of Gionee? Try These Fixes</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/master-the-art-of-reviving-your-iphones-deleted-files-the-definitive-data-rescue-technique/"><u>Master the Art of Reviving Your iPhone's Deleted Files: The Definitive Data Rescue Technique</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-uk-idioms-and-expressions-become-a-true-brit/"><u>Master UK Idioms & Expressions: Become a True Brit!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-empowers-education-via-cutting-edge-apple-tools/"><u>Mondly Empowers Education via Cutting-Edge Apple Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-local-language-in-australia/"><u>Navigating Local Language in Australia</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-photos-from-vivo-y200e-5g-by-fonelab-android-recover-photos/"><u>Possible solutions to restore deleted photos from Vivo Y200e 5G.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-great-anglophone-divide/"><u>The Great Anglophone Divide</u></a></li>
+</ul></div>
 

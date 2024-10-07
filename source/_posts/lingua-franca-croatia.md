@@ -1,7 +1,7 @@
 ---
 title: "Lingua Franca: Croatia"
-date: 2024-09-01T00:27:23.530Z
-updated: 2024-09-02T00:27:23.530Z
+date: 2024-10-01T17:19:12.585Z
+updated: 2024-10-07T02:52:17.969Z
 tags:
   - speak
   - english
@@ -34,6 +34,13 @@ thumbnail: https://thmb.techidaily.com/950d846f8fcee250021d944b4596b6aafb3f396fb
 
  “Plitvice, Croatia” by Mike Swigunski©
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How similar are Croatian and Serbian?
 
  If you know the story of Yugoslavia, then you also know about the strong connection between Serbia, Croatia, Bosnia, and Montenegro. Sharing a common linguistic ancestor and being encouraged to use a joint language between 1918 and the 1990s, definitely had an impact on what we regard today as four independent languages. But then there’s also the fact that after the collapse of Yugoslavia, political developments have encouraged these ethnic groups to emphasize the differences between their languages. This is what you can call a turbulent and ofter erratic history.
@@ -47,8 +54,12 @@ thumbnail: https://thmb.techidaily.com/950d846f8fcee250021d944b4596b6aafb3f396fb
  Add regional dialects and subdialects to that, and there you have it. What was previously called ‘the Serbo-Croatian language’ are today two different languages: Croatian and Serbian.
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## It is hard to learn Croatian?
 
  If you’re a native English speaker, yes, Croatian may prove [hard to learn](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . But not harder than languages such as Japanese, Chinese or Arabic.
@@ -60,13 +71,20 @@ thumbnail: https://thmb.techidaily.com/950d846f8fcee250021d944b4596b6aafb3f396fb
 ![aerial view of Dubrovnik, Croatia](https://edge.mondly.com/blog/wp-content/uploads/2021/10/croatian-language-960x640.jpg "What Language Is Spoken In Croatia? 3")
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  “Dubrovnik, Croatia” by Geio Tischler©
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Hello in Croatian and other basic Croatian words
 
  **The most popular way to say ‘hello’ in Croatian is_bok_ , but you can also use_zdravo,_ a more formal hello.** Similarly to other languages, it all depends on who you are talking to and how friendly you allow yourself to be. If you’re a tourist in Croatia,_bok_ or_bog_ (in some areas) should work fine in most situations.
@@ -92,8 +110,12 @@ thumbnail: https://thmb.techidaily.com/950d846f8fcee250021d944b4596b6aafb3f396fb
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## From 0 to conversational in Croatian
 
  Do you want to see the Croatian language in action? Get Mondly, the award-winning language learning app that will help you speak Croatian like a pro.
@@ -115,8 +137,6 @@ thumbnail: https://thmb.techidaily.com/950d846f8fcee250021d944b4596b6aafb3f396fb
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -124,4 +144,17 @@ thumbnail: https://thmb.techidaily.com/950d846f8fcee250021d944b4596b6aafb3f396fb
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-premium-picks-for-impeccable-4k-screen-recorders/"><u>[New] 2024 Approved Premium Picks for Impeccable 4K Screen Recorders</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-essential-techniques-for-recording-instagram-stories/"><u>[New] Essential Techniques for Recording Instagram Stories</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-storage-without-spending-the-comprehensive-list-of-best-30-budget-friendly-cloud-services-with-1tbplus/"><u>[New] In 2024, Storage Without Spending The Comprehensive List of Best 30 Budget-Friendly Cloud Services with 1TB+</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beginners-blueprint-for-mastering-french-phonetics/"><u>Beginner's Blueprint for Mastering French Phonetics</u></a></li>
+<li><a href="https://howto.techidaily.com/best-methods-for-samsung-galaxy-xcover-7-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Samsung Galaxy XCover 7 Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719575207853-championing-the-best-3-sites-master-a-new-language-today/"><u>Championing the Best 3 Sites: Master a New Language Today!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dissecting-the-linguistic-gaps-of-usa-and-uk/"><u>Dissecting the Linguistic Gaps of USA and UK</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-native-learning-chinese-thank-you-expressions/"><u>From Novice to Native: Learning Chinese Thank You Expressions</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/understanding-mailcom-account-lifespan-when-does-it-end/"><u>Understanding Mail.com Account Lifespan: When Does It End?</u></a></li>
+<li><a href="https://howto.techidaily.com/want-to-uninstall-google-play-service-from-tecno-phantom-v-flip-here-is-how-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Want to Uninstall Google Play Service from Tecno Phantom V Flip? Here is How | Dr.fone</u></a></li>
+</ul></div>
 

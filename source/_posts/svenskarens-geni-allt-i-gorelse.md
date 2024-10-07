@@ -1,7 +1,7 @@
 ---
 title: "Svenskarens Geni: Allt I Görelse"
-date: 2024-09-28T20:10:08.969Z
-updated: 2024-10-01T22:31:59.371Z
+date: 2024-10-05T16:55:00.379Z
+updated: 2024-10-06T20:19:43.841Z
 tags:
   - speak
   - english
@@ -27,10 +27,10 @@ thumbnail: https://thmb.techidaily.com/84d0bc5cbf75aff634c938ea8def6c75418d8f074
  If you’re visiting and want to get a coffee, the simplest way to sound and look like a local is to throw in a smile and a **“Hej!”** (pronounced just like _Hey!_). This one is the perfect greeting, regardless of the time of day or to whom you address it.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to say “Hello!” in Swedish
@@ -38,10 +38,16 @@ thumbnail: https://thmb.techidaily.com/84d0bc5cbf75aff634c938ea8def6c75418d8f074
  In more formal circumstances, you can use the word **“hallå”** (/haˈloː/). Sometimes, Swedes like to articulate the word when greeting someone by saying **“** **Hallå, hallå!”**  or even use it when they’re irritated and what to bring more attention to a situation they’re telling you about.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to answer the phone in Swedish
@@ -49,10 +55,10 @@ thumbnail: https://thmb.techidaily.com/84d0bc5cbf75aff634c938ea8def6c75418d8f074
  Even if you’re just visiting, you might have to answer the phone at the hotel or when you’re expecting a call from the embassy, for example. The easiest way to do this is to say “Hello” followed by introducing yourself. This sounds something like : **“** **Hallå! Det här är \[your name\].”**  This will not only impress the person on the other end, but they might mistake you for a local. That would be a good thing, but you need to let them know you don’t speak Swedish fluently before they start talking faster.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to say “Good Morning!” in Swedish
@@ -67,16 +73,16 @@ thumbnail: https://thmb.techidaily.com/84d0bc5cbf75aff634c938ea8def6c75418d8f074
 
  After getting acquainted with Swedes, you will most likely enjoy late night talks and drinks, so a proper Goodnight is needed to end the day properly. **“Godnatt!”** , often pronounced _goo-natt_  is the way to wish locals a good night’s rest and let them know you can’t wait to hang out again soon.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to say “What’s up?” in Swedish
 
  What better way to find out more about your Swedish friends’ day or how they’re feeling than asking “what’s up?”? **“Hur är det?”** or **“hur går det?”**  are what is used to ask “how is it?” and “how is it going?”. They are both informal ways of getting a conversation started and can be used when talking on the phone as well, just after you introduce yourself.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to say “Goodbye!” in Swedish
 
@@ -106,22 +112,22 @@ thumbnail: https://thmb.techidaily.com/84d0bc5cbf75aff634c938ea8def6c75418d8f074
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-ideal-ios-companions-best-ps2-game-simulators/"><u>[New] 2024 Approved Ideal iOS Companions Best PS2 Game Simulators</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-elevate-your-video-guide-with-annotations-on-youtube/"><u>[New] In 2024, Elevate Your Video Guide with Annotations on YouTube</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-mastering-viewer-interest-6-essential-video-formats/"><u>2024 Approved Mastering Viewer Interest 6 Essential Video Formats</u></a></li>
-<li><a href="https://fox-shield.techidaily.com/crafting-distinctive-user-identifiers-the-definitive-guide/"><u>Crafting Distinctive User Identifiers: The Definitive Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-speak-with-ease-top-10-accessible-languages-guide/"><u>Global Speak with Ease: Top 10 Accessible Languages Guide</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-facebook-dating-for-your-tecno-pova-5-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location On Facebook Dating for your Tecno Pova 5 | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-leave-a-life360-group-on-infinix-zero-5g-2023-turbo-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How To Leave a Life360 Group On Infinix Zero 5G 2023 Turbo Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-unlock-apple-iphone-xr-without-passcode-easily-by-drfone-ios/"><u>In 2024, Unlock Apple iPhone XR Without Passcode Easily</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ative-hubs-of-affordable-visual-content-sources/"><u>Innovative Hubs of Affordable Visual Content Sources</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/join-the-quest-for-europes-language-riches-this-day/"><u>Join the Quest for Europe's Language Riches This Day</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-journey-beyond-forties-top-4-reasons-to-start-today/"><u>Language Journey Beyond Forties: Top 4 Reasons to Start Today</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/rhythm-based-language-leapfrogging-scientific-approaches/"><u>Rhythm-Based Language Leapfrogging: Scientific Approaches</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sich-zu-verantworten-deutsche-ausdrucksweisen-erlernen/"><u>Sich Zu Verantworten – Deutsche Ausdrucksweisen Erlernen</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/snickerstreamer-share-your-wit-with-a-click-for-2024/"><u>SnickerStreamer Share Your Wit with a Click for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/spanish-numbers-1-10-explained/"><u>Spanish Numbers 1-10 Explained</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-polyglot-puzzle-europes-linguistic-plurality-celebrated/"><u>The Polyglot Puzzle: Europe's Linguistic Plurality Celebrated</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-hindi-potential-with-mondly-the-best-reasons-why/"><u>Unlocking Hindi Potential with Mondly: The Best Reasons Why!</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-echoes-of-entertainment-discovering-6-free-android-apps-for-your-youtube-playlists/"><u>[New] 2024 Approved Echoes of Entertainment Discovering 6 Free Android Apps for Your YouTube Playlists</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2-wav/"><u>2つの効果的な手法: WAVファイルをステレオからモノラルに変換してください</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581154895-4-manieres-francaises-oui-bienvenue/"><u>4 Manières Françaises: Oui, Bienvenue!</u></a></li>
+<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-lenovo-thinkphone-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>4 Methods to Turn off Life 360 On Lenovo ThinkPhone without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581430573-9-english-grammar-tips-from-an-esl-speaker/"><u>9 English Grammar Tips From An ESL Speaker</u></a></li>
+<li><a href="https://win-lab.techidaily.com/best-4-display-sharing-applications-for-your-mi-device-a-comprehensive-guide/"><u>Best 4 Display Sharing Applications for Your Mi Device: A Comprehensive Guide</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/deciphering-superiority-gpt-vs-huggingface/"><u>Deciphering Superiority: GPT VS HuggingFace</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dissecting-worldwide-french-speaking-populations-by-country/"><u>Dissecting Worldwide French-Speaking Populations by Country</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fond-fantasies-in-francophone-features/"><u>Fond Fantasies in Francophone Features</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-premium-recommendations-for-ultra-hd-monitoring-tools/"><u>In 2024, Premium Recommendations for Ultra-HD Monitoring Tools</u></a></li>
+<li><a href="https://article-posts.techidaily.com/insightful-analysis-the-dji-inspire-2-story/"><u>Insightful Analysis - The DJI Inspire 2 Story</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/investigating-the-evolution-of-back-and-filter-buttons-in-pt/"><u>Investigating the Evolution of Back & Filter Buttons in PT</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/leading-4k-gaming-pcs-top-ten-selection/"><u>Leading 4K Gaming PCs - Top Ten Selection</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/luscious-languages-captivating-french-plays/"><u>Luscious Languages: Captivating French Plays</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/soft-spoken-seduction-the-roman-approach/"><u>Soft-Spoken Seduction: The Roman Approach</u></a></li>
+<li><a href="https://win-updates.techidaily.com/step-by-step-guide-installing-and-setting-up-services-using-msi-package-manager/"><u>Step-by-Step Guide: Installing and Setting Up Services Using MSI Package Manager</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/world-of-words-at-your-fingertips-with-mondly/"><u>World of Words at Your Fingertips with Mondly</u></a></li>
 </ul></div>
 

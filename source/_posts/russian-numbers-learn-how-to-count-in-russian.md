@@ -1,7 +1,7 @@
 ---
 title: Russian Numbers – Learn How to Count in Russian
-date: 2024-09-27T21:08:38.329Z
-updated: 2024-10-01T20:41:52.375Z
+date: 2024-10-01T23:55:38.768Z
+updated: 2024-10-07T05:26:34.477Z
 tags:
   - speak
   - english
@@ -36,13 +36,6 @@ thumbnail: https://thmb.techidaily.com/50b8c0240239aa64db52b1f5d6c9798f04334cb3a
 * feminine: одна _(odna)_ ; две _(dve)_
 * neuter: одно _(odno)_ ; два _(dva)_
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Learn how to count to 20 in Russian
 
  Did you manage to learn the Russian pronunciation for the first ten numbers? If you are having issues with the accent, you can [get Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4729&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4729?mother%5Flang=en%5Fus?target%5Flang=ru&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4729?mother%5Flang=en%5Fus?target%5Flang=ru) now and hear them pronounced by professional Russian speakers.
@@ -53,22 +46,29 @@ If you did manage, good job! You must be a natural.
 
 ![numbers in russian](https://edge.mondly.com/blog/wp-content/uploads/2020/04/numbers-in-russian-600x424.jpg "Russian Numbers - Learn How To Count In Russian 3")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Russian numbers 11-20
 
 **Good to know:** If you want to bring a flower bouquet when you are invited to someone’s house in Russia, choose an odd number of flowers – so три, пять, семь or девять flowers. One Russian superstition says that bouquets with an even number of flowers are adequate only for funerals.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Russian numbers: 21 and onwards
 
  From here on, Russian numbers are formed similarly to the English numbers (minus the word “and”). If 20 is двадцать_(dvadtsat)_ , then 21 is двадцать**один** _(_ _dvadtsat odin)_ and 22 is двадцать**два** _(dvadtsat dva)_ . Basically, you just**add the numbers from 1 to 9 to the tens.**
 
 ![russian numbers](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-numbers-600x424.jpg "Russian Numbers - Learn How To Count In Russian 4")
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Russian tens
 
@@ -87,10 +87,10 @@ And guess what! It works the same with the hundreds.
 ![russian hundreds](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-hundreds-600x424.jpg "Russian Numbers - Learn How To Count In Russian 5")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Russian hundreds
@@ -100,10 +100,10 @@ And guess what! It works the same with the hundreds.
 Not as hard as you’d expect, is it?
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Russian ordinal numbers
@@ -151,22 +151,19 @@ Not as hard as you’d expect, is it?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-screen-to-air-assessing-obs-and-twitch-studios-features/"><u>[New] 2024 Approved Screen to Air Assessing OBS and Twitch Studio's Features</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-youtube-income-calculating-adsense-per-1k-viewer-for-2024/"><u>[Updated] Unlocking YouTube Income Calculating AdSense Per 1K Viewer for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/after-all-shed-say-if-it-worked-for-generations-why-change-it/"><u>After All, She'd Say, if It Worked for Generations, Why Change It?</u></a></li>
-<li><a href="https://android-frp.techidaily.com/easy-guide-how-to-bypass-nokia-g22-frp-android-10111213-by-drfone-android/"><u>Easy Guide How To Bypass Nokia G22 FRP Android 10/11/12/13</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/honterus-a-man-of-purpose-and-passion/"><u>Honterus: A Man of Purpose and Passion</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-itel-p40plus-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Itel P40+ Mirror Screen to PC? | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-honor-play-40c-by-drfone-android/"><u>In 2024, AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Honor Play 40C</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-integrates-with-pearson-education-hub/"><u>Mondly Integrates with Pearson Education Hub</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/reconhecidos-gritos-de-alegria-em-portugal-todas-as-variedades/"><u>Reconhecidos Gritos De Alegria Em Portugal - Todas as Variedades</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/serenades-of-solitude-intimate-italian-invitations/"><u>Serenades of Solitude: Intimate Italian Invitations</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-samsung-galaxy-s23-ultra-by-drfone-android/"><u>The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Samsung Galaxy S23 Ultra</u></a></li>
-<li><a href="https://video-capture.techidaily.com/the-ultimate-technique-for-converting-your-wide-videos-into-tall-formats/"><u>The Ultimate Technique for Converting Your Wide Videos Into Tall Formats</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/this-is-the-best-way-to-learn-finnish-online/"><u>This Is the Best Way to Learn Finnish Online</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/transcending-tongues-the-key-to-romantic-success/"><u>Transcending Tongues: The Key to Romantic Success</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unveiling-truths-how-to-successfully-learn-new-languages/"><u>Unveiling Truths: How to Successfully Learn New Languages</u></a></li>
-<li><a href="https://article-tips.techidaily.com/win-and-mac-basic-guide-for-embedding-captions-in-images/"><u>Win & Mac Basic Guide for Embedding Captions in Images</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/your-guide-to-croatian-proficiency-understand-these-7-advantages/"><u>Your Guide to Croatian Proficiency: Understand These 7 Advantages!</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/hoosing-the-right-format-boosting-your-youtube-videos-performance/"><u>[New] Choosing the Right Format – Boosting Your YouTube Videos’ Performance</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-how-to-post-360-photos-on-iosandroid-to-facebook-for-2024/"><u>[New] How to Post 360 Photos on iOS/Android to Facebook for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-elevate-your-live-streaming-with-phone-webcams-and-filming-hacks/"><u>[New] In 2024, Elevate Your Live Streaming with Phone Webcams and Filming Hacks</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-integrating-zoom-for-professional-tiktok-content/"><u>[Updated] Integrating Zoom for Professional TikTok Content</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beginners-guide-to-french-books-best-20-novels-recommended/"><u>Beginner's Guide to French Books: Best 20 Novels Recommended</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/charting-the-course-of-seafaring-slang/"><u>Charting the Course of Seafaring Slang</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-open-your-apple-iphone-11-without-a-home-button-drfone-by-drfone-ios/"><u>How To Open Your Apple iPhone 11 Without a Home Button | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-sony-xperia-1-v-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Sony Xperia 1 V | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-two-ways-to-sync-contacts-from-oppo-reno-8t-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Two Ways to Sync Contacts from Oppo Reno 8T to Gmail | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learnings-silent-secret-for-seniors/"><u>Language Learning's Silent Secret for Seniors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-afrikaans-in-7-steps-with-mondlys-easy-lessons/"><u>Master Afrikaans in 7 Steps with Mondly's Easy Lessons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-powerful-appeal-of-learning-german-top-10/"><u>The Powerful Appeal of Learning German (Top 10)</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-and-fixing-high-cpu-use-on-google-chrome-solutions-unveiled/"><u>Troubleshooting and Fixing High CPU Use on Google Chrome - Solutions Unveiled!</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/windows-vehicle-get-iphone-driver-software-installed-easily/"><u>Windows Vehicle: Get iPhone Driver Software Installed Easily</u></a></li>
 </ul></div>
 

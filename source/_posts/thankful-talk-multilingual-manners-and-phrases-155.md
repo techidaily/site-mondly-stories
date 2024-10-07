@@ -1,7 +1,7 @@
 ---
 title: "Thankful Talk: Multilingual Manners and Phrases (155)"
-date: 2024-09-25T19:00:17.858Z
-updated: 2024-10-01T17:03:53.629Z
+date: 2024-10-06T00:22:57.827Z
+updated: 2024-10-06T21:42:49.872Z
 tags:
   - speak
   - english
@@ -59,10 +59,10 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
  “Thanks” by Hanny Naibaho©
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The origin of saying “thank you”
@@ -89,10 +89,10 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## From 0 to conversational in over 40 languages
@@ -125,18 +125,16 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-beyond-obs-streamer-friendly-broadcast-software/"><u>[New] Beyond OBS Streamer-Friendly Broadcast Software</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-demystifying-screen-record-snapchat-a-beginners-handbook/"><u>[Updated] In 2024, Demystifying Screen Record Snapchat A Beginner's Handbook</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-satirical-space-the-ultimate-guide-to-20plus-humorous-metaverse-imagery/"><u>[Updated] In 2024, Satirical Space The Ultimate Guide to 20+ Humorous Metaverse Imagery</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-the-role-of-free-exchange-in-discovery/"><u>[Updated] In 2024, The Role of Free Exchange in Discovery</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/beyond-toys-six-key-points-about-snapchats-my-ai/"><u>Beyond Toys: Six Key Points About Snapchat’s My AI</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/hp-officejet-3830-windows-driver-download-step-by-step-guide-and-links/"><u>HP Officejet 3830 Windows Driver Download: Step-by-Step Guide & Links</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-simplified-techniques-for-browsing-youtube-comments/"><u>In 2024, Simplified Techniques for Browsing YouTube Comments</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-seizes-spot-on-apples-top-10-ed-tech-leaders-board/"><u>Mondly Seizes Spot on Apple’s Top 10 Ed-Tech Leaders Board</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/perfect-pronunciation-and-expression-essential-french-phrases-for-proficiency/"><u>Perfect Pronunciation & Expression: Essential French Phrases for Proficiency</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-elder-speeches-of-humanitys-heritage/"><u>The Elder Speeches of Humanity’s Heritage</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-oldest-languages-a-global-comparison/"><u>The Oldest Languages: A Global Comparison</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/translate-intrigue-become-fluent-in-squid-games-language/"><u>Translate Intrigue: Become Fluent in Squid Game's Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-the-power-of-basic-russian-salutations/"><u>Unlocking the Power of Basic Russian Salutations</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-neptune-display-premium-4k-all-in-one-screens/"><u>[New] Neptune Display Premium 4K All-in-One Screens</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-the-ultimate-list-of-engaging-moba-titles-on-android-for-2024/"><u>[Updated] The Ultimate List of Engaging MOBA Titles on Android for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beyond-basics-advanced-steps-for-total-tongue-tying/"><u>Beyond Basics: Advanced Steps for Total Tongue-Tying</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/efficient-language-learning-10-minute-routines/"><u>Efficient Language Learning, 10-Minute Routines</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/huion-pen-trouble-here-are-five-ways-to-bring-it-back-to-life-fast/"><u>Huion Pen Trouble? Here Are Five Ways to Bring It Back to Life Fast!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-polish-in-minutes/"><u>Mastering Polish in Minutes</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/new-2024-approved-top-4-elon-musk-voice-generator-programs-to-make-you-sound-like-the-billionaire/"><u>New 2024 Approved Top 4 Elon Musk Voice Generator Programs to Make You Sound Like the Billionaire</u></a></li>
+<li><a href="https://fox-that.techidaily.com/overcoming-connection-woes-a-users-handbook-for-airpods-and-iphones/"><u>Overcoming Connection Woes: A User's Handbook for AirPods and iPhones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/parisian-chatterbox-103plus-phrases-for-easy-france-traveling/"><u>Parisian Chatterbox: 103+ Phrases for Easy France Traveling</u></a></li>
+<li><a href="https://facebook.techidaily.com/twitters-approach-sparks-facebooks-info-share-initiative/"><u>Twitter's Approach Sparks Facebook's Info-Share Initiative</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unpacking-the-most-prevalent-speaker-numbers-for-french-language/"><u>Unpacking the Most Prevalent Speaker Numbers for French Language</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Unlocking Essential Expressions for Daily Conversations in China
-date: 2024-09-25T00:19:48.850Z
-updated: 2024-10-01T18:30:00.230Z
+date: 2024-10-05T18:11:59.803Z
+updated: 2024-10-07T03:15:34.422Z
 tags:
   - speak
   - english
@@ -34,22 +34,29 @@ thumbnail: https://thmb.techidaily.com/bcbc51157c352644194c600920e499191baf99c44
 
  Now that you know the easiest and most popular way to say “hello” in Chinese, let’s move on to more advanced Mandarin Chinese greetings that are guaranteed to make you sound fluent.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 1\. 早！(zǎo) – “Morning!” in Chinese
 
  早 (zǎo) is short for 早上好 (zǎo shang hǎo), which means “good morning” in Chinese. The same as our English “good morning”, 早 (zǎo) can be used safely in all kinds of social interactions as long as it is… you’ve guessed it: morning.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 2\. 你好吗? (nǐ hǎo ma) – “How are you?” in Chinese
 
 Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
  This expression is generally used as a response to a greeting, but it can also work as a “how are you?”.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 3\. 你怎么样? (nǐ zěnmeyàng) – “What’s up?” in Chinese
 
@@ -68,10 +75,10 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
  If you want something even MORE‌ formal than that, go with 久闻大名 (jiǔwéndàmíng) literally meaning “your name is famous” – a phrase which could translate to something like “I have heard much about you”. But only use this on very special occasions like meeting the president or a person you hold in very high regard.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 6\. 最近好吗？(zuì jìn hào mǎ) – “How are you these days?”
@@ -80,25 +87,11 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
 ![hi in chinese](https://edge.mondly.com/blog/wp-content/uploads/2019/12/hi-in-chinese-1024x682.jpg "How To Say Hello In Chinese: A Quick Guide To Chinese Greetings 3")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “Hello there!” by Theodor Lundqvist©
 
 ## 7\. 大家好 (dàjiā hǎo) – say “hello” to a crowd in Chinese
 
  As mentioned earlier, 你好 nǐ hǎo is used to greet only one person at a time. So, if you need to say “hello” to a group of people in Mandarin Chinese, simply go with 大家好 (dàjiā hǎo).
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 8\. 下午好 (xiàwǔ hǎo) – “Good afternoon” in Chinese
 
@@ -107,6 +100,13 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 ## 9\. 晚上好 (wǎnshàng hǎo) – “Good evening” in Chinese
 
  Staying up late to meet with your friends? Then this your chance to show them how well you’ve mastered the Mandarin greetings!
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 10\. 喂 (wèi) – answer your phone like a fluent speaker
 
@@ -144,14 +144,24 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://mondly-stories.techidaily.com/mondly-and-oculus-quest-bridging-cultural-communication-in-vr/"><u>'Mondly' & Oculus Quest: Bridging Cultural Communication in VR</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-top-10-fb-movies-in-one-place-for-2024/"><u>[New] Top 10 Fb Movies in One Place for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/download-premium-behringer-audio-drives-at-no-cost-elevate-your-music-production-today/"><u>Download Premium Behringer Audio Drives at No Cost - Elevate Your Music Production Today</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/effortlessly-shorten-your-youtube-videos-discover-three-easy-techniques/"><u>Effortlessly Shorten Your YouTube Videos: Discover Three Easy Techniques!</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-tecno-phantom-v-flip-location-by-number-drfone-by-drfone-virtual-android/"><u>How to Track Tecno Phantom V Flip Location by Number | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-tecno-spark-10c-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>How to Unlock Tecno Spark 10C Phone Pattern Lock without Factory Reset</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/journey-to-fluency-no-cost-resources-in-online-japanese-studies/"><u>Journey to Fluency: No Cost Resources in Online Japanese Studies</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/start-chatting-across-cultures-at-just-475-percent-more/"><u>Start Chatting Across Cultures at Just 4.75 Percent More!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-union-of-mondly-and-pearson-in-filtering-technology/"><u>The Union of Mondly and Pearson in Filtering Technology</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-a-film-producers-essential-guide-to-color-grading-with-standardized-luts/"><u>[New] 2024 Approved A Film Producer's Essential Guide to Color Grading with Standardized LUTs</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-depth-guide-to-simple-high-dynamic-range/"><u>[Updated] In-Depth Guide to Simple High Dynamic Range</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-rank-your-download-preferences-with-our-top-5-list-for-2024/"><u>[Updated] Rank Your Download Preferences with Our Top 5 List for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/boundless-knowledge-journey-rejoicing-in-anniversary-of-1500-free-classes/"><u>Boundless Knowledge Journey: Rejoicing in Anniversary of 1500 Free Classes</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/deciphering-nlps-role-versus-mls-role/"><u>Deciphering NLP's Role Versus ML's Role</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-worldwide-loving-sentiments-today/"><u>Discovering Worldwide Loving Sentiments Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expo-lingofutura-crafting-the-linguists-of-tomorrow/"><u>Expo LingoFutura: Crafting the Linguists of Tomorrow</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/forever-free-mondlys-lifetime-access-plan/"><u>Forever Free - Mondly’s Lifetime Access Plan</u></a></li>
+<li><a href="https://change-location.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-vivo-y78t-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Vivo Y78t | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-deutsch-with-hit-series-netflix/"><u>Mastering Deutsch with Hit Series - Netflix</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581304136-mondly-unveils-revolutionary-vr-language-learning-experience/"><u>Mondly Unveils: Revolutionary VR Language Learning Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/perfect-pronunciation-in-russian-phonetics/"><u>Perfect Pronunciation in Russian Phonetics</u></a></li>
+<li><a href="https://win-dash.techidaily.com/quick-and-easy-guide-to-updating-your-epson-printer-software-on-pc/"><u>Quick and Easy Guide to Updating Your Epson Printer Software on PC</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ready-for-a-new-era-in-communication-with-ai/"><u>Ready for a New Era in Communication with AI</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sprachweiterentwicklung-zahlreim-fur-die-ersten-100-deutsche/"><u>Sprachweiterentwicklung: Zählreim Für Die Ersten 100 Deutsche</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/tailoring-titles-and-tags-for-top-youtube-performance-for-2024/"><u>Tailoring Titles and Tags for Top YouTube Performance for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-evolution-of-language-models-discovering-the-differences-between-auto-gpt-and-chatgpt/"><u>The Evolution of Language Models: Discovering the Differences Between Auto-GPT and ChatGPT</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshoot-the-directx-error-in-warzone-with-these-4-straightforward-techniques/"><u>Troubleshoot the 'DirectX Error in Warzone' With These 4 Straightforward Techniques</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/visionaries-shaping-marvel-online-experience-for-2024/"><u>Visionaries Shaping Marvel Online Experience for 2024</u></a></li>
 </ul></div>
 
