@@ -1,7 +1,7 @@
 ---
 title: "Quick Start: Learn Urdu, Every Day"
-date: 2024-09-30T17:00:48.419Z
-updated: 2024-10-07T06:23:38.513Z
+date: 2024-10-08T23:31:45.033Z
+updated: 2024-10-12T19:34:05.318Z
 tags:
   - speak
   - english
@@ -35,10 +35,10 @@ thumbnail: https://thmb.techidaily.com/d3d14caf519c1def322723a3dc59c24a3c8f8aede
  Moreover, in the 19th century, the Hindi–Urdu [controversy](https://en.wikipedia.org/wiki/Hindi%E2%80%93Urdu%5Fcontroversy) arose in colonial India. The debate was whether Hindi or Urdu should be chosen as a national language. In 1900, the government issued a decree granting symbolic equal status to both Hindi and Urdu. But then, Gandhi proposed using either Devanagari or Urdu script, under the traditional generic term Hindustani. Therefore, in 1950, Hindi, in the Devanagari script, along with English, replaced Urdu as one of the official languages of India.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Learn Urdu from Hindi, Arabic, English, Korean and more
@@ -48,10 +48,10 @@ thumbnail: https://thmb.techidaily.com/d3d14caf519c1def322723a3dc59c24a3c8f8aede
  Starting right now, you can [learn Urdu](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4511&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4511?mother%5Flang=en%5Fus?target%5Flang=ur&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4511?mother%5Flang=en%5Fus?target%5Flang=ur) from Hindi, Arabic, English, Korean and 29 other languages only with Mondly.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 10 basic Urdu words and phrases you can learn right now
@@ -75,10 +75,16 @@ thumbnail: https://thmb.techidaily.com/d3d14caf519c1def322723a3dc59c24a3c8f8aede
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
-  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Speak Urdu today
@@ -104,16 +110,20 @@ thumbnail: https://thmb.techidaily.com/d3d14caf519c1def322723a3dc59c24a3c8f8aede
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-information.techidaily.com/2024-approved-brightening-up-your-videography-gopro-fog-free-techniques/"><u>2024 Approved Brightening Up Your Videography GoPro Fog-Free Techniques</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-how-to-use-luts-in-after-effect/"><u>2024 Approved How to Use LUTs in After Effect</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/convertissez-votre-fichier-wav-en-video-3gp-gratuitement-easy-online-conversion-a-laide-de-movavi/"><u>Convertissez Votre Fichier .wav en Vidéo 3GP Gratuitement - Easy Online Conversion À L'aide De Movavi</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/deutsche-begrussungen-vielfalt-uber-hallo/"><u>Deutsche Begrüßungen: Vielfalt Über Hallo</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/french-literature-for-newcomers-our-top-picks-of-best-novels/"><u>French Literature for Newcomers: Our Top Picks of Best Novels</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-novice-to-fluent-step-by-step-french-learning/"><u>From Novice to Fluent: Step-by-Step French Learning</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-retrieve-lost-files-from-honor-by-fonelab-android-recover-data/"><u>How to retrieve lost files from Honor ?</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-asus-proart-review-a-visual-spectacle-unveiled/"><u>In 2024, ASUS ProArt Review A Visual Spectacle Unveiled</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-finding-the-perfect-recorders-outside-microsofts-ecosystem/"><u>In 2024, Finding the Perfect Recorders Outside Microsoft's Ecosystem</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-the-digital-artisans-guide-mastering-screen-recordings-in-macos/"><u>In 2024, The Digital Artisan's Guide Mastering Screen Recordings in macOS</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/master-croatian-today-for-these-7-enriching-benefits/"><u>Master Croatian Today for These 7 Enriching Benefits!</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-transfer-tactics-for-youtube-to-dailymotion-success/"><u>2024 Approved Transfer Tactics for YouTube to Dailymotion Success</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-tecno-spark-10-pro-by-phone-number-drfone-by-drfone-virtual-android/"><u>How to Track Tecno Spark 10 Pro by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://windows11.techidaily.com/how-to-unlock-and-edit-files-on-win-pc/"><u>How to Unlock and Edit Files on Win PC</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-apex-legends-solo-strategies-mastering-one-platform-at-a-time/"><u>In 2024, Apex Legends Solo Strategies Mastering One Platform at a Time</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-snapchat-location-without-jailbreak-on-infinix-smart-7-hd-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location without Jailbreak On Infinix Smart 7 HD | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-ultimate-guide-to-digitizing-and-saving-faded-frames/"><u>In 2024, The Ultimate Guide to Digitizing and Saving Faded Frames</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-evolution-cutting-edge-techniques-for-contemporary-learners/"><u>Language Evolution: Cutting-Edge Techniques for Contemporary Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-hits-stride-with-apple-ranks-as-10th-global-ed-app/"><u>Mondly Hits Stride With Apple, Ranks as 10Th Global Ed-App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/preeminent-5-apps-aiding-language-teachers/"><u>Preeminent 5 Apps Aiding Language Teachers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pushing-english-perfection-through-mondly-training/"><u>Pushing English Perfection Through Mondly Training</u></a></li>
+<li><a href="https://program-issues.techidaily.com/starfield-audio-problems-solved-no-more-skips-or-freezes/"><u>Starfield Audio Problems Solved - No More Skips or Freezes</u></a></li>
+<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-poco-m6-pro-5g-drfone-by-drfone-virtual-android/"><u>Thinking About Changing Your Netflix Region Without a VPN On Poco M6 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukranian-proficiency-in-piecemeal-daily-doses-105-chars/"><u>Ukranian Proficiency in Piecemeal Daily Doses (105 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-santas-secretive-sapien-symphony/"><u>Unveiling Santa's Secretive Sapien Symphony</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/syggnwmh-ths-gkreman-neoy/"><u>Συγγνώμη Της Γκρεμάν Νέου</u></a></li>
 </ul></div>
 

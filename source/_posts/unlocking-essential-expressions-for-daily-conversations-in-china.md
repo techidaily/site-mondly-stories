@@ -1,7 +1,7 @@
 ---
 title: Unlocking Essential Expressions for Daily Conversations in China
-date: 2024-10-05T18:11:59.803Z
-updated: 2024-10-07T03:15:34.422Z
+date: 2024-10-07T21:26:43.454Z
+updated: 2024-10-12T21:18:54.557Z
 tags:
   - speak
   - english
@@ -35,22 +35,21 @@ thumbnail: https://thmb.techidaily.com/bcbc51157c352644194c600920e499191baf99c44
  Now that you know the easiest and most popular way to say “hello” in Chinese, let’s move on to more advanced Mandarin Chinese greetings that are guaranteed to make you sound fluent.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977023">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 1\. 早！(zǎo) – “Morning!” in Chinese
 
  早 (zǎo) is short for 早上好 (zǎo shang hǎo), which means “good morning” in Chinese. The same as our English “good morning”, 早 (zǎo) can be used safely in all kinds of social interactions as long as it is… you’ve guessed it: morning.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 2\. 你好吗? (nǐ hǎo ma) – “How are you?” in Chinese
 
@@ -75,10 +74,10 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
  If you want something even MORE‌ formal than that, go with 久闻大名 (jiǔwéndàmíng) literally meaning “your name is famous” – a phrase which could translate to something like “I have heard much about you”. But only use this on very special occasions like meeting the president or a person you hold in very high regard.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 6\. 最近好吗？(zuì jìn hào mǎ) – “How are you these days?”
@@ -89,6 +88,13 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
  “Hello there!” by Theodor Lundqvist©
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 7\. 大家好 (dàjiā hǎo) – say “hello” to a crowd in Chinese
 
  As mentioned earlier, 你好 nǐ hǎo is used to greet only one person at a time. So, if you need to say “hello” to a group of people in Mandarin Chinese, simply go with 大家好 (dàjiā hǎo).
@@ -97,16 +103,16 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
  Want to diversify the way you greet people in Chinese? Then you can go with 下午好 (xiàwǔ hǎo) when it’s the right time of the day.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 9\. 晚上好 (wǎnshàng hǎo) – “Good evening” in Chinese
 
  Staying up late to meet with your friends? Then this your chance to show them how well you’ve mastered the Mandarin greetings!
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 10\. 喂 (wèi) – answer your phone like a fluent speaker
 
@@ -144,24 +150,18 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-2024-approved-a-film-producers-essential-guide-to-color-grading-with-standardized-luts/"><u>[New] 2024 Approved A Film Producer's Essential Guide to Color Grading with Standardized LUTs</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-depth-guide-to-simple-high-dynamic-range/"><u>[Updated] In-Depth Guide to Simple High Dynamic Range</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-rank-your-download-preferences-with-our-top-5-list-for-2024/"><u>[Updated] Rank Your Download Preferences with Our Top 5 List for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/boundless-knowledge-journey-rejoicing-in-anniversary-of-1500-free-classes/"><u>Boundless Knowledge Journey: Rejoicing in Anniversary of 1500 Free Classes</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/deciphering-nlps-role-versus-mls-role/"><u>Deciphering NLP's Role Versus ML's Role</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discovering-worldwide-loving-sentiments-today/"><u>Discovering Worldwide Loving Sentiments Today</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expo-lingofutura-crafting-the-linguists-of-tomorrow/"><u>Expo LingoFutura: Crafting the Linguists of Tomorrow</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/forever-free-mondlys-lifetime-access-plan/"><u>Forever Free - Mondly’s Lifetime Access Plan</u></a></li>
-<li><a href="https://change-location.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-vivo-y78t-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Vivo Y78t | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-deutsch-with-hit-series-netflix/"><u>Mastering Deutsch with Hit Series - Netflix</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581304136-mondly-unveils-revolutionary-vr-language-learning-experience/"><u>Mondly Unveils: Revolutionary VR Language Learning Experience</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/perfect-pronunciation-in-russian-phonetics/"><u>Perfect Pronunciation in Russian Phonetics</u></a></li>
-<li><a href="https://win-dash.techidaily.com/quick-and-easy-guide-to-updating-your-epson-printer-software-on-pc/"><u>Quick and Easy Guide to Updating Your Epson Printer Software on PC</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ready-for-a-new-era-in-communication-with-ai/"><u>Ready for a New Era in Communication with AI</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sprachweiterentwicklung-zahlreim-fur-die-ersten-100-deutsche/"><u>Sprachweiterentwicklung: Zählreim Für Die Ersten 100 Deutsche</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/tailoring-titles-and-tags-for-top-youtube-performance-for-2024/"><u>Tailoring Titles and Tags for Top YouTube Performance for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/the-evolution-of-language-models-discovering-the-differences-between-auto-gpt-and-chatgpt/"><u>The Evolution of Language Models: Discovering the Differences Between Auto-GPT and ChatGPT</u></a></li>
-<li><a href="https://win-answers.techidaily.com/troubleshoot-the-directx-error-in-warzone-with-these-4-straightforward-techniques/"><u>Troubleshoot the 'DirectX Error in Warzone' With These 4 Straightforward Techniques</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/visionaries-shaping-marvel-online-experience-for-2024/"><u>Visionaries Shaping Marvel Online Experience for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-can-image-smoothing-simplify-photo-editing/"><u>[New] Can Image Smoothing Simplify Photo Editing?</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-ultimate-tutorial-how-to-add-a-countdown-timer-in-obs/"><u>[Updated] In 2024, Ultimate Tutorial How To Add a Countdown Timer in OBS</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bilingual-brain-boost/"><u>Bilingual Brain Boost</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breaking-down-10-effective-ways-to-say-hello-in-spanish/"><u>Breaking Down 10 Effective Ways to Say 'Hello' In Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brisk-approaches-to-gaining-linguistic-skills/"><u>Brisk Approaches to Gaining Linguistic Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/carnal-communication-eloquence-in-spanish-conversation/"><u>Carnal Communication: Eloquence in Spanish Conversation</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-oppo-f25-pro-5g-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Oppo F25 Pro 5G to iPhone (13/14/15) | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-oppo-a2-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on Oppo A2</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-looking-for-a-location-changer-on-realme-c55-look-no-further-drfone-by-drfone-virtual-android/"><u>In 2024, Looking For A Location Changer On Realme C55? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-mastering-the-visual-storyteller-youtube-cinematic-training/"><u>In 2024, Mastering the Visual Storyteller YouTube Cinematic Training</u></a></li>
+<li><a href="https://discover-docs.techidaily.com/top-7-effektive-strategien-zur-reduktion-oder-umwandlung-von-4k-videos-auf-full-hd/"><u>Top 7 Effektive Strategien Zur Reduktion Oder Umwandlung Von 4K Videos Auf Full HD</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-from-capture-to-cut-a-comprehensive-guide-to-editing-sony-camcorder-footage-for-2024/"><u>Updated From Capture to Cut A Comprehensive Guide to Editing Sony Camcorder Footage for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/windows-users-ultimate-tutorial-transforming-prores-footage-into-high-quality-mp4-videos/"><u>Windows User's Ultimate Tutorial: Transforming ProRes Footage Into High-Quality MP4 Videos</u></a></li>
 </ul></div>
 

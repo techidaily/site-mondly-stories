@@ -1,7 +1,7 @@
 ---
 title: How Quickly Can I Become a Conversationalist?
-date: 2024-08-27T23:02:04.149Z
-updated: 2024-08-28T23:02:04.149Z
+date: 2024-10-08T19:11:07.359Z
+updated: 2024-10-12T18:29:42.573Z
 tags:
   - speak
   - english
@@ -17,8 +17,6 @@ thumbnail: https://thmb.techidaily.com/a63a5a9ae6eb1efed5733d165b83ad90e6d4d9274
 ## How Quickly Can I Become a Conversationalist?
 
  English is the most international language on the globe. If you are a native English speaker, chances are, you can get along quite comfortably in most Western countries without learning a word in another language. In Europe especially, with enough luck, someone out there may know enough English to initiate and sustain basic communication situations.
-
-
 
  But of course, for various other reasons either personal, cultural or work-related, you will find yourself in need of learning a foreign language. The next natural question after deciding to learn a new language is: how many hours does it take to learn a foreign language and achieve fluency?
 
@@ -45,6 +43,13 @@ thumbnail: https://thmb.techidaily.com/a63a5a9ae6eb1efed5733d165b83ad90e6d4d9274
 * **Knowing more than one language helps —** languages with shared features with English are generally easier to learn, while those with significant cultural and linguistic differences may take longer to learn;
 * **The time spent learning depends on you** **—** The time it takes to learn a new language varies greatly depending on your motivation and dedication to the task.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Interagency Language Roundtable scale or the IRL scale
 
  The Interagency Language Roundtable is a grading scale used by the US government to scale [employees](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and diplomats working for the FSI (Foreign Service Institute). You’ll find this scale to be the most accurate when it comes to native English speakers learning a foreign language. Basically, what this scale does is establish the language difficulty.
@@ -61,9 +66,6 @@ thumbnail: https://thmb.techidaily.com/a63a5a9ae6eb1efed5733d165b83ad90e6d4d9274
 
  But first, we need to clarify a certain aspect of learning foreign languages as a native English speaker: some languages are more difficult to learn than others. Why? Because English and some other languages haven’t been in contact with one another for thousands of years and have evolved in a totally different way. But studying languages that are completely different from English is not impossible. It takes longer, but you’ll eventually get there.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ## Easiest language to learn for English speakers
 
  The data presented below reflects a study held by the FSI (Foreign Service Institute) of the US government. Again, this is probably the most accurate data regarding how much time it takes for a native English speaker to become fluent in a particular new language.
@@ -102,9 +104,6 @@ thumbnail: https://thmb.techidaily.com/a63a5a9ae6eb1efed5733d165b83ad90e6d4d9274
 * comparable stress and intonation patterns;
 * already share a number of vocabulary words.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **Tier 2:** Similar to English
 
 | Language | Time needed to reach fluency |
@@ -118,8 +117,18 @@ thumbnail: https://thmb.techidaily.com/a63a5a9ae6eb1efed5733d165b83ad90e6d4d9274
 !["Fastest way to learn a language" by RF._.studio©](https://edge.mondly.com/blog/wp-content/uploads/2018/04/fastest-way-to-learn-a-language-960x641.jpg "How Long Does It Take In Hours To Learn A Language? 4")
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **Tier 3:** Languages that may have cultural and linguistic differences compared to English
 
 | Language       | Time needed to reach fluency |
@@ -131,9 +140,6 @@ thumbnail: https://thmb.techidaily.com/a63a5a9ae6eb1efed5733d165b83ad90e6d4d9274
 
 [Learn with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-1364&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-1364&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-1364)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ### **Tier 4:** Languages that are profoundly different from English
 
 | Language        | Time needed to reach fluency |
@@ -160,9 +166,6 @@ thumbnail: https://thmb.techidaily.com/a63a5a9ae6eb1efed5733d165b83ad90e6d4d9274
 
  The languages above are just a part of the European languages classified as tier 4 by the FSI. The list goes on with other languages from all over the world, like Mongolian, Nepali, Thai, Xhosa, Zulu or Hebrew. All of them take about 1100 hours or 44 weeks to become fluent in. Thus, when it comes to the difficulty of languages, this list does indeed include hard languages to learn, but not the hardest.
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ## Hardest language to learn for English speakers
 
  All of the tier 5 languages are highly sophisticated and complex compared to English having an average learning curve of up to 4 times the period it takes for the average English speaker to learn Dutch for example. So arm yourself with a lot of patience and plenty of determination.
@@ -170,8 +173,18 @@ thumbnail: https://thmb.techidaily.com/a63a5a9ae6eb1efed5733d165b83ad90e6d4d9274
  Based on all the data and testimonies English speakers made over the years, the hardest language to learn award may go to Japanese due to the thousands of characters you need to memorize while having three different writing varieties.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977020">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **Tier 5:** Extraordinary level of difficulty
 
 | Language         | Time needed to reach fluency |
@@ -185,6 +198,13 @@ thumbnail: https://thmb.techidaily.com/a63a5a9ae6eb1efed5733d165b83ad90e6d4d9274
  But don’t let all these statistics scare you! People around the world are learning and assimilating new languages every day. Besides, these are still human languages; it’s not like you need to decipher an alien dialect. All of the above are languages created by humans, and with enough determination and willpower, you can learn any language on this list. Besides, learning a new language is [good for the brain](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) !
 
 ![Mondly 1000 daily lessons for free](https://edge.mondly.com/blog/wp-content/uploads/2017/09/iphone_main_screen_s_FW7fe-1024x682.jpg "How Long Does It Take In Hours To Learn A Language? 5")
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Let’s not also forget that the above FSI statistics don’t include the help of modern language learning aids like apps on your smartphone can bring to the table. In theory, today you can [learn a foreign language much faster.](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
@@ -215,8 +235,6 @@ thumbnail: https://thmb.techidaily.com/a63a5a9ae6eb1efed5733d165b83ad90e6d4d9274
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -224,4 +242,23 @@ thumbnail: https://thmb.techidaily.com/a63a5a9ae6eb1efed5733d165b83ad90e6d4d9274
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-steps-to-acquire-free-picture-frame-videos/"><u>[Updated] In 2024, Steps to Acquire Free Picture Frame Videos</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-full-disclosure-unpacking-the-dji-inspire-1/"><u>2024 Approved Full Disclosure Unpacking the DJI Inspire 1</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/arabic-starter-pack-essential-steps-for-novices/"><u>Arabic Starter Pack: Essential Steps for Novices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ausreden-vermeiden-deutsche-art-zu-bedauern-sagen/"><u>Ausreden Vermeiden – Deutsche Art Zu Bedauern Sagen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/commonly-mispronounced-english-words-ranking-the-top-100/"><u>Commonly Mispronounced English Words - Ranking the Top 100</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comparative-guide-to-pt-button-usage-europe-and-brazil/"><u>Comparative Guide to PT Button Usage, Europe and Brazil</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-deep-into-languages-the-secret-of-mondlys-success/"><u>Dive Deep Into Languages: The Secret of Mondly's Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578098370-from-novice-to-speaker-in-croatia-here-are-the-top-7-reasons/"><u>From Novice to Speaker in Croatia - Here Are The Top 7 Reasons</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-infinix-smart-8-hd-location-by-number-drfone-by-drfone-virtual-android/"><u>How to Track Infinix Smart 8 HD Location by Number | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580803493-multilingual-momentum-speak-and-travel-without-leaving-home/"><u>Multilingual Momentum: Speak and Travel without Leaving Home!</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-cutting-edge-text-tracking-technology/"><u>New In 2024, Cutting-Edge Text Tracking Technology</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/recommended-best-applications-for-mirroring-your-realme-c53-screen-drfone-by-drfone-android/"><u>Recommended Best Applications for Mirroring Your Realme C53 Screen | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/securing-web-activity-with-proton-vpn-extension/"><u>Securing Web Activity with Proton VPN Extension</u></a></li>
+<li><a href="https://media-tips.techidaily.com/start-streaming-newly-available-movie-rental-service-with-plex-integration/"><u>Start Streaming: Newly Available Movie Rental Service with Plex Integration</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/transforming-ideas-into-reality-best-6-nft-services-explored-for-2024/"><u>Transforming Ideas Into Reality Best 6 NFT Services Explored for 2024</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/unblocking-images-in-safari-on-your-iphone-a-comprehensive-guide-to-nine-solutions/"><u>Unblocking Images in Safari on Your iPhone: A Comprehensive Guide to Nine Solutions</u></a></li>
+</ul></div>
 

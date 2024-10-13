@@ -1,7 +1,7 @@
 ---
 title: Population & Prevalence of French-Speaking Societies
-date: 2024-10-03T16:03:12.030Z
-updated: 2024-10-07T05:13:55.720Z
+date: 2024-10-07T18:50:40.808Z
+updated: 2024-10-12T21:54:24.757Z
 tags:
   - speak
   - english
@@ -44,6 +44,13 @@ thumbnail: https://thmb.techidaily.com/59ebf54bbd2728b1cee67f80e126289c9f6737977
 
 ![how many people speak french](https://edge.mondly.com/blog/wp-content/uploads/2022/10/how-many-people-speak-french-960x600.jpg "Top French-Speaking Countries | How Many People Speak French? 4")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### French-speaking countries in Europe
 
  Since France is the parental home of the French language, we figured it’s best to start with Europe. Boasting a rough total of 80 million French speakers, Europe counts for around 40% of the total number of worldwide francophones. This makes French the 3rd most spoken native language in Europe.
@@ -56,13 +63,6 @@ thumbnail: https://thmb.techidaily.com/59ebf54bbd2728b1cee67f80e126289c9f6737977
 * Monaco — 97%
 * Switzerland — 67%
 * Italy — 20% (French is the official language of the autonomous region of the Aosta Valley)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### French-speaking countries in Africa
 
@@ -115,17 +115,10 @@ We told you that French speakers could be found everywhere in the world!
 !['French speakers' by Claudia Altamimi©](https://edge.mondly.com/blog/wp-content/uploads/2022/10/french-speakers-960x720.jpg "Top French-Speaking Countries | How Many People Speak French? 5")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### French-speaking countries in Oceania
@@ -138,6 +131,13 @@ We told you that French speakers could be found everywhere in the world!
 
  Later, in the 1880s, France and the United Kingdom claimed parts of the archipelago and they agreed to manage it jointly. However, an independence movement arose in the 1970s, and the Republic of Vanuatu was founded in 1980\. And that’s the story of how the French language made it all the way to Australia.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Countries where French is spoken although it’s not an official language
 
  Despite not being their official language, French is spoken in other countries as well. Just like previously mentioned, the French language enjoys growing notoriety all over the world.
@@ -147,10 +147,10 @@ We told you that French speakers could be found everywhere in the world!
  Now we finally have the full picture and we can understand why French is spoken on five continents.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## A short history of the French language
@@ -201,14 +201,24 @@ We told you that French speakers could be found everywhere in the world!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-how-to-change-video-speed-on-instagram-stories/"><u>2024 Approved How to Change Video Speed on Instagram Stories?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dawn-dictionaries-10-languages-one-sunrise-salutation/"><u>Dawn Dictionaries: 10 Languages, One Sunrise Salutation</u></a></li>
-<li><a href="https://win-blog.techidaily.com/effective-solutions-to-age-of-empires-iv-non-downloadingnon-installing-issues-on-the-microsoft-app-store/"><u>Effective Solutions to Age of Empires IV Non-Downloading/Non-Installing Issues on the Microsoft App Store</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/elevate-your-watch-dogs-legion-experience-by-boosting-frame-rates-and-reducing-latency-issues/"><u>Elevate Your Watch Dogs: Legion Experience by Boosting Frame Rates & Reducing Latency Issues</u></a></li>
-<li><a href="https://fox-links.techidaily.com/jest-sculptor-undead-funnybots/"><u>Jest Sculptor Undead Funnybots</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/milestones-in-a-decade-mondlybacks-button-innovations/"><u>Milestones in a Decade: MondlyBack’s Button Innovations</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/the-case-for-unchangeable-ai-language-mods/"><u>The Case for Unchangeable AI Language Mods</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-your-potential-in-fifties-through-foreign-language-study/"><u>Unlocking Your Potential in Fifties Through Foreign Language Study</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/virtual-voyage-speak-a-foreign-language-effortlessly/"><u>Virtual Voyage: Speak a Foreign Language Effortlessly</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-detecting-changes-in-your-instagram-network/"><u>[Updated] In 2024, Detecting Changes in Your Instagram Network</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/emojis-are-financial-advice-activision-hacked-and-will-chatgpt-powered-ai-steal-your-job/"><u>Emojis Are Financial Advice, Activision Hacked, and Will ChatGPT-Powered AI Steal Your Job?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/experiencing-a-slump-in-your-steam-gameplay-uncover-effective-solutions-now/"><u>Experiencing a Slump in Your Steam Gameplay? Uncover Effective Solutions Now!</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-2-ways-to-monitor-honor-100-activity-drfone-by-drfone-virtual-android/"><u>In 2024, 2 Ways to Monitor Honor 100 Activity | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-a-perfect-guide-to-remove-or-disable-google-smart-lock-on-itel-a60s-by-drfone-android/"><u>In 2024, A Perfect Guide To Remove or Disable Google Smart Lock On Itel A60s</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-periscope-recording-for-beginners-a-complete-walkthrough/"><u>In 2024, Periscope Recording for Beginners A Complete Walkthrough</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/in-2024-youtubes-top-5-apps-that-trim-your-long-video-links-down/"><u>In 2024, Youtube’s Top 5 Apps That Trim Your Long Video Links Down</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/innovative-screencapping-a-practical-sequential-handbook/"><u>Innovative Screencapping A Practical, Sequential Handbook</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/iphone-cloud-storage-solutions-efficiently-syncing-and-backing-up-using-icloud-or-macos/"><u>IPhone Cloud Storage Solutions: Efficiently Syncing and Backing Up Using iCloud or macOS</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/knowledge-in-the-tongue-of-your-choice-now-at-half-price/"><u>Knowledge in the Tongue of Your Choice Now at Half Price!</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/latest-steelseries-controller-driver-update-how-to-get-started-with-windows-devices/"><u>Latest SteelSeries Controller Driver Update: How to Get Started with Windows Devices</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/mastering-internet-media-our-picks-for-top-browser-recording-tools-for-2024/"><u>Mastering Internet Media Our Picks for Top Browser Recording Tools for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/phonetics-face-off-brazilian-portuguese-vs-european/"><u>Phonetics Face-Off: Brazilian Portuguese vs European</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/profiling-the-largest-blocs-of-francophone-populace/"><u>Profiling the Largest Blocs of Francophone Populace</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rapid-polish-comprehension-tactics/"><u>Rapid Polish Comprehension Tactics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/simple-pathways-to-hangul-swift-learning-experience/"><u>Simple Pathways to Hangul: Swift Learning Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-days-of-the-week-in-frenchback-buttonfilter-button/"><u>The Days Of The Week In FrenchBack ButtonFilter Button</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-choosing-the-best-drone-camera-spotlight-on-the-dominating-dji-mavic-nova-pro-model-for-professionals/"><u>The Ultimate Guide to Choosing the Best Drone Camera: Spotlight on the Dominating DJI Mavic Nova Pro Model for Professionals</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukrainian-and-russian-dialects-a-comparative-study/"><u>Ukrainian & Russian Dialects: A Comparative Study</u></a></li>
 </ul></div>
 

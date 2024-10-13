@@ -1,7 +1,7 @@
 ---
 title: "Quick Swede Sounds: A Linguistic Guide"
-date: 2024-10-04T06:45:55.664Z
-updated: 2024-10-07T03:35:24.732Z
+date: 2024-10-08T23:05:17.927Z
+updated: 2024-10-12T19:36:20.679Z
 tags:
   - speak
   - english
@@ -28,13 +28,6 @@ thumbnail: https://thmb.techidaily.com/acda250c18e670747053131396d60b9bcac159175
 
  The current alphabet is considered modern because it arrived in Sweden together with the Christianization of Scandinavia that took place between the 8th and the 12th centuries. As a matter of fact, the translation of the New Testament into Swedish in 1526 actually marks the beginning of modern Swedish.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How was Swedish written before the Latin script?
 
  **Swedish used runes before the arrival of the Latin script in Scandinavia.** The [runic alphabet](https://www.britannica.com/topic/runic-alphabet) , also known as Futhark, was the first writing system the Norse and other Germanic people used for centuries. As it happens, isolated communities in a remote part of Sweden only [stopped using runes](https://sciencenordic.com/language-linguistics-runes/isolated-people-in-sweden-only-stopped-using-runes-100-years-ago/1418110) 100 years ago. To this day, the runic alphabet is considered a writing system of uncertain origin as scholars cannot find solid proof to support its ancestry.
@@ -44,16 +37,16 @@ thumbnail: https://thmb.techidaily.com/acda250c18e670747053131396d60b9bcac159175
 ![swedish runes on stones](https://edge.mondly.com/blog/wp-content/uploads/2021/11/swedish-runic-alphabet-960x686.jpg "Quick Introduction To The Swedish Alphabet And Its Fascinating History 2")
 
 <!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  “Swedish runes” by petr sidorov©
@@ -63,10 +56,10 @@ thumbnail: https://thmb.techidaily.com/acda250c18e670747053131396d60b9bcac159175
  Known in Swedish as**Svenska,** the [Swedish language](https://www.britannica.com/topic/Swedish-language) belongs to the East Scandinavian group of North Germanic languages and is the official language of Sweden and Finland. According to Ethnologue, the total number of Swedish speakers worldwide is over 13 million (both native and non-native speakers).
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Mutual intelligibility with the other Scandinavian languages
@@ -76,6 +69,13 @@ thumbnail: https://thmb.techidaily.com/acda250c18e670747053131396d60b9bcac159175
  The languages that are mutually intelligible with Swedish to a larger extent are Norwegian and Danish. Due to their shared history, these three languages are quite similar, particularly in their written form.
 
  Similar to the transformation the [Romance languages](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) went through over time, Old East Norse dialects were influenced by numerous factors. For example, between 800 and 1100 AD, Runic Swedish was only slightly different from Runic Danish, but they began to diverge during the 12th century. However, some aspects stayed the same. That’s why is easier to learn Swedish when you already know Danish and vice versa.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Pronunciation rules and usage
 
@@ -92,6 +92,13 @@ thumbnail: https://thmb.techidaily.com/acda250c18e670747053131396d60b9bcac159175
  Q, W, and Z will only appear in some loanwords such as queer, squash, web, or zon (zone).
 
  Though officially in the Swedish alphabet, there are two other letters you’ll probably see in Swedish: ü and è. But again, these letters are only common in some loanwords.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### General pronunciation rules
 
@@ -112,13 +119,6 @@ thumbnail: https://thmb.techidaily.com/acda250c18e670747053131396d60b9bcac159175
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### From 0 to conversational in Swedish
 
@@ -150,22 +150,18 @@ thumbnail: https://thmb.techidaily.com/acda250c18e670747053131396d60b9bcac159175
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-premier-6-modern-architecture-in-mc-world-for-2024/"><u>[New] Premier 6 Modern Architecture in MC World for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/rofessional-tips-for-enhancing-your-youtube-videos-with-captions/"><u>[New] Professional Tips for Enhancing Your YouTube Videos with Captions</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-pursuing-perfection-on-track-compiling-top-5-simulators/"><u>[New] Pursuing Perfection on Track Compiling Top 5 Simulators</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-listening-out-loud-deciphering-the-differences-between-podcasts-and-youtube/"><u>2024 Approved Listening Out Loud Deciphering the Differences Between Podcasts & YouTube</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/dvd-windows-10-t17252908042183/"><u>免費DVD上色軟件 高效便利 - Windows 10版本特別釋出,點選報名直接獎賞!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/accessible-japanese-study-freebies-and-solo-strategies/"><u>Accessible Japanese Study: Freebies and Solo Strategies</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/building-brand-buzz-the-power-of-instagram-story-quizzes-for-2024/"><u>Building Brand Buzz The Power of Instagram Story Quizzes for 2024</u></a></li>
-<li><a href="https://win-dash.techidaily.com/canon-mx560-driver-download-and-update-instructions-for-a-smooth-printing-experience/"><u>Canon MX560 Driver Download & Update Instructions for a Smooth Printing Experience</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/grammars-impact-on-second-language-acquisition/"><u>Grammar's Impact on Second Language Acquisition</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/macaus-trilingual-richness-revealed/"><u>Macau's Trilingual Richness Revealed</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/multilingual-welcome-strategies/"><u>Multilingual Welcome Strategies</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/new-tongues-old-brains-fresh-minds-in-silver-years/"><u>New Tongues, Old Brains: Fresh Minds in Silver Years</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ranking-the-worlds-oldest-verbal-expressions/"><u>Ranking the World’s Oldest Verbal Expressions</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/the-new-era-of-computing-begins-with-apples-m1-chip-in-their-2020-macbook-pro-13-inch-model-an-in-depth-review/"><u>The New Era of Computing Begins with Apple's M1 Chip in Their 2020 MacBook Pro 13-Inch Model: An In-Depth Review</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-timeless-journey-of-polyglots/"><u>The Timeless Journey of Polyglots</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/1722973868650-upgrade-graphics-amd-rx-6900-xt-drivers-for-windows-11-10-8-and-7-free-and-easy-download/"><u>Upgrade Graphics: [AMD RX 6900 XT Drivers for Windows 11, 10, 8 & 7] - Free and Easy Download!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/voyage-vocabulary-top-phrases-to-conquer-francophone-lands/"><u>Voyage Vocabulary: Top Phrases to Conquer Francophone Lands</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-secrets-to-preserving-online-broadcasts-professionally/"><u>[Updated] 2024 Approved Secrets to Preserving Online Broadcasts Professionally</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-cross-platform-guide-to-transforming-photographic-genders-online/"><u>[Updated] In 2024, Cross-Platform Guide to Transforming Photographic Genders Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/5-profound-impacts-of-multilingual-communication/"><u>5 Profound Impacts of Multilingual Communication</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/all-you-need-to-know-about-mega-greninja-for-realme-narzo-n53-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Realme Narzo N53 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/athenas-articulation-the-evolution-of-hellenic-speech/"><u>Athena’s Articulation: The Evolution of Hellenic Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aufforderungen-mit-bedauern-deutsche-formulierung-lernen/"><u>Aufforderungen Mit Bedauern – Deutsche Formulierung Lernen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beyond-pronunciation-succeeding-in-difficult-language-learning/"><u>Beyond Pronunciation: Succeeding in Difficult Language Learning</u></a></li>
+<li><a href="https://fox-http.techidaily.com/googles-musical-sidekick-ringers-guide-for-2024/"><u>Google's Musical Sidekick Ringers Guide for 2024</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/in-2024-how-to-add-freeze-frame-to-your-video-from-any-device/"><u>In 2024, How to Add Freeze Frame to Your Video From Any Device?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-xiaomi-redmi-12-drfone-by-drfone-virtual-android/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Xiaomi Redmi 12 | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/innovative-pathways-ensuring-correct-iphone-snapchat-data-flow/"><u>Innovative Pathways Ensuring Correct iPhone-Snapchat Data Flow</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580355720-quick-language-learning-for-norge-proficiency/"><u>Quick Language Learning for Norge Proficiency</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/ultimate-compilation-best-gopro-cases-for-action-seekers-for-2024/"><u>Ultimate Compilation Best GoPro Cases for Action Seekers for 2024</u></a></li>
 </ul></div>
 

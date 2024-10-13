@@ -1,7 +1,7 @@
 ---
 title: Saudações Básicas Em Português Para Ficar De Olho
-date: 2024-10-03T01:52:01.952Z
-updated: 2024-10-06T18:48:56.820Z
+date: 2024-10-08T17:36:40.290Z
+updated: 2024-10-12T20:02:01.758Z
 tags:
   - speak
   - english
@@ -24,13 +24,6 @@ thumbnail: https://thmb.techidaily.com/9e8b456962dede45b52947713c8978e1ca5454c2b
 
  “Hello” is a [powerful word](https://www.merriam-webster.com/words-at-play/the-origin-of-hello) . It opens doors. It makes people smile. And said the right way and at the right time, “hello” can impact someone’s day and you wouldn’t even know it. So here are the right ways to say “hello” in Portuguese and open doors everywhere you go.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### “Hello” in Portuguese – Olá
 
 _Olá_ is the best choice for most social situations regardless of the person you are addressing. It’s somehow formal, but also friendly.
@@ -44,13 +37,20 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ![hi in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-portuguese-1024x658.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 2")
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  “Lisbon, Portugal” by Diego García©
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### “How are you” in Portuguese – Tudo bem?
 
@@ -81,13 +81,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
  All three of these are safe to use in any kind of interaction (formal or informal).
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3.“Goodbye” in Portuguese – Adeus
 
  The most common way to say “Goodbye” in Portuguese is_Adeus_ , but you can also use_Tchau_ which simply translates to “bye”.
@@ -103,6 +96,13 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ![portuguese greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/08/portuguese-greetings-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 4")
 
  “Ruínas da Fortaleza de Arrifana, Aljezur, Portugal” by Ferhat Deniz Fors©
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Bonus: other basic Portuguese phrases that you should know
 
@@ -128,19 +128,19 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ![obrigado](https://edge.mondly.com/blog/wp-content/uploads/2019/08/obrigado-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 5")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “Gruta do Lago Azul, Brazil” by Ademir Alves©
 
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fhello-in-portuguese-basic-portuguese-greetings-you-need%2F&t=Hello+in+Portuguese+and+Other+Basic+Portuguese+Greetings+You+Need+to+Know "Share on Facebook")
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Here’s how to speak Portuguese in 10 minutes a day
 
@@ -173,22 +173,16 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-the-beginners-pathway-to-fashionable-snaps-and-lenses/"><u>[New] In 2024, The Beginner's Pathway to Fashionable Snaps & Lenses</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/new-skyline-your-videos-reach-writing-captivating-youtube-descs-using-templates/"><u>[New] Skyline Your Video's Reach Writing Captivating Youtube Descs Using Templates</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-how-to-dominate-tiktoks-trending-topics-for-more-engagement-for-2024/"><u>[Updated] How to Dominate TikTok's Trending Topics for More Engagement for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-subtitle-tips-for-instagram-tv-storytelling/"><u>[Updated] Subtitle Tips for Instagram TV Storytelling</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-strategies-for-acquiring-french-at-home/"><u>Essential Strategies for Acquiring French at Home</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-novice-to-expert-mondlys-transformative-journey-for-you/"><u>From Novice to Expert - Mondly's Transformative Journey for You</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-oppo-a79-5g-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Oppo A79 5G to Other Android Devices Devices? | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-turn-off-google-location-to-stop-tracking-you-on-vivo-v30-lite-5g-drfone-by-drfone-virtual-android/"><u>How to Turn Off Google Location to Stop Tracking You on Vivo V30 Lite 5G | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-the-complete-guide-to-motorola-moto-g-stylus-5g-2023-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Complete Guide to Motorola Moto G Stylus 5G (2023) FRP Bypass Everything You Need to Know</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/international-vernacular-infusions-in-english/"><u>International Vernacular Infusions in English</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719578058069-learn-latvian-online-in-just-10-minutes-a-day/"><u>Learn Latvian Online In Just 10 Minutes A Day</u></a></li>
-<li><a href="https://blog-min.techidaily.com/1725287370659-macwinx-hd/"><u>Mac用WinX HDビデオコンバーター - 無限の動画変換・編集機能をご紹介</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/professional-tools-to-elevate-your-video-openings-for-2024/"><u>Professional Tools to Elevate Your Video Openings for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ten-years-countless-connections-at-mondly/"><u>Ten Years, Countless Connections at Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-best-of-mondly-now-at-your-fingertips/"><u>The Best of Mondly, Now at Your Fingertips</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unveiling-germanys-most-heartfelt-ways-of-saying-thank-you/"><u>Unveiling Germany’s Most Heartfelt Ways of Saying 'Thank You'</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579254555-year-of-linguistics-cut-costs-by-95-today/"><u>Year of Linguistics? Cut Costs by 95% Today</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-designing-your-musical-journey-youtube-playlist-construction-tips-webapp/"><u>[New] Designing Your Musical Journey YouTube Playlist Construction Tips Web/App</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-mastering-content-delivery-uploading-and-sharing-videos-on-instagram-desktop-for-2024/"><u>[New] Mastering Content Delivery Uploading and Sharing Videos on Instagram Desktop for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-iphoneipad-cutting-edge-free-video-editing-tools-guide-for-2024/"><u>[Updated] IPhone/iPad Cutting Edge Free Video Editing Tools Guide for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/endless-joy-for-mondly-premium-users/"><u>Endless Joy for Mondly Premium Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/engage-in-worldwide-english-pearson-edition/"><u>Engage in Worldwide English: Pearson Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/future-of-schooling-mondly-and-apple-join-forces/"><u>Future of Schooling: Mondly & Apple Join Forces</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/future-proofing-communication-upgrading-your-language-skills/"><u>Future-Proofing Communication: Upgrading Your Language Skills</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-any-oneplus-open-phone-password-using-emergency-call-by-drfone-android/"><u>How To Unlock Any OnePlus Open Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/scarica-in-streaming-i-tuoi-video-e-playlist-hd-oggibiglio-gratis/"><u>Scarica in Streaming I Tuoi Video E Playlist HD OGGIBIGLIO Gratis</u></a></li>
+<li><a href="https://win-best.techidaily.com/seamlessly-moving-your-windows-10-user-account-to-windows-11-the-top-three-methods/"><u>Seamlessly Moving Your Windows 10 User Account to Windows 11: The Top Three Methods</u></a></li>
+<li><a href="https://win-workspace.techidaily.com/speedy-methods-for-extracting-background-from-images-on-an-iphone-a-step-by-step-guide/"><u>Speedy Methods for Extracting Background From Images on an iPhone: A Step-by-Step Guide</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Pioneering Filters: The Mondly-Pearson Collaboration"
-date: 2024-10-06T06:23:10.771Z
-updated: 2024-10-06T21:28:50.286Z
+date: 2024-10-10T01:17:08.883Z
+updated: 2024-10-12T21:43:56.490Z
 tags:
   - speak
   - english
@@ -40,10 +40,10 @@ thumbnail: https://thmb.techidaily.com/3f22ae9e837b10e05053cf12480b5c15e8d166c20
  At Pearson, our purpose is simple: to add life to a lifetime of learning. We believe that every learning opportunity is a chance for a personal breakthrough. That’s why our c.20,000 Pearson employees are committed to creating vibrant and enriching learning experiences designed for real-life impact. We are the world’s leading learning company, serving customers in more than 200 countries with digital content, assessments, qualifications, and data. For us, learning isn’t just what we do. It’s who we are. Visit us at pearsonplc.com
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **About Mondly**
@@ -67,21 +67,24 @@ thumbnail: https://thmb.techidaily.com/3f22ae9e837b10e05053cf12480b5c15e8d166c20
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-breaking-barriers-instagrams-trailblazing-25-stars/"><u>[Updated] 2024 Approved Breaking Barriers Instagram's Trailblazing 25 Stars</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/25-key-german-expressions-for-fluent-speakers/"><u>25 Key German Expressions for Fluent Speakers</u></a></li>
-<li><a href="https://win-dash.techidaily.com/get-your-thrustmaster-t150-up-and-running-driver-downloads-at-lightning-speed/"><u>Get Your Thrustmaster T150 Up & Running: Driver Downloads at Lightning Speed</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/haunting-customs-halloween-around-the-globe/"><u>Haunting Customs: Halloween Around the Globe</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-4-ways-to-mirror-apple-iphone-se-to-laptop-via-usb-or-wi-fi-drfone-by-drfone-ios/"><u>In 2024, 4 Ways to Mirror Apple iPhone SE to Laptop via USB or Wi-Fi | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-all-must-knows-to-use-fake-gps-go-location-spoofer-on-samsung-galaxy-z-fold-5-drfone-by-drfone-virtual-android/"><u>In 2024, All Must-Knows to Use Fake GPS GO Location Spoofer On Samsung Galaxy Z Fold 5 | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-urdu-easily-every-day/"><u>Learn Urdu Easily, Every Day</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/love-in-translation-inspirational-french-movies/"><u>Love in Translation: Inspirational French Movies</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-reigns-supreme-leading-the-language-education-sphere/"><u>Mondly Reigns Supreme: Leading the Language Education Sphere</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/overcoming-polyglot-hurdles-winning-with-toughest-languages/"><u>Overcoming Polyglot Hurdles: Winning with Toughest Languages</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/swift-techniques-mastering-effective-double-exposure-for-2024/"><u>Swift Techniques Mastering Effective Double Exposure for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/tailoring-your-digital-environment-with-folder-tags-in-explorer/"><u>Tailoring Your Digital Environment with Folder Tags in Explorer</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/the-director-of-dishes-behind-the-scenes-of-food-filming-for-2024/"><u>The Director of Dishes Behind-the-Scenes of Food Filming for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719577616582-the-easiest-way-to-study-czech-online/"><u>The Easiest Way to Study Czech Online</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/the-premier-list-smartphone-applications-that-revolutionize-vocal-identity-for-2024/"><u>The Premier List Smartphone Applications That Revolutionize Vocal Identity for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/twitch-replay-magic-stream-control-secrets/"><u>Twitch Replay Magic Stream Control Secrets</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-leveraging-adobe-connect-for-exceptional-video-capture-and-editing/"><u>[New] Leveraging Adobe Connect for Exceptional Video Capture & Editing</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-expand-reach-on-tiktok-with-powerful-hashtags/"><u>[Updated] Expand Reach on TikTok with Powerful Hashtags</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-deciphering-crossfade-techniques-in-music/"><u>[Updated] In 2024, Deciphering Crossfade Techniques in Music</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-premium-selection-of-mp4-devices/"><u>2024 Approved Premium Selection of MP4 Devices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effective-solutions-resolving-your-dota-2-game-crashes/"><u>Effective Solutions: Resolving Your Dota 2 Game Crashes</u></a></li>
+<li><a href="https://fox-access.techidaily.com/effortless-ways-to-grab-high-quality-images-at-no-cost/"><u>Effortless Ways To Grab High Quality Images at No Cost</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-a-realme-v30t-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Realme V30T Phone That Is Locked | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-unbrick-a-dead-xiaomi-redmi-12-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Unbrick a Dead Xiaomi Redmi 12 5G | Dr.fone</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-boosting-your-videos-chance-on-vimeo-staff-list/"><u>In 2024, Boosting Your Video's Chance on Vimeo Staff List</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-ultimate-viral-click-title-genie/"><u>In 2024, Ultimate Viral Click Title Genie</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/israeli-travel-secrets-10-tips-and-phrasebook-highlights/"><u>Israeli Travel Secrets: 10 Tips & Phrasebook Highlights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-language-expedition-two-years-grand-ambitions/"><u>Mondly Language Expedition: Two Years, Grand Ambitions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-russia-with-just-over-100-key-phrases/"><u>Navigating Russia with Just Over 100 Key Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/online-tools-for-swift-acquisition-of-czech-skills/"><u>Online Tools for Swift Acquisition of Czech Skills</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/social-media-savvy-capturing-spherical-photos-with-iphone/"><u>Social Media Savvy Capturing Spherical Photos with iPhone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-by-step-tutorial-restoring-audio-input-on-windows-11-pcs/"><u>Step-by-Step Tutorial: Restoring Audio Input on Windows 11 PCs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-10-germans-lingo-mastering-expressions-and-phrases-quickly/"><u>Top 10 Germans Lingo: Mastering Expressions and Phrases Quickly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-communication-skills-with-7-essential-afrikaans-tips-on-mondly/"><u>Transform Communication Skills with 7 Essential Afrikaans Tips on Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-speech-hegemony-quintessential-languages/"><u>Worldwide Speech Hegemony: Quintessential Languages</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Worldwide Words Shaping English Identity
-date: 2024-10-05T01:22:43.985Z
-updated: 2024-10-06T22:49:48.846Z
+date: 2024-10-10T23:24:32.909Z
+updated: 2024-10-12T20:19:55.006Z
 tags:
   - speak
   - english
@@ -73,6 +73,13 @@ thumbnail: https://thmb.techidaily.com/014d79402613effc6daacc66a3f2a300ba2df5a4c
 
 ![English foreign words](https://edge.mondly.com/blog/wp-content/uploads/2024/01/english-foreign-words-600x600.png "100+ English Words Borrowed From Other Languages 4")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Although we usually call them “borrowed words”, these are also known as loanwords. According to Oxford Languages,**a loanword** is_“a word adopted from a foreign language with little or no modification”_ . The transition from one language to another can happen through:
 
 * **Transcription,** which means borrowing words while preserving their original pronunciation in the borrowed language;
@@ -81,16 +88,16 @@ thumbnail: https://thmb.techidaily.com/014d79402613effc6daacc66a3f2a300ba2df5a4c
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "100+ English Words Borrowed From Other Languages 5")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Improve your English fast 🚀
 
  With Mondly, English mastery is at your fingertips – and in your native tongue. Start today ![Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-9827&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-9827%26mt%3D8)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## French loanwords: English words that are actually French
 
@@ -121,10 +128,10 @@ thumbnail: https://thmb.techidaily.com/014d79402613effc6daacc66a3f2a300ba2df5a4c
  Did you know that approximately**30% of the English vocabulary** consists of words that have their origins in**French and Latin** ? Considering that French was the language of the English king and his court for over 300 years, it’s no surprise. During that time, as many as 10,000 French loanwords came into English.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Spanish loanwords: English words that are actually Spanish
@@ -150,10 +157,10 @@ thumbnail: https://thmb.techidaily.com/014d79402613effc6daacc66a3f2a300ba2df5a4c
  Unlike French loanwords which have been adapted into British English, most of the**Spanish loanwords entered English via the North American English route.** Cultural exchanges between [Spanish-speaking](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and English-speaking communities led to an influx of loanwords related to food and music in particular. For example, words like “guacamole”, “salsa” and “piñata” have been borrowed into English from Spanish due to the popularity of the Mexican culture in the United States.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Italian loanwords: English words that are actually Italian
@@ -207,13 +214,6 @@ thumbnail: https://thmb.techidaily.com/014d79402613effc6daacc66a3f2a300ba2df5a4c
 | Diesel       |
 
  Some of the first German words were borrowed into English during the interactions between Germanic-speaking tribes and English-speaking communities in early medieval Europe. Words related to everyday life, family, and community were among the earliest borrowings. Later, thanks to Germany’s influence in various fields, English borrowed German words related to science and technology, music, philosophy, literature and engineering.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Understanding the Size of the English Vocabulary
 
@@ -273,22 +273,20 @@ Coming Soon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-boost-cash-flow-with-these-5-instagram-hacks/"><u>[New] Boost Cash Flow with These 5 Instagram Hacks</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-quick-overview-of-colour-difference-filming/"><u>[New] In 2024, Quick Overview of Colour Difference Filming</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-unlock-pip-in-edge-for-a-superior-browsing-experience/"><u>[Updated] Unlock PIP in Edge for a Superior Browsing Experience</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-high-res-gopro-hero5-against-sj7-star/"><u>2024 Approved High Res GoPro Hero5 Against SJ7 Star</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-journey-through-romantic-language-history/"><u>A Journey Through Romantic Language History</u></a></li>
-<li><a href="https://blog-min.techidaily.com/best-methods-to-transform-gif-into-mp4-format-top-17-online-easy-and-free-conversion-tools/"><u>Best Methods to Transform GIF Into MP4 Format: Top 17 Online, Easy and Free Conversion Tools</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/comparing-content-formats-podcasts-versus-youtube/"><u>Comparing Content Formats Podcasts Versus YouTube</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/heartfelt-internationalism-for-a-special-valentine/"><u>Heartfelt Internationalism for a Special Valentine</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/honoring-ten-years-mondlybacks-filter-innovation/"><u>Honoring Ten Years: MondlyBack's Filter Innovation</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-best-10-mock-location-apps-worth-trying-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Best 10 Mock Location Apps Worth Trying On Google Pixel 8 Pro | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/intuitive-guide-to-hangul-speedy-script-comprehension/"><u>Intuitive Guide to Hangul: Speedy Script Comprehension</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/master-multiple-languages-in-a-virtual-world-mondlys-latest-innovation/"><u>Master Multiple Languages in a Virtual World - Mondly's Latest Innovation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/multilingual-mastery-meets-social-dynamics-in-vr-worlds/"><u>Multilingual Mastery Meets Social Dynamics in VR Worlds</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-filmora-torrent-download-a-step-by-step-virus-free-guide/"><u>New 2024 Approved Filmora Torrent Download A Step-by-Step Virus-Free Guide</u></a></li>
-<li><a href="https://program-issues.techidaily.com/1723006124613-team-fortress-2-continuous-crashing-problems-heres-how-to-fix-them/"><u>Team Fortress 2 Continuous Crashing Problems? Here's How to Fix Them!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-excellence-in-english-via-mondly/"><u>The Ultimate Guide to Excellence in English via Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unending-education-odyssey-the-1500th-of-no-cost-sessions-celebration/"><u>Unending Education Odyssey: The 1500Th of No-Cost Sessions Celebration</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-digital-dawnings-of-insight-augmented-metaverse-mantras/"><u>[New] Digital Dawnings of Insight Augmented Metaverse Mantras</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-pixel-pilgrimage-journey-through-one-thousand-channels/"><u>[Updated] Pixel Pilgrimage Journey Through One Thousand Channels</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-top-9-smartphone-gadgets-for-aspiring-vloggers-to-upgrade-their-craft-for-2024/"><u>[Updated] Top 9 Smartphone Gadgets for Aspiring Vloggers to Upgrade Their Craft for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/a-perfect-guide-to-remove-or-disable-google-smart-lock-on-vivo-t2-5g-by-drfone-android/"><u>A Perfect Guide To Remove or Disable Google Smart Lock On Vivo T2 5G</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/engaging-latin-lessons-made-fun/"><u>Engaging Latin Lessons Made Fun</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-10-diverse-spanish-greeting-expressions/"><u>Exploring 10 Diverse Spanish Greeting Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressive-power-of-the-german-tongue-top-25-phrases-guide/"><u>Expressive Power of the German Tongue: Top 25 Phrases Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressoes-de-bencao-em-portugues-diversao-e-conhecimento/"><u>Expressões De Bênção Em Português - Diversão E Conhecimento</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-por-que-to-por-que-the-shift-explained/"><u>From 'Por Que' To 'Por Qué': The Shift Explained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-gorgeousness-expressive-approaches/"><u>German Gorgeousness: Expressive Approaches</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-reset-a-locked-xiaomi-mix-fold-3-phone-by-drfone-android/"><u>How to Reset a Locked Xiaomi Mix Fold 3 Phone</u></a></li>
+<li><a href="https://common-error.techidaily.com/1723211732304-how-to-resolve-issues-with-computer-not-powering-off-in-windows-11-fixed/"><u>How to Resolve Issues with Computer Not Powering Off in Windows 11 – FIXED</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-mastering-flight-with-top-5-hmds-for-drone-racing/"><u>In 2024, Mastering Flight with Top 5 HMDs for Drone Racing</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-universal-unlock-pattern-for-oneplus-nord-3-5g-by-drfone-android/"><u>In 2024, Universal Unlock Pattern for OnePlus Nord 3 5G</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/step-by-step-guide-resolving-stalled-windows-updates-at-100-mark/"><u>Step-by-Step Guide: Resolving Stalled Windows Updates at 100% Mark</u></a></li>
 </ul></div>
 

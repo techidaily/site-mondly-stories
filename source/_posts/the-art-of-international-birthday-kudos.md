@@ -1,7 +1,7 @@
 ---
 title: The Art of International Birthday Kudos
-date: 2024-10-05T00:52:54.454Z
-updated: 2024-10-06T19:12:29.178Z
+date: 2024-10-07T16:41:21.682Z
+updated: 2024-10-12T23:53:55.080Z
 tags:
   - speak
   - english
@@ -30,9 +30,23 @@ Have you ever thought about how people from other cultures sing birthday songs? 
 
 ![Happy Birthday in French Bon Anniversaire](https://edge.mondly.com/blog/wp-content/uploads/2018/12/Happy-Birthday-in-French-Bon-Anniversaire.png "How To Say &Quot;Happy Birthday&Quot; In Different Languages 2")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Image source: <http://www.manutention-dauphine.fr>
 
 Joyeux Anniversaire or Bon Anniversaire are the standard ways to wish someone a happy birthday in French. But if you are speaking Canadian French or Quebec, you should say Bonne fête, meaning “Good party/Birthday”. French and English birthdays are often alike. Celebrations include party time, cake, gifts and songs like ‘Joyeux Anniversaire’. Most birthday parties are thrown on Wednesdays as French have their Wednesdays off.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Happy Birthday in Chinese:** **生日快** **乐** **(Shēngrì Kuàilè)**
 
@@ -40,49 +54,35 @@ Chinese culture has an interesting concept of birthday celebrations. Depending o
 
 If you’ll check the literal meaning of Shēngrì Kuàilè, you’ll see that it translates to “Birthday is Happy.”
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Happy Birthday in Russian: С днем рождения (S Dnem Rozhdeniya)**
 
 ![happy birthday in russian](https://edge.mondly.com/blog/wp-content/uploads/2018/12/happy-birthday-in-russian.jpg "How To Say &Quot;Happy Birthday&Quot; In Different Languages 3")
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Image source: <https://tops.ua>
 
 If you want to say “happy birthday” in Russian, you say “S Dnem Rozhdeniya”. And if you feel like memorizing a longer phrase, add “pozdravlyayu” in the start and it will transform to “I congratulate you on your birthday”. Russians have a funny tradition of celebrating. The guests pull the celebrated’s ears for a number of times equal to his or her age. The phrase “Grow up – don’t be noodles,” is considered as a sign of good omen for the growth of children. It means the child will grow up strong and healthy. Birthday songs are not common am0ng them, but if the person has survived after a severe accident, that day is celebrated as another birthday.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Happy Birthday in Dutch: Gefeliciteerd Met Je Verjaardag**
 
 “Gefeliciteerd Met Je Verjaardag” means “Congratulations on your birthday!” in the Netherlands. An interesting custom here is that they mark their calendars for everyone’s birthday and keep that calendar by their toilet. It acts as a reminder for birthdays since forgetting one’s birthday is a major offense to your loved ones. The 50th birthday is celebrated with full bliss and cheer because it is thought that at the age of 50, men see Abraham and women see Sarah – the biblical couple who gave birth to a child at a very old age.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Happy Birthday in Swedish: Grattis På Födelsedagen**
 
 ![happy birthday in swedish](https://edge.mondly.com/blog/wp-content/uploads/2018/12/happy-birthday-in-swedish.jpg "How To Say &Quot;Happy Birthday&Quot; In Different Languages 4")
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Image source: <https://trivselkort.com>
 
@@ -129,17 +129,24 @@ Start using Mondly for free on your computer or tablet or, better yet, download 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-syncopating-stories-a-how-to-for-music-on-instagram/"><u>[New] Syncopating Stories A How-To for Music on Instagram</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-dissecting-disadvantages-a-vr-analysis/"><u>[Updated] Dissecting Disadvantages A VR Analysis</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-high-def-showdown-top-8k-tvs-rated-and-reviewed/"><u>2024 Approved High-Def Showdown Top 8K TVs Rated and Reviewed</u></a></li>
-<li><a href="https://ai-video.techidaily.com/fathers-day-special-unleash-your-gameplay-with-the-latest-ibuypower-gaming-desktop/"><u>Father's Day Special: Unleash Your Gameplay with the Latest iBuyPower Gaming Desktop</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-top-pick-by-apple-today/"><u>Global Top Pick by Apple Today</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/google-suggested-mondly-the-pathway-to-global-communication/"><u>Google-Suggested Mondly: The Pathway to Global Communication</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/melding-teaching-methods-with-artificential-intelligence/"><u>Melding Teaching Methods with Artificential Intelligence</u></a></li>
-<li><a href="https://win-answers.techidaily.com/overcoming-the-game-crashing-centipede-error-in-destiny/"><u>Overcoming the Game-Crashing Centipede Error in Destiny</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/premier-service-guide-exclusive-local-channels-plus-live-streaming-for-2024/"><u>Premier Service Guide Exclusive Local Channels + Live Streaming for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/romance-cinema-french-gems-for-linguistic-enchantment/"><u>Romance Cinema: French Gems for Linguistic Enchantment</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/unlock-smooth-communication-best-10-secured-fee-free-apps-for-ios-and-android-users/"><u>Unlock Smooth Communication Best 10 Secured, Fee-Free Apps for iOS and Android Users</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/ways-to-find-unlocking-codes-for-tecno-pova-5-pro-phones-by-drfone-android/"><u>Ways To Find Unlocking Codes For Tecno Pova 5 Pro Phones</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-perfect-pairing-best-6-video-capture-tools-for-macos/"><u>[New] 2024 Approved Perfect Pairing Best 6 Video Capture Tools for MacOS</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-seamless-integration-of-movies-and-animations-using-movie-maker/"><u>[New] 2024 Approved Seamless Integration of Movies and Animations Using Movie Maker</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-mastering-photo-aesthetics-the-essence-of-luts/"><u>[New] Mastering Photo Aesthetics The Essence of LUTs</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-dissecting-drama-introducing-chapters-to-video-content/"><u>[Updated] Dissecting Drama Introducing Chapters to Video Content</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-how-to-quality-recording-of-your-roblox-journeys-on-mac/"><u>2024 Approved How-To Quality Recording of Your Roblox Journeys on Mac</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-leveraging-fb-instream-ad-techniques-to-boost-engagement/"><u>2024 Approved Leveraging FB Instream Ad Techniques to Boost Engagement</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-polyglot-commemoration-for-teaching-excellence/"><u>A Polyglot Commemoration for Teaching Excellence</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aid-to-the-poorest-foundation-danny-colombia-way/"><u>Aid to the Poorest: Foundation Danny Colombia Way</u></a></li>
+<li><a href="https://techtrends.techidaily.com/choosing-your-messaging-app-how-does-signal-stack-up-against-whatsapp/"><u>Choosing Your Messaging App: How Does Signal Stack Up Against WhatsApp?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultivating-language-proficiency-with-dark-on-netflix/"><u>Cultivating Language Proficiency with 'Dark' On Netflix</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-connections-through-language-the-essence-of-bonjour/"><u>Cultural Connections Through Language: The Essence of 'Bonjour'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dannys-aid-network-in-colombia-strengthening-society/"><u>Danny's Aid Network in Colombia: Strengthening Society</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-romance-pickup-line-poems/"><u>Embrace Romance: Pickup Line Poems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-spanish-verb-learning-for-efficiency/"><u>Essential Spanish Verb Learning for Efficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-macaus-multilingual-tapestry/"><u>Exploring Macau's Multilingual Tapestry</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-zte-blade-a73-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On ZTE Blade A73 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/is-splitcam-the-pinnacle-of-recording-capabilities-in-2024/"><u>Is SplitCam The Pinnacle of Recording Capabilities, In 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578492484-master-uk-idioms-and-expressions-become-a-true-brit/"><u>Master UK Idioms & Expressions: Become a True Brit</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-google-pixel-8-device-by-drfone-android/"><u>Mastering Android Device Manager The Ultimate Guide to Unlocking Your Google Pixel 8 Device</u></a></li>
 </ul></div>
 

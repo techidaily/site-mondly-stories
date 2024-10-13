@@ -1,7 +1,7 @@
 ---
 title: The Essentials of Pronunciation in the German Language
-date: 2024-08-27T23:02:27.676Z
-updated: 2024-08-28T23:02:27.676Z
+date: 2024-10-11T00:48:15.157Z
+updated: 2024-10-12T16:29:14.952Z
 tags:
   - speak
   - english
@@ -26,6 +26,13 @@ thumbnail: https://thmb.techidaily.com/7e37922976a0cd02bd45d34c10fef6f069d63ae07
 
  Considering you’re already familiar with all the other letters, let’s continue by taking a closer look at these four special letters: ß, ä, ö and ü.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### ß also known as ‘sharp S’, ‘eszett’ or ‘scharfes S’
 
  Although it looks different from everything you’ve ever seen in English, ß shouldn’t intimidate you. Vaguely resembling a capital ‘B’,**the letter ß is pronounced like a sharp S** (like the ‘s’ in ‘see’) – hence its name ‘eszett’ or ‘scharfes S’.
@@ -35,8 +42,12 @@ thumbnail: https://thmb.techidaily.com/7e37922976a0cd02bd45d34c10fef6f069d63ae07
  Eszett not having a capitalized version sparked debates for a long time, so the Council for German Orthography [officially adopted](https://www.sueddeutsche.de/bildung/rechtschreibung-das-alphabet-bekommt-einen-neuen-buchstaben-1.3566309) a capital in 2017\. The capital of ß is ẞ.
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### German umlauts: ä, ö, ü
 
  While highly representative for the German language, the German umlauts are ‘guilty’ of making the most uncommon sounds to English speakers.
@@ -54,11 +65,12 @@ Now round off your lips and start practicing!
 ![german alphabet](https://edge.mondly.com/blog/wp-content/uploads/2022/04/german-alphabet-960x640.jpg "A Beginner’s Guide To The German Pronunciation &Amp; Alphabet 2")
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
+
 ## German pronunciation guide for single letters
 
  Now that we’ve settled the matters with ß, ä, ö and ü, it’s time to move on to more familiar letters and see how their pronunciation differs from English.
@@ -73,9 +85,6 @@ Now round off your lips and start practicing!
 4. **J** – _Oh ja,_ you already know this one! The German _j_ is pronounced like the English ‘y’.
 5. **E** – If you see an _e_ at the end of a German word, make sure to pronounce it like this: ‘eh’. Come on! Loud and clear: _Katze_ (‘cat’)!
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 ## German pronunciation guide for letter combinations
 
  Just a few more examples and you’ll soon be ready to speak like a German! Let’s see how you should pronounce certain letter combinations in German:
@@ -94,8 +103,12 @@ Now round off your lips and start practicing!
  Did you recognize_ze rules_ in this example?
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to pronounce long German words
 
 _Ja,_ the German language is famous for its very long words, but once again – this shouldn’t intimidate you. Most [German words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) are, in fact, compounds.
@@ -133,8 +146,6 @@ _Tschüss!_
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -142,4 +153,24 @@ _Tschüss!_
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-4-ways-to-record-facebook-live-stream-for-2024/"><u>[New] 4 Ways to Record Facebook Live Stream for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-beyond-periscope-top-6-peripheral-android-and-ios-apps/"><u>[New] Beyond Periscope Top 6 Peripheral Android and iOS Apps</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-perfect-wave-linker-the-podcastists-choice/"><u>[New] Perfect Wave Linker The Podcastist's Choice</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-leading-with-visuals-setting-up-premium-cover-videos-on-fb/"><u>[Updated] 2024 Approved Leading With Visuals Setting Up Premium Cover Videos on FB</u></a></li>
+<li><a href="https://discover-dash.techidaily.com/1726028202725-dvd-diy/"><u>「ジャニーズDVD再生エラーに悩む方へ、解決策集」 - DIY修正手順</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/adjusted-terms-and-conditions-notice/"><u>Adjusted Terms & Conditions Notice</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/authentic-australian-english-the-definitive-list/"><u>Authentic Australian English: The Definitive List</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beginners-blueprint-for-speedy-polsk/"><u>Beginner's Blueprint for Speedy Polsk</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/break-language-barriers-with-pearson-today/"><u>Break Language Barriers with Pearson Today</u></a></li>
+<li><a href="https://techtrends.techidaily.com/deciphering-roblox-connectivity-hiccups-game-crashes-vs-user-side-network-troubles/"><u>Deciphering Roblox Connectivity Hiccups: Game Crashes vs User-Side Network Troubles</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-the-richness-of-german-language-top-25-idioms/"><u>Discover the Richness of German Language - Top 25 Idioms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-japanese-greeting-culture/"><u>Dive Into Japanese Greeting Culture</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-romance-saying-i-love-you-in-different-languages/"><u>Embrace Romance: Saying I Love You in Different Languages</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fixing-unresponsive-screen-interaction-pen-and-touch-solutions/"><u>Fixing Unresponsive Screen Interaction – Pen and Touch Solutions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579705874-learn-the-basics-of-urdu-with-key-terms-and-phrases/"><u>Learn the Basics of Urdu with Key Terms and Phrases</u></a></li>
+<li><a href="https://review-topics.techidaily.com/motorola-moto-g-stylus-2023-music-recovery-recover-deleted-music-from-motorola-moto-g-stylus-2023-by-fonelab-android-recover-music/"><u>Motorola Moto G Stylus (2023) Music Recovery - Recover Deleted Music from Motorola Moto G Stylus (2023)</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/the-ultimate-screencapture-guide-for-laptop-techies-for-2024/"><u>The Ultimate ScreenCapture Guide for Laptop Techies for 2024</u></a></li>
+</ul></div>
 

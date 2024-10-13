@@ -1,7 +1,7 @@
 ---
 title: "Pearson's GSL Now: Mondly-Infused Exactitude"
-date: 2024-10-01T18:07:39.717Z
-updated: 2024-10-06T16:20:17.717Z
+date: 2024-10-05T19:18:31.259Z
+updated: 2024-10-12T23:09:57.932Z
 tags:
   - speak
   - english
@@ -31,10 +31,10 @@ thumbnail: https://thmb.techidaily.com/6f4cdd66eb80d6b11b40dd91cdc2954ad9c9332b6
  Unlike other frameworks that describe language proficiency in broad bands, the GSE offers a finely-grained scale. It identifies what a learner can accomplish at each point across speaking, listening, reading, and writing skills. This unique approach motivates learners by offering a more detailed view of their progression.
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Introducing the Global Scale of Languages (GSL)**
@@ -45,15 +45,22 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 
  By placing languages on a common scale, underpinned by a common set of Learning Objectives, the GSL can ensure comparability across languages to bring greater clarity and simplicity to language learning.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **How Pearson created the GSL**
 
  Building on the GSE, our research team at Pearson decided to prove that this scale could also be transferable to other languages. The study’s results were not only encouraging but groundbreaking. The research confirmed that the GSE is directly transferable to other languages, making it possible for Pearson to develop the new GSL framework.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **Why the GSL stands out**
@@ -61,13 +68,6 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 * **Unparalleled insights:**  Going a step beyond traditional language measurement tools like the CEFR, the GSL provides a more detailed understanding of a learner’s skills through extensive global research.
 * **Confidence in clarity:**  The GSL enables learners to pinpoint their strengths in reading, writing, listening, and speaking with a straightforward 10-90 scale. This level of clarity fosters motivation and boosts learners’ confidence.
 * **Personalized learning pathways:**  With clear objectives at each scale point, the GSL ensures a learning journey tailored to individual goals, making progression more efficient.
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Why start with French, Spanish, and Italian?**
 
@@ -89,10 +89,10 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **Fast-track your progress with Mondly by Pearson**
@@ -116,22 +116,20 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-survival-sagas-ultimate-10-roguely-games/"><u>[New] 2024 Approved Survival Sagas Ultimate 10 Roguely Games</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-from-hobbyist-to-pro-the-audacity-journey/"><u>[New] From Hobbyist to Pro The Audacity Journey</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-illustration-insights-elevating-text-in-three-dimensions-for-2024/"><u>[New] Illustration Insights Elevating Text in Three Dimensions for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-speedy-shots-for-immersive-narratives/"><u>[New] Speedy Shots for Immersive Narratives</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/all-nations-speaking-castilian/"><u>All Nations Speaking Castilian</u></a></li>
-<li><a href="https://techtrends.techidaily.com/code-breakers-for-digital-natives-deciphering-the-symbolism-in-snapchat-emojis/"><u>Code Breakers for Digital Natives: Deciphering the Symbolism in Snapchat Emojis</u></a></li>
-<li><a href="https://video-capture.techidaily.com/effortless-screen-changes-made-simple-for-2024/"><u>Effortless Screen Changes Made Simple for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enlighten-expression-top-ranked-communication-methods/"><u>Enlighten Expression: Top-Ranked Communication Methods</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-cocoa-to-conversation-chocolate-words-around-the-globe/"><u>From Cocoa to Conversation: Chocolate Words Around The Globe</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Does Life360 Notify When You Log Out On Apple iPhone 7 Plus? | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-tecno-camon-20-premier-5g-by-drfone-android/"><u>In 2024, The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Tecno Camon 20 Premier 5G</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speaking-smart-futuristic-strategies-in-linguistics-today/"><u>Speaking Smart: Futuristic Strategies in Linguistics Today</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/spinning-words-for-worldwide-celebrations/"><u>Spinning Words for Worldwide Celebrations</u></a></li>
-<li><a href="https://fox-that.techidaily.com/step-by-step-guide-to-address-unwarranted-websites-displayed-by-iphone-screen-time/"><u>Step-by-Step Guide to Address Unwarranted Websites Displayed by iPhone Screen Time</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-path-to-fluency-in-turkeys-language-a-concise-alphabet-and-pronunciation-handbook/"><u>The Path to Fluency in Turkey's Language: A Concise Alphabet & Pronunciation Handbook</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-20-francophone-books-for-language-learners-to-start-with/"><u>Top 20 Francophone Books for Language Learners to Start With</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/why-learn-german-10-reasons-to-learn-german/"><u>Why Learn German? 10 Reasons to Learn German</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-googles-musical-sidekick-ringers-guide/"><u>[New] Google's Musical Sidekick Ringers Guide</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-screenshot-secrets-for-windows-pros/"><u>2024 Approved Screenshot Secrets for Windows Pros</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/discover-the-ideal-screencasting-software-for-teachers/"><u>Discover the Ideal Screencasting Software for Teachers</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-any-sony-phone-password-using-emergency-call-by-drfone-android/"><u>How To Unlock Any Sony Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-mondlys-new-phrasebook/"><u>Introducing Mondly’s New Phrasebook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-latest-faq-update-comprehensive-support/"><u>Mondly's Latest FAQ Update: Comprehensive Support</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/prime-foreign-tongue-education-in-america/"><u>Prime Foreign Tongue Education in America</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-guide-boosting-your-origin-download-velocity/"><u>Quick Guide: Boosting Your Origin Download Velocity</u></a></li>
+<li><a href="https://some-skills.techidaily.com/tailoring-your-windows-photos-display-filters-and-audio-options-for-2024/"><u>Tailoring Your Windows Photos Display Filters & Audio Options for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/triadic-tongues-rising-in-asian-societies/"><u>Triadic Tongues Rising in Asian Societies</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-avatamadet-performance-hiccups-on-the-frontiers-of-pandora-fix-low-fps-and-eradicate-stuttering/"><u>Troubleshooting 'Avatamadet:' Performance Hiccups on the Frontiers of Pandora: Fix Low FPS and Eradicate Stuttering</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unexpected-perks-mastering-languages-in-golden-age/"><u>Unexpected Perks: Mastering Languages in Golden Age</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-languages-with-movies-and-television-insights/"><u>Unlocking Languages with Movies & Television Insights</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-convert-your-videos-top-mp4-to-mp3-converters-for-any-device-for-2024/"><u>Updated Convert Your Videos Top MP4 to MP3 Converters for Any Device for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Asus ROG Phone 8? | Dr.fone</u></a></li>
 </ul></div>
 

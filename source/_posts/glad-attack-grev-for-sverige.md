@@ -1,7 +1,7 @@
 ---
 title: "Glad Attack: Grev För Sverige"
-date: 2024-08-27T23:02:40.155Z
-updated: 2024-08-28T23:02:40.155Z
+date: 2024-10-10T17:26:41.668Z
+updated: 2024-10-12T22:39:29.882Z
 tags:
   - speak
   - english
@@ -31,43 +31,53 @@ thumbnail: https://thmb.techidaily.com/22dc377b14c8750c75c360ab6d9b7d702e69a18c8
  In more formal circumstances, you can use the word **“hallå”** (/haˈloː/). Sometimes, Swedes like to articulate the word when greeting someone by saying **“** **Hallå, hallå!”**  or even use it when they’re irritated and what to bring more attention to a situation they’re telling you about.
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to answer the phone in Swedish
 
  Even if you’re just visiting, you might have to answer the phone at the hotel or when you’re expecting a call from the embassy, for example. The easiest way to do this is to say “Hello” followed by introducing yourself. This sounds something like : **“** **Hallå! Det här är \[your name\].”**  This will not only impress the person on the other end, but they might mistake you for a local. That would be a good thing, but you need to let them know you don’t speak Swedish fluently before they start talking faster.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ## How to say “Good Morning!” in Swedish
 
  At the restaurant, cafés, or when you enter a building, saying “Good Morning!” is a sign of respect and will help you establish a connection with those around you. The Swedish equivalent of the morning greeting is **“God morgon!”**  . It’s important to use all the common greetings, even as a foreigner because you will most likely make a good impression.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to say “Good evening!” in Swedish
 
 **“God kväll!”** is a rather formal greeting in [Swedish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  , but you might hear this in theaters, or when the evening news show starts. Usually, this greeting is not used between family and friends. “Kväll” is pronounced _kvell_ and the “g” can be silent.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 ## How to say “Goodnight!” in Swedish
 
  After getting acquainted with Swedes, you will most likely enjoy late night talks and drinks, so a proper Goodnight is needed to end the day properly. **“Godnatt!”** , often pronounced _goo-natt_  is the way to wish locals a good night’s rest and let them know you can’t wait to hang out again soon.
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
+  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to say “What’s up?” in Swedish
 
  What better way to find out more about your Swedish friends’ day or how they’re feeling than asking “what’s up?”? **“Hur är det?”** or **“hur går det?”**  are what is used to ask “how is it?” and “how is it going?”. They are both informal ways of getting a conversation started and can be used when talking on the phone as well, just after you introduce yourself.
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to say “Goodbye!” in Swedish
 
  All fun must come to an end, so saying Goodbye is mandatory for a well-mannered Swede. **“Hejdå!”** pronounced _hey-door_  is a proper way to say farewell to a taxi driver, people you’ve just met a few hours ago, hosts of a party and the bartender at the local bar. When saying goodbye to friends, Swedes also use **“Vi ses!”** – see you! or **“Vi hörs!”** – talk soon.
@@ -87,8 +97,6 @@ thumbnail: https://thmb.techidaily.com/22dc377b14c8750c75c360ab6d9b7d702e69a18c8
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -96,4 +104,22 @@ thumbnail: https://thmb.techidaily.com/22dc377b14c8750c75c360ab6d9b7d702e69a18c8
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/astering-personal-content-management-building-a-structured-watch-later-list-for-2024/"><u>[New] Mastering Personal Content Management Building a Structured 'Watch Later' List for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/he-smudge-solution-blurring-visions-in-video-content-for-2024/"><u>[New] The Smudge Solution Blurring Visions in Video Content for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-how-to-reverse-video-on-instagram-complete-guide/"><u>[Updated] 2024 Approved How to Reverse Video on Instagram? [Complete Guide]</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-thrifty-filmmakers-action-camera-options/"><u>[Updated] In 2024, Thrifty Filmmaker's Action Camera Options</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-step-into-new-dimensions-with-jaunt-vr-review/"><u>2024 Approved Step Into New Dimensions with Jaunt VR Review</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aussies-word-wizardry-100plus-key-phrases/"><u>Aussie's Word Wizardry: 100+ Key Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/british-and-american-dialects-key-distinctions/"><u>British & American Dialects: Key Distinctions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-any-new-tongue-with-ease-explore-our-premier-three-sites/"><u>Conquer Any New Tongue with Ease: Explore Our Premier Three Sites</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decorum-en-francais-acceptons-cordialement/"><u>Décorum en Français: Acceptons Cordialement</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/descifrar-la-hora-en-espanol-un-punto-de-inicio/"><u>Descifrar La Hora en Español: Un Punto De Inicio</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-dialects-top-six-immersive-strategies/"><u>Dive Into Dialects: Top Six Immersive Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-the-future-with-a-new-ai-dialogue-partner/"><u>Embrace the Future with a New AI Dialogue Partner</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/facebooks-videography-preference-which-orientation/"><u>Facebook's Videography Preference Which Orientation?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-honor-x8b-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Honor X8b | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/live-streaming-made-easy-manycam-top-choice-in-virtual-webcams-and-editing-tools/"><u>Live Streaming Made Easy: ManyCam - Top Choice in Virtual Webcams and Editing Tools</u></a></li>
+</ul></div>
 

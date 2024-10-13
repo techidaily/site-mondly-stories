@@ -1,7 +1,7 @@
 ---
 title: Groundbreaking AI-Powered AR Speaker
-date: 2024-08-27T23:02:38.907Z
-updated: 2024-08-28T23:02:38.907Z
+date: 2024-10-09T18:00:27.372Z
+updated: 2024-10-13T00:39:03.214Z
 tags:
   - speak
   - english
@@ -42,6 +42,13 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 > _We started working on Mondly AR in August 2017 and by the time [Blade Runner 2049](http://www.imdb.com/title/tt1856101/) was released, we already had a working demo. Watching Blade Runner 2049 made me realize that we were beginning to build the future. To me, Joi (the holographic companion of officer K) looked like a super advanced version of Mondly – the character we were creating. They can both understand speech, reply with a human voice and change outfits. Of course, Mondly is not as smart and realistic as Joi. Yet. But she can teach you 7 languages. And this is just the beginning._
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Here’s what you should know about Mondly AR
 
 * Is available on [Google Play](https://play.google.com/store/apps/details?id=com.atistudios.mondlyar.languages&hl=en)
@@ -58,9 +65,12 @@ Alex Iliescu, our CEO, spoke about the launch:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Facts and figures about Mondly
 
 * 30 million downloads, in over 190 countries
@@ -75,8 +85,12 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 * [Mondly Press Kit](https://www.dropbox.com/sh/vo4j5214zvwdxy5/AAC20VxIgpuiEe7ED2%5F37VNEa?dl=0)
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Media mentions about Mondly
 
 * **INC.com** – “The New Way to Learn Languages”
@@ -97,8 +111,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -106,4 +118,19 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-social-caricature-craft-design-your-distinctive-avatar/"><u>[New] 2024 Approved Social Caricature Craft Design Your Distinctive Avatar</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-what-are-the-earning-prospects-for-youtubers-from-branded-video-plays/"><u>[New] What Are the Earning Prospects for YouTubers From Branded Video Plays?</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-complete-guide-to-ios-snapshots-and-more/"><u>[Updated] Complete Guide to iOS Snapshots and More</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-instagram-the-reason-behind-video-upside-down/"><u>2024 Approved Instagram The Reason Behind Video Upside-Down</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/5-less-obvious-benefits-that-bilingualism-brings/"><u>5 Less Obvious Benefits That Bilingualism Brings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apple-enabled-education-supported-by-mondlys-vision/"><u>Apple-Enabled Education, Supported by Mondly's Vision</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beyond-the-myths-authentic-strategies-for-language-acquisition/"><u>Beyond the Myths: Authentic Strategies for Language Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/captivating-classroom-experience-in-latin/"><u>Captivating Classroom Experience in Latin</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effective-strategies-for-learning-french-at-home/"><u>Effective Strategies for Learning French at Home</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-2-ways-to-monitor-samsung-galaxy-a05-activity-drfone-by-drfone-virtual-android/"><u>In 2024, 2 Ways to Monitor Samsung Galaxy A05 Activity | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-oppo-a78-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Oppo A78 | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/step-by-step-guide-boosting-your-laptops-sound-quality-on-microsofts-latest-os/"><u>Step-by-Step Guide: Boosting Your Laptop's Sound Quality on Microsoft's Latest OS</u></a></li>
+</ul></div>
 

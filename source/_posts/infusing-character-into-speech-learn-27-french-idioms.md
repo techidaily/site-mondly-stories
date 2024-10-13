@@ -1,7 +1,7 @@
 ---
 title: "Infusing Character Into Speech: Learn 27 French Idioms"
-date: 2024-08-27T23:02:09.165Z
-updated: 2024-08-28T23:02:09.165Z
+date: 2024-10-06T21:43:53.514Z
+updated: 2024-10-12T20:28:57.846Z
 tags:
   - speak
   - english
@@ -52,14 +52,8 @@ thumbnail: https://thmb.techidaily.com/cd6606343976e20cf388b00d45efaf1c0dc2657ac
 
 ![french expressions](https://edge.mondly.com/blog/wp-content/uploads/2020/07/french-expressions-1-960x539.jpg "27 French Sayings And Idioms That Will Make You Sound French-Born 2")
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  “The French way” by Alex D’Alessio©
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 ### _3\. La nuit porte conseil._
 
 **Literal translation:** “The night brings advice.”
@@ -72,9 +66,6 @@ _– Je ne sais pas si je dois accepter ou pas._ (“I don’t know if I should 
 
  –_La nuit porte conseil._ (“Sleep on it.”)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 ### _4\. Comme on fait son lit, on se couche._
 
 **Literal translation:** “You’ve made your bed, now lie on it.”
@@ -126,8 +117,12 @@ _– Je ne peux pas le faire, c’est impossible !_ (“I can’t do it, it’s 
 _– Comme vous voulez. Mais il ne faut rien laisser au hasard._ (“Suit yourself. But nothing should be left to chance.”)
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### _8\. L’habit ne fait pas le moine._
 
 **Literal translation:** “The outfit doesn’t make the monk.”
@@ -139,6 +134,13 @@ _– Comme vous voulez. Mais il ne faut rien laisser au hasard._ (“Suit yourse
 _– Notre nouveau collègue semble être une personne très calme._ (“Our new colleague seems like a very quiet person.”)
 
 _– L’habit ne fait pas le moine._ (“Don’t judge a book by its cover.”)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### _9\. Mieux vaut tard que jamais._
 
@@ -152,14 +154,8 @@ _– L’habit ne fait pas le moine._ (“Don’t judge a book by its cover.”)
 
 ![french idioms](https://edge.mondly.com/blog/wp-content/uploads/2020/07/french-idioms-960x639.jpg "27 French Sayings And Idioms That Will Make You Sound French-Born 3")
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  France, Paris
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### _10\. Aux innocents les mains pleines._
 
 **Literal translation:** “Full hands for the innocents.”
@@ -184,9 +180,6 @@ _– La copine de Jacques vient de le quitter._ (“Jacques’s girlfriend just 
 
 _– Mieux vaut être seul que mal accompagné._ (“Better alone than in a bad company.”)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### _12\. Après la pluie, le beau temps._
 
 **Literal translation:** “After the rain, good weather.”
@@ -210,8 +203,12 @@ _– Voulez-vous savoir ce que j’ai acheté pour l’anniversaire de maman?_ (
 _– Shhh ! Les murs ont des oreilles._ (“Shhh! The walls have ears.)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### _14\. Tout est bien qui finit bien._
 
 **Literal translation:** “All’s well that ends well.”
@@ -222,9 +219,6 @@ _– Shhh ! Les murs ont des oreilles._ (“Shhh! The walls have ears.)
 
 _–_   _Je suis tellement content que nous soyons arrivés en France en toute sécurité ! Tout est bien qui finit bien._ (“I’m so glad we got to France safely! All’s well that ends well.”)
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## French sayings about food and wine
 
  The French are famous for their love for exquisite food and wine. French cuisine is probably one of the most notorious cuisines in the world. So it’s only natural for some of this love to find its way into everyday French sayings.
@@ -242,8 +236,12 @@ _–_   _Je suis tellement content que nous soyons arrivés en France en toute s
  –_L’appétit vient en mangeant._ (“Appetite comes with eating.”)
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### _2\. Mangez bien, riez souvent, aimez beaucoup._
 
 **Literal translation:** “Eat well, laugh often, love a lot.”
@@ -252,10 +250,14 @@ _–_   _Je suis tellement content que nous soyons arrivés en France en toute s
 
 ![french proverbs](https://edge.mondly.com/blog/wp-content/uploads/2020/07/french-proverbs-960x540.jpg "27 French Sayings And Idioms That Will Make You Sound French-Born 4")
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
-<!-- affiliate ads end -->
  “Take care of your own onions” by MILKOVÍ©
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### _3\. S’occuper de ses oignons._
 
@@ -267,9 +269,6 @@ _–_   _Je suis tellement content que nous soyons arrivés en France en toute s
 
  _– Sa façon de gérer cela ne vous concerne pas. Occupe-toi de tes oignons._ (“His way of dealing with this isn’t your problem. Mind your own business.”)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### _4\. Raconter des salades._
 
 **Literal translation:** “To tell salads.”
@@ -300,6 +299,13 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
 
  “Tigger looking for rats online” by Catherine Heath©
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## French sayings about animals
 
  Sayings about animals are common in any language. After all, they are our co-residents on this planet and we have quite a lot to learn from them. Here are some of the most common French sayings about animals.
@@ -316,9 +322,6 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
 
  –_Oui, Xavier est vraiment un adversaire de taille. À bon chat, bon rat._ (“Yes, Xavier is a really good match for him. They are equally matched.”)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ### _2\. Les chiens ne font pas des chats._
 
 **Literal translation:** “Dogs don’t make cats.”
@@ -339,14 +342,15 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
 
 ![french saying](https://edge.mondly.com/blog/wp-content/uploads/2020/07/french-saying-960x720.jpg "27 French Sayings And Idioms That Will Make You Sound French-Born 6")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  “Bonjour!” by Waranya Mooldee©
 
 <!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### _4\. Poser un lapin._
 
 **Literal translation:** “To place a rabbit.”
@@ -359,14 +363,18 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
 
 **Actual meaning:** If you know someone that “has screw loose” or is a bit crazy, weird, or odd, in French, you can say_il a une araignée au plafond_ (“he is a bit crazy”).
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ### _6\. Ce n’est pas la vache qui crie le plus fort qui fait le plus de lait._
 
 **Literal translation:** “It’s not the cow that moos the loudest who gives the most milk.”
 
 **Actual meaning:** Talkers are not always doers. The one who talks the most is not always the smartest or the most resourceful.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### _7\. Peigner la girafe._
 
@@ -403,8 +411,6 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -412,4 +418,23 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-step-by-step-guide-to-record-google-meet-on-smartphones/"><u>[New] 2024 Approved Step-by-Step Guide to Record Google Meet on Smartphones</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-youtube-shorts-earning-strategies-what-you-need-how-much-you-can-make/"><u>[New] 2024 Approved Youtube Shorts Earning Strategies What You Need, How Much You Can Make</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-retro-reel-upgrade-converting-photographs-to-videos-for-2024/"><u>[New] Retro Reel Upgrade Converting Photographs to Videos for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-the-ultimate-review-of-sns-hdr-vs-top-hdr-applications-for-2024/"><u>[New] The Ultimate Review of SNS HDR Vs. Top HDR Applications for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-unbeatable-tools-to-sharpen-your-webcam-vids/"><u>[Updated] 2024 Approved Unbeatable Tools to Sharpen Your Webcam Vids</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-easy-setup-making-a-direct-path-for-youtube-subscribers/"><u>2024 Approved Easy Setup Making a Direct Path for YouTube Subscribers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/4-expressions-francaises-de-bienvenue/"><u>4 Expressions Françaises De Bienvenue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/93-essential-spanish-travel-phrases-for-your-next-vacation/"><u>93 Essential Spanish Travel Phrases For Your Next Vacation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciphering-the-turko-hanguk-intercultural-enigma/"><u>Deciphering the Turko-Hanguk Intercultural Enigma</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/durch-das-deutsche-wochenjahr-lernen/"><u>Durch Das Deutsche Wochenjahr Lernen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevate-your-speech-with-these-iconic-latin-quotations/"><u>Elevate Your Speech with These Iconic Latin Quotations</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/lost-iphone-media-and-info-retrieval-on-mac-systems-secure-your-memories-back/"><u>Lost iPhone Media and Info Retrieval on Mac Systems - Secure Your Memories Back!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576550079-mondly-is-now-available-on-huawei-appgallery/"><u>Mondly Is Now Available On Huawei AppGallery</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-no-strings-attached-top-10-free-online-video-editors-with-no-watermark/"><u>New No Strings Attached Top 10 Free Online Video Editors with No Watermark</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581601937-rapid-norwegian-understanding-10-daily-moments/"><u>Rapid Norwegian Understanding, 10 Daily Moments!</u></a></li>
+<li><a href="https://program-issues.techidaily.com/resolved-troubleshooting-steps-to-prevent-phoenix-point-game-crashes/"><u>Resolved: Troubleshooting Steps to Prevent Phoenix Point Game Crashes</u></a></li>
+</ul></div>
 

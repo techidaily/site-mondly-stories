@@ -1,7 +1,7 @@
 ---
 title: Heartfelt Messages Across Cultures on Valentine's Day
-date: 2024-08-27T23:01:58.109Z
-updated: 2024-08-28T23:01:58.109Z
+date: 2024-10-05T22:19:38.490Z
+updated: 2024-10-12T16:54:24.395Z
 tags:
   - speak
   - english
@@ -107,6 +107,13 @@ Here are some more ways to say “I love you” in other languages:
 
 **Here’s a short recap with only the correct pronunciations:**
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## “I love you” in sign language
 
  To sign “I love you”, put up your thumb, index finger and pinkie finger while keeping your ring finger and your middle finger down. Like this:
@@ -114,8 +121,12 @@ Here are some more ways to say “I love you” in other languages:
 ![I love you in sign language](https://edge.mondly.com/blog/wp-content/uploads/2018/10/i-love-you-sign-language.jpg "Say It Like You Mean It: How To Say “I Love You” In 32 Different Languages 4")
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## The perfect Valentine’s Day gift: 365 gifts for 365 days
 
  Now that you know how to say “I love you” in so many languages, here’s a sweet present idea you could use for your next anniversary or Valentine’s Day. All you need to buy is a big jar – big enough for all your love. The rest of it comes from the bottom of your heart. The first step is to prepare 365 pieces of paper of different colors and sizes and write “I love you” in different languages on the first 32 of them. Go wildly romantic with the rest of them: you could write love quotes for him or love quotes for her, poems or songs that you both like. Next step? Decorate the jar with tiny lights, pieces of lace or stickers.
@@ -123,13 +134,21 @@ Here are some more ways to say “I love you” in other languages:
 ![i love you in spanish by Diego PH©](https://edge.mondly.com/blog/wp-content/uploads/2018/10/i-love-you-in-spanish-scaled-480x600.jpg "Say It Like You Mean It: How To Say “I Love You” In 32 Different Languages 5")
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  When it’s ready, tell your lover to read one piece of paper every day. Even when you are not around. That’s how they’ll smile and know that your heart always belongs to them.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### A love poem for your loved one
 
  Look no further if you need a love poem or a love song for your jar. It doesn’t necessarily need to be original. It just has to come from the heart. Here’s**a love song for your love jar:**
@@ -182,9 +201,6 @@ _With you, my heart will forever blend._
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### From “I love you” to conversational fast
 
  Do you want to go the extra mile and learn a new language for someone you love? Try Mondly, the award-winning language app that can help you master languages in record time.
@@ -207,8 +223,6 @@ _With you, my heart will forever blend._
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -216,4 +230,22 @@ _With you, my heart will forever blend._
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-help.techidaily.com/new-step-by-step-to-stellar-custom-shorts-thumbnails/"><u>[New] Step-by-Step to Stellar Custom Shorts Thumbnails</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-voice-in-unison-for-the-digital-stage/"><u>[Updated] 2024 Approved Voice-in-Unison for the Digital Stage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/achieve-your-corporate-language-training-goals-a-comprehensive-guide/"><u>Achieve Your Corporate Language Training Goals - A Comprehensive Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aufsteigende-abfahrtsprachen-im-deutschen/"><u>Aufsteigende Abfahrtsprachen Im Deutschen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brain-boosts-for-bilingualism-the-ultimate-three-workouts/"><u>Brain Boosts for Bilingualism: The Ultimate Three Workouts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cognados-entre-ingles-y-espanol-50-expresiones-simples/"><u>Cognados Entre Inglés Y Español: 50 Expresiones Simples</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprendiendo-el-reloj-digital-ensenanza-fundamental/"><u>Comprendiendo El Reloj Digital - Enseñanza Fundamental</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cross-continental-talk-brazilian-vs-european-portuguese/"><u>Cross-Continental Talk: Brazilian Vs. European Portuguese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deutsche-wochentage-einfache-lerneinheit/"><u>Deutsche Wochentage: Einfache Lerneinheit</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/elevate-your-iphone-photography-mastering-the-art-of-leading-lines/"><u>Elevate Your iPhone Photography Mastering the Art of Leading Lines</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/exploring-advanced-wifi-standards-from-80211a-to-the-latest-80211ax/"><u>Exploring Advanced WiFi Standards: From 802.11A to the Latest 802.11Ax</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-laughing-along-to-mimicked-melodies/"><u>In 2024, Laughing Along to Mimicked Melodies</u></a></li>
+<li><a href="https://discover-alternatives.techidaily.com/simplify-your-billing-mastering-invoicing-with-abbyy-and-m-files-solutions/"><u>Simplify Your Billing: Mastering Invoicing with ABBYY & M-Files Solutions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-ranked-gaming-systems-in-2vearly-2024/"><u>Top-Ranked Gaming Systems in 2Vearly 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/wat-het-zijn-en-de-procedure-voor-vervolg-te-laten-van-een-storyboard-uitgebreide-7-stappenverklaring/"><u>Wat Het Zijn En De Procedure Voor Vervolg Te Laten Van Een Storyboard: Uitgebreide 7-Stappenverklaring</u></a></li>
+</ul></div>
 

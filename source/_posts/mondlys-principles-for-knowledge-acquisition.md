@@ -1,7 +1,7 @@
 ---
 title: Mondly's Principles for Knowledge Acquisition
-date: 2024-09-30T18:30:08.391Z
-updated: 2024-10-06T20:16:35.706Z
+date: 2024-10-09T19:40:55.987Z
+updated: 2024-10-12T19:58:48.165Z
 tags:
   - speak
   - english
@@ -43,10 +43,10 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
  Basically, what happens in the app is that new and more difficult words or phrases will be shown together with older and less difficult ones. But as you progress, the old information will be shown less and less frequently than the new one. This technique makes sure that the information you learned is well-cemented in your brain before moving on to new concepts.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Lexical coverage: focus on the most common words
@@ -58,10 +58,10 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
 ![lexical coverage](https://edge.mondly.com/blog/wp-content/uploads/2021/10/lexical-coverage-960x761.png "The Learning Method Behind Mondly 5")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lexical coverage overview
@@ -76,10 +76,10 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Take Mondly for a test drive
@@ -107,16 +107,18 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-best-bargain-scene-for-no-cost-video-capturing-on-chromebooks/"><u>[New] Best Bargain Scene for No-Cost Video Capturing on Chromebooks</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-unlocking-your-youtube-potential-through-brand-partnerships/"><u>[New] Unlocking Your YouTube Potential Through Brand Partnerships</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/2024-approved-deciphering-the-advantages-of-modern-multicam-technology/"><u>2024 Approved Deciphering the Advantages of Modern Multicam Technology</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/boosting-your-instagram-success-through-advanced-ai-techniques-by-meta/"><u>Boosting Your Instagram Success Through Advanced AI Techniques by Meta</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-ultimate-guide-to-timing-your-wedding-in-10-top-apps/"><u>In 2024, Ultimate Guide to Timing Your Wedding, in 10 Top Apps</u></a></li>
-<li><a href="https://win-able.techidaily.com/mastering-dvd-playback-on-windows-8-and-81-troubleshooting-tips-for-seamless-viewing/"><u>Mastering DVD Playback on Windows 8 & 8.1 - Troubleshooting Tips for Seamless Viewing</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/multilingual-success-with-pearson-education/"><u>Multilingual Success with Pearson Education</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/revealing-mondlys-updated-user-assistance-guide/"><u>Revealing Mondly's Updated User Assistance Guide</u></a></li>
-<li><a href="https://win11.techidaily.com/solving-installed-but-inaccessible-microsoft-apps/"><u>Solving Installed but Inaccessible Microsoft Apps</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unveiling-the-mysteries-of-chinese-letters/"><u>Unveiling the Mysteries of Chinese Letters</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/your-israel-adventure-blueprint-key-expressions-and-essentials/"><u>Your Israel Adventure Blueprint: Key Expressions and Essentials</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-nostalgic-shots-iphone-x-retro-photo-session/"><u>[New] Nostalgic Shots IPhone X Retro Photo Session</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-cutting-edge-content-creation-premier-android-editors-for-2024/"><u>[Updated] Cutting-Edge Content Creation Premier Android Editors for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/androids-top-game-lineup-for-disconnected-device-enthusiasts/"><u>Android's Top Game Lineup for Disconnected Device Enthusiasts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhance-accent-intense-tongue-twister-training/"><u>Enhance Accent: Intense Tongue Twister Training</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/francais-du-lunis-a-dimanche/"><u>Français Du Lunis À Dimanche</u></a></li>
+<li><a href="https://discover-docs.techidaily.com/guia-paso-a-paso-para-convertir-archivos-avi-a-ogv-gratis-por-internet-usando-movavi/"><u>Guía Paso a Paso Para Convertir Archivos AVI a OGV Gratis Por Internet Usando Movavi</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-find-ispoofer-pro-activation-key-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>How to Find iSpoofer Pro Activation Key On Apple iPhone X? | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-average-spend-on-successful-youtube-videos/"><u>In 2024, Average Spend on Successful YouTube Videos</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-samsung-galaxy-f15-5g-phone-without-any-data-loss-by-drfone-android/"><u>In 2024, How to Unlock Samsung Galaxy F15 5G Phone without Any Data Loss</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/is-paying-up-to-20-a-month-for-enhanced-apple-features-worth-it-industry-predictions-revealed-by-zdnet/"><u>Is Paying Up to $20 a Month for Enhanced Apple Features Worth It? Industry Predictions Revealed by ZDNet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-horizons-10-reasons-for-bilingual-mastery/"><u>Linguistic Horizons: 10 Reasons for Bilingual Mastery</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/mastering-the-art-of-rapid-asf-to-mp4-transformations-a-step-by-step-process/"><u>Mastering the Art of Rapid ASF-to-MP4 Transformations: A Step-by-Step Process</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/optimal-language-selection-for-my-future-growth/"><u>Optimal Language Selection for My Future Growth</u></a></li>
 </ul></div>
 

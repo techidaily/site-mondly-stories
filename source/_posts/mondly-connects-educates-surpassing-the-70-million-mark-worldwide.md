@@ -1,7 +1,7 @@
 ---
 title: Mondly Connects, Educates - Surpassing the 70 Million Mark Worldwide
-date: 2024-08-27T23:02:25.274Z
-updated: 2024-08-28T23:02:25.274Z
+date: 2024-10-07T21:16:10.303Z
+updated: 2024-10-12T23:04:43.502Z
 tags:
   - speak
   - english
@@ -35,6 +35,13 @@ thumbnail: https://thmb.techidaily.com/4d611c850bdcc5debbd6a1052184df209b3a83115
 
  The amount of positive feedback we are getting for Hands-Free is astonishing. People everywhere are praising the voice-powered upgrade for its ability to make the process feel less like studying and more like talking to an old friend. That is why we are working harder than ever to make it available for Android learners too as soon as possible.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## English progress tests created in partnership with Oxford University Press
 
  In 2020, many of us learned that every cloud has a silver lining. At Mondly, we are committed to offering learners everywhere access to high-quality language courses on their mobile phones. This is why we tried – and hopefully succeeded – to make 2020 brighter for the 1.5 billion people worldwide currently learning English.
@@ -50,9 +57,12 @@ thumbnail: https://thmb.techidaily.com/4d611c850bdcc5debbd6a1052184df209b3a83115
  For many of those 1.5 billion people, learning English is not just a hobby, but the key to success. Therefore, it was essential for us to maximize the outcome of our partnership and make the trusted content from Oxford available in 33 native languages – including yours.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Mondly is now available on Huawei AppGallery too
 
  When it comes to our apps, accessibility is key. We want everyone to be able to learn new languages with Mondly, regardless of the device or platform they choose. Naturally, with the AppGallery in the top three app stores globally, we were thrilled when Huawei proposed to us to bring Mondly to their community too.
@@ -63,32 +73,33 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
 ![mondly huawei](https://edge.mondly.com/blog/wp-content/uploads/2021/03/mondly-huawei-960x521.jpg "Mondly Surpasses 70 Million Learners Worldwide 3")
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
  Huawei Developer Webinar – Grow with AppGallery in China
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<span id="1977032">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Loved by learners, supported by experts
 
  Our mission at Mondly has always been to help people speak new languages fast through technological innovation. This is why we always drew inspiration from tech pioneers such as Google or Apple. Now, seeing all the incredible feedback coming from the very experts who inspired us, we couldn’t be prouder by what we have achieved so far.
 
  Following our series of exciting updates, Mondly has been featured multiple times in both Apple’s App Store and Huawei’s AppGallery.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ### “App of the Day” in Apple’s App Store in 157 countries
 
  “Create Good Resolutions Now”, “Apps We Love Right Now” and “Learn a New Language” are only a few of the categories Mondly has been featured in the last few months. But the greatest honor of all was to be named [“App of the Day”](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) in 157 countries and to be featured on Apple’s celebratory story with the occasion of Romania’s National Day.
 
  We are thrilled to have received the spotlight in so many countries, but the dearest to our heart was surely the story on the most trending Romanian apps. As Romanians ourselves, it was an honor to be able to represent the thriving tech scene in Romania alongside fellow tech innovators.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Named among the Best Apps of 2020 by Huawei in the “Best for Personal Growth” category
 
  Last but not least, another round of good news came from China. After just months of being launched on Huawei AppGallery, Mondly was featured in “New Apps We Love” and named among the Best Apps of 2020 in the “Best for Personal Growth” category. We’re happy to see how much the new community of learners loves Mondly!
@@ -96,8 +107,18 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  We deeply admire everything Apple and Huawei do and hope to make it to their “Walk of Fame” many times over in the future.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<span id="1484963">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## What’s next?
 
  We don’t know what the future holds in terms of quarantine, social distancing, or remote working and learning, but whatever the context, we pledge ourselves to never stop innovating. We will continue doing the work that will enrich people’s lives for years to come.
@@ -125,8 +146,6 @@ Here’s to 70 million learners and counting! 🥂
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -134,4 +153,21 @@ Here’s to 70 million learners and counting! 🥂
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-quick-shake-reduction-companion-for-cams/"><u>[Updated] 2024 Approved Quick Shake Reduction Companion for Cams</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-supreme-choices-for-inexpensive-film-assets/"><u>[Updated] 2024 Approved Supreme Choices for Inexpensive Film Assets</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/100plus-australian-slang-words-to-help-you-speak-like-a-true-aussie/"><u>100+ Australian Slang Words to Help You Speak Like a True Aussie</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/7-key-advantages-of-learning-afrikaans-with-mondly-for-travelers/"><u>7 Key Advantages of Learning Afrikaans with Mondly for Travelers</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/adopting-advanced-advertising-approaches-metaverse/"><u>Adopting Advanced Advertising Approaches Metaverse</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/debunking-5-language-learning-myths-with-facts-and-experience/"><u>Debunking 5 Language Learning Myths with Facts and Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effusive-expressions-a-tribute-to-italian-love/"><u>Effusive Expressions: A Tribute to Italian Love</u></a></li>
+<li><a href="https://fox-place.techidaily.com/entsperren-sie-die-icloud-aktivierungsbeschrankung-schlussel-zur-passwortfreien-losung/"><u>Entsperren Sie Die iCloud-Aktivierungsbeschränkung - Schlüssel Zur Passwortfreien Lösung!</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-harmonizing-hues-in-online-beauty-videos/"><u>In 2024, Harmonizing Hues in Online Beauty Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-youtube-channels-for-filmmakers-to-learn-filmmaking-tips-and-tutorials/"><u>In 2024, YouTube Channels for Filmmakers to Learn Filmmaking Tips and Tutorials</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/new-guide-how-to-check-icloud-activation-lock-status-from-your-apple-iphone-x-by-drfone-ios/"><u>New Guide How To Check iCloud Activation Lock Status From Your Apple iPhone X</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-lost-photos-during-transfer-from-iphone-8-plus-to-pc-or-mac-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Recover Lost Photos during Transfer from iPhone 8 Plus to PC or Mac | Stellar</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/startup-steps-for-stream-money-in-periscope-for-2024/"><u>Startup Steps for Stream Money in Periscope for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578502910-what-languages-does-santa-claus-speak-find-out-now/"><u>What Languages Does Santa Claus Speak? Find Out Now!</u></a></li>
+</ul></div>
 

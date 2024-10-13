@@ -1,7 +1,7 @@
 ---
 title: Taking Flight in Russian Numeral Recognition
-date: 2024-10-04T02:51:54.396Z
-updated: 2024-10-06T18:00:32.166Z
+date: 2024-10-07T19:51:36.071Z
+updated: 2024-10-12T17:17:23.391Z
 tags:
   - speak
   - english
@@ -37,10 +37,10 @@ thumbnail: https://thmb.techidaily.com/5e0a2202e9f4da31ba85b59400bc244193601b11b
 * neuter: одно _(odno)_ ; два _(dva)_
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Learn how to count to 20 in Russian
@@ -54,21 +54,35 @@ If you did manage, good job! You must be a natural.
 ![numbers in russian](https://edge.mondly.com/blog/wp-content/uploads/2020/04/numbers-in-russian-600x424.jpg "Russian Numbers - Learn How To Count In Russian 3")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Russian numbers 11-20
 
 **Good to know:** If you want to bring a flower bouquet when you are invited to someone’s house in Russia, choose an odd number of flowers – so три, пять, семь or девять flowers. One Russian superstition says that bouquets with an even number of flowers are adequate only for funerals.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Russian numbers: 21 and onwards
 
  From here on, Russian numbers are formed similarly to the English numbers (minus the word “and”). If 20 is двадцать_(dvadtsat)_ , then 21 is двадцать**один** _(_ _dvadtsat odin)_ and 22 is двадцать**два** _(dvadtsat dva)_ . Basically, you just**add the numbers from 1 to 9 to the tens.**
 
 ![russian numbers](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-numbers-600x424.jpg "Russian Numbers - Learn How To Count In Russian 4")
+
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Russian tens
 
@@ -86,25 +100,11 @@ And guess what! It works the same with the hundreds.
 
 ![russian hundreds](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-hundreds-600x424.jpg "Russian Numbers - Learn How To Count In Russian 5")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Russian hundreds
 
  For example, if you want to say 146, you say сто сорок шесть_(sto sorok shest)_ .
 
 Not as hard as you’d expect, is it?
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Russian ordinal numbers
 
@@ -151,24 +151,24 @@ Not as hard as you’d expect, is it?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-snappy-business-tactics-on-snapchat/"><u>[Updated] 2024 Approved Snappy Business Tactics on Snapchat</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-enhance-engagement-mastering-template-based-video-description-writing-for-2024/"><u>[Updated] Enhance Engagement Mastering Template-Based Video Description Writing for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/1726028824043-google-meet/"><u>「Google Meetから始まる容易な動画編集手順ガイド」</u></a></li>
-<li><a href="https://location-fake.techidaily.com/3utools-virtual-location-not-working-on-vivo-v29-pro-fix-now-drfone-by-drfone-virtual-android/"><u>3uTools Virtual Location Not Working On Vivo V29 Pro? Fix Now | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/8-life-altering-reasons-for-being-bilingual/"><u>8 Life-Altering Reasons for Being Bilingual</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/building-a-french-foundation-at-home/"><u>Building a French Foundation at Home</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/early-risers-late-sleepers-good-morning-in-10-different-languages/"><u>Early Risers, Late Sleepers: Good Morning In 10 Different Languages</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/exploring-the-capabilities-of-the-compact-marvel-apple-ipad-mini-5/"><u>Exploring the Capabilities of the Compact Marvel - Apple iPad Mini #5</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-language-accessibility-mondly-enhances-oculus-quest-vr/"><u>Global Language Accessibility: Mondly Enhances Oculus Quest VR</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-vivo-y100-5g-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Vivo Y100 5G to New Android? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/italian-travelers-100plus-helpful-italian-phrases-for-your-trip/"><u>Italian Travelers: 100+ Helpful Italian Phrases For Your Trip</u></a></li>
-<li><a href="https://driver-download.techidaily.com/quick-and-easy-guide-downloading-and-installing-intel-graphics-drivers-on-windows/"><u>Quick & Easy Guide: Downloading & Installing Intel Graphics Drivers on Windows</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-simple-speak-soon-top-10-language-list/"><u>Speak Simple, Speak Soon: Top 10 Language List</u></a></li>
-<li><a href="https://solve-lab.techidaily.com/submit-inquiry-and-obtain-insight-continue-on-this-page/"><u>Submit Inquiry & Obtain Insight – Continue on This Page</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/transformative-tech-education-supported-by-mondly-and-apples/"><u>Transformative Tech Education Supported by Mondly and Apples</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/understanding-the-shutdown-insights-into-new-chatgpt-subscription-pauses-and-future-plans/"><u>Understanding the Shutdown: Insights Into New ChatGPT Subscription Pauses & Future Plans</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/unveiling-the-secrets-to-premieres-full-screen-mode/"><u>Unveiling the Secrets to Premiere's Full Screen Mode</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unveiling-the-silent-conversation-of-italian-hands/"><u>Unveiling the Silent Conversation of Italian Hands</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/what-is-commonly-spoken-by-israelis/"><u>What Is Commonly Spoken by Israelis?</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-sleep-soundly-top-aspers-techniques-unveiled/"><u>[New] 2024 Approved Sleep Soundly Top Asper's Techniques Unveiled</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-essential-ios-video-editor-apps-top-10-best-to-know/"><u>2024 Approved Essential iOS Video Editor Apps Top 10 Best to Know</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/eng-speaks-other-languages-a-lexical-mosaic/"><u>ENG Speaks Other Languages: A Lexical Mosaic</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enunciate-elegance-tongue-twisters-for-improvement/"><u>Enunciate Elegance: Tongue Twisters for Improvement</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/eternal-savings-on-mondly-ultimate-plan/"><u>Eternal Savings on Mondly Ultimate Plan</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-language-bonds-turkey-and-korea/"><u>Exploring Language Bonds: Turkey and Korea</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressive-french-greetings-for-every-occasion-and-setting/"><u>Expressive French Greetings for Every Occasion & Setting</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/first-augmented-reality-language-app-with-speech-recognition/"><u>First Augmented Reality Language App With Speech Recognition</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/fixing-sluggishness-on-windows-11-tips-and-tricks-for-quicker-operation/"><u>Fixing Sluggishness on Windows 11: Tips and Tricks for Quicker Operation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-fan-to-fluent-korean-lessons-on-squid-game/"><u>From Fan to Fluent: Korean Lessons on Squid Game</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-zero-to-bilingual-your-french-self-learning-plan/"><u>From Zero to Bilingual: Your French Self-Learning Plan</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-5-ways-to-track-lava-yuva-3-without-app-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Ways to Track Lava Yuva 3 without App | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-honor-play-40c-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Honor Play 40C | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/is-it-possible-to-use-airpods-as-headphones-on-the-nintendo-switch-console/"><u>Is It Possible to Use AirPods as Headphones on the Nintendo Switch Console?</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/passo-a-passo-simples-para-recuperacao-de-fotos-antigas-tecnicas-eficazes-do-movavi/"><u>Passo a Passo Simples Para Recuperação De Fotos Antigas - Técnicas Eficazes Do Movavi</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/professional-cameras-face-off-hero-5-vs-keymission/"><u>Professional Cameras Face Off Hero 5 VS Keymission</u></a></li>
+<li><a href="https://fox-tls.techidaily.com/recuperation-facile-et-gratuite-de-donnees-sur-votre-disque-dur-externe-seagate-avec-ces-outils-logiciels-elites/"><u>Recuperation Facile Et Gratuite De Données Sur Votre Disque Dur Externe Seagate Avec Ces Outils Logiciels Elites !</u></a></li>
+<li><a href="https://article-helps.techidaily.com/the-ultimate-benq-sw320-review-a-journey-to-4k/"><u>The Ultimate BenQ SW320 Review A Journey to 4K</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/eygnwmwn-glwttothpeio-gkreman/"><u>Ευγνώμων Γλωττοτηπειό Γκρεμάν</u></a></li>
 </ul></div>
 

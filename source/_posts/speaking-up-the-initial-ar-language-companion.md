@@ -1,7 +1,7 @@
 ---
 title: "Speaking Up: The Initial AR Language Companion"
-date: 2024-09-30T02:28:51.339Z
-updated: 2024-10-06T23:55:20.592Z
+date: 2024-10-06T23:41:50.325Z
+updated: 2024-10-12T23:26:28.573Z
 tags:
   - speak
   - english
@@ -43,10 +43,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 > _We started working on Mondly AR in August 2017 and by the time [Blade Runner 2049](http://www.imdb.com/title/tt1856101/) was released, we already had a working demo. Watching Blade Runner 2049 made me realize that we were beginning to build the future. To me, Joi (the holographic companion of officer K) looked like a super advanced version of Mondly – the character we were creating. They can both understand speech, reply with a human voice and change outfits. Of course, Mondly is not as smart and realistic as Joi. Yet. But she can teach you 7 languages. And this is just the beginning._
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Here’s what you should know about Mondly AR
@@ -65,10 +65,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facts and figures about Mondly
@@ -85,16 +85,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 * [Mondly Press Kit](https://www.dropbox.com/sh/vo4j5214zvwdxy5/AAC20VxIgpuiEe7ED2%5F37VNEa?dl=0)
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
+  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Media mentions about Mondly
@@ -126,17 +120,24 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-the-ultimate-guide-to-instagram-influence-5-strategies-with-examples/"><u>[New] In 2024, The Ultimate Guide to Instagram Influence 5 Strategies with Examples</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/new-restore-lost-sounds-to-twitter-vids-for-2024/"><u>[New] Restore Lost Sounds to Twitter Vids for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/compreender-expressoes-do-carinho-no-portugues/"><u>Compreender Expressões Do Carinho No Português</u></a></li>
-<li><a href="https://os-tips.techidaily.com/elevate-your-exercise-routine-with-these-essential-fitness-tracker-hacks-6-tips/"><u>Elevate Your Exercise Routine with These Essential Fitness Tracker Hacks (6 Tips)</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/exploring-the-features-of-claude-pro-vs-chatgpt-plus-by-microsoft/"><u>Exploring the Features of Claude Pro Vs. ChatGPT Plus by Microsoft</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-best-10-echo-augmentation-apps-desktopmobile/"><u>In 2024, Best 10 Echo Augmentation Apps Desktop/Mobile</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-expedition-deciphering-uk-vs-us-and-aussie-tones/"><u>Language Expedition: Deciphering UK Vs. US & Aussie Tones</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579308386-learn-urdu-online-in-just-10-minutes-a-day/"><u>Learn Urdu Online In Just 10 Minutes A Day</u></a></li>
-<li><a href="https://review-topics.techidaily.com/mp4-won-t-play-on-my-redmi-k70-by-aiseesoft-video-converter-play-mp4-on-android/"><u>MP4 won't play on my Redmi K70</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/slow-motion-showcase-top-cameras-with-unparalleled-snapshot-power-for-2024/"><u>Slow-Motion Showcase Top Cameras with Unparalleled Snapshot Power for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/start-with-croatian-find-out-the-top-7-reasons-for-today/"><u>Start with Croatian: Find Out the Top 7 Reasons for Today!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/virtual-vernaculars-mastering-new-languages-for-the-future/"><u>Virtual Vernaculars: Mastering New Languages for the Future</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-breaking-down-2023s-most-sharing-videos-on-twitter-for-2024/"><u>[New] Breaking Down 2023'S Most Sharing Videos on Twitter for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-winning-strategies-elevating-win11-zoom-experience/"><u>[Updated] 2024 Approved Winning Strategies Elevating Win11 Zoom Experience</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-capture-chatter-the-new-iphone-2024-feature/"><u>[Updated] Capture Chatter The New iPhone 2024 Feature</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/capture-your-games-in-stunning-detail-on-windows-11-for-2024/"><u>Capture Your Games in Stunning Detail on Windows 11 for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/cellular-network-not-available-for-voice-calls-on-oppo-k11-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Cellular Network Not Available for Voice Calls On Oppo K11 5G | Dr.fone</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/cookiebot-driven-data-collection-enhancing-user-experience-and-insights/"><u>Cookiebot-Driven Data Collection: Enhancing User Experience & Insights</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/decoding-popularity-a-truthful-look-at-reels-on-instagram/"><u>Decoding Popularity A Truthful Look at Reels on Instagram</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/elevate-your-ios-experience-top-5-ps2-simulators/"><u>Elevate Your iOS Experience Top 5 PS2 Simulators</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhance-your-language-learning-via-mondly/"><u>Enhance Your Language Learning via Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/entertain-edoardo-discover-20plus-authentic-italian-slang-words/"><u>Entertain Edoardo: Discover 20+ Authentic Italian Slang Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expand-your-mind-enhance-your-job-prospects/"><u>Expand Your Mind, Enhance Your Job Prospects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-porque-vs-por-que-a-linguistic-dive/"><u>Exploring 'Porque' Vs 'Por Que': A Linguistic Dive</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-the-language-of-thanksgiving-mandarins-xiexie/"><u>Exploring the Language of Thanksgiving: Mandarin's Xièxiè</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressing-romance-in-spanish-best-pick-up-lines/"><u>Expressing Romance in Spanish: Best Pick-Up Lines</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-greetings-how-to-say-hello-in-french/"><u>French Greetings: How To Say Hello In French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-latin-to-modern-expressions-romance-languages/"><u>From Latin to Modern Expressions: Romance Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fueling-dreams-with-johannes-honterus/"><u>Fueling Dreams with Johannes Honterus</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-oppo-reno-9a-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Oppo Reno 9A? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ipogo-will-be-the-new-ispoofer-on-infinix-hot-40i-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Infinix Hot 40i? | Dr.fone</u></a></li>
 </ul></div>
 

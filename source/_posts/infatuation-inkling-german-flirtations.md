@@ -1,7 +1,7 @@
 ---
 title: "Infatuation Inkling: German Flirtations"
-date: 2024-08-27T22:59:36.110Z
-updated: 2024-08-28T22:59:36.110Z
+date: 2024-10-09T19:28:17.643Z
+updated: 2024-10-12T20:25:36.584Z
 tags:
   - speak
   - english
@@ -48,9 +48,6 @@ thumbnail: https://thmb.techidaily.com/d9697a004ae2bbc53020d06bba853be86eb98852f
 
  Using a 100% cheesy pick up line in German? Your delivery becomes even more crucial. Consider testing the waters first to see if humor is appreciated. If the response is positive, then go ahead and use it!
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Smooth German Pick Up Lines
 
 * _Denkst du, wir haben einen gemeinsamen Freund, der uns einander vorstellen könnte?_  (“Do you think that we have a mutual friend who could introduce us to each other?”)
@@ -67,8 +64,12 @@ thumbnail: https://thmb.techidaily.com/d9697a004ae2bbc53020d06bba853be86eb98852f
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Memorable Pick-Up Lines In German For Every Occasion 2")
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##### Learn German fast
 
  Does your crush speak German? Mondly has your back with practical German skills for real life.
@@ -76,8 +77,18 @@ thumbnail: https://thmb.techidaily.com/d9697a004ae2bbc53020d06bba853be86eb98852f
 [Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-10001&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-10001&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-10001&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-10001&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-10001%26mt%3D8)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Pick Up Lines to Use on Guys in Germany
 
 * _Wäre ich ein Auto, wärst du meine Autobahn – ohne Geschwindigkeitsbegrenzung direkt zu meinem Herzen._  (“If I were a car, you’d be my autobahn – with no speed limit straight to my heart.”)
@@ -95,8 +106,12 @@ thumbnail: https://thmb.techidaily.com/d9697a004ae2bbc53020d06bba853be86eb98852f
  On the other hand, if they do like football and you decide to use a football-themed pick up line on them, you may just score a goal!
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Best Pick Up Lines for Girls in Germany
 
 * _Bist du ein Berliner Pfannkuchen? Denn du machst mein Leben süßer._  (“Are you a Berliner doughnut? Because you make my life sweeter.”)
@@ -120,8 +135,12 @@ That being said, we wish you happy flirting! 😏
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Learn German for the one you love
 
  Did you use one of these pick up lines in German and successfully broke the ice? Nice job. Or maybe you just want to learn more? Get Mondly now and enrich your German flirting vocabulary with a dedicated category on “Romance”.
@@ -140,8 +159,6 @@ That being said, we wish you happy flirting! 😏
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -149,4 +166,19 @@ That being said, we wish you happy flirting! 😏
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-tips-for-easily-accessing-videos-on-facebook-for-2024/"><u>[New] Tips for Easily Accessing Videos on Facebook for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-essential-guide-leading-6-fb-lite-downloads/"><u>[Updated] Essential Guide Leading 6 FB Lite Downloads</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-script-craftsmanship-dialogues-that-captivate/"><u>[Updated] Script Craftsmanship Dialogues That Captivate</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-tips-for-constructing-motivating-daily-routine-vids/"><u>[Updated] Tips for Constructing Motivating Daily Routine Vids</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/1-vudu-dvds-to-digital-unleash-your-movie-collections-potential/"><u>1. Vudu DVDs to Digital: Unleash Your Movie Collection's Potential</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breaking-language-barriers-mastering-complex-word-sounds/"><u>Breaking Language Barriers: Mastering Complex Word Sounds</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-words-and-hearts-overcoming-language-obstacles-in-romance/"><u>Bridging Words & Hearts: Overcoming Language Obstacles in Romance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bringing-spice-to-your-voyage-top-93-vital-spanish-commands/"><u>Bringing Spice to Your Voyage: Top 93 Vital Spanish Commands</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/chatgpt-powered-podcasts-on-budget-phones-safety/"><u>ChatGPT-Powered Podcasts on Budget Phones' Safety</u></a></li>
+<li><a href="https://techidaily.com/complete-guide-to-hard-reset-your-xiaomi-redmi-note-12r-drfone-by-drfone-reset-android-reset-android/"><u>Complete Guide to Hard Reset Your Xiaomi Redmi Note 12R | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-bengali-fast-learn-each-day-achieve-tomorrow/"><u>Conquer Bengali Fast: Learn Each Day, Achieve Tomorrow</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577215704-oculus-quest-launches-multilingual-support-with-mondly/"><u>Oculus Quest Launches Multilingual Support with 'Mondly'</u></a></li>
+</ul></div>
 

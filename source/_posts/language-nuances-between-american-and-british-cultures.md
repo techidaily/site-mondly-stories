@@ -1,7 +1,7 @@
 ---
 title: Language Nuances Between American and British Cultures
-date: 2024-10-03T17:03:48.390Z
-updated: 2024-10-07T03:47:12.628Z
+date: 2024-10-05T18:22:47.101Z
+updated: 2024-10-12T16:09:48.438Z
 tags:
   - speak
   - english
@@ -91,23 +91,9 @@ thumbnail: https://thmb.techidaily.com/cc01732303965dd5a4fe7a6395032b1f09e613e11
 
  If you speak English as a second language and you are not sure which is the correct spelling for the type of English you use, install a spell checker and let it do the job for you. In time, you’ll get used to the fitting spelling and learn to write correctly on your own.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Grammar differences
 
  Although spelling, accent, and vocabulary differences are the most notorious distinctions, American English and British English are divergent in some [grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) matters as well.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Collective nouns
 
@@ -116,10 +102,10 @@ thumbnail: https://thmb.techidaily.com/cc01732303965dd5a4fe7a6395032b1f09e613e11
  Thus, while**“The band is playing”** in the US, in the UK**“The band are playing”** . Likewise, if I’m in the US,**“My team is winning”** . But if I’m in the UK,**“My team are winning”** .
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Learned or learnt?
@@ -127,6 +113,13 @@ thumbnail: https://thmb.techidaily.com/cc01732303965dd5a4fe7a6395032b1f09e613e11
 **Learned** and**learnt** are both the correct past participle and past tense forms of the verb “to learn”. Easily overlooked in speech, but much more obvious in writing, this subtle difference addresses verbs.
 
  Many verbs that are irregular in the past tense in British English (_dreamt, burnt, learnt_), have been made regular in American English (_dreamed, burned, learned_).
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Got or gotten?
 
@@ -136,31 +129,24 @@ thumbnail: https://thmb.techidaily.com/cc01732303965dd5a4fe7a6395032b1f09e613e11
 
 **American English:** get – got – gotten
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Tenses
 
  While Brits tend to use the present perfect tense to describe something that has recently occurred, Americans usually go with the past simple tense.
 
  Thus, in Britain, you’ll say**“I’ve been to the supermarket”** and in the US you’ll say**“I went to the supermarket”** .
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Prepositions
 
  In British English, “at” is generally used in relation to time and place. In contrast, in American English, “on” is used in relation to time and “in” is used in relation to place.
 
 ![british american english](https://edge.mondly.com/blog/wp-content/uploads/2020/06/british-american-english-600x600.jpg "British English Vs American English Differences: Spelling, Pronunciation And More 3")
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  British English vs American English
 
@@ -169,6 +155,13 @@ thumbnail: https://thmb.techidaily.com/cc01732303965dd5a4fe7a6395032b1f09e613e11
  Generally, the British are more likely to use formal speech, while Americans will rather go with informal expressions. For instance, Brits will use “shall” where Americans use “will” or “should”.
 
  Additionally, in Britain, you are likely to hear “needn’t” a lot and in the US not at all. In its place, Americans use “don’t need to”.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## British accent vs American accent
 
@@ -190,6 +183,13 @@ thumbnail: https://thmb.techidaily.com/cc01732303965dd5a4fe7a6395032b1f09e613e11
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Brush up your English in just 10 minutes a day
 
@@ -216,24 +216,24 @@ thumbnail: https://thmb.techidaily.com/cc01732303965dd5a4fe7a6395032b1f09e613e11
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-lessons.techidaily.com/updated-becoming-an-illustration-maestro-best-mac-free-tools/"><u>[Updated] Becoming an Illustration Maestro - Best Mac Free Tools</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-screensnapper-revisited-apowersofts-latest-pc-tool/"><u>[Updated] In 2024, ScreenSnapper Revisited Apowersoft's Latest PC Tool</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-leveraging-budget-friendly-visual-elements-for-2024/"><u>[Updated] Leveraging Budget-Friendly Visual Elements for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/anniversary-1500-free-daily-knowledge-shares/"><u>Anniversary: 1,500 Free Daily Knowledge Shares</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/assessing-dji-phantom-3-professionals-performance/"><u>Assessing DJI Phantom 3 Professional's Performance</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/aussie-language-sayings-and-slang-for-daily-chit-chat/"><u>Aussie Language: Sayings & Slang for Daily Chit-Chat</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/comprehensive-guide-finding-and-installing-updated-sata-drivers-on-windows-computers/"><u>Comprehensive Guide: Finding and Installing Updated SATA Drivers on Windows Computers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/efficient-path-japans-numeral-system-in-minutes/"><u>Efficient Path: Japan's Numeral System in Minutes</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/guide-how-to-disable-samsung-smart-tvs-speaking-functionality/"><u>Guide: How To Disable Samsung Smart TV's Speaking Functionality</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-crafting-realistic-3d-text-photoshopping-style/"><u>In 2024, Crafting Realistic 3D Text Photoshopping Style</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-find-ispoofer-pro-activation-key-on-lava-blaze-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Find iSpoofer Pro Activation Key On Lava Blaze 2 Pro? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-leap-forward-oxford-mondly-essential-words-guide/"><u>Language Leap Forward: Oxford-Mondly Essential Words Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/making-languid-latin-lessons-a-blast/"><u>Making Languid Latin Lessons a Blast</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pronunciation-patchwork-british-irish-and-american-accent-tapestry/"><u>Pronunciation Patchwork: British, Irish, and American Accent Tapestry</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/step-into-mastery-preparing-for-prestigious-language-certifications/"><u>Step Into Mastery: Preparing for Prestigious Language Certifications</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/thanks-for-watching-outro-templates-free-and-paid/"><u>Thanks For Watching Outro Templates (Free & Paid)</u></a></li>
-<li><a href="https://windows11.techidaily.com/top-13-essential-microsoft-excel-datetime-formulas-every-user-must-master/"><u>Top 13 Essential Microsoft Excel Date/Time Formulas Every User Must Master</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/viking-language-what-language-did-vikings-speak/"><u>Viking Language: What Language Did Vikings Speak?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581479128-why-learn-german-10-reasons-to-learn-german/"><u>Why Learn German? 10 Reasons To Learn German</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-essential-free-editing-software-rankings/"><u>[New] In 2024, Essential Free Editing Software Rankings</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-top-meme-making-tools-discover-your-favorites/"><u>[Updated] Top Meme-Making Tools Discover Your Favorites</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/expert-strategies-for-effective-online-image-trimming-for-2024/"><u>Expert Strategies for Effective Online Image Trimming for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/get-set-to-engage-with-the-newest-ai-discussion-partner/"><u>Get Set to Engage with the Newest AI Discussion Partner</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hurry-up-learn-french-chromatic-sounds/"><u>Hurry Up, Learn French Chromatic Sounds</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-achieving-a-natural-sound-curve-dimming-audio-smoothly/"><u>In 2024, Achieving a Natural Sound Curve Dimming Audio Smoothly</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-vivo-y36i-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Vivo Y36i? | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-top-affordable-panoramic-cameras-under-100/"><u>In 2024, Top Affordable Panoramic Cameras Under $100</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-vivo-t2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Vivo T2 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-legacy-the-most-coolest-50-phrases-to-use-wisely/"><u>Latin Legacy: The Most Coolest 50 Phrases to Use Wisely</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/love-transcends-find-more-ways-to-say-i-love-you/"><u>Love Transcends: Find More Ways to Say I Love You</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-and-german-a-symbiotic-masterpiece-for-education/"><u>Mondly & German - A Symbiotic Masterpiece for Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-launches-the-first-vr-language-app-with-speech-recognition-on-daydream/"><u>Mondly Launches the First VR Language App with Speech Recognition on Daydream</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/overcoming-system-lockups-expert-advice-for-defrosting-frozen-computers/"><u>Overcoming System Lockups: Expert Advice for Defrosting Frozen Computers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pedagogical-approaches-to-learning-mandarin-script/"><u>Pedagogical Approaches to Learning Mandarin Script</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/resolving-the-btballloondll-file-not-presentmissing-issue-on-your-pc/"><u>Resolving the btballloon.dll File Not Present/Missing Issue on Your PC</u></a></li>
+<li><a href="https://win-blog.techidaily.com/solving-sea-of-thieves-stuck-screen-problem-expert-advice-and-solutions/"><u>Solving Sea of Thieves Stuck Screen Problem: Expert Advice and Solutions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-bards-legacy-36-phrases-in-modern-speech/"><u>The Bard’s Legacy: 36 Phrases in Modern Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-polite-speech-of-china-understanding-xiexie/"><u>The Polite Speech of China: Understanding Xièxiè</u></a></li>
 </ul></div>
 

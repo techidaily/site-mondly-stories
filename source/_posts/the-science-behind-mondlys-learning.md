@@ -1,7 +1,7 @@
 ---
 title: The Science Behind Mondly's Learning
-date: 2024-10-05T03:24:28.958Z
-updated: 2024-10-07T00:49:49.491Z
+date: 2024-10-10T16:43:33.539Z
+updated: 2024-10-12T19:58:56.762Z
 tags:
   - speak
   - english
@@ -43,10 +43,10 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
  Basically, what happens in the app is that new and more difficult words or phrases will be shown together with older and less difficult ones. But as you progress, the old information will be shown less and less frequently than the new one. This technique makes sure that the information you learned is well-cemented in your brain before moving on to new concepts.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Lexical coverage: focus on the most common words
@@ -58,10 +58,10 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 ![lexical coverage](https://edge.mondly.com/blog/wp-content/uploads/2021/10/lexical-coverage-960x761.png "The Learning Method Behind Mondly 5")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lexical coverage overview
@@ -76,10 +76,10 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Take Mondly for a test drive
@@ -107,19 +107,17 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-monthly-earnings-potential-on-youtube/"><u>[Updated] Monthly Earnings Potential on YouTube</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/boost-your-productivity-expert-tips-for-using-google-duet-with-gmail/"><u>Boost Your Productivity: Expert Tips for Using Google Duet with Gmail</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/brit-language-for-travelers-a-compreited-guide/"><u>Brit Language for Travelers: A Compreited Guide</u></a></li>
-<li><a href="https://win11.techidaily.com/does-your-system-qualify-for-next-gen-windows-11/"><u>Does Your System Qualify for Next-Gen Windows 11</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fast-track-to-fluency-bengali/"><u>Fast-Track to Fluency: Bengali</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-changefake-your-realme-narzo-n53-location-on-viber-drfone-by-drfone-virtual-android/"><u>How to Change/Fake Your Realme Narzo N53 Location on Viber | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-apple-iphone-7-apples-new-iphone-drfone-by-drfone-ios/"><u>How to Unlock Apple iPhone 7, Apples New iPhone | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-ice-prowess-unleashed-2022-olympics-sprinting-spectacles/"><u>In 2024, Ice Prowess Unleashed 2022 Olympics Sprinting Spectacles</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-learning-at-40plus-four-ways-it-can-improve-your-quality-of-life/"><u>Language Learning at 40+: Four Ways It Can Improve Your Quality of Life</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/m4a-windows-1011/"><u>M4Aファイルの非劣化編集手順 - Windows 10/11向けガイド</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigate-global-conversation-skills-mondlys-new-edition/"><u>Navigate Global Conversation Skills: Mondly’s New Edition</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/resolving-corsair-h115i-compatibility-problems-on-windows-8-10-and-11/"><u>Resolving Corsair H115i Compatibility Problems on Windows 8, 10 & 11</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ukrainian-aspirants-now-easily-access-free-language-lessons-through-mondly/"><u>Ukrainian Aspirants Now Easily Access Free Language Lessons Through Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/why-startlingly-skilled-in-languages-over-50-heres-why/"><u>Why Startlingly Skilled in Languages Over 50? Here's Why</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/est-free-youtube-to-mp3-converters-you-should-know-onlinewinmac/"><u>[New] Best Free YouTube to MP3 Converters You Should Know [Online/Win/Mac]</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-identifying-top-economical-iosandroid-live-streaming-tools/"><u>2024 Approved Identifying Top Economical iOS/Android Live Streaming Tools</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-the-ultimate-guide-to-template-infused-yt-descriptions/"><u>2024 Approved The Ultimate Guide to Template-Infused YT Descriptions</u></a></li>
+<li><a href="https://extra-information.techidaily.com/become-a-master-at-kinemaster-strategies-features-and-top-online-gaming-rivals-for-2024/"><u>Become a Master at KineMaster Strategies, Features, and Top Online Gaming Rivals for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-messages-from-honor-v-purse-by-fonelab-android-recover-messages/"><u>Best Android Data Recovery - Undelete Lost Messages from Honor V Purse</u></a></li>
+<li><a href="https://fox-that.techidaily.com/effective-techniques-for-resolving-safari-browser-problems-on-apple-iphones/"><u>Effective Techniques for Resolving Safari Browser Problems on Apple iPhones</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-change-your-apple-id-on-iphone-7-with-or-without-password-by-drfone-ios/"><u>How To Change Your Apple ID on iPhone 7 With or Without Password</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/key-takeaways-from-reviewing-zdsofts-vision-recorder-for-2024/"><u>Key Takeaways From Reviewing ZDSoft's Vision Recorder for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-lovemaking-selecting-subtle-pickup-lines/"><u>Linguistic Lovemaking: Selecting Subtle Pickup Lines</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-initiative-groundbreaking-ukraine-language-learning-without-cost/"><u>Mondly's Initiative: Groundbreaking Ukraine Language Learning Without Cost</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pumpkin-carving-rituals-from-everywhere/"><u>Pumpkin Carving Rituals From Everywhere</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-5-solutions-for-resolving-zoom-cant-begin-video-streaming/"><u>Top 5 Solutions for Resolving 'Zoom Can't Begin Video Streaming'</u></a></li>
 </ul></div>
 

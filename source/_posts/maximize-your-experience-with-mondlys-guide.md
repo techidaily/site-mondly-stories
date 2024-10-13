@@ -1,7 +1,7 @@
 ---
 title: Maximize Your Experience with Mondly's Guide
-date: 2024-10-05T18:35:18.102Z
-updated: 2024-10-06T19:13:30.640Z
+date: 2024-10-08T23:38:17.901Z
+updated: 2024-10-12T23:01:31.633Z
 tags:
   - speak
   - english
@@ -30,13 +30,6 @@ thumbnail: https://thmb.techidaily.com/246d0000b4a8f8f8e29a0c282b538c53c7dcabe9e
  And that’s not everything! Mondly also offers separate apps for learning languages in virtual reality (Mondly VR), augmented reality (Mondly AR) and a dedicated app for kids aged 5 to 12.
 
 ## How to set up your account in the iOS/Android app
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. Download and open Mondly
 
@@ -86,6 +79,13 @@ thumbnail: https://thmb.techidaily.com/246d0000b4a8f8f8e29a0c282b538c53c7dcabe9e
 
 ![mondly sign up](https://edge.mondly.com/blog/wp-content/uploads/2019/12/mondly-sign-up.jpg "Here’s How To Use Mondly And Get The Best Out Of It 7")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Signing up will help you save your progress.
 
  To create an account, tap on the profile icon in the upper left corner of the “**Categories”** section (the “map” screen) and then**“Sign up”** .
@@ -125,13 +125,6 @@ thumbnail: https://thmb.techidaily.com/246d0000b4a8f8f8e29a0c282b538c53c7dcabe9e
 
 ![learning statistics](https://edge.mondly.com/blog/wp-content/uploads/2019/12/learning-statistics-1.jpg "Here’s How To Use Mondly And Get The Best Out Of It 10")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Tap “Statistics” to see how much you’ve progressed.
 
  Tap on the**“Statistics”** section to see how many words and phrases you’ve mastered, how much time you’ve spent learning and what is the number of consecutive days in which you’ve accessed the app.
@@ -154,11 +147,32 @@ Open your web browser and access <www.mondly.com>.
 
 ![mondly website](https://edge.mondly.com/blog/wp-content/uploads/2019/12/mondly-website-1-1024x508.jpg "Here’s How To Use Mondly And Get The Best Out Of It 12")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The Mondly homepage.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Select your native language
 
 ![mondly select native language](https://edge.mondly.com/blog/wp-content/uploads/2019/12/mondly-select-native-language-2-1024x508.jpg "Here’s How To Use Mondly And Get The Best Out Of It 13")
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Select your native language.
 
@@ -200,19 +214,6 @@ Now you ready to learn!
 
 ![mondly web settings](https://edge.mondly.com/blog/wp-content/uploads/2019/12/mondly-web-1024x508.jpg "Here’s How To Use Mondly And Get The Best Out Of It 17")
 
-<!-- affiliate ads begin -->
-<span id="1983551">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Click on “Settings” in the upper right corner or on the profile icon in the upper left corner.
 
  To change your settings, click on**“Settings”** in the upper right corner of the**“Categories”** section (the “map” screen) or on the profile icon in the upper left corner of the same section. Here you can:
@@ -227,13 +228,6 @@ Now you ready to learn!
 ![mondly web language settings](https://edge.mondly.com/blog/wp-content/uploads/2019/12/mondly-web-language-settings-1024x508.jpg "Here’s How To Use Mondly And Get The Best Out Of It 18")
 
  All your settings in one place.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 7\. View statistics, lesson progress, and compete with the best
 
@@ -257,6 +251,13 @@ Now you ready to learn!
 
 ![mondly web statistics](https://edge.mondly.com/blog/wp-content/uploads/2019/12/mondly-web-statistics-1-1024x508.jpg "Here’s How To Use Mondly And Get The Best Out Of It 21")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Go to “Statistics” to see how many words and phrases you’ve learned.
 
  Go to the “Leaderboard” section at the bottom of the page to see your rank in the national and international tops, add your friends and compete with each other.
@@ -269,6 +270,19 @@ Now you ready to learn!
 
  There’s nothing easier! Just choose one of the 40 topics Mondly offers and then a lesson.
 
+<!-- affiliate ads begin -->
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Choose a topic
 
  To choose a topic, go to the “Categories” section and click or tap to select. As you “travel” further right on the map, the topics get more complex, so it would be best to follow the recommended “route”.
@@ -279,25 +293,11 @@ Now you ready to learn!
 
  However, if you want to and have access to a Premium account, you can skip ahead to more advanced lessons (as seen in the screenshot above).
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Select a lesson
 
  Topics have multiple lessons to choose from with the first one being the easiest and the last one the most difficult for the selected topic.
 
 ![mondly lesson](https://edge.mondly.com/blog/wp-content/uploads/2019/12/mondly-lesson.jpg "Here’s How To Use Mondly And Get The Best Out Of It 24")
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Just tap “Start” when you are ready to learn.
 
@@ -329,6 +329,19 @@ Now you ready to learn!
 
 ![verb-conjugator](https://edge.mondly.com/blog/wp-content/uploads/2019/12/mondly-verb-conjugator.jpg "Here’s How To Use Mondly And Get The Best Out Of It 27")
 
+<!-- affiliate ads begin -->
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Explore verb conjugations with Mondly.
 
 ### 3\. Use “Review” to quickly recap what you’ve learned
@@ -338,6 +351,13 @@ Now you ready to learn!
 ![lesson review](https://edge.mondly.com/blog/wp-content/uploads/2019/12/lesson-review-1.jpg "Here’s How To Use Mondly And Get The Best Out Of It 28")
 
  Quickly recap what you’ve learned in every lesson.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. Use**“Search” to l** earn more about your favorite topics
 
@@ -377,25 +397,11 @@ Now you ready to learn!
 
  You can gain more points with Weekly Quizzes and Monthly Challenges.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 8\. Turn “Auto play voice” off to increase the difficulty of the exercises
 
  To mute the audio and increase the difficulty of the exercises, turn off the**“Auto play voice”** option.
 
 ![lesson difficulty](https://edge.mondly.com/blog/wp-content/uploads/2019/12/lesson-difficulty.jpg "Here’s How To Use Mondly And Get The Best Out Of It 33")
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 9\. Go Premium and gain access to over 2,000 Daily Lessons
 
@@ -441,17 +447,22 @@ Now you ready to learn!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-premium-picks-recommended-spots-for-procuring-snapchat-chime-for-2024/"><u>[New] Premium Picks Recommended Spots for Procuring Snapchat Chime for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-a-year-in-review-how-vivacut-is-shaping-the-future-of-video-editing/"><u>[Updated] In 2024, A Year In Review How VivaCut Is Shaping the Future of Video Editing</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-unlocking-the-palette-of-possibilities-with-downloadable-spark-ar-luts/"><u>[Updated] Unlocking the Palette of Possibilities with Downloadable Spark AR LUTs</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/asias-most-sought-after-verbal-gems-top-triad/"><u>Asia’s Most Sought-After Verbal Gems: Top Triad</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/comparative-linguistic-practicality-german-versus-french/"><u>Comparative Linguistic Practicality: German Versus French</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/disabling-apple-iphone-15-plus-parental-restrictions-withwithout-password-by-drfone-ios/"><u>Disabling Apple iPhone 15 Plus Parental Restrictions With/Without Password</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/ensuring-confidentiality-steps-to-stop-chatgpt-from-keeping-your-conversation-records/"><u>Ensuring Confidentiality: Steps to Stop ChatGPT From Keeping Your Conversation Records</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-rapidly-finding-friends-on-facebooks-network/"><u>In 2024, Rapidly Finding Friends on Facebook's Network</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lifetime-language-pass-your-0-investment-today/"><u>Lifetime Language Pass - Your $0 Investment Today!</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/master-quick-photo-collage-with-google-images-in-minutes-for-2024/"><u>Master Quick Photo Collage with Google Images in Minutes for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-family-friendly-app-shines-in-2017/"><u>Mondly's Family-Friendly App Shines in 2017!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/why-young-minds-excel-at-multilingual-mastery/"><u>Why Young Minds Excel at Multilingual Mastery</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-a-techies-playbook-screen-record-and-share-on-snapchat-for-2024/"><u>[New] A Techie's Playbook Screen Record & Share on Snapchat for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-soundscapes-from-social-media-videos-for-2024/"><u>[New] Soundscapes From Social Media Videos for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-premier-choice-of-9-free-youtube-logos-and-graphics-maker/"><u>2024 Approved Premier Choice of 9 Free YouTube Logos & Graphics Maker</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/achieve-excellence-in-learning-portuguese-with-top-6-approaches/"><u>Achieve Excellence in Learning Portuguese with Top 6 Approaches</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breakthrough-methods-fast-track-your-digital-language-acquisition/"><u>Breakthrough Methods: Fast Track Your Digital Language Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/communicating-in-silent-italy-hand-gesture-basics/"><u>Communicating in Silent Italy: Hand Gesture Basics</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ehensive-directory-extracting-yt-template-videos-online/"><u>Comprehensive Directory Extracting YT Template Videos Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprendre-lanatomie-humaine-les-differentes-parties-en-francais/"><u>Comprendre L'Anatomie Humaine: Les Différentes Parties en Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dubai-2020-expo-where-language-learning-soars/"><u>Dubai 2020 Expo: Where Language Learning Soars</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-pictures-from-oppo-by-fonelab-android-recover-pictures/"><u>Easy steps to recover deleted pictures from Oppo .</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/einfaches-deutsch-fur-anfanger-zahlen-1-100-erklaren/"><u>Einfaches Deutsch Für Anfänger: Zahlen 1-100 Erklären</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/el-impacto-de-la-pronunciacion-en-comunicacion/"><u>El Impacto De La Pronunciación en Comunicación</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elite-online-agencies-speak-any-new-language-with-confidence/"><u>Elite Online Agencies: Speak Any New Language with Confidence!</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-the-latest-nvidia-gaming-drivers-for-windows-free-download/"><u>Get the Latest NVIDIA Gaming Drivers for Windows – Free Download</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-itel-s23-drfone-by-drfone-virtual-android/"><u>In 2024, Fake the Location to Get Around the MLB Blackouts on Itel S23 | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-samsung-galaxy-m14-5g-lock-screen-clock-in-seconds-by-drfone-android/"><u>In 2024, How To Change Samsung Galaxy M14 5G Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://apple-account.techidaily.com/turning-off-two-factor-authentication-on-iphone-13-mini-5-tips-you-must-know-by-drfone-ios/"><u>Turning Off Two Factor Authentication On iPhone 13 mini? 5 Tips You Must Know</u></a></li>
 </ul></div>
 

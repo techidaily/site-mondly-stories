@@ -1,7 +1,7 @@
 ---
 title: Jumpstart Your Urdu Learning Now
-date: 2024-09-01T00:22:18.636Z
-updated: 2024-09-02T00:22:18.636Z
+date: 2024-10-05T16:40:47.075Z
+updated: 2024-10-12T18:41:58.919Z
 tags:
   - speak
   - english
@@ -34,6 +34,13 @@ thumbnail: https://thmb.techidaily.com/c56c87173dfda8b9c9894c8b4a0ea04c4e7b1abbd
 
  Moreover, in the 19th century, the Hindi–Urdu [controversy](https://en.wikipedia.org/wiki/Hindi%E2%80%93Urdu%5Fcontroversy) arose in colonial India. The debate was whether Hindi or Urdu should be chosen as a national language. In 1900, the government issued a decree granting symbolic equal status to both Hindi and Urdu. But then, Gandhi proposed using either Devanagari or Urdu script, under the traditional generic term Hindustani. Therefore, in 1950, Hindi, in the Devanagari script, along with English, replaced Urdu as one of the official languages of India.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Learn Urdu from Hindi, Arabic, English, Korean and more
 
  You spoke. We listened! Because the vast majority of people want to learn Urdu from popular languages like Hindi (although similar, you still need some help to learn both), Arabic, English or Korean, we worked hard and finally made it possible.
@@ -41,8 +48,12 @@ thumbnail: https://thmb.techidaily.com/c56c87173dfda8b9c9894c8b4a0ea04c4e7b1abbd
  Starting right now, you can [learn Urdu](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4511&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4511?mother%5Flang=en%5Fus?target%5Flang=ur&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4511?mother%5Flang=en%5Fus?target%5Flang=ur) from Hindi, Arabic, English, Korean and 29 other languages only with Mondly.
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 10 basic Urdu words and phrases you can learn right now
 
  Are you excited to learn Urdu yet? Let’s not waste any more time and start with your first “Urdu for beginners” course right now. Here are the top 10 basic Urdu words and phrases everybody should know. Transliteration included so you’ll easily know how to pronounce them.
@@ -64,8 +75,12 @@ thumbnail: https://thmb.techidaily.com/c56c87173dfda8b9c9894c8b4a0ea04c4e7b1abbd
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Speak Urdu today
 
  It can be really tricky to master Urdu pronunciation if you don’t actively live in Pakistan. But with Mondly, the award-winning language learning app, you can learn Urdu naturally with practical topics, authentic conversations and bite-sized Daily Lessons.
@@ -80,8 +95,6 @@ thumbnail: https://thmb.techidaily.com/c56c87173dfda8b9c9894c8b4a0ea04c4e7b1abbd
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -89,4 +102,22 @@ thumbnail: https://thmb.techidaily.com/c56c87173dfda8b9c9894c8b4a0ea04c4e7b1abbd
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-skills.techidaily.com/new-the-ultimate-guide-to-crafting-impressive-android-time-lapses-2enas/"><u>[New] The Ultimate Guide to Crafting Impressive Android Time-Lapses (2Enas)</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-essential-10-boosters-for-multi-device-use/"><u>[Updated] 2024 Approved Essential 10 Boosters for Multi-Device Use</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/9-impactful-gains-from-linguistic-diversification/"><u>9 Impactful Gains From Linguistic Diversification</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/become-a-linguistic-pro-mondly-clinches-the-title/"><u>Become a Linguistic Pro: Mondly Clinches the Title</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conversalab-interactive-language-learning-experience/"><u>ConversaLab: Interactive Language Learning Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cross-border-easter-messages-in-multiple-dialects/"><u>Cross-Border Easter Messages in Multiple Dialects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deutsche-verantwortungsausdrucke-lernen/"><u>Deutsche Verantwortungsausdrücke Lernen</u></a></li>
+<li><a href="https://common-error.techidaily.com/directx-error-resolved-a-comprehensive-guide-to-fixing-hardware-compatibility-issues/"><u>DirectX Error Resolved? A Comprehensive Guide to Fixing Hardware Compatibility Issues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-language-independence-with-no-cost-japanese-resources/"><u>Embrace Language Independence with No Cost Japanese Resources</u></a></li>
+<li><a href="https://win-answers.techidaily.com/expert-advice-on-repairing-cod-warzones-dev-error-6634-tips-and-techniques-for-a-smooth-gaming-experience/"><u>Expert Advice on Repairing COD: Warzone's Dev Error 6634 – Tips & Techniques for a Smooth Gaming Experience</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/exploring-advanced-equipment-with-toms-technology-hub-in-depth-guides-on-modern-hardware/"><u>Exploring Advanced Equipment with Tom’s Technology Hub: In-Depth Guides on Modern Hardware</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-skyrocketing-sales-how-ad-revenue-transforms-youtube-videos/"><u>In 2024, Skyrocketing Sales How Ad Revenue Transforms YouTube Videos</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/resolving-missing-msvcrtdll-issues-step-by-step-guide/"><u>Resolving 'Missing msvcrt.dll' Issues: Step-by-Step Guide</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/top-5-solutions-for-troubleshooting-windows-10-audio-problems/"><u>Top 5 Solutions for Troubleshooting Windows 10 Audio Problems</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/top-5-vivo-t2-pro-5g-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Vivo T2 Pro 5G Bypass FRP Tools for PC That Actually Work</u></a></li>
+</ul></div>
 

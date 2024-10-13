@@ -1,7 +1,7 @@
 ---
 title: "Thankful Talk: Multilingual Manners and Phrases (155)"
-date: 2024-10-06T00:22:57.827Z
-updated: 2024-10-06T21:42:49.872Z
+date: 2024-10-09T01:16:17.084Z
+updated: 2024-10-12T17:01:41.290Z
 tags:
   - speak
   - english
@@ -59,10 +59,10 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
  “Thanks” by Hanny Naibaho©
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The origin of saying “thank you”
@@ -89,10 +89,10 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## From 0 to conversational in over 40 languages
@@ -125,16 +125,22 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-neptune-display-premium-4k-all-in-one-screens/"><u>[New] Neptune Display Premium 4K All-in-One Screens</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-the-ultimate-list-of-engaging-moba-titles-on-android-for-2024/"><u>[Updated] The Ultimate List of Engaging MOBA Titles on Android for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/beyond-basics-advanced-steps-for-total-tongue-tying/"><u>Beyond Basics: Advanced Steps for Total Tongue-Tying</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/efficient-language-learning-10-minute-routines/"><u>Efficient Language Learning, 10-Minute Routines</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/huion-pen-trouble-here-are-five-ways-to-bring-it-back-to-life-fast/"><u>Huion Pen Trouble? Here Are Five Ways to Bring It Back to Life Fast!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-polish-in-minutes/"><u>Mastering Polish in Minutes</u></a></li>
-<li><a href="https://ai-voice.techidaily.com/new-2024-approved-top-4-elon-musk-voice-generator-programs-to-make-you-sound-like-the-billionaire/"><u>New 2024 Approved Top 4 Elon Musk Voice Generator Programs to Make You Sound Like the Billionaire</u></a></li>
-<li><a href="https://fox-that.techidaily.com/overcoming-connection-woes-a-users-handbook-for-airpods-and-iphones/"><u>Overcoming Connection Woes: A User's Handbook for AirPods and iPhones</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/parisian-chatterbox-103plus-phrases-for-easy-france-traveling/"><u>Parisian Chatterbox: 103+ Phrases for Easy France Traveling</u></a></li>
-<li><a href="https://facebook.techidaily.com/twitters-approach-sparks-facebooks-info-share-initiative/"><u>Twitter's Approach Sparks Facebook's Info-Share Initiative</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unpacking-the-most-prevalent-speaker-numbers-for-french-language/"><u>Unpacking the Most Prevalent Speaker Numbers for French Language</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-essential-mac-screen-recorder-alternatives-to-bandicam/"><u>[New] 2024 Approved Essential Mac Screen Recorder Alternatives to Bandicam</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-navigating-through-premium-hdr-camera-options/"><u>[New] 2024 Approved Navigating Through Premium HDR Camera Options</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/evolutionizing-content-breakthroughs-in-youtube-editing/"><u>[New] Revolutionizing Content Breakthroughs in YouTube Editing</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-origami-inspired-miniature-asian-abodes-in-mc-for-2024/"><u>[Updated] Origami-Inspired, Miniature Asian Abodes in MC for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-essential-tips-for-crafting-engaging-haul-videos/"><u>2024 Approved Essential Tips for Crafting Engaging Haul Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/50-years-echoing-europes-language-babel-revealed/"><u>50 Years Echoing - Europe's Language Babel Revealed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-beginners-guide-to-french-greetings-navigating-cultural-norms/"><u>A Beginner's Guide to French Greetings: Navigating Cultural Norms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-blast-from-the-past-meets-future-savings-with-new-years-promo-on-mondly-pro/"><u>A Blast From the Past Meets Future Savings with New Year's Promo on Mondly Pro!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-guide-to-expressing-thanks-16-essential-german-terms/"><u>A Guide To Expressing Thanks: 16 Essential German Terms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/basic-anatomy-the-parts-of-the-body-in-french/"><u>Basic Anatomy: The Parts of the Body in French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/becoming-a-bilingual-mastermind-mondlys-blueprint/"><u>Becoming a Bilingual Mastermind: Mondly's Blueprint</u></a></li>
+<li><a href="https://fox-pages.techidaily.com/creative-tims-premium-nuxt-black-admin-theme-with-bootstrap-cuarto-for-a-superior-web-experience-free-of-charge/"><u>Creative Tim's Premium Nuxt Black Admin Theme with Bootstrap Cuarto for a Superior Web Experience, Free of Charge!</u></a></li>
+<li><a href="https://techtrends.techidaily.com/dealing-with-youtube-outages-what-you-need-to-know/"><u>Dealing with YouTube Outages: What You Need to Know</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/major-technological-developments-since-1844-top-11-list/"><u>Major Technological Developments Since 1844: Top 11 List</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577943413-quick-lingua-norvegica-grasp-10-mins-a-day/"><u>Quick Lingua Norvegica Grasp, 10-Mins A Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581018092-this-is-the-best-way-to-learn-finnish-online/"><u>This Is The Best Way To Learn Finnish Online</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-5-tracking-apps-to-track-oneplus-nord-n30-se-without-them-knowing-drfone-by-drfone-virtual-android/"><u>Top 5 Tracking Apps to Track OnePlus Nord N30 SE without Them Knowing | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Indonesian Greetings Unveiled: An Introduction"
-date: 2024-10-01T01:02:54.816Z
-updated: 2024-10-06T16:53:31.731Z
+date: 2024-10-07T23:05:14.863Z
+updated: 2024-10-12T19:58:54.086Z
 tags:
   - speak
   - english
@@ -33,16 +33,10 @@ thumbnail: https://thmb.techidaily.com/7ba02d2067d54837e1bd869f645984fb69141a6a3
  Last but not least, if someone greets you using the_wai_ gesture (slight bow with the palms put together in front of the chest), you can show respect towards their culture by returning the same gesture.
 
 <!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to say ‘hello’ in Indonesian
@@ -53,6 +47,13 @@ thumbnail: https://thmb.techidaily.com/7ba02d2067d54837e1bd869f645984fb69141a6a3
 
  On the other hand, if someone asks you how you are doing, you can say_kabar baik,_ which means “I am fine” or “I am well”. Here’s what a basic conversation in Indonesian sounds like:
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### ‘Hi’ in Indonesian
 
  Made some new friends during your trip to Bali? When you meet them, you can also use the more informal_hi,_ which is pronounced the same as the English “hi”.
@@ -60,10 +61,10 @@ thumbnail: https://thmb.techidaily.com/7ba02d2067d54837e1bd869f645984fb69141a6a3
 Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Indonesian greetings for different times of day
@@ -78,25 +79,11 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 
 ![indonesian words](https://edge.mondly.com/blog/wp-content/uploads/2022/07/indonesian-words.png "Hello In Indonesian: A Quick Guide To Indonesian Greetings 2")
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  The same way we say “morning!’ in English, Indonesians sometimes drop the_selamat_ . This results in a very informal greeting that can be used with friends and family.
 
  Determining the correct time of the day during which you should use a certain greeting is somehow tricky. However, most people will agree that_selamat pagi_ is best used until 11 p.m. and_selamat siang_ until 3 p.m._Selamat sore_ and_selamat malam_ highly depend on the daylight so it’s best to adjust your greetings on the spot.
 
  Naturally,_selamat tidur_ is only used when someone is retiring for the night.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to say goodbye
 
@@ -108,6 +95,13 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Start learning Indonesian today
 
@@ -140,22 +134,22 @@ Get Mondly today and learn Indonesian naturally with the following:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-cutting-edge-strategies-for-efficient-lut-design/"><u>[New] In 2024, Cutting-Edge Strategies for Efficient LUT Design</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-smoothly-record-time-lapse-on-your-ipad/"><u>[New] Smoothly Record Time-Lapse on Your iPad</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-sonic-artistry-and-video-prowess-in-sonys-xperia-xz/"><u>[New] Sonic Artistry and Video Prowess in Sony's Xperia XZ</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-top-vhs-80s-effects-to-use-in-video-editing/"><u>[Updated] Top VHS 80S Effects to Use in Video Editing</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-examining-various-windows-movie-maker-product-types/"><u>2024 Approved Examining Various Windows Movie Maker Product Types</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-decade-with-mondly-the-story-continues/"><u>A Decade with Mondly: The Story Continues</u></a></li>
-<li><a href="https://network-issues.techidaily.com/armored-fix-in-video-card-driver/"><u>Armored Fix in Video Card Driver</u></a></li>
-<li><a href="https://media-tips.techidaily.com/cant-seem-to-break-up-with-spotify-despite-the-dislike/"><u>Can't Seem to Break Up With Spotify Despite the Dislike</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/decoding-difficult-dialogues-pronunciation-techniques-unveiled/"><u>Decoding Difficult Dialogues: Pronunciation Techniques Unveiled</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-educational-technologies-for-linguistic-success/"><u>Essential Educational Technologies for Linguistic Success</u></a></li>
-<li><a href="https://fake-location.techidaily.com/fake-the-location-to-get-around-the-mlb-blackouts-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>Fake the Location to Get Around the MLB Blackouts on Google Pixel Fold | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/kickstart-with-korean-to-navigate-the-world-of-squid-game/"><u>Kickstart with Korean to Navigate the World of Squid Game</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-proficiency-prowess-countdown-to-6-benefits/"><u>Language Proficiency Prowess: Countdown to #6 Benefits</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguistic-liberation-unleashing-the-potential-in-your-forties-through-language-learning/"><u>Linguistic Liberation: Unleashing the Potential in Your Forties Through Language Learning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pearson-and-mondly-unite-for-superior-gsl-excellence/"><u>Pearson & Mondly Unite for Superior GSL Excellence</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/swift-learners-polish-mastery-guide/"><u>Swift Learner's Polish Mastery Guide</u></a></li>
-<li><a href="https://win11.techidaily.com/win-11-gaming-upgrade-guide-top-tips-for-a-seamless-experience/"><u>Win 11 Gaming Upgrade Guide: Top Tips for a Seamless Experience</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-from-novice-to-pro-your-roadmap-to-crafting-engaging-fb-stories/"><u>[New] From Novice to Pro Your Roadmap to Crafting Engaging FB Stories</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-a-new-world-of-farming-the-best-7-mods-in-stardew/"><u>[New] In 2024, A New World of Farming - The Best 7 Mods in Stardew</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-x-sound-engineer-edition-pc/"><u>[New] X-Sound Engineer Edition - PC</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-unveiling-the-hidden-process-of-downloading-fb-content/"><u>[Updated] 2024 Approved Unveiling the Hidden Process of Downloading Fb Content</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-complete-picture-a-close-look-at-the-google-podcasts-app-for-2024/"><u>[Updated] Complete Picture A Close Look at the Google Podcasts App for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-metaverse-contrasted-with-multimetaverse-a-detailed-breakdown-in-depth-guide/"><u>[Updated] Metaverse Contrasted with MultiMetaverse A Detailed Breakdown (In-Depth Guide)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/honterus-spurring-aspiration-and-achievement/"><u>Honterus: Spurring Aspiration and Achievement</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-geo-blocking-and-how-to-bypass-it-on-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>In 2024, What is Geo-Blocking and How to Bypass it On Google Pixel 7a? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-bridge-for-friendly-initiatives/"><u>Language Bridge for Friendly Initiatives</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-elite-infinite-savings-no-payment/"><u>Mondly Elite: Infinite Savings, No Payment</u></a></li>
+<li><a href="https://fox-http.techidaily.com/revolutionary-drone-motors-the-quintessential-guide-to-flight-excellence-for-2024/"><u>Revolutionary Drone Motors The Quintessential Guide to Flight Excellence for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-key-to-cultural-understanding-top-112-crucial-phrases-and-terms-in-croatian/"><u>The Key to Cultural Understanding: Top 112 Crucial Phrases and Terms in Croatian</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-story-of-a-life-that-moves-mountains/"><u>The Story of a Life That Moves Mountains</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/the-ultimate-guide-to-unlocking-apple-watch-or-apple-iphone-13-from-icloud-by-drfone-ios/"><u>The Ultimate Guide to Unlocking Apple Watch Or Apple iPhone 13 from iCloud</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-100-vocabulary-slip-ups-in-everyday-english/"><u>Top 100 Vocabulary Slip-Ups in Everyday English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/what-linguistic-abilities-does-santa-claus-possess/"><u>What Linguistic Abilities Does Santa Claus Possess?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/glwssapoikia-eyxhs-kalhs/"><u>Γλωσσαποικία Ευχής Καλής</u></a></li>
 </ul></div>
 

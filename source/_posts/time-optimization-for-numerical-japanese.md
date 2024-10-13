@@ -1,7 +1,7 @@
 ---
 title: Time Optimization for Numerical Japanese
-date: 2024-10-03T02:08:10.530Z
-updated: 2024-10-07T06:14:37.466Z
+date: 2024-10-07T21:08:27.442Z
+updated: 2024-10-12T19:26:33.014Z
 tags:
   - speak
   - english
@@ -78,10 +78,16 @@ thumbnail: https://thmb.techidaily.com/7dc3242cad7286db6d769fcd34b1b78d40476e1df
 ![Numbers in Japanese 1-100](https://edge.mondly.com/blog/wp-content/uploads/2019/11/numbers-in-japanese-1-100-scaled.jpg "Counting In Japanese From 1 To 10000 7")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983475">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Numbers in Japanese 1-100
@@ -106,10 +112,10 @@ thumbnail: https://thmb.techidaily.com/7dc3242cad7286db6d769fcd34b1b78d40476e1df
 [Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-3643&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-3643&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-3643&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-3643&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-3643%26mt%3D8)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Count to 10,000 and beyond in Japanese
@@ -131,6 +137,13 @@ thumbnail: https://thmb.techidaily.com/7dc3242cad7286db6d769fcd34b1b78d40476e1df
 | 10 million | 千万    | せんまん          | senman           |
 
  As you can see, the rule you learned for the first 100 Japanese numbers is still valid. To count further than 100 in Japanese, you just continue to stack numbers. Then, when you get to 1,000,_hyaku_ becomes_sen_ and so on.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to count in Japanese Hiragana?
 
@@ -166,13 +179,6 @@ thumbnail: https://thmb.techidaily.com/7dc3242cad7286db6d769fcd34b1b78d40476e1df
 
 ![hatchi](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExdDQ0cHlhYjkxb2QwaTd1MWh1aDYyc3U3am05dnAzcnAxaGxkZWJsaiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/bzoD9WOiU1wAg/giphy.gif "Counting In Japanese From 1 To 10000 10")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  On the other hand, you probably noticed that 4, 7, and 9 have two different readings each. As we, in the Western world, consider the number 13 to bring bad luck, the Japanese people consider the numbers 4 and 9 to be unlucky because し (_shi_ – 4_)_ ) and く (_ku_ – 9) sound the same as the words for “death” (死, shi) and “suffering, agony or torture” (苦, ku). Thus, Japanese people avoid using these unlucky numbers as much as possible. If you ever travel to Japan, pay close attention to the prices. Chances are you won’t see prices like 9.99 or 4.99 anywhere.
 
 ## Japanese Counters List
@@ -183,13 +189,6 @@ thumbnail: https://thmb.techidaily.com/7dc3242cad7286db6d769fcd34b1b78d40476e1df
 
  There are over 500 counters in the Japanese language; however, not all are commonly used. Read on to discover the most frequently used counters.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Japanese counters for time
 
  o clearly indicate that you are referring to seconds, minutes, hours, months, or years, you must use specific counters in Japanese. Seconds are expressed with \~秒_(_ _byou)_ , minutes with \~分_(fun or pun)_ , hours with \~時_(ji)_ , months with \~月_(getsu)_ , and years with \~年_(nen)_ .
@@ -198,18 +197,24 @@ thumbnail: https://thmb.techidaily.com/7dc3242cad7286db6d769fcd34b1b78d40476e1df
 
  To count people in Japanese, use the counter ひとり_(hitori)_ for one person, ふたり_(futari)_ for two people, and \~人_(nin)_ for three or more people.
 
+<!-- affiliate ads begin -->
+<span id="1977020">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Japanese objects counters
 
  Long and thin objects, such as pencils, bottles, chopsticks, umbrellas, rivers, train tracks, or roads, have their own Japanese counter: \~本_(hon)_ . When counting these objects, all numbers end in_\-hon_ , except for 3, which ends in –_bon_ , and the numbers 1, 6, 8, and 10, which end in_\-pon_ . Although this might seem overwhelming initially, practice will help you master these exceptions more quickly.
 
  To count small and round objects like apples or tennis balls, you must use the \~個_(ko)_ counter. Conversely, to count thin and flat objects (such as sheets of paper, plates, or articles of clothing), you should use the まい_(mai)_ counter.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Japanese counters for animals
 
@@ -221,6 +226,20 @@ thumbnail: https://thmb.techidaily.com/7dc3242cad7286db6d769fcd34b1b78d40476e1df
 
 ![Japanese numbers kanji](https://edge.mondly.com/blog/wp-content/uploads/2019/11/japanese-numbers-kanji-960x640.jpeg "Counting In Japanese From 1 To 10000 11")
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Japanese counters for cars or bicycles
 
  If you’re not overwhelmed yet, for cars, machines, and all types of household appliances, the counter \~台_(dai)_ is necessary.
@@ -228,10 +247,10 @@ thumbnail: https://thmb.techidaily.com/7dc3242cad7286db6d769fcd34b1b78d40476e1df
  Not ready to dive into**Japanese counters** yet? Then consider using the general-purpose counter based on the Native-Japanese reading (一つ_hitotsu ,_ 二つ_futatsu_ and so on). This system allows you to count almost any kind of object up to ten without worrying about using the incorrect counter.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Special Number Zero in Japanese
@@ -247,13 +266,6 @@ Before you go, make sure you check out these FAQs.
 ### How to say numbers in Japanese?
 
  To say numbers in Japanese, start by learning the numbers up to 10: ichi (1), ni (2), san (3), yon (4), go (5), roku (6), nana (7), hatchi (8), kyu (9) and juu (10). If you're not familiar with the Japanese writing system, you may have to rely heavily on the Romanized version (Romaji) to learn the correct pronunciation of each number. Once you've mastered the numbers 1-10 in Japanese, counting up to 100 becomes straightforward.
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How to write Japanese numbers?
 
@@ -295,18 +307,24 @@ Before you go, make sure you check out these FAQs.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-instant-illusions-mastering-time-lapse-photography-on-samsung/"><u>[New] 2024 Approved Instant Illusions Mastering Time-Lapse Photography on Samsung</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/2017s-educational-star-mondly-kids-app-wins-google-praise/"><u>2017'S Educational Star: Mondly Kids App Wins Google Praise</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/6-effective-online-methods-to-speak-like-a-native-koreanist/"><u>6 Effective Online Methods to Speak Like a Native Koreanist</u></a></li>
-<li><a href="https://location-social.techidaily.com/does-oppo-reno-11f-5g-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>Does Oppo Reno 11F 5G Have Find My Friends? | Dr.fone</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/enrich-your-video-narratives-with-background-melodies-on-fb/"><u>Enrich Your Video Narratives with Background Melodies on FB</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/journey-jargon-the-most-useful-93-travel-terms-in-spanish/"><u>Journey Jargon: The Most Useful 93 Travel Terms in Spanish</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ring-youtubes-video-comment-features-for-2024/"><u>Mastering YouTube's Video Comment Features for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/stop-nuisance-phone-calls-in-their-tracks-a-step-by-step-blocking-tutorial-for-iphone-and-android-users/"><u>Stop Nuisance Phone Calls in Their Tracks – A Step-by-Step Blocking Tutorial for iPhone & Android Users!</u></a></li>
-<li><a href="https://extra-information.techidaily.com/the-ultimate-tech-guide-handling-srt-on-a-mac/"><u>The Ultimate Tech Guide Handling SRT on a Mac</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-potential-essential-reasons-to-learn-another-language/"><u>Unlock Potential: Essential Reasons to Learn Another Language</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-move-smart-top-motion-tracking-apps-for-android-and-iphone/"><u>Updated 2024 Approved Move Smart Top Motion Tracking Apps for Android and iPhone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-samsung-galaxy-a54-5g-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Samsung Galaxy A54 5G? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/worldwide-words-of-affection-your-valentine-guide/"><u>Worldwide Words of Affection: Your Valentine Guide</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-freezing-gameplay-essential-pc-screen-snaps-for-2024/"><u>[New] Freezing Gameplay Essential PC Screen Snaps for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-catalog-films-for-streamlined-playback/"><u>[Updated] Catalog Films for Streamlined Playback</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-discreet-snaps-the-secret-of-silent-photo-taking-on-snapchat-for-2024/"><u>[Updated] Discreet Snaps The Secret of Silent Photo-Taking on Snapchat for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-premier-macos-sierra-tools-for-video-changeovers-for-2024/"><u>[Updated] Premier macOS Sierra Tools for Video Changeovers for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/combat-ennui-with-these-10-engaging-gaming-options-when-boredom-strikes/"><u>Combat Ennui with These 10 Engaging Gaming Options When Boredom Strikes</u></a></li>
+<li><a href="https://techidaily.com/complete-guide-to-hard-reset-your-vivo-s17e-drfone-by-drfone-reset-android-reset-android/"><u>Complete Guide to Hard Reset Your Vivo S17e | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enterprise-grade-data-sanitization-with-bitraser-video-guide/"><u>Enterprise-Grade Data Sanitization with BitRaser Video Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-spanish-language-tools-top-93-travel-phrases-compilation/"><u>Essential Spanish Language Tools: Top 93 Travel Phrases Compilation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-language-and-society-together-in-mondly-vr/"><u>Explore Language & Society Together In Mondly VR</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-language-engaging-spanish-lesson/"><u>Exploring Language: Engaging Spanish Lesson</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/farsis-enthralling-past-why-learn-it/"><u>Farsi's Enthralling Past: Why Learn It?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/farsis-evolutionary-tale-and-mastery-payoffs/"><u>Farsi's Evolutionary Tale and Mastery Payoffs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fast-norsk-fluency-daily-ten-minute-boosts/"><u>Fast Norsk Fluency - Daily Ten-Minute Boosts!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-fluency-boost-key-sentences-for-your-francophone-voyage/"><u>French Fluency Boost: Key Sentences for Your Francophone Voyage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/genom-att-svida-swedens-visa/"><u>Genom Att Svida: Sweden's Visa</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-apple-iphone-7-plus-passcode-screen-by-drfone-ios/"><u>How to Unlock Apple iPhone 7 Plus Passcode Screen?</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-premier-index-of-digital-imagery-collections/"><u>In 2024, Premier Index of Digital Imagery Collections</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-the-ultimate-guide-to-vsdc-video-editor-alternatives-on-mac-for-2024/"><u>New The Ultimate Guide to VSDC Video Editor Alternatives on Mac for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/top-5-tecno-pova-6-pro-5g-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Tecno Pova 6 Pro 5G Bypass FRP Tools for PC That Actually Work</u></a></li>
 </ul></div>
 

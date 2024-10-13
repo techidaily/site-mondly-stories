@@ -1,7 +1,7 @@
 ---
 title: "Tech Talk: The 21St Century's Linguistic Playbook"
-date: 2024-10-01T02:40:01.773Z
-updated: 2024-10-07T02:41:49.589Z
+date: 2024-10-08T22:57:37.678Z
+updated: 2024-10-12T16:22:00.472Z
 tags:
   - speak
   - english
@@ -40,6 +40,13 @@ thumbnail: https://thmb.techidaily.com/70cafb81e97d380bf1f55403cf595cebfeb242757
 
  But this is just the beginning because technology and all its advances are there to prepare you for such interactions. Technology will always empower you to learn faster than ever before and become a better version of yourself.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Language learning in the (near) future**
 
  It is difficult to predict the future; except maybe when it comes to language learning. Technology does not have a brake. A quick search online brings up more and more devices with innovative features for language learning. For example, there are mobile apps especially created to help kids learn languages on both [iOS](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-502&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-502%26utm%5Fsource%3Dblog-post-id-502&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-502%26utm%5Fsource%3Dblog-post-id-502&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-502%26utm%5Fsource%3Dblog-post-id-502&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-502%26mt%3D8) and [Android](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-502&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-502%26utm%5Fsource%3Dblog-post-id-502&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-502%26utm%5Fsource%3Dblog-post-id-502&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-502%26utm%5Fsource%3Dblog-post-id-502&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-502%26mt%3D8) .
@@ -49,13 +56,6 @@ thumbnail: https://thmb.techidaily.com/70cafb81e97d380bf1f55403cf595cebfeb242757
  In that respect, the most exciting tech in learning languages is VR (Virtual Reality). The first [Virtual Reality app for language learning](https://www.oculus.com/experiences/gear-vr/1272636489423125/)  using speech recognition is Mondly. When you start learning, you engage in virtual conversations and actively participate in lessons, with characters that guide you through the learning process. Not only that, but you also receive feedback in terms of your progress, pronunciation, vocabulary suggestions. It is an unforgettable experience that is both fun, and accessible since you can easily do it from the comfort of your home.
 
 ![Language learning with Mondly VR, nominated for Best Education Startup of 2017 at The Europas](https://edge.mondly.com/blog/wp-content/uploads/2017/05/Mondly-VR-Learn-languages-free-online-Feature-Graphic.png "The Best Way To Learn A Foreign Language In The 21St Century 3")
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  The movie Matrix opened the gates to a world where you just plug your brain into a computer and immediately acquire a new language or skill. Elon Musk is one of the most-talked-about names in tech nowadays! What does he have in common with learning languages? Well, he’s developing devices that can be implanted into the human brain, and their end purpose would be to help humans “ [merge with software and keep pace with advancements in artificial intelligence](https://www.theverge.com/2017/3/27/15077864/elon-musk-neuralink-brain-computer-interface-ai-cyborgs)  ”. This could open doors for developers to bring lessons straight into your brain! Take a second to let that sink in – at the click of a button, a language would be merged with your brain! (Matrix, anyone?)
 
@@ -68,10 +68,10 @@ thumbnail: https://thmb.techidaily.com/70cafb81e97d380bf1f55403cf595cebfeb242757
  Easier said than done in modern times, but making time for your passions can bring a series of benefits that will change your overall mood and wellbeing. A few sessions of learning a week will help you improve your skills, especially if you choose speaking and pronunciation exercises. The best way to learn a language at home is to sit in front of your computer or phone for at least half an hour each day and practice.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Trust repetition
@@ -81,35 +81,47 @@ thumbnail: https://thmb.techidaily.com/70cafb81e97d380bf1f55403cf595cebfeb242757
 ![young people socializing](https://edge.mondly.com/blog/wp-content/uploads/2017/05/young-people-socializing-960x640.jpg "The Best Way To Learn A Foreign Language In The 21St Century 4")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1793213">
+					<video width="864" height="1296" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Socializing is crucial.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Socialize
 
  One of the best ways to learn something new is to expose yourself through practice. When learning a new language, developing the speaking skills is crucial, so try to socialize with people who speak the language at a proficiency level.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
-  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. Allow yourself to make mistakes
 
  When children learn, everybody encourages them to make mistakes and find the right path. As adults, we start feeling embarrassed, we become frustrated and give up. Allow yourself to make mistakes, ask to be corrected, and accept that learning takes time.
+
+<!-- affiliate ads begin -->
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5\. Be consistent
 
@@ -123,13 +135,6 @@ thumbnail: https://thmb.techidaily.com/70cafb81e97d380bf1f55403cf595cebfeb242757
 
  Learning needs to be fun and entertaining, otherwise you might lose interest in it. To avoid that, look at the process from a rather childish perspective and make all your lessons fun.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 8\. Always start with the basics
 
 You might be interested in [learning a new language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  , but before you start seriously studying it, learn the basics. From greetings, how to introduce yourself, fun words and expressions, these can give you a glimpse into what the language actually sounds like and how hard it will be to learn it.
@@ -139,6 +144,13 @@ You might be interested in [learning a new language](https://shop.mondly.com/aff
  Learn anytime, anywhere.
 
 [Start with Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  and discover how you can learn a language fluently with little effort.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 9\. Choose books you already read
 
@@ -180,21 +192,20 @@ You might be interested in [learning a new language](https://shop.mondly.com/aff
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-expand-your-gameplay-leading-xbox-drives-reviewed-for-2024/"><u>[New] Expand Your Gameplay Leading Xbox Drives Reviewed for 2024</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/new-seamless-transition-transferring-exclusive-youtube-content-to-gmail/"><u>[New] Seamless Transition Transferring Exclusive YouTube Content to Gmail</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-the-roadmap-to-identifying-niche-luminaries-on-instagram-for-2024/"><u>[New] The Roadmap to Identifying Niche Luminaries on Instagram for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/boosting-sound-levels-in-windows-11-a-step-by-step-guide/"><u>Boosting Sound Levels in Windows 11: A Step-by-Step Guide</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/craft-an-unique-chrome-dino-challenge-using-the-power-of-gendino/"><u>Craft an Unique Chrome Dino Challenge Using the Power of GenDino</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/first-steps-in-mastering-german-linguistics/"><u>First Steps in Mastering German Linguistics</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-a-lost-realme-10t-5g-for-free-drfone-by-drfone-virtual-android/"><u>How to Track a Lost Realme 10T 5G for Free? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/initiate-your-solo-journey-learning-french-online/"><u>Initiate Your Solo Journey: Learning French Online</u></a></li>
-<li><a href="https://extra-support.techidaily.com/leaders-of-the-digital-age-videoaudio-innovators-index-for-2024/"><u>Leaders of the Digital Age Video/Audio Innovators Index for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/parents-picks-mondly-kids-secure-spot-on-google-play-bestseller/"><u>Parents' Picks: Mondly Kids Secure Spot on Google Play Bestseller</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/quick-glance-guide-to-japanese-counting-system/"><u>Quick Glance Guide to Japanese Counting System</u></a></li>
-<li><a href="https://techtrends.techidaily.com/smartwatch-showdown-navigating-features-and-performance-of-the-apple-watch-ultra-vs-series-n/"><u>Smartwatch Showdown: Navigating Features and Performance of the Apple Watch Ultra Vs. Series N</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-the-secrets-of-the-turkish-script-with-ease-and-speed/"><u>Unlocking the Secrets of the Turkish Script with Ease and Speed</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/venturing-to-israel-top-9-essentials-and-phrasebook-basics/"><u>Venturing to Israel: Top 9 Essentials and Phrasebook Basics</u></a></li>
-<li><a href="https://ai-editing-video.techidaily.com/vsco-slow-motion/"><u>VSCO Slow Motion</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/worldwide-education-dialogue-a-unifying-endeavor/"><u>Worldwide Education Dialogue: A Unifying Endeavor</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-plunge-into-the-magic-9-premium-full-length-christmas-movies-for-free/"><u>[New] In 2024, Plunge Into the Magic 9 Premium Full-Length Christmas Movies for Free</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-mastering-iphone-video-merging-techniques/"><u>[Updated] 2024 Approved Mastering iPhone Video Merging Techniques</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-the-systematic-search-for-concealed-youtube-repositories/"><u>[Updated] In 2024, The Systematic Search for Concealed YouTube Repositories</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-mastering-podcast-cover-art-top-decoding-strategies/"><u>[Updated] Mastering Podcast Cover Art Top Decoding Strategies</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-ultimate-guide-to-streamlined-ocean-video-capture/"><u>[Updated] The Ultimate Guide to Streamlined Ocean Video Capture</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/break-down-the-pros-and-cons-of-travel-insurance-offering-a-perspective-tailored-for-budget-travelers/"><u>Break Down the Pros and Cons of Travel Insurance, Offering a Perspective Tailored for Budget Travelers.</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/easy-steps-to-fresh-driver-installation-on-acer-nitro-5-laptops/"><u>Easy Steps to Fresh Driver Installation on Acer Nitro 5 Laptops</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-multiple-tongues-with-black-fridays-ultimate-sale/"><u>Master Multiple Tongues with Black Friday's Ultimate Sale</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/mejores-tecnicas-para-reducir-el-tamano-de-los-videos-con-clipchamp/"><u>Mejores Técnicas Para Reducir El Tamaño De Los Videos Con Clipchamp</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pc-gaming-troubles-why-is-my-rec-room-mic-not-working-fixes-and-tips-latest-guide/"><u>PC Gaming Troubles: Why Is My Rec Room Mic Not Working? Fixes & Tips (Latest Guide)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/say-gday-like-a-true-blue-aussie/"><u>Say 'G'day!' Like a True Blue Aussie</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-evolution-of-my-language-mastery-with-mondly-the-10-key-factors/"><u>The Evolution of My Language Mastery with Mondly - The 10 Key Factors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-rated-online-strategies-to-learn-and-excel-in-new-languages/"><u>Top-Rated Online Strategies to Learn and Excel in New Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-japans-language-of-respect-and-friendship/"><u>Unlocking Japan's Language of Respect & Friendship</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/zestfully-mastering-latin-through-games/"><u>Zestfully Mastering Latin Through Games</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Inaugural App Fusing Voice & Augmented Reality
-date: 2024-10-03T20:50:30.084Z
-updated: 2024-10-07T07:24:15.612Z
+date: 2024-10-08T22:33:27.459Z
+updated: 2024-10-12T16:34:42.563Z
 tags:
   - speak
   - english
@@ -43,10 +43,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 > _We started working on Mondly AR in August 2017 and by the time [Blade Runner 2049](http://www.imdb.com/title/tt1856101/) was released, we already had a working demo. Watching Blade Runner 2049 made me realize that we were beginning to build the future. To me, Joi (the holographic companion of officer K) looked like a super advanced version of Mondly – the character we were creating. They can both understand speech, reply with a human voice and change outfits. Of course, Mondly is not as smart and realistic as Joi. Yet. But she can teach you 7 languages. And this is just the beginning._
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Here’s what you should know about Mondly AR
@@ -65,10 +65,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facts and figures about Mondly
@@ -85,10 +85,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 * [Mondly Press Kit](https://www.dropbox.com/sh/vo4j5214zvwdxy5/AAC20VxIgpuiEe7ED2%5F37VNEa?dl=0)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Media mentions about Mondly
@@ -120,20 +120,19 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-essential-illumination-products-for-video-creators/"><u>[New] 2024 Approved Essential Illumination Products for Video Creators</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-the-overlooked-elements-of-success-with-instagram-reels/"><u>[New] 2024 Approved The Overlooked Elements of Success with Instagram Reels</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-revolutionize-your-webcam-experience-now/"><u>[New] In 2024, Revolutionize Your Webcam Experience Now</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/comment-deverrouiller-le-drm-de-les-fichiers-adobe-une-aide-pour-la-suppression-du-drm-des-pdf-and-epub/"><u>Comment Déverrouiller Le DRM De Les Fichiers Adobe: Une Aide Pour La Suppression Du DRM Des PDF & ePub</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/educational-advancement-powered-by-mondlys-apple-initiative/"><u>Educational Advancement Powered by Mondly’s Apple Initiative</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exploring-aussie-vernacular-sayings-and-more/"><u>Exploring Aussie Vernacular, Sayings & More</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/from-beats-to-broadcast-a-compreesive-guide-to-editing-your-podcast/"><u>From Beats to Broadcast A Compreesive Guide to Editing Your Podcast</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/get-chatty-with-these-17-streetwise-spanish-terms/"><u>Get Chatty with These 17 Streetwise Spanish Terms</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-unlink-apple-id-from-apple-iphone-11-pro-max-by-drfone-ios/"><u>In 2024, How To Unlink Apple ID From Apple iPhone 11 Pro Max</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-samsung-galaxy-f34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Samsung Galaxy F34 5G | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/israeli-peoples-chosen-dialect/"><u>Israeli People’s Chosen Dialect?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-now-supported-by-huawei/"><u>Mondly Now Supported by Huawei</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/professional-4k-at-your-fingertips-benq-bl2711u-uncovered/"><u>Professional 4K at Your Fingertips BenQ BL2711U Uncovered</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/spearhead-sales-the-power-of-polished-professional-prose/"><u>Spearhead Sales: The Power of Polished Professional Prose</u></a></li>
-<li><a href="https://blog-min.techidaily.com/transformar-videos-wmv-em-formatos-compativeis-livremente-online-pelo-movavi-solucao-inovadora-sem-custo/"><u>Transformar Vídeos WMV Em Formatos Compatíveis Livremente Online Pelo Movavi – Solução Inovadora Sem Custo</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unparalleled-camera-tech-s-filmmaking/"><u>[Updated] Unparalleled Camera Tech 'S Filmmaking</u></a></li>
+<li><a href="https://program-issues.techidaily.com/diagnose-and-fix-blue-screen-problems-a-step-by-step-guide-for-helldivers-2-users/"><u>Diagnose and Fix Blue Screen Problems: A Step-by-Step Guide for HellDivers 2 Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hands-on-latin-adventures-for-learners/"><u>Hands-On Latin Adventures for Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/highest-priority-foreign-languages-for-us-learners/"><u>Highest Priority Foreign Languages for U.S. Learners</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-stop-google-chrome-from-tracking-your-location-on-nokia-c110-drfone-by-drfone-virtual-android/"><u>How to Stop Google Chrome from Tracking Your Location On Nokia C110? | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-jokesinframe-instant-memes-and-more/"><u>In 2024, JokesInFrame Instant Memes & More</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-process-of-screen-sharing-infinix-smart-8-to-pc-detailed-steps-drfone-by-drfone-android/"><u>In 2024, Process of Screen Sharing Infinix Smart 8 to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-scouting-talent-top-5-video-artists-who-create-with-rhythm-and-beat/"><u>In 2024, Scouting Talent Top 5 Video Artists Who Create With Rhythm & Beat</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lexical-fusions-the-role-of-international-influence/"><u>Lexical Fusions: The Role of International Influence</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-easy-speak-quick-ultimate-easy-language-list/"><u>Speak Easy, Speak Quick: Ultimate Easy Language List</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/viking-verbal-vestiges-linguistic-traces-of-raiders/"><u>Viking Verbal Vestiges: Linguistic Traces of Raiders</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-honor-magic-6-lite-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Honor Magic 6 Lite? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-master-a-world-language-like-english/"><u>Why Master a World Language Like English?</u></a></li>
+<li><a href="https://discover-help.techidaily.com/wie-sie-onedrive-nahtlos-integrieren-konnen-eine-praktische-anleitung-fur-windows-serveradministratoren/"><u>Wie Sie OneDrive Nahtlos Integrieren Können: Eine Praktische Anleitung Für Windows Serveradministratoren</u></a></li>
 </ul></div>
 

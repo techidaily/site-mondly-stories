@@ -1,7 +1,7 @@
 ---
 title: "Pioneering Filtration: The Mondly-Pearson Collaboration"
-date: 2024-08-27T23:00:52.919Z
-updated: 2024-08-28T23:00:52.919Z
+date: 2024-10-05T23:22:44.003Z
+updated: 2024-10-12T19:52:37.439Z
 tags:
   - speak
   - english
@@ -39,6 +39,13 @@ thumbnail: https://thmb.techidaily.com/3299531766a0d348d78dd04349d2683155a00d71b
 
  At Pearson, our purpose is simple: to add life to a lifetime of learning. We believe that every learning opportunity is a chance for a personal breakthrough. That’s why our c.20,000 Pearson employees are committed to creating vibrant and enriching learning experiences designed for real-life impact. We are the world’s leading learning company, serving customers in more than 200 countries with digital content, assessments, qualifications, and data. For us, learning isn’t just what we do. It’s who we are. Visit us at pearsonplc.com
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **About Mondly**
 
  Mondly is a leading language learning platform that has been named “Regional App of the Year” by Facebook, “App of the Day” by Apple, and “Editors’ Choice” by Google Play. Launched in 2014, it quickly became a leading app in the mobile space. According to Statista, Mondly is currently in the Top 5 language learning apps worldwide by number of downloads.
@@ -51,8 +58,6 @@ thumbnail: https://thmb.techidaily.com/3299531766a0d348d78dd04349d2683155a00d71b
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -60,8 +65,23 @@ thumbnail: https://thmb.techidaily.com/3299531766a0d348d78dd04349d2683155a00d71b
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-step-by-step-adding-custom-images-to-youtube-videos/"><u>[Updated] Step-by-Step Adding Custom Images to YouTube Videos</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-pivotal-moments-top-20-anime-themes/"><u>2024 Approved Pivotal Moments Top 20 Anime Themes</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-video-freedom-top-8-tools-transforming-youtube-into-avis/"><u>2024 Approved Video Freedom Top 8 Tools Transforming YouTube Into Avis</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-best-tools-to-hard-reset-samsung-galaxy-m34-drfone-by-drfone-reset-android-reset-android/"><u>3 Best Tools to Hard Reset Samsung Galaxy M34 | Dr.fone</u></a></li>
+<li><a href="https://discover-data.techidaily.com/3-effective-strategies-for-creating-a-hp-lenovo-or-dell-windows-11-laptop-backup/"><u>3 Effective Strategies for Creating a HP, Lenovo or Dell Windows 11 Laptop Backup</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/a-quick-guide-to-google-pixel-7a-frp-bypass-instantly-by-drfone-android/"><u>A Quick Guide to Google Pixel 7a FRP Bypass Instantly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apples-spotlight-shines-on-mondly-as-10-in-education-tech/"><u>Apple's Spotlight Shines on Mondly as #10 in Education Tech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beginners-bridge-into-the-arab-world/"><u>Beginner's Bridge Into the Arab World</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bengali-begins-here-daily-tiny-sessions/"><u>Bengali Begins Here: Daily Tiny Sessions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breaking-language-barriers-mastering-the-hardest-languages/"><u>Breaking Language Barriers: Mastering the Hardest Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-a-new-tongue-in-minutes-start-with-slovak-today/"><u>Conquer a New Tongue in Minutes - Start with Slovak Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cross-atlantic-language-contrasts/"><u>Cross-Atlantic Language Contrasts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-connection-started-with-these-italian-greets/"><u>Cultural Connection Started with These Italian Greets</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-motorola-razr-40-ultra-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Motorola Razr 40 Ultra Phones with/without a PC</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/perfect-your-snapchat-boomerangs-quickly-for-2024/"><u>Perfect Your Snapchat Boomerangs Quickly for 2024</u></a></li>
+<li><a href="https://media-tips.techidaily.com/understanding-audio-formats-a-detailed-look-at-flac-versus-wav/"><u>Understanding Audio Formats: A Detailed Look at FLAC versus WAV</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

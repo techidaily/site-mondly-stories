@@ -1,7 +1,7 @@
 ---
 title: "Saudações Em Português: Todas as Avispasidades Da Bênção"
-date: 2024-10-03T19:28:36.144Z
-updated: 2024-10-07T03:47:17.624Z
+date: 2024-10-08T00:21:34.709Z
+updated: 2024-10-12T16:09:31.476Z
 tags:
   - speak
   - english
@@ -25,10 +25,10 @@ thumbnail: https://thmb.techidaily.com/85ea88a283ba15f13d63e8eaf5823127ecc1dabd5
  “Hello” is a [powerful word](https://www.merriam-webster.com/words-at-play/the-origin-of-hello) . It opens doors. It makes people smile. And said the right way and at the right time, “hello” can impact someone’s day and you wouldn’t even know it. So here are the right ways to say “hello” in Portuguese and open doors everywhere you go.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### “Hello” in Portuguese – Olá
@@ -36,13 +36,6 @@ thumbnail: https://thmb.techidaily.com/85ea88a283ba15f13d63e8eaf5823127ecc1dabd5
 _Olá_ is the best choice for most social situations regardless of the person you are addressing. It’s somehow formal, but also friendly.
 
  Be careful with your Portuguese pronunciation though! A lot of people accidentally mistake Portuguese for Spanish. You don’t want to do that. Just say “OH-lah” and everybody from Brazil to Mozambique will understand that you are saying “hello” in Portuguese.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### “Hi” in Portuguese – Oi
 
@@ -67,16 +60,16 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 * **_Quanto tempo!_ – Long time no see!** – Used the same as in English.
 * **_Como foi o seu dia?_ – How’s your day?** – Used the same as in English.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. “Bom dia!” and other Portuguese greetings for certain moments of the day
 
 ![good morning in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/good-morning-in-portuguese-1024x642.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 3")
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  “Rio de Janeiro, Brazil” by Raphael Nogueira©
 
@@ -87,6 +80,13 @@ _Olá_ is the best choice for most social situations regardless of the person yo
  **Good night in Portuguese –_Boa noite!_**  – The Portuguese language does not make any difference between evening and night. Thus, “goodnight” and “good evening” have the same translation in Portuguese. While in Brazil you will say “boa NOEE-tsh”, in Portugal you will say “boa NOEE-t”.
 
  All three of these are safe to use in any kind of interaction (formal or informal).
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3.“Goodbye” in Portuguese – Adeus
 
@@ -105,10 +105,10 @@ _Olá_ is the best choice for most social situations regardless of the person yo
  “Ruínas da Fortaleza de Arrifana, Aljezur, Portugal” by Ferhat Deniz Fors©
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Bonus: other basic Portuguese phrases that you should know
@@ -173,24 +173,14 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-unveiling-the-mystery-of-facebooks-status-video-downloads/"><u>[New] 2024 Approved Unveiling the Mystery of Facebook's Status Video Downloads</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-comprehensive-insights-mastering-lenovo-screenshot-techniques/"><u>[Updated] Comprehensive Insights Mastering Lenovo Screenshot Techniques</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-laugh-ledger-the-ultimate-list-of-hilarious-tweets-for-2024/"><u>[Updated] Laugh Ledger The Ultimate List of Hilarious Tweets for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-take-control-with-kinemaster-a-compreayer-guide-to-android-gameplay/"><u>[Updated] Take Control with KineMaster A Compreayer Guide to Android Gameplay</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-capturing-lifes-moments-with-the-virb-ultra-30-an-in-depth-guide/"><u>2024 Approved Capturing Life's Moments with the VIRB Ultra 30 – An In-Depth Guide</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-full-insight-demystifying-dji-inspire-2/"><u>2024 Approved Full Insight Demystifying DJI Inspire 2</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/achieve-cross-cultural-success-through-learning/"><u>Achieve Cross-Cultural Success Through Learning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/apples-global-hit-in-24-hours/"><u>Apple's Global Hit in 24 Hours</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/comprehensive-review-tandcs-amendments/"><u>Comprehensive Review: T&Cs Amendments</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>In 2024, Additional Tips About Sinnoh Stone For Apple iPhone SE (2022) | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-stand-out-with-visual-flair-bordered-video-tutorials/"><u>In 2024, Stand Out with Visual Flair Bordered Video Tutorials</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-kids-app-named-one-of-google-plays-best-apps-of-2017/"><u>Mondly Kids App Named One Of Google Play's Best Apps Of 2017</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/perfecting-pronunciation-and-typography-of-spanish-accents/"><u>Perfecting Pronunciation and Typography of Spanish Accents</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/tage-der-woche-in-deutsch-eine-anleitung/"><u>Tage Der Woche in Deutsch: Eine Anleitung</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-complete-set-of-hablantes-de-espanol/"><u>The Complete Set of Hablantes De Español</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/tick-tock-learn-slovak-fast-10-minute-daily-sessions/"><u>Tick Tock! Learn Slovak Fast: 10-Minute Daily Sessions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/turko-korean-linguistic-bridge-examination/"><u>Turko-Korean Linguistic Bridge Examination</u></a></li>
-<li><a href="https://win-able.techidaily.com/1723006103380-ultimate-solutions-for-battlefront-ii-pc-version-crashes-get-back-to-gaming-now/"><u>Ultimate Solutions for Battlefront II PC Version Crashes – Get Back to Gaming Now!</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/1726221227513-flv-mp3-movavi/"><u>오픈소스 자리에서 무용과 같은 비용의 FLV를 MP3로 변환하는 방법 - Movavi</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-enhance-your-livestream-going-beyond-obs/"><u>[New] Enhance Your Livestream Going Beyond OBS</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-figures-unveiled-exploring-youtubes-curious-numbers-2017/"><u>[Updated] Figures Unveiled! Exploring YouTube's Curious Numbers (2017)</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-hues-in-harmony-the-process-of-film-coloring/"><u>2024 Approved Hues in Harmony The Process of Film Coloring</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/excellence-in-app-design-mondly-family-edition/"><u>Excellence in App Design - Mondly Family Edition</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/explore-the-latest-in-picsart-a-comprehensive-guide-and-review/"><u>Explore the Latest in PicsArt - A Comprehensive Guide and Review</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fluently-french-your-key-vocabulary-list-for-exploring-france/"><u>Fluently French: Your Key Vocabulary List for Exploring France</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-fan-to-fluent-speaker-learn-korean-play-squid-game/"><u>From Fan to Fluent Speaker: Learn Korean, Play Squid Game</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gallant-glossary-the-eloquence-in-spanish-flirting/"><u>Gallant Glossary: The Eloquence in Spanish Flirting</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-android-unlock-code-sim-unlock-your-oppo-find-n3-phone-and-remove-locked-screen-by-drfone-android/"><u>In 2024, Android Unlock Code Sim Unlock Your Oppo Find N3 Phone and Remove Locked Screen</u></a></li>
 </ul></div>
 
