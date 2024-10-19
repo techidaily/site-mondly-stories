@@ -1,7 +1,7 @@
 ---
 title: "Svenskarens Geni: Allt I Görelse"
-date: 2024-10-09T21:47:50.587Z
-updated: 2024-10-12T21:03:35.288Z
+date: 2024-10-16T21:40:17.103Z
+updated: 2024-10-18T18:24:24.282Z
 tags:
   - speak
   - english
@@ -34,32 +34,26 @@ thumbnail: https://thmb.techidaily.com/84d0bc5cbf75aff634c938ea8def6c75418d8f074
 
  Even if you’re just visiting, you might have to answer the phone at the hotel or when you’re expecting a call from the embassy, for example. The easiest way to do this is to say “Hello” followed by introducing yourself. This sounds something like : **“** **Hallå! Det här är \[your name\].”**  This will not only impress the person on the other end, but they might mistake you for a local. That would be a good thing, but you need to let them know you don’t speak Swedish fluently before they start talking faster.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to say “Good Morning!” in Swedish
 
  At the restaurant, cafés, or when you enter a building, saying “Good Morning!” is a sign of respect and will help you establish a connection with those around you. The Swedish equivalent of the morning greeting is **“God morgon!”**  . It’s important to use all the common greetings, even as a foreigner because you will most likely make a good impression.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to say “Good evening!” in Swedish
 
 **“God kväll!”** is a rather formal greeting in [Swedish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  , but you might hear this in theaters, or when the evening news show starts. Usually, this greeting is not used between family and friends. “Kväll” is pronounced _kvell_ and the “g” can be silent.
 
 <!-- affiliate ads begin -->
-<span id="1983475">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to say “Goodnight!” in Swedish
@@ -67,10 +61,10 @@ thumbnail: https://thmb.techidaily.com/84d0bc5cbf75aff634c938ea8def6c75418d8f074
  After getting acquainted with Swedes, you will most likely enjoy late night talks and drinks, so a proper Goodnight is needed to end the day properly. **“Godnatt!”** , often pronounced _goo-natt_  is the way to wish locals a good night’s rest and let them know you can’t wait to hang out again soon.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to say “What’s up?” in Swedish
@@ -78,16 +72,10 @@ thumbnail: https://thmb.techidaily.com/84d0bc5cbf75aff634c938ea8def6c75418d8f074
  What better way to find out more about your Swedish friends’ day or how they’re feeling than asking “what’s up?”? **“Hur är det?”** or **“hur går det?”**  are what is used to ask “how is it?” and “how is it going?”. They are both informal ways of getting a conversation started and can be used when talking on the phone as well, just after you introduce yourself.
 
 <!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to say “Goodbye!” in Swedish
@@ -118,20 +106,21 @@ thumbnail: https://thmb.techidaily.com/84d0bc5cbf75aff634c938ea8def6c75418d8f074
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/reaking-into-youtubes-top-100-with-effective-seo-for-2024/"><u>[New] Breaking Into YouTube's Top 100 With Effective SEO for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-historical-context-of-instagram-stories-not-widely-known/"><u>[Updated] Historical Context of Instagram Stories Not Widely Known</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/batch-closing-tips-end-all-windows-tasks-simultaneously/"><u>Batch Closing Tips: End All Windows Tasks Simultaneously</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/coalescing-iphone-media-with-ease/"><u>Coalescing iPhone Media with Ease</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enhancing-your-english-mondly-unveiled-strategies/"><u>Enhancing Your English: Mondly Unveiled Strategies</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exploring-pronunciation-fundamentals-in-german/"><u>Exploring Pronunciation Fundamentals in German</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fiery-flirtations-iconic-french-cinema/"><u>Fiery Flirtations: Iconic French Cinema</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fluency-in-a-flash-top-17-quick-pick-spanish-phrases/"><u>Fluency in a Flash: Top 17 Quick-Pick Spanish Phrases</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-zero-to-ten-in-russian-counting/"><u>From Zero to Ten in Russian Counting</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/geographic-span-of-romance-languages/"><u>Geographic Span of Romance Languages</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-easiest-guide-how-to-clone-nokia-c12-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Easiest Guide How to Clone Nokia C12 Phone? | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-unlock-your-disabled-apple-iphone-xr-without-itunes-in-5-ways-by-drfone-ios/"><u>In 2024, Unlock Your Disabled Apple iPhone XR Without iTunes in 5 Ways</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/master-the-art-of-livestreaming-three-key-approaches-subscriber-less-style/"><u>Master the Art of Livestreaming Three Key Approaches, Subscriber-Less Style</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/overcoming-windows-11s-zerox-error-at-keyboard-input/"><u>Overcoming Windows 11'S Zerox Error at Keyboard Input</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/top-10-tactics-to-fortify-privacy-on-your-windows/"><u>Top 10 Tactics to Fortify Privacy on Your Windows</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-unraveling-iphones-audio-mystery-ringtone-adjustments/"><u>[New] 2024 Approved Unraveling iPhone's Audio Mystery Ringtone Adjustments</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/break-language-limitations-oculus-quest-adds-multilingual-capabilities/"><u>Break Language Limitations: Oculus Quest Adds Multilingual Capabilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/fortify-your-online-presence-from-facebook-spying/"><u>Fortify Your Online Presence From Facebook Spying</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/galactic-lexicon-a-journey-through-star-wars-unique-languages/"><u>Galactic Lexicon: A Journey Through Star Wars' Unique Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-language-tips-birthday-compliments/"><u>Global Language Tips: Birthday Compliments</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-welcoming-practices-manual/"><u>Global Welcoming Practices Manual</u></a></li>
+<li><a href="https://common-error.techidaily.com/1723208042311-how-to-restore-mic-functionality-on-your-steelseries-arctis-5-headset-easy-fix-tips-for-gamers/"><u>How to Restore Mic Functionality on Your SteelSeries Arctis 5 Headset - Easy Fix Tips for Gamers.</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-edit-and-send-fake-location-on-telegram-for-your-samsung-galaxy-s21-fe-5g-2023-in-3-ways-drfone-by-drfone-virtual-android/"><u>In 2024, Edit and Send Fake Location on Telegram For your Samsung Galaxy S21 FE 5G (2023) in 3 Ways | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-vlog-with-verve-following-in-the-footsteps-of-video-experts/"><u>In 2024, Vlog with Verve Following in the Footsteps of Video Experts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/korean-alphabet-made-simple-a-learners-guide-to-hangul/"><u>Korean Alphabet Made Simple: A Learner's Guide to Hangul</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/mastering-the-art-of-sticky-notes-display-on-win-11/"><u>Mastering the Art of Sticky Notes Display on Win 11</u></a></li>
+<li><a href="https://games-able.techidaily.com/prime-240hz-vision-for-enhanced-gaming/"><u>Prime 240Hz Vision for Enhanced Gaming</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/romance-languages-a-cultural-overview/"><u>Romance Languages: A Cultural Overview</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sveriges-geni-inbordes-visa/"><u>Sveriges Geni: Inbördes Visa</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-realme-c67-5g-device-by-drfone-android/"><u>The Ultimate Guide How to Bypass Swipe Screen to Unlock on Realme C67 5G Device</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/vloggers-verdict-which-gadget-wins-gopro-and-garmin-for-2024/"><u>Vloggers' Verdict Which Gadget Wins? GoPro & Garmin for 2024</u></a></li>
 </ul></div>
 

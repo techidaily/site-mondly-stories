@@ -1,7 +1,7 @@
 ---
 title: "Neues Leben in Der Zahlsprache: Von Eins Bis Hundert"
-date: 2024-08-23T00:34:51.582Z
-updated: 2024-08-24T00:34:51.582Z
+date: 2024-10-15T16:21:31.849Z
+updated: 2024-10-18T17:59:05.369Z
 tags:
   - speak
   - english
@@ -58,8 +58,12 @@ thumbnail: https://thmb.techidaily.com/9681e2a52e53572a5b2a969e09d45c7b049caa711
 * **twenty —_zwanzig_**
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## German multiples of 10
 
  The next step in learning how to count in German is mastering the tens or the multiples of 10\. Once you know these, you be able to apply the pattern and easily count to 100 on your own. It’s as easy as_eins, zwei, drei!_
@@ -82,11 +86,19 @@ Here are the multiples of 10 in German:
 ![count in german](https://edge.mondly.com/blog/wp-content/uploads/2022/08/count-in-german.png "German Numbers: Learn How To Count From 1 To 100 In German 2")
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to count from 1 to 100 in German
 
  Now that you have all the data (the numbers from 1 to 20 and multiples of 10), it’s time to explain how all the other numbers are formed. If you already know how to count in other languages, German numbers will be a piece of cake for you!
@@ -116,8 +128,12 @@ Now let’s look at some examples to make sure you got it:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### From 0 to 100 and beyond in German
 
  Do you want to go beyond numbers and [speak German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) fluently? Try Mondly, the award-winning language app that is serious about making learning German fun.
@@ -140,8 +156,6 @@ Now let’s look at some examples to make sure you got it:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -149,4 +163,26 @@ Now let’s look at some examples to make sure you got it:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-endless-creativity-free-youtube-art-resources/"><u>[Updated] 2024 Approved Endless Creativity FREE YouTube Art Resources</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-zooming-up-elevate-your-visuals-on-snapchat/"><u>[Updated] 2024 Approved Zooming Up Elevate Your Visuals on Snapchat</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-acquiring-igtv-media-the-comprehensive-guidebook/"><u>[Updated] Acquiring IGTV Media The Comprehensive Guidebook</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-elevate-your-online-engagements-the-ultimate-guide-to-slack-and-filmora/"><u>[Updated] Elevate Your Online Engagements The Ultimate Guide to Slack & Filmora</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-flavorful-faves-top-online-chefs-and-culinary-stars/"><u>[Updated] In 2024, Flavorful Faves Top Online Chefs & Culinary Stars</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-the-invisible-dimensions-of-instagram-story-fans/"><u>[Updated] In 2024, The Invisible Dimensions of Instagram Story Fans</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/boost-ig-content-three-steps-for-compelling-video-descriptions/"><u>Boost IG Content - Three Steps for Compelling Video Descriptions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/danish-film-selection-enhancing-linguistic-competence/"><u>Danish Film Selection: Enhancing Linguistic Competence</u></a></li>
+<li><a href="https://win-bits.techidaily.com/download-your-favorite-scivee-shows-transform-and-save-videos-in-multiple-formats-with-scivee-downloader/"><u>Download Your Favorite SciVee Shows: Transform and Save Videos in Multiple Formats with SciVee Downloader</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/easy-introduction-to-hangul-asian-script-at-your-fingertips/"><u>Easy Introduction to Hangul: Asian Script at Your Fingertips</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/experience-global-cultures-mondly-vr-revolutionizes-language-studies/"><u>Experience Global Cultures: Mondly VR Revolutionizes Language Studies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-kisses-to-clusters-saying-chocolate-everywhere-you-go/"><u>From Kisses to Clusters: Saying 'Chocolate' Everywhere You Go</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/globetrotting-for-the-largest-word/"><u>Globetrotting for the Largest Word</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-speech-synthesis-simplified-transforming-ssaxml-into-srt-perfection/"><u>In 2024, Speech Synthesis Simplified Transforming SSA/XML Into SRT Perfection</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-oppo-reno-11-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Oppo Reno 11 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/love-in-deutsch-effective-pick-up-lines/"><u>Love in Deutsch: Effective Pick-Up Lines</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-the-mysteries-of-honshus-writing/"><u>Unlocking the Mysteries of Honshū's Writing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/woo-with-wit-curated-collection-of-engaging-phrases/"><u>Woo with Wit: Curated Collection of Engaging Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/eyxes-morfwn-klisma-dyshs/"><u>Ευχές Μόρφων Κλίσμα Δύσης</u></a></li>
+</ul></div>
 

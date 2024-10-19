@@ -1,7 +1,7 @@
 ---
 title: "J-Lexicon: A Beginner's Treatise on Japan's Alphabets"
-date: 2024-10-10T22:52:30.459Z
-updated: 2024-10-12T19:51:49.542Z
+date: 2024-10-15T17:07:17.946Z
+updated: 2024-10-19T00:10:19.134Z
 tags:
   - speak
   - english
@@ -88,6 +88,13 @@ In rōmaji, that’s “Kon’nichiwa, watashi no namae wa Mondly desu.”
 
 ![people in japanese kimono](https://edge.mondly.com/blog/wp-content/uploads/2019/05/people-in-japanese-kimono-960x636.jpg "Unlock The Secrets Of The Japanese Writing System And Alphabet: Your Ultimate Guide 13")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Japanese people wearing kimonos.
 
  To help you understand how kanji works, here’s a practical example: the kanji character**山** means**“mountain”** and it is pronounced_“ya-ma”_ or_“san”._ Good! Now, there is also the word**火山** which means “**fire” + “mountain”.** If you think about it, it shouldn’t be too hard to realize that this means **“volcano”_(ka-zan)_ .**
@@ -106,25 +113,11 @@ In rōmaji, that’s “Kon’nichiwa, watashi no namae wa Mondly desu.”
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Unlock The Secrets Of The Japanese Writing System And Alphabet: Your Ultimate Guide 14")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Learn Japanese fast
 
  Skip the inch-thick textbooks and breeze through your learning with quick Mondly lessons.
 
 [Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-2895&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2895&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2895&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2895&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-2895%26mt%3D8)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Hiragana + Katakana = Kana
 
@@ -137,13 +130,6 @@ In rōmaji, that’s “Kon’nichiwa, watashi no namae wa Mondly desu.”
  The usage difference between hiragana and katakana is stylistic. Usually, **hiragana is used for particles, postpositions, adverbs, auxiliary verbs, function words,** or as a replacement for kanji when there’s a word with no kanji representation or whose kanji is thought to be too difficult for others to understand.
 
 ![hiragana japanese alphabet](https://edge.mondly.com/blog/wp-content/uploads/2019/05/japanese-alphabet-hiragana-960x679.png "Unlock The Secrets Of The Japanese Writing System And Alphabet: Your Ultimate Guide 15")
-
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  The Hiragana Japanese alphabet
 
@@ -158,6 +144,13 @@ In rōmaji, that’s “Kon’nichiwa, watashi no namae wa Mondly desu.”
  The main kana vowels are a, i, u, e and o. In hiragana, you’ll see them written like this: あ, い, う, え and お. In katakana, as I mentioned before, they have a rather angular form: ア, イ, ウ, エ and オ.
 
 ![katakana japanese alphabet](https://edge.mondly.com/blog/wp-content/uploads/2019/05/katakana-japanese-alphabet-1-960x679.png "Unlock The Secrets Of The Japanese Writing System And Alphabet: Your Ultimate Guide 16")
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  The Katakana Japanese alphabet
 
@@ -175,13 +168,6 @@ In rōmaji, that’s “Kon’nichiwa, watashi no namae wa Mondly desu.”
 
  Let’s be honest: Japanese writing is not easy to master. If you want to do it right, it’s essential to keep your focus and avoid the following mistakes. 👇
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Mixing up Hiragana, Katakana, and Kanji
 
  It’s easy to confuse these three scripts when you’re a beginner. Make sure you start by learning their differences and uses. Mixing them up can lead to misunderstandings and errors in your writing.
@@ -189,38 +175,45 @@ In rōmaji, that’s “Kon’nichiwa, watashi no namae wa Mondly desu.”
 If you need a refresher, you can always come back to this article.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Using the wrong stroke order
 
  Each character in Japanese writing has a specific stroke order that you should follow to write it correctly. Using the wrong stroke order can make your writing messy and hard to read.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Misusing particles
 
  Particles are small words that indicate the relationship between words in a sentence in Japanese. Misusing them can change the meaning of the sentence and make it difficult to understand. Some Japanese particle examples are は (wa), が (ga) and を (o/wo).
-
-<!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Using incorrect verb tenses
 
  Japanese has several verb tenses, and using the wrong one can change the meaning of a sentence completely or make it sound unnatural.
 
  Not quite that different from other languages, is it? Verb tenses rule time – quite literally.
+
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Forgetting to use honorific language
 
@@ -249,6 +242,13 @@ If you need a refresher, you can always come back to this article.
 
  And… there you have it! This is your introduction to**the Japanese writing system and the Japanese alphabet.**
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 5 interesting facts about the Japanese alphabet
 
  Although there’s no “Japanese alphabet” per se, we can safely talk about the three writing systems coexisting harmoniously together. As much as you already think you know about the Japanese alphabet, there are a few interesting facts that will catch your eye and even help you understand the language better.
@@ -270,10 +270,10 @@ The Japanese alphabet  has no plurals, which means there is no difference betwee
 ![japanese city](https://edge.mondly.com/blog/wp-content/uploads/2019/05/japanese-city-960x641.jpg "Unlock The Secrets Of The Japanese Writing System And Alphabet: Your Ultimate Guide 18")
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Japanese city center
@@ -281,6 +281,13 @@ The Japanese alphabet  has no plurals, which means there is no difference betwee
 ### 4\. Many sounds can be represented by the same Kanji symbol
 
  The Kanji alphabet is an exception to the rule that each sound is represented by one symbol. Therefore, depending on the context, the Kanji symbols can change their meaning. 月 can mean “moon” or “month” and can be read as_Getsu_ or_Tsuki_ .
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5\. Rōmaji has a direct connection to Christianity
 
@@ -303,13 +310,6 @@ The Japanese alphabet  has no plurals, which means there is no difference betwee
  In addition, there are several modified forms of Hiragana and Katakana characters that are used to represent sounds that do not occur in the Japanese language. This brings the total number of Hiragana and Katakana characters to over 100.
 
  Depending on how you define “alphabet”, the number of letters in the Japanese writing system can be anywhere from 92 to several thousand.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### What does Japanese writing look like?
 
@@ -349,22 +349,18 @@ The Japanese alphabet  has no plurals, which means there is no difference betwee
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-zooming-in-on-podcast-quality-an-ultimate-video-recording-guidebook/"><u>[New] 2024 Approved Zooming In on Podcast Quality An Ultimate Video Recording Guidebook</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-instagram-archive-storing-your-iphone-images-and-videos/"><u>[New] In 2024, Instagram Archive Storing Your iPhone Images and Videos</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-the-earning-equation-on-youtube-daily-average-from-adsense-payouts-per-k-views/"><u>[New] The Earning Equation on YouTube Daily Average From AdSense Payouts Per K Views</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-optimize-your-instagram-media-flow-desktopmobile/"><u>[Updated] 2024 Approved Optimize Your Instagram Media Flow (Desktop/Mobile)</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-discovering-budget-friendly-framed-imagery/"><u>2024 Approved Discovering Budget-Friendly Framed Imagery</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enhanced-learning-experiences-mondlys-augmented-reality-for-tongues/"><u>Enhanced Learning Experiences: Mondly's Augmented Reality for Tongues</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-steps-for-home-based-french-proficiency/"><u>Essential Steps for Home-Based French Proficiency</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expressive-heartbeats-international-loving-terms-on-14th/"><u>Expressive Heartbeats: International Loving Terms on 14Th</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/first-steps-in-francophone-literature-recommended-20-novels/"><u>First Steps in Francophone Literature: Recommended 20 Novels</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/foundations-in-chinese-typography/"><u>Foundations in Chinese Typography</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/french-etiquette-demystified-saying-oui-and-au-revoir-correctly/"><u>French Etiquette Demystified: Saying 'Oui' And 'Au Revoir' Correctly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-novice-to-expert-how-mondly-transformed-my-language-learning-top-10/"><u>From Novice to Expert: How Mondly Transformed My Language Learning (Top 10)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/german-idioms-decoded-top-25-essentials/"><u>German Idioms Decoded: Top 25 Essentials</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-oppo-a56s-5g-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed Guide on Faking Your Location in Mozilla Firefox On Oppo A56s 5G | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-nokia-xr21-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Nokia XR21 to Laptop Without USB | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/livestreamer-plus-advanced-video-sharing-platform-with-virtual-cam-capabilities/"><u>LiveStreamer Plus: Advanced Video Sharing Platform with Virtual Cam Capabilities</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/t-mobiles-metro-unlimited-plan-comprehensive-national-roaming-terms/"><u>T-Mobile's Metro Unlimited Plan - Comprehensive National Roaming Terms</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-extensive-review-gopro-hero4-slr4-black-edition/"><u>[Updated] In 2024, Extensive Review GoPro Hero4 SLR4 Black Edition</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-your-first-step-towards-virtual-connection-facebook-tutorial-for-2024/"><u>[Updated] Your First Step Towards Virtual Connection (Facebook Tutorial) for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-poco-m6-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Poco M6 5G | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/9-quick-fixes-to-unfortunately-touchwiz-has-stopped-of-oneplus-nord-ce-3-lite-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Quick Fixes to Unfortunately TouchWiz has stopped Of OnePlus Nord CE 3 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/buyers-guide-top-5-features-and-aspects-to-assess-for-optimal-health-tracking/"><u>Buyer's Guide: Top 5 Features and Aspects to Assess for Optimal Health Tracking</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultivate-conversation-community-in-virtual-spanish-experience/"><u>Cultivate Conversation, Community in Virtual Spanish Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decade-in-review-mondlybacks-button-evolution/"><u>Decade in Review: MondlyBack's Button Evolution</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/descubriendo-el-mundo-de-los-nombres-de-color/"><u>Descubriendo El Mundo De Los Nombres De Color</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grammatical-rigor-boon-or-bane-for-languages/"><u>Grammatical Rigor: Boon or Bane for Languages?</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-a-vivo-v29-easily-by-drfone-android/"><u>In 2024, How To Unlock a Vivo V29 Easily?</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/mastering-the-craft-of-in-depth-and-impactful-interviews-for-2024/"><u>Mastering the Craft of In-Depth and Impactful Interviews for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/steps-to-repair-disk-errors-in-windows-os/"><u>Steps to Repair Disk Errors in Windows OS</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-poco-x5-pro-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Poco X5 Pro | Dr.fone</u></a></li>
 </ul></div>
 

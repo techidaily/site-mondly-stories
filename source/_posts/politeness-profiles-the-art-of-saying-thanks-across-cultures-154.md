@@ -1,7 +1,7 @@
 ---
 title: "Politeness Profiles: The Art of Saying Thanks Across Cultures (154)"
-date: 2024-10-09T20:48:55.676Z
-updated: 2024-10-12T21:21:51.381Z
+date: 2024-10-11T16:14:47.217Z
+updated: 2024-10-18T22:46:45.255Z
 tags:
   - speak
   - english
@@ -59,10 +59,10 @@ thumbnail: https://thmb.techidaily.com/fae766879cd08ae756a7af9db37ac778f5fbfa89e
  “Thanks” by Hanny Naibaho©
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
-  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The origin of saying “thank you”
@@ -89,16 +89,10 @@ thumbnail: https://thmb.techidaily.com/fae766879cd08ae756a7af9db37ac778f5fbfa89e
 ---
 
 <!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## From 0 to conversational in over 40 languages
@@ -131,20 +125,22 @@ thumbnail: https://thmb.techidaily.com/fae766879cd08ae756a7af9db37ac778f5fbfa89e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-a-step-by-step-guide-to-crafting-immersive-fb-video-experienenas/"><u>[New] 2024 Approved A Step-by-Step Guide to Crafting Immersive FB Video Experienenas</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-exploring-the-merits-of-obs-studio-and-fraps-for-recording-screens/"><u>[New] Exploring the Merits of OBS Studio & Fraps for Recording Screens</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-seamlessly-connect-the-3-step-guide-to-enhanced-communication-on-snapchat/"><u>[Updated] 2024 Approved Seamlessly Connect The 3-Step Guide to Enhanced Communication on Snapchat</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-intensive-analysis-sonys-high-def-action-cam/"><u>[Updated] In 2024, Intensive Analysis Sony's High-Def Action Cam</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-maximizing-viewability-and-engagement-understanding-facebook-video-ratios/"><u>[Updated] In 2024, Maximizing Viewability & Engagement Understanding Facebook Video Ratios</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-decade-of-user-experience-mondly/"><u>A Decade of User Experience - Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/become-fluent-in-local-colloquialisms/"><u>Become Fluent in Local Colloquialisms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/charting-the-high-tide-of-piracy-phrases/"><u>Charting the High Tide of Piracy Phrases</u></a></li>
-<li><a href="https://extra-information.techidaily.com/craft-natural-motion-depth-in-ps-for-2024/"><u>Craft Natural Motion Depth in PS for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/descubre-las-voces-animalistas-en-espanol/"><u>Descubre Las Voces Animalistas en Español</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dream-in-a-foreign-tongue-romantic-french-narratives/"><u>Dream in a Foreign Tongue: Romantic French Narratives</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-6s-plus-with-an-apple-watch-and-what-to-do-if-it-doesnt-work-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 6s Plus With an Apple Watch & What to Do if It Doesnt Work | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579910213-journey-through-hindi-why-mondlys-online-study-triumphs/"><u>Journey Through Hindi: Why Mondly's Online Study Triumphs!</u></a></li>
-<li><a href="https://common-error.techidaily.com/lte-advanced-category-9-with-up-to-450-mbits-download-speeds-using-band-38-2x20-mhz-channel-arrangement-and-up-to-75-mbits-upload-speeds-also-supports-dl-re70/"><u>LTE Advanced – Category 9 with up to 450 Mbit/S Download Speeds Using Band 38 (2X20 MHz) Channel Arrangement and up to 75 Mbit/S Upload Speeds. Also Supports DL-RevA Protocol Aggregation, but only with Other TANGO Radios on the Network</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/top-reasons-to-switch-to-firefox-browser-app-on-android-smartphones-and-tablets/"><u>Top Reasons to Switch to Firefox Browser App on Android Smartphones and Tablets</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-compress-iphone-videos-how-to-shorten-without-quality-loss/"><u>[Updated] Compress iPhone Videos How to Shorten Without Quality Loss</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-social-snippets-showcase-twitters-trending-threads/"><u>[Updated] In 2024, Social Snippets Showcase Twitter’s Trending Threads</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-render-photos-add-inward-radiant-spread-in-photoshop/"><u>[Updated] Render Photos Add Inward Radiant Spread in Photoshop</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/amorates-anthology-flirtatious-italian-sayings/"><u>Amorate’s Anthology: Flirtatious Italian Sayings</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/breaking-through-chatgpts-token-ceiling-barrier/"><u>Breaking Through ChatGPT’s Token Ceiling Barrier</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/brief-cinematic-chronicle-for-2024/"><u>Brief Cinematic Chronicle for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-english-grammar-an-in-depth-look-at-contractions/"><u>Decoding English Grammar: An In-Depth Look at Contractions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581141446-experience-hindi-like-never-before-8-fantastic-mondly-reasons/"><u>Experience Hindi Like Never Before: 8 Fantastic Mondly Reasons</u></a></li>
+<li><a href="https://discover-extraordinary.techidaily.com/guerison-de-donnees-avec-des-lignes-de-commande-ou-scripts-batch/"><u>Guérison De Données Avec Des Lignes De Commande Ou Scripts Batch</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577485164-learn-japanese-numbers-in-just-10-minutes/"><u>Learn Japanese Numbers In Just 10 Minutes!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-collaborates-with-pearson-study-network/"><u>Mondly Collaborates With Pearson Study Network</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-unveils-its-innovative-question-and-answer-space/"><u>Mondly Unveils Its Innovative Question & Answer Space</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/optimal-online-strategies-for-language-acquisition/"><u>Optimal Online Strategies for Language Acquisition</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/the-ultimate-guide-to-increasing-traffic-with-powerful-social-media-videos/"><u>The Ultimate Guide to Increasing Traffic with Powerful Social Media Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/this-innovative-virtual-reality-app-helps-you-learn-a-foreign-language-in-a-fun-way/"><u>This Innovative Virtual Reality App Helps You Learn a Foreign Language in a Fun Way</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/top-15-ultimate-destinations-for-live-football-matches-streaming/"><u>Top 15 Ultimate Destinations for Live Football Matches Streaming</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-performance-tracking-with-garmin/"><u>Top Performance Tracking with Garmin</u></a></li>
 </ul></div>
 

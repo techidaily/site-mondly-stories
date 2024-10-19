@@ -1,7 +1,7 @@
 ---
 title: Worldwide Ways to Express Cupid's Affection This Day
-date: 2024-08-27T22:52:06.049Z
-updated: 2024-08-28T22:52:06.049Z
+date: 2024-10-17T23:41:11.964Z
+updated: 2024-10-18T20:36:48.232Z
 tags:
   - speak
   - english
@@ -114,8 +114,12 @@ Here are some more ways to say “I love you” in other languages:
 ![I love you in sign language](https://edge.mondly.com/blog/wp-content/uploads/2018/10/i-love-you-sign-language.jpg "Say It Like You Mean It: How To Say “I Love You” In 32 Different Languages 4")
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## The perfect Valentine’s Day gift: 365 gifts for 365 days
 
  Now that you know how to say “I love you” in so many languages, here’s a sweet present idea you could use for your next anniversary or Valentine’s Day. All you need to buy is a big jar – big enough for all your love. The rest of it comes from the bottom of your heart. The first step is to prepare 365 pieces of paper of different colors and sizes and write “I love you” in different languages on the first 32 of them. Go wildly romantic with the rest of them: you could write love quotes for him or love quotes for her, poems or songs that you both like. Next step? Decorate the jar with tiny lights, pieces of lace or stickers.
@@ -123,13 +127,21 @@ Here are some more ways to say “I love you” in other languages:
 ![i love you in spanish by Diego PH©](https://edge.mondly.com/blog/wp-content/uploads/2018/10/i-love-you-in-spanish-scaled-480x600.jpg "Say It Like You Mean It: How To Say “I Love You” In 32 Different Languages 5")
 
 <!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  When it’s ready, tell your lover to read one piece of paper every day. Even when you are not around. That’s how they’ll smile and know that your heart always belongs to them.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### A love poem for your loved one
 
  Look no further if you need a love poem or a love song for your jar. It doesn’t necessarily need to be original. It just has to come from the heart. Here’s**a love song for your love jar:**
@@ -183,9 +195,12 @@ _With you, my heart will forever blend._
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### From “I love you” to conversational fast
 
  Do you want to go the extra mile and learn a new language for someone you love? Try Mondly, the award-winning language app that can help you master languages in record time.
@@ -208,8 +223,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -217,4 +230,24 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-delving-into-active-presenters-record-capabilities/"><u>[Updated] Delving Into Active Presenter's Record Capabilities</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-editing-savvy-streamlining-your-youtube-video-lengths-for-2024/"><u>[Updated] Editing Savvy Streamlining Your YouTube Video Lengths for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-youtube-dimensions-demystified-a-complete-aspect-ratio-handbook/"><u>[Updated] YouTube Dimensions Demystified A Complete Aspect Ratio Handbook</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-essentials-of-the-premier-6-harnesses-for-capturing-lifes-moments-with-gopro/"><u>2024 Approved Essentials of the Premier 6 Harnesses for Capturing Life's Moments with GOPRO</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-on-air-in-minutes-easy-steps-to-start-a-live-stream/"><u>2024 Approved On Air in Minutes Easy Steps to Start a Live Stream</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/obs-studio-windowsmac/"><u>如何使用OBS Studio Windows/Mac版本：深入學習最新評論及教程，以便即時下載</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/free-online-conversion-of-mp3-files-into-vob-format-with-movavi/"><u>Free Online Conversion of MP3 Files Into VOB Format with Movavi</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/1722868437252-how-does-atandt-handle-overseas-wireless-coverage-and-fees/"><u>How Does AT&T Handle Overseas Wireless Coverage and Fees?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-learn-ukrainian-fast-in-just-10-minutes-a-day/"><u>How to Learn Ukrainian Fast in Just 10 Minutes a Day</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-on-honor-x50-gt-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos on Honor X50 GT</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/immerse-in-cultures-and-conversations-powered-by-mondlyar/"><u>Immerse in Cultures and Conversations, Powered by MondlyAR</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/making-latin-learning-fun-and-engaging-for-students/"><u>Making Latin Learning Fun And Engaging For Students</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/paso-a-paso-entender-la-hora-y-segundo-en-espanol/"><u>Paso a Paso: Entender La Hora Y Segundo en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/short-effective-daily-tagsawiin-language-goals-achieved/"><u>Short, Effective Daily Tagsawiin: Language Goals Achieved</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/slovak-in-a-flash-online-learning-for-busy-lives/"><u>Slovak in a Flash - Online Learning for Busy Lives</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-travelers-linguistic-companion-to-vietnam/"><u>The Traveler’s Linguistic Companion to Vietnam</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-benefits-for-mastering-languages-post-fifty/"><u>Top Benefits for Mastering Languages Post-Fifty</u></a></li>
+</ul></div>
 

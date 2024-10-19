@@ -1,7 +1,7 @@
 ---
 title: International Dialogue Starters
-date: 2024-08-27T22:56:16.980Z
-updated: 2024-08-28T22:56:16.980Z
+date: 2024-10-12T22:45:25.562Z
+updated: 2024-10-19T00:48:15.820Z
 tags:
   - speak
   - english
@@ -40,6 +40,13 @@ thumbnail: https://thmb.techidaily.com/2041635073b88dca4044a894fcdb4e9d1f4358f13
 
  Wanna dig deeper into Russian greetings? Here are five different ways to say [**‘hello’ in Russian**](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Hello in Japanese — こんにちは (Kon’nichiwa)
 
  The same as the Spanish_hola_ ,**_Kon’nichiwa_** is a kind of universal Japanese greeting that can be used safely in all sorts of social contexts. There are two exceptions, though. Early in the morning and late at night, you should use the specific greetings dedicated to certain moments of the day. To learn more about them, check out this in-depth guide on how to say **[‘hello’ in Japanese](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .**
@@ -47,8 +54,12 @@ thumbnail: https://thmb.techidaily.com/2041635073b88dca4044a894fcdb4e9d1f4358f13
  Moreover, don’t forget that the Japanese culture is a culture of respect. If you want to go all-in and immerse yourself entirely in the Japanese culture, it’s best to [study Japanese](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) etiquette before your trip.
 
 <!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Hello in Korean — 안녕하세요 (Annyeonghaseyo)
 
  In recent years, the [Korean language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) has been enjoying an increase in popularity due to BTS, a Korean boy band “taking over the world”. As a result, more and more young people wish to learn Korean. So, knowing as little as**‘hello’ in Korean** is a must if you want to be up-to-date.
@@ -56,6 +67,13 @@ thumbnail: https://thmb.techidaily.com/2041635073b88dca4044a894fcdb4e9d1f4358f13
 _안녕하세요 (Annyeonghaseyo)_ is the most popular semi-formal Korean hello. By comparison,_안녕 (Annyeong)_ is a little more informal and it’s what you should use if you want to say**‘hi’ in Korean.**
 
 ![hello in japanese](https://edge.mondly.com/blog/wp-content/uploads/2021/06/hello-in-japanese-960x640.jpg "How To Say &Quot;Hello&Quot; In Different Languages 3")
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  “Mount Fuji, Japan” by David Edelstein©
 
@@ -68,8 +86,12 @@ _안녕하세요 (Annyeonghaseyo)_ is the most popular semi-formal Korean hello.
  Wanna find out more? Here are [12 French greetings beyond Bonjour](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Hello in German — Hallo
 
  **The universal German hello is_Hallo_ .** Short, sweet and simple. In other words, nothing like the rest of the German language. (Sorry, German, but that’s true.)
@@ -100,18 +122,12 @@ _안녕하세요 (Annyeonghaseyo)_ is the most popular semi-formal Korean hello.
 
  If you want to learn more about how to say**‘hi’ in Italian,** you can check out this in-depth **[guide on Italian greetings](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .**
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ## Hello in Chinese — 你好 (Nǐ hǎo)
 
  The Chinese language is just as rich in greetings as any other language, but the most popular way to say**‘hello’ in Chinese** is definitely**你好 (Nǐ hǎo).** And when we say ‘popular’, it’s 1 billion people popular because, as you probably already know, Chinese is the [most spoken language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) in the world by the total number of native speakers.
 
  Of course, like in many other languages, this is not the only way to say ‘hello’ in Chinese. To find out what are other ways to say ‘hi’ in Chinese, here’s an [in-depth guide on](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) **Chinese greetings.**
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
-<!-- affiliate ads end -->
 ## Hello in Portuguese — Olá
 
 **_Olá_ or_Oi_ ?** What’s your Portuguese hello of choice?
@@ -120,9 +136,6 @@ _Olá_ , just like the Spanish_Hola_ , is suitable for any situation regardless 
 
  To learn more about Portuguese greetings, check out our guide on how to say [**‘** **hello’ in Portuguese**](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Hello in different languages
 
  Now that we’ve properly covered some of the most spoken languages in the world let’s move on to the real gold mine of**‘hello’ in different languages.** From ‘hello’ in Arabic to ‘hello’ in Catalan and even Latin, you’ll find them all here. Besides, if you want to hear them in action in real conversations, spoken by fluent speakers, you can always get Mondly. Just choose the language you always wanted to speak, and you can be conversational from day 1.
@@ -130,8 +143,12 @@ _Olá_ , just like the Spanish_Hola_ , is suitable for any situation regardless 
 ![hello in spanish](https://edge.mondly.com/blog/wp-content/uploads/2021/06/hello-in-spanish-960x640.jpg "How To Say &Quot;Hello&Quot; In Different Languages 6")
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  “Hello” by Octavian Dan©
 
  These next greetings are a mixture of formal and informal. Don’t worry, though! This kind of ‘hello’ is the best choice for most social interactions regardless of the person you are addressing because it is somehow formal but also friendly. Just what you need when traveling abroad!
@@ -191,8 +208,6 @@ _Olá_ , just like the Spanish_Hola_ , is suitable for any situation regardless 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -200,4 +215,26 @@ _Olá_ , just like the Spanish_Hola_ , is suitable for any situation regardless 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-leading-5-internet-screenshot-kits/"><u>[New] 2024 Approved Leading 5 Internet Screenshot Kits</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-a-concise-guide-to-starting-an-inclusive-chat-room-in-skype-accessible-on-different-operating-systems/"><u>[New] In 2024, A Concise Guide to Starting an Inclusive Chat Room in Skype, Accessible on Different Operating Systems</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-prime-tech-for-quick-clear-video-reports-for-2024/"><u>[New] Prime Tech for Quick, Clear Video Reports for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-in-2024-perfect-your-discord-voices-avoiding-background-noise-with-voicemod/"><u>[Updated] In 2024, Perfect Your Discord Voices Avoiding Background Noise with VoiceMod</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/comprehensive-analysis-of-the-amazon-fire-hd-10-for-children-beyond-just-playfulness-and-style/"><u>Comprehensive Analysis of the Amazon Fire HD 10 for Children: Beyond Just Playfulness and Style</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-leaderships-via-superior-language-learning-platforms/"><u>Global Leaderships via Superior Language Learning Platforms</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/grandest-directors-trailers-for-2024/"><u>Grandest Director's Trailers for 2024</u></a></li>
+<li><a href="https://fox-tips.techidaily.com/how-to-successfully-avoid-the-tiktok-logo-the-ultimate-removal-techniques-of-2023/"><u>How to Successfully Avoid the TikTok Logo: The Ultimate Removal Techniques of 2023</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-facebook-dating-for-your-tecno-pova-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location On Facebook Dating for your Tecno Pova 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-adoption-the-integration-of-foreign-words-into-english/"><u>Language Adoption: The Integration of Foreign Words Into English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-distribution-the-belgian-dialect-spectrum/"><u>Language Distribution: The Belgian Dialect Spectrum</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/loves-lexicon-french-cinematic-masterpieces/"><u>Love's Lexicon: French Cinematic Masterpieces</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-finnish-language-from-anywhere-better-way/"><u>Mastering Finnish Language From Anywhere, Better Way!</u></a></li>
+<li><a href="https://win11.techidaily.com/reverting-custom-sort-and-group-order-of-files/"><u>Reverting Custom Sort and Group Order of Files</u></a></li>
+<li><a href="https://techtrends.techidaily.com/samsung-galaxy-z-fold-6-unveiled-preorder-prices-and-launch-timeline/"><u>Samsung Galaxy Z Fold 6 Unveiled - Preorder Prices & Launch Timeline</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/triad-of-asias-favorite-speeches-prioritize-and-archive/"><u>Triad of Asia's Favorite Speeches: Prioritize & Archive</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/turkish-language-breakdown-a-straightforward-pronunciation-handbook/"><u>Turkish Language Breakdown: A Straightforward Pronunciation Handbook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-mondly-is-perfect-for-your-first-steps-into-afrikaans/"><u>Why Mondly Is Perfect for Your First Steps Into Afrikaans</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/wordsmith-chronicles-modern-usage-of-bygone-verbiage/"><u>Wordsmith Chronicles: Modern Usage of Bygone Verbiage</u></a></li>
+</ul></div>
 

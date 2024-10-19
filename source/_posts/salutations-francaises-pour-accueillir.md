@@ -1,7 +1,7 @@
 ---
 title: Salutations Françaises Pour Accueillir
-date: 2024-10-09T22:38:20.713Z
-updated: 2024-10-13T00:08:08.864Z
+date: 2024-10-12T20:17:52.681Z
+updated: 2024-10-18T16:29:09.699Z
 tags:
   - speak
   - english
@@ -55,10 +55,10 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
  It is most common amongst very close friends and family members. This particular form is most appropriate when you want to express a higher level of gratitude than_‘de rien’_ , but with somebody close to you, with whom your relationship is casual.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### The literal translation of_‘je t’en prie’_
@@ -72,10 +72,16 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
  B:_Je t’en prie !_ (“You’re welcome!”)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
-  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. The formal “you’re welcome”:_je vous en prie_
@@ -83,6 +89,19 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
  You’ll notice that this particular way to say ‘you’re welcome’ in French is very similar to the previous example. In fact, the phrase is almost identical. The only thing that’s changed is the personal pronoun. Instead of using the informal you –_‘tu’_ – we use the formal counterpart –_‘vous’_ .
 
  This should make_‘je vous en prie’_ nice and easy to remember. Just be careful not to use it with close friends. Using_‘vous’_ will sound unnatural if you are in close company. Likewise, always use this version of you’re welcome in French if you are speaking with somebody you do not know, no matter their level of seniority.
+
+<!-- affiliate ads begin -->
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### The literal translation of_‘je vous en prie’_
 
@@ -103,10 +122,10 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
  “Southern France, Toulouse” by DAT VO©
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
+  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. The easiest to remember:_pas de problème_
@@ -132,13 +151,6 @@ Example:
  If you want to mix things up a bit, another informal and very casual way of saying you’re welcome in French is_‘il n’y a pas de quoi’_ . This literally means “there is no what”, but an adapted translation would be “there is no reason (to thank me)”. Being a casual expression, it can be used safely in the same contexts as_‘de rien’_ .
 
  Furthermore,_‘avec plaisir’_ is what you should use if you travel to southern France and want to sound like a local. It literally translates to “with pleasure”, but it is the French correspondent of “my pleasure”.
-
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
-  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Which version of you’re welcome in French should you use and when?
 
@@ -188,24 +200,21 @@ _Th_ _is post is delivered to you by James A. Smith._
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-establishing-baseline-metrics-for-igtv-effectiveness/"><u>[New] 2024 Approved Establishing Baseline Metrics for IGTV Effectiveness</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-5-excellent-external-hdd-recommendations-for-xbox-for-2024/"><u>[New] 5 Excellent External HDD Recommendations for Xbox for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-tactics-for-success-amidst-facebooks-algorithm-evolution/"><u>[New] In 2024, Tactics for Success Amidst Facebook’s Algorithm Evolution</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-sportscasting-your-pathway-to-highlight-videos/"><u>[Updated] Sportscasting Your Pathway to Highlight Videos</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-spectral-time-freeze-instruction/"><u>2024 Approved Spectral Time-Freeze Instruction</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/engaging-worldwide-teachers-at-bett-2022/"><u>Engaging Worldwide Teachers at BETT 2022</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-danish-narratives-as-language-learning-aids/"><u>Essential Danish Narratives as Language Learning Aids</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/examining-backspace-rites-across-continents/"><u>Examining Backspace Rites Across Continents</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exclusive-offer-alert-lifetime-free-up-to-96-off-mondly-pro/"><u>Exclusive Offer Alert: Lifetime Free, Up to 96% Off Mondly Pro</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/experience-language-learning-like-never-before-googled-editors-choice-mondly/"><u>Experience Language Learning Like Never Before: Googled Editors' Choice Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exploring-israels-wonders-indispensable-tips-and-languages/"><u>Exploring Israel's Wonders: Indispensable Tips & Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expo-dubai-2020-the-new-horizon-of-language-skills/"><u>Expo Dubai 2020: The New Horizon of Language Skills</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/frequence-des-jours-francais/"><u>Fréquence Des Jours Français</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-germanic-origins-to-contemporary-dutch/"><u>From Germanic Origins to Contemporary Dutch</u></a></li>
-<li><a href="https://article-helps.techidaily.com/in-2024-a-guide-to-selecting-peak-performance-lipo-tech/"><u>In 2024, A Guide to Selecting Peak-Performance LiPo Tech</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-t-mobile-apple-iphone-12-pro-max-online-without-sim-card-by-drfone-ios/"><u>In 2024, How to Unlock T-Mobile Apple iPhone 12 Pro Max online without SIM Card?</u></a></li>
-<li><a href="https://extra-support.techidaily.com/leading-add-ons-to-improve-sea-camera-shots-for-2024/"><u>Leading Add-Ons to Improve Sea Camera Shots for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/mastering-luts-unlocking-color-grading-in-ar-and-vfx/"><u>Mastering LUTs Unlocking Color Grading in AR & VFX</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/new-the-best-of-the-best-top-rated-2d-animation-software-free-trials-and-paid-plans-for-2024/"><u>New The Best of the Best Top-Rated 2D Animation Software Free Trials & Paid Plans for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-stability-secured-the-ultimate-guide-for-uninterrupted-iphone-videos/"><u>2024 Approved Stability Secured The Ultimate Guide for Uninterrupted iPhone Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581579845-embracing-new-words-anytime/"><u>Embracing New Words, Anytime</u></a></li>
+<li><a href="https://games-able.techidaily.com/exclusive-high-refresh-gaming-displays/"><u>Exclusive High-Refresh Gaming Displays</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-english-accents-from-british-to-aussie/"><u>Exploring English Accents: From British To Aussie</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hasten-time-learn-1-10-in-japanese-numbers/"><u>Hasten Time, Learn 1-10 in Japanese Numbers!</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-shotchrome-fx-chromes-screen-capturing/"><u>In 2024, ShotChrome FX Chrome's Screen Capturing</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-ultimate-tutorial-for-immersive-iphone-vr-viewing/"><u>In 2024, The Ultimate Tutorial for Immersive iPhone VR Viewing</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-realme-12plus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Realme 12+ 5G | Dr.fone</u></a></li>
+<li><a href="https://driver-download.techidaily.com/installing-epson-wf-7710-drivers-for-optimal-print-quality-on-windows-operating-systems/"><u>Installing EPSON WF-7710 Drivers for Optimal Print Quality on Windows Operating Systems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581081152-mondly-brings-you-a-diverse-new-phrasebook/"><u>Mondly Brings You a Diverse New Phrasebook</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-the-ultimate-list-10-final-cut-pro-x-competitors-you-need-to-know/"><u>New 2024 Approved The Ultimate List 10 Final Cut Pro X Competitors You Need to Know</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-collection-of-zero-cost-japanese-learning-tools/"><u>The Ultimate Collection of Zero-Cost Japanese Learning Tools</u></a></li>
+<li><a href="https://blog-min.techidaily.com/the-ultimate-guide-to-choosing-the-most-superior-mkv-format-encoders-for-premium-quality-videos/"><u>The Ultimate Guide to Choosing the Most Superior MKV Format Encoders for Premium Quality Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-the-duration-required-for-language-mastery/"><u>Understanding the Duration Required for Language Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/virtual-realm-for-language-learning-socializing-made-simple/"><u>Virtual Realm for Language Learning: Socializing Made Simple</u></a></li>
+<li><a href="https://win-top.techidaily.com/windows-78mp3-wav/"><u>Windows 7/8向けにMP3, WAV音声ファイルを効果的に編集する手引き</u></a></li>
 </ul></div>
 

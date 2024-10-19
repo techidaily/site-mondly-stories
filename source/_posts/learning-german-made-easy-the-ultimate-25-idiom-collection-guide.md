@@ -1,7 +1,7 @@
 ---
 title: "Learning German Made Easy: The Ultimate 25 Idiom Collection Guide"
-date: 2024-09-30T22:37:52.293Z
-updated: 2024-10-01T22:29:55.463Z
+date: 2024-10-17T23:49:46.559Z
+updated: 2024-10-18T16:47:02.035Z
 tags:
   - speak
   - english
@@ -25,13 +25,6 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
 [Cambridge Dictionary](https://dictionary.cambridge.org/dictionary/english/idiom) defines ‘idiom’ as “a group of words in a fixed order that has a particular meaning that is different from the meanings of each word on its own.” For example, to be “over the moon” is an idiom that means you are extremely happy or delighted. In other words, idioms have figurative, non-literal meanings because you’re not**literally** “over the moon.”
 
  That being said, let’s see what such idioms Germans use the most in their daily interactions.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1._Um den heißen Brei herumreden_
 
@@ -65,6 +58,13 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
 
  As odd as this one sounds, it will come in very handy in those situations when you can’t believe what you’re hearing or seeing. The English equivalent could be “You’ve got to be kidding me!”.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **5.** _Seinen Senf dazugeben_
 
 **Literal translation:** To add your mustard to it.
@@ -75,19 +75,6 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
 
 !['German idioms in English' by Ron Lach©](https://edge.mondly.com/blog/wp-content/uploads/2022/09/german-idioms-in-english-960x640.jpg "Top 25 German Idioms To Speak Like A German 2")
 
-<!-- affiliate ads begin -->
-<span id="1983545">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **6.** _Die Kirche im Dorf lassen_
 
 **Literal translation:** Leave the church in the village.
@@ -95,6 +82,13 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
 **Actual meaning:** Don’t get carried away.
 
  If you ever get carried away with excitement, German speakers may advise you_die Kirche im Dorf lassen_ , which means to “leave the church in the village.”
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **7.** _Tomaten auf den Augen haben_
 
@@ -121,16 +115,10 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
  This idiom is perfect for those who usually celebrate their victories prematurely. Its sentiment is similar to the English equivalent “Don’t count your chickens before they hatch. “
 
 <!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **10.** _Da kannst du Gift drauf nehmen_
@@ -157,13 +145,6 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
 
  There are several ways to look at this one, but the main idea is that the party is so good that the bear will also join it. Or — there’s a dancing bear at the party and you should absolutely not miss it. Either way, this party is probably the best party ever.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **13.** _Das ist ein Katzensprung_
 
 **Literal translation:** That’s a cat’s jump.
@@ -175,16 +156,10 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
 !['Common German idioms' by Gratisography©](https://edge.mondly.com/blog/wp-content/uploads/2022/09/common-german-idioms-960x640.jpg "Top 25 German Idioms To Speak Like A German 3")
 
 <!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2052062/7443" target="_top" id="2052062">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052062" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052062/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **14.** _Das ist Schnee von gestern_
@@ -203,13 +178,6 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
 
  It’s interesting how similar this idiom is to our English equivalent. It looks like feeling out of place is finally something more languages can agree on.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **16.** _Die Daumen drücken_
 
 **Literal translation:** Press the thumbs.
@@ -217,6 +185,13 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
 **Actual meaning:** Fingers crossed.
 
  Same story here. You already know in which situations it’s suitable to use this one.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **17.** _Du nimmst mich auf den Arm_
 
@@ -242,6 +217,13 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
 
  Sausages again! Even when they come up with witty remarks about life itself, Germans must make a reference to_wursts_ . We do feel inspired, but we must admit we’re also drooling at this point.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **20.** _Ich habe Schwein gehabt_
 
 **Literal translation:** I’ve had a pig.
@@ -252,6 +234,13 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
 
 !['German expressions' by Picography©](https://edge.mondly.com/blog/wp-content/uploads/2022/09/german-expressions-960x640.jpg "Top 25 German Idioms To Speak Like A German 4")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **21.** _Haare auf den Zähnen haben_
 
 **Literal translation:** To have hair on one’s teeth.
@@ -259,13 +248,6 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
 **Actual meaning:** To be confrontational or bossy.
 
  That’s just weird, but okay, German. If someone’s having one of those days, it may prove helpful the lighten the mood with this funny idiom.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **22.** _Einen Kater haben_
 
@@ -285,13 +267,6 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
 
  Sometimes we see a bad situation coming and we warn the parties involved, but they choose not to listen. Well, this idiom is perfect for the aftermath when all you want to say is: I told you so!
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **24.** _Einen Vogel haben_
 
 **Literal translation:** To have a bird.
@@ -303,6 +278,13 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
  On a more serious note, this is yet another fun idiom you can use to sound like a fluent speaker. The idiom probably originated from the belief that crazy people must have flocks of little birds in their heads.
 
 It’s usually used as an insult, so be careful to who you are saying this.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
+  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **25.** _Jemandem ein Ohr abkauen_
 
@@ -361,19 +343,19 @@ _ [Tschüss](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=10
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-youtube-playlist-building-step-by-step-expertise/"><u>[New] 2024 Approved YouTube Playlist Building Step-by-Step Expertise</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-how-to-choose-between-filmora-and-democreator-for-2024/"><u>[New] How to Choose Between Filmora and Democreator for 2024</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-securely-connect-a-step-by-step-guide-to-discord-calls/"><u>[Updated] 2024 Approved Securely Connect A Step-by-Step Guide to Discord Calls</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/binge-and-float-navigating-the-pip-functionality-for-seamless-watching/"><u>Binge & Float Navigating the PIP Functionality for Seamless Watching</u></a></li>
-<li><a href="https://extra-information.techidaily.com/holistic-locomotion-scrutiny-report/"><u>Holistic Locomotion Scrutiny Report</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-exit-android-factory-mode-on-realme-note-50-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Exit Android Factory Mode On Realme Note 50? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-global-reach-touches-70-million-lifelong-learners/"><u>Mondly's Global Reach Touches 70 Million Lifelong Learners</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/motorolas-speed-champion-a-review-of-the-superior-mg7700-smartphone/"><u>Motorola's Speed Champion: A Review of the Superior MG7700 Smartphone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/quick-fixes-for-lost-steam-connections-on-pc/"><u>Quick Fixes for Lost Steam Connections on PC</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/quick-language-acquisition-with-oxford-3000-mondly-style/"><u>Quick Language Acquisition with Oxford 3000, Mondly Style</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speaking-spanish-with-peers-in-virtually-shared-realities/"><u>Speaking Spanish with Peers in Virtually Shared Realities</u></a></li>
-<li><a href="https://some-skills.techidaily.com/subtle-screen-entry-sequence-for-2024/"><u>Subtle Screen Entry Sequence for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-truth-behind-the-lies-debunking-language-learning-myths/"><u>The Truth Behind the Lies: Debunking Language Learning Myths</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/whispered-words-conversational-confessions-in-deutsch/"><u>Whispered Words: Conversational Confessions in Deutsch</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-premium-vectors-leading-sites-in-quality-stock-for-2024/"><u>[Updated] Premium Vectors Leading Sites in Quality Stock for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-snatching-twitter-laughter-3-pc-techniques/"><u>[Updated] Snatching Twitter Laughter 3 PC Techniques</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-video-constructor-suite-for-2024/"><u>[Updated] Video Constructor Suite for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/conquer-dead-cells-the-comprehensive-breakdown-of-the-sturdy-beatit-bt-d11-jumpstarter/"><u>Conquer Dead Cells: The Comprehensive Breakdown of the Sturdy Beatit BT-D11 Jumpstarter</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/cutting-edge-video-processing-free-hd1080p-from-ff-videos-for-2024/"><u>Cutting Edge Video Processing Free HD/1080P From FF Videos for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daily-dose-of-bengali-language/"><u>Daily Dose of Bengali Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-the-distinctive-features-of-us-and-uk-english/"><u>Exploring the Distinctive Features of US and UK English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-alphabets-to-characters-chinese-writing-101/"><u>From Alphabets to Characters: Chinese Writing 101</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hangul-made-simple-the-quickest-way-to-asian-alphabets/"><u>Hangul Made Simple: The Quickest Way to Asian Alphabets</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-easy-guide-to-motorola-moto-g73-5g-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Motorola Moto G73 5G FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-pinnacle-performance-comparison-hero5-black-and-hero4-silver/"><u>In 2024, Pinnacle Performance Comparison Hero5 Black and Hero4 Silver</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-the-role-of-background-melody-in-a-cinematic-commercial/"><u>In 2024, The Role of Background Melody in a Cinematic Commercial</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/world-teachers-day-a-collection-of-words-for-teacher-in-different-languages/"><u>World Teachers' Day: A Collection Of Words For Teacher In Different Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-whipped-cream-30-chocolate-translations/"><u>Worldwide Whipped Cream: 30 Chocolate Translations</u></a></li>
 </ul></div>
 

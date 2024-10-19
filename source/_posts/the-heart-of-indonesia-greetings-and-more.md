@@ -1,7 +1,7 @@
 ---
 title: "The Heart of Indonesia: Greetings and More"
-date: 2024-10-06T19:05:50.347Z
-updated: 2024-10-12T22:05:52.728Z
+date: 2024-10-11T18:59:38.799Z
+updated: 2024-10-18T22:53:38.623Z
 tags:
   - speak
   - english
@@ -32,6 +32,13 @@ thumbnail: https://thmb.techidaily.com/44b00e7ceffa68921ecf622a184f48a9d902f80a5
 
  Last but not least, if someone greets you using the_wai_ gesture (slight bow with the palms put together in front of the chest), you can show respect towards their culture by returning the same gesture.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to say ‘hello’ in Indonesian
 
  **If you want to say ‘hello’ in Indonesian, you can simply say_halo_ .** It’s short, sweet and almost identical to the English ‘hello’ you already know and use. Besides, it’s friendly and works great in most social situations.
@@ -41,10 +48,10 @@ thumbnail: https://thmb.techidaily.com/44b00e7ceffa68921ecf622a184f48a9d902f80a5
  On the other hand, if someone asks you how you are doing, you can say_kabar baik,_ which means “I am fine” or “I am well”. Here’s what a basic conversation in Indonesian sounds like:
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ‘Hi’ in Indonesian
@@ -52,19 +59,6 @@ thumbnail: https://thmb.techidaily.com/44b00e7ceffa68921ecf622a184f48a9d902f80a5
  Made some new friends during your trip to Bali? When you meet them, you can also use the more informal_hi,_ which is pronounced the same as the English “hi”.
 
 Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
-
-<!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Indonesian greetings for different times of day
 
@@ -79,10 +73,10 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 ![indonesian words](https://edge.mondly.com/blog/wp-content/uploads/2022/07/indonesian-words.png "Hello In Indonesian: A Quick Guide To Indonesian Greetings 2")
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The same way we say “morning!’ in English, Indonesians sometimes drop the_selamat_ . This results in a very informal greeting that can be used with friends and family.
@@ -92,10 +86,10 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
  Naturally,_selamat tidur_ is only used when someone is retiring for the night.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to say goodbye
@@ -140,24 +134,24 @@ Get Mondly today and learn Indonesian naturally with the following:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-how-to-make-reels-on-instagram-like-a-ninja/"><u>[New] How to Make Reels on Instagram Like a Ninja</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-pro-equipment-list-for-adventure-documentaries/"><u>[New] Pro Equipment List for Adventure Documentaries</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-unveiling-top-7-crypto-creators-for-nft-conversion/"><u>[New] Unveiling Top 7 Crypto-Creators for NFT Conversion</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-video-speed-mastery-selecting-premium-pc-monitor-controls-for-2024/"><u>[Updated] Video Speed Mastery Selecting Premium PC Monitor Controls for 2024</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/5-techniques-efficaces-pour-recuperer-des-fichiers-elus-de-votre-photomic-hasselblad/"><u>5 Techniques Efficaces Pour Récupérer Des Fichiers Elus De Votre Photomic Hasselblad</u></a></li>
-<li><a href="https://fox-info.techidaily.com/clarity-counts-how-to-zoom-into-every-aspect-of-google-meet-calls-for-2024/"><u>Clarity Counts How to Zoom Into Every Aspect of Google Meet Calls for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/elevate-command-execution-with-advanced-windows-tool/"><u>Elevate Command Execution with Advanced Windows Tool</u></a></li>
-<li><a href="https://solve-news.techidaily.com/enhancing-your-online-presence-with-cookiebot-technology/"><u>Enhancing Your Online Presence with Cookiebot Technology</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/gratis-downloader-mac-per-filmati-hd4k-scarica-salva-e-condividi-video-con-la-massima-qualita-1080p/"><u>Gratis Downloader Mac per Filmati HD/4K: Scarica, Salva E Condividi Video Con La Massima Qualità (1080P)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/international-thanksgiving-day-recognition/"><u>International Thanksgiving Day Recognition</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/intuitive-quick-lesson-mastering-japanese-numbers/"><u>Intuitive Quick Lesson: Mastering Japanese Numbers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-joins-huaweis-appecosystem/"><u>Mondly Joins Huawei's AppEcosystem</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/novice-friendly-arabic-language-guide/"><u>Novice-Friendly Arabic Language Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/promoting-intercultural-understanding-through-esl/"><u>Promoting Intercultural Understanding Through ESL</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/revolutionizing-buttons-mondlys-partnership-with-pearson/"><u>Revolutionizing Buttons: Mondly's Partnership With Pearson</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-syma-x5c-quadcopter-tested-a-detailed-assessment-of-an-affordable-drone-for-hobbyists/"><u>The SYMA X5C Quadcopter Tested: A Detailed Assessment of an Affordable Drone for Hobbyists</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ultimate-language-challenge-mastering-hardest-global-languages/"><u>The Ultimate Language Challenge: Mastering Hardest Global Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/united-nations-of-easter-messages-in-many-tongues/"><u>United Nations of Easter Messages in Many Tongues</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unveiling-ais-potential-in-education-and-linguistics/"><u>Unveiling AI's Potential in Education & Linguistics</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-picking-perfect-your-path-through-basic-plus-and-pro-in-vimeo/"><u>[New] 2024 Approved Picking Perfect Your Path Through Basic, Plus & Pro in Vimeo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/celebrating-10-years-at-mondlybutton-filters/"><u>Celebrating 10 Years at MondlyButton Filters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comparative-linguistic-practicality-german-versus-french/"><u>Comparative Linguistic Practicality: German Versus French</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/comparing-tablet-devices-based-on-central-processing-unit-capabilities/"><u>Comparing Tablet Devices Based on Central Processing Unit Capabilities</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723212171075-critical-update-for-ftdi-systems-avoid-compatibility-errors-and-preserve-memory-integrity/"><u>Critical Update for FTDI Systems: Avoid Compatibility Errors and Preserve Memory Integrity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/croatian-peoples-choice/"><u>Croatian People's Choice</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-communion-through-indonesian-phrases/"><u>Cultural Communion Through Indonesian Phrases</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/effective-techniques-for-applying-a-blur-effect-on-your-backdrop-during-google-meet-calls/"><u>Effective Techniques for Applying a Blur Effect on Your Backdrop During Google Meet Calls</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/elite-8-films-on-facebook-for-2024/"><u>Elite 8 Films on Facebook for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-3-effective-ways-to-bypass-activation-lock-from-iphone-8-by-drfone-ios/"><u>In 2024, 3 Effective Ways to Bypass Activation Lock from iPhone 8</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-is-a-sim-network-unlock-pin-get-your-asus-rog-phone-8-pro-phone-network-ready-by-drfone-android/"><u>In 2024, What Is a SIM Network Unlock PIN? Get Your Asus ROG Phone 8 Pro Phone Network-Ready</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/kinetic-mastery-in-your-pocket-a-2023-review-of-kinemaster-on-android-for-2024/"><u>Kinetic Mastery in Your Pocket A 2023 Review of KineMaster on Android for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lifetime-language-pass-your-0-investment-today/"><u>Lifetime Language Pass - Your $0 Investment Today!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/masterful-messaging-elevate-enterprise-success-stories/"><u>Masterful Messaging: Elevate Enterprise Success Stories</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-family-friendly-app-shines-in-2017/"><u>Mondly's Family-Friendly App Shines in 2017!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pearson-elevates-gsl-precision-via-mondly-partnership/"><u>Pearson Elevates GSL Precision via Mondly Partnership</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/tackle-freezing-xbox-apps-in-windows-easily/"><u>Tackle Freezing Xbox Apps in Windows Easily</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/unveiling-the-amazfit-helio-ring-cost-guide-and-official-launch-details/"><u>Unveiling the Amazfit Helio Ring: Cost Guide & Official Launch Details</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-young-minds-excel-at-multilingual-mastery/"><u>Why Young Minds Excel at Multilingual Mastery</u></a></li>
 </ul></div>
 

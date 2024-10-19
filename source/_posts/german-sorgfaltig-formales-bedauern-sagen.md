@@ -1,7 +1,7 @@
 ---
 title: "German: Sorgfältig Formales Bedauern Sagen"
-date: 2024-08-27T22:55:52.395Z
-updated: 2024-08-28T22:55:52.395Z
+date: 2024-10-16T21:55:33.864Z
+updated: 2024-10-18T23:57:01.827Z
 tags:
   - speak
   - english
@@ -26,6 +26,13 @@ thumbnail: https://thmb.techidaily.com/a6017269d4c04c5e1e1b5dd34c08e1f92a0a41c1e
 
  However, this is not strictly a German thing. It’s true Germans say sorry once in a blue moon, but there are some other countries like France or Russia where over-apologizing can be regarded as insincere as well.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to apologize in German
 
 _**Es tut mir leid**_ is the standard sorry or the apologetic sorry. It’s the kind of sorry you say when you messed up and you want to apologize for what you did. The expression conveys a sense of responsibility it is kind of a formal apology.
@@ -39,8 +46,12 @@ Here are some practical examples of apologies in German:
 * _Tut mir leid, ich mag die Suppe nicht._ – Sorry, I don’t like the soup.
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to say sorry in German – the “Excuse me” sorry
 
  If you bump into someone on the street or cause a mishap, the most common way to say “sorry” in German is_**Entschuldigung**_ which literally means “apology!”. This is basically the “sorry” or the “excuse me” you say for a minor inconvenience. In other words, we’re talking about a slight bump or barely touching that person. If you knock them over, a cool_Entschuldigung_ won’t do, so you should probably apologize sincerely.
@@ -50,8 +61,12 @@ Here are some practical examples of apologies in German:
  Hear the formal_Entschuldigen Sie_ in action in this basic conversation in German:
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Other ways to say sorry in German
 
  As you very well know, there can also be other situations where you need to say “sorry” in German. For example, the “can you repeat that?” sorry is quite common. Of course, you can always say_“Entschuldigung?”_ together with the proper facial expression, but sometimes that might not be enough.
@@ -95,9 +110,12 @@ Here are some practical examples of apologies in German:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### From 0 to conversational in German
 
  Do you want to stop apologizing for your pronunciation? Get Mondly, the award-winning language app that will help you [speak German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) from day 1.
@@ -120,8 +138,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -129,4 +145,18 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/he-art-of-choosing-perfect-thumbnails/"><u>[New] The Art of Choosing Perfect Thumbnails</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-professionals-choice-ranking-the-top-9-microphone-apps/"><u>[Updated] In 2024, Professional's Choice Ranking the Top 9 Microphone Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/guide-de-la-physiologie-composants-bodily-en-francais/"><u>Guide De La Physiologie: Composants Bodily en Français</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-is-greyed-out-from-apple-iphone-12-how-to-bypass-by-drfone-ios/"><u>In 2024, Apple ID is Greyed Out From Apple iPhone 12 How to Bypass?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-crafting-content-for-success-how-to-start-your-own-youtube-chanel/"><u>In 2024, Crafting Content for Success How to Start Your Own YouTube Chanel</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-remove-forgotten-pin-of-your-honor-100-by-drfone-android/"><u>In 2024, How to Remove Forgotten PIN Of Your Honor 100</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-the-collaborative-language-learning-experience-approved-by-google/"><u>Mondly: The Collaborative Language Learning Experience, Approved by Google</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-language-feature-on-oculus-quest-with-mondly-integration/"><u>New Language Feature on Oculus Quest with Mondly Integration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-screenplays-from-diverse-cultures-to-learn-languages/"><u>Top Screenplays From Diverse Cultures to Learn Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/universal-introduction-strategies/"><u>Universal Introduction Strategies</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/unveiling-the-latest-in-electronics-your-go-to-source-at-toms-hardware/"><u>Unveiling the Latest in Electronics - Your Go-To Source at Tom's Hardware</u></a></li>
+</ul></div>
 

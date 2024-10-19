@@ -1,7 +1,7 @@
 ---
 title: Your Handbook to Conversational Russian for Travelers
-date: 2024-10-06T17:13:39.809Z
-updated: 2024-10-12T22:05:20.408Z
+date: 2024-10-12T20:31:03.710Z
+updated: 2024-10-18T17:54:36.154Z
 tags:
   - speak
   - english
@@ -69,6 +69,13 @@ thumbnail: https://thmb.techidaily.com/6050aa5ce58a3d916a0355d32e6800af8938ccf6a
 * Where are you from? –_Откуда ты? – Otkuda ty?_
 * Have a good day. –_Ну тогда до свидания. – Nu togda do svidaniya._
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Useful Russian phrases for when you are at the airport
 
  Arriving at the airport – both at the beginning and at the end of your journey – will also require some basic Russian phrases. Whether we are talking about small talk with the person sitting next to you on the airplane, passport verification or asking for directions, these Russian phrases will definitely have your back in any situation.
@@ -88,6 +95,13 @@ thumbnail: https://thmb.techidaily.com/6050aa5ce58a3d916a0355d32e6800af8938ccf6a
 * We need help boarding the plane. – _Вы не могли бы помочь нам при посадке? – Vy ne mogli by pomoch nam pri posadke?_
 * Is this seat taken? –_Это место свободно? – Eto mesto svobodno?_
 * I would like to change my seat. –_Я хотел бы пересесть. – Ya hotel by peresest._
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. Common Russian phrases for travelers who need help
 
@@ -119,6 +133,13 @@ thumbnail: https://thmb.techidaily.com/6050aa5ce58a3d916a0355d32e6800af8938ccf6a
 * Please wait a moment. – _Пожалуйста, подождите чуть-чуть. – Pozhaluysta, podozhdite chut-chut._
 * I’ll be back immediately. –_Я скоро вернусь. – Ya skoro vernus._
 * Drive me to this address. –_Отвезите меня по этому адресу. – Otvezite menya po etomu adresu_ .
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 4\. Advanced Russian phrases for different hotel situations
 
@@ -163,13 +184,6 @@ thumbnail: https://thmb.techidaily.com/6050aa5ce58a3d916a0355d32e6800af8938ccf6a
 
 ![useful-russian-words](https://edge.mondly.com/blog/wp-content/uploads/2018/07/useful-russian-words-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 7")
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Photo by Henrique Félix
 
 * I would like a dessert. –_Я хотел бы десерт. Ya hotel by desert._
@@ -177,6 +191,13 @@ thumbnail: https://thmb.techidaily.com/6050aa5ce58a3d916a0355d32e6800af8938ccf6a
 * We would like to have lunch. –_Мы хотели бы пообедать. – My hoteli by poobedat._
 * We would like to have dinner. –_Мы хотели бы поужинать. – My hoteli by pouzhynat._
 * What would you like for breakfast? –_Что бы вы хотели на завтрак? – Chto by vy hoteli na zavtrak?_
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 6\. Russian for travelers who want to have fun
 
@@ -192,10 +213,10 @@ Just joking. Still is an amazing drink, though!
 ![russian-travel-guide](https://edge.mondly.com/blog/wp-content/uploads/2018/07/russian-travel-guide-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 8")
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
-  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Photo by Edwin Andrade
@@ -210,10 +231,10 @@ Just joking. Still is an amazing drink, though!
 * Are there seats available? –_Ещё остались свободные места? – Yeshcho ostalis svobodnyye mesta?_
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 7\. Basic Russian phrases for shopping sprees
@@ -232,13 +253,6 @@ Just joking. Still is an amazing drink, though!
 * What would you like? –_Что вы предпочитаете? – Chto vy predpochitayete?_
 * Can I have some ice cream? –_Можно мне мороженого? – Mozhno mne morozhenogo?_
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 8\. Russia Travel Guide – how to say that you have fallen in love?
 
  If you learn how to master these next phrases, you will definitely be getting your travel vocabulary to the next level.  
@@ -254,19 +268,6 @@ Just joking. Still is an amazing drink, though!
 
 ![common-russian-phrases](https://edge.mondly.com/blog/wp-content/uploads/2018/07/common-russian-phrases-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 10")
 
-<!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Photo by Greg Rakozy
 
 * May I hold your hand? –_Можно взять тебя за руку? – Mozhno vzyat tebya za ruku?_
@@ -277,13 +278,6 @@ Just joking. Still is an amazing drink, though!
 * Would you like to go out this evening? – _Сходим сегодня вечером куда-нибудь? – Shodim segodnya vecherom kuda-nibud?_
 * Would you like to have dinner with me? –_Поужинаем вместе? – Pouzhynayem vmeste?_
 * I love you. – Я люблю тебя. –_Ya lyublyu tebya._
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Bonus: Basic Russian phrases for football lovers
 
@@ -327,18 +321,21 @@ Just joking. Still is an amazing drink, though!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-approaches.techidaily.com/new-mastering-shadows-and-highlights-through-photoshop-curves/"><u>[New] Mastering Shadows & Highlights Through Photoshop Curves</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-in-2024-dissecting-the-technology-behind-frapss-screenshot-pro/"><u>[Updated] In 2024, Dissecting the Technology Behind Fraps's Screenshot Pro</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/file-format-and-extension-of-filename-dont-match-in-excel-file-by-stellar-guide/"><u>File Format and Extension of filename dont Match in Excel File</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-smallscope-snag-watch-reviews/"><u>In 2024, SmallScope Snag Watch Reviews</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/majority-language-among-israeli-population/"><u>Majority Language Among Israeli Population?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-lithuanian-language-via-internet-methods/"><u>Mastering Lithuanian Language via Internet Methods</u></a></li>
-<li><a href="https://windows11.techidaily.com/navigating-to-windows-ease-of-access-in-5-steps/"><u>Navigating to Windows Ease of Access in 5 Steps</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/tage-der-woche-deutsche-sprache-erweitern/"><u>Tage Der Woche: Deutsche Sprache Erweitern</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-legacy-of-10-ancient-human-communications/"><u>The Legacy of 10 Ancient Human Communications</u></a></li>
-<li><a href="https://techidaily.com/troubleshooting-tips-dealing-with-unresponsive-spotify-apps-in-windows-environments/"><u>Troubleshooting Tips: Dealing with Unresponsive Spotify Apps in Windows Environments</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unleash-your-brain-power-with-language-learning-after-50/"><u>Unleash Your Brain Power with Language Learning After 50</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/1722848735563-while-ipv6-is-designed-with-ipsec-support-actual-implementation-may-vary-security-measures-should-not-solely-rely-on-protocol-design-assumptions/"><u>While IPv6 Is Designed with IPsec Support, Actual Implementation May Vary; Security Measures Should Not Solely Rely on Protocol Design Assumptions</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/youtube-tech-basics-essential-equipment-guide-for-2024/"><u>YouTube Tech Basics Essential Equipment Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-successful-youtubing-master-end-credits-and-makers-sources/"><u>[New] Successful YouTubing Master End Credits and Makers' Sources</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-understanding-youtubes-user-interaction-options/"><u>[Updated] 2024 Approved Understanding YouTube's User Interaction Options</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-cut-and-paste-chronicles-qanda-archive/"><u>[Updated] In 2024, Cut & Paste Chronicles Q&A Archive</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-stepping-up-advanced-techniques-for-w11-gamers/"><u>[Updated] Stepping Up Advanced Techniques for W11 Gamers</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-premier-text-manipulation-software-for-ae/"><u>2024 Approved Premier Text Manipulation Software for AE</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bilingual-blend-techniques/"><u>Bilingual Blend Techniques</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/camera-connoisseurs-hits-the-best-6-of-the-years-4k-cameras-for-2024/"><u>Camera Connoisseurs' Hits The Best 6 of the Year's 4K Cameras for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cognitive-clout-through-cross-cultural-communication/"><u>Cognitive Clout Through Cross-Cultural Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/googles-educational-leader-for-2017-mondly-kids-treats-guide/"><u>Google's Educational Leader for 2017 - Mondly Kids Treats Guide</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-xiaomi-redmi-note-12-pro-5g-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For Xiaomi Redmi Note 12 Pro 5G Phones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-pledge-for-the-new-year/"><u>Language Learning Pledge for the New Year</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/mastering-the-art-of-srt-postings-a-guide-for-platform-specific-strategies-for-2024/"><u>Mastering the Art of SRT Postings A Guide for Platform-Specific Strategies for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/quick-start-5-simple-ways-to-document-your-minecraft-journey-on-a-mac/"><u>Quick Start 5 Simple Ways to Document Your Minecraft Journey on a Mac</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-of-progress-advances-in-language-education-today/"><u>Speaking of Progress: Advances in Language Education Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-fluency-discover-the-best-3-multilingual-resources/"><u>Unlock Fluency: Discover the Best 3 Multilingual Resources</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-your-voice-mondlys-free-courses-offered/"><u>Unlock Your Voice: Mondly's Free Courses Offered</u></a></li>
 </ul></div>
 

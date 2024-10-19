@@ -1,7 +1,7 @@
 ---
 title: Grammar's Presence in the Quest for Fluency
-date: 2024-09-28T19:35:20.767Z
-updated: 2024-10-01T23:57:50.189Z
+date: 2024-10-12T19:31:04.248Z
+updated: 2024-10-18T17:38:58.238Z
 tags:
   - speak
   - english
@@ -24,6 +24,19 @@ Chances are that you probably took language classes at some point in your educat
 
 Many students can manage reading and writing in a foreign language, but they struggle to understand it in conversational form. These situations make it clear that the past methods of language education are lacking. What is the solution?
 
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Language Learning: What Holds People Back?**
 
 One of the best ways to learn a language is to practice both writing the language and speaking it in a conversational manner. This is where many people panic and lose confidence in everything they have learned. If you’re new at a language, chances are that you haven’t even begun to grasp all the important grammar rules. This can lead to insecurity about sounding stupid when you write or speak the language, and this fear might hold you back from practicing.
@@ -31,10 +44,10 @@ One of the best ways to learn a language is to practice both writing the languag
 This is why a focus on grammar is the wrong way to teach and learn a language. Grammar is the art of perfecting the use of a language you already know. When learning a language, it can hold students back in a variety of ways.
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **1\. Complexity**
@@ -42,16 +55,10 @@ This is why a focus on grammar is the wrong way to teach and learn a language. G
 There is a lot to take in when learning a language. The last thing a student needs is to get bogged down in a sea of confusing grammar rules. Of course, there are languages with simpler rules. For example, the [French grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) is more difficult than [the German grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875), but unless you’re naturally gifted at learning languages, realizing there are so many grammar rules to figure out might leave you so discouraged that you give up.
 
 <!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **2\. Incorrect Focus**
@@ -64,13 +71,6 @@ The goal for a language student is to become fluent as quickly as possible. Flue
 
 Most of us don’t speak in the exact same way that we write. We choose different words, use slang and sometimes even say things in a different order than we would when writing them down. How many people do you know who speak using perfect grammar? Sure, some might exist, but it isn’t very common regardless what language we are discussing. For this reason, if you insist on studying grammar first and conversational language second, you might struggle to understand people as they speak. Luckily, nowadays, there are [modern solutions available that immerse you in conversations](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) from day 1\.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **4\. A Major Lack of Fun**
 
 This might seem like a crazy concept to some, but learning a language should be an enjoyable experience! Too much focus on perfecting grammar can suck all the joy out of learning. Instead, students should make language learning about having pleasant conversations and social interactions. The [new breed of language apps](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-717&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-717%26utm%5Fsource%3Dblog-post-id-717&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-717%26utm%5Fsource%3Dblog-post-id-717&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-717%26utm%5Fsource%3Dblog-post-id-717&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-717%26mt%3D8) made the process fun and even [VR apps that help you learn languages](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) have made their way to the market.
@@ -78,10 +78,10 @@ This might seem like a crazy concept to some, but learning a language should be 
 ![Learn grammar with Mondly: French grammar, German Grammar, Spanish Grammar and more](https://edge.mondly.com/blog/wp-content/uploads/2017/10/Webp.net-compress-image-1.jpg "Is Grammar Holding You Back From Learning A Language? 2")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Returning to Our Roots: Learning with the Mind of a Child**
@@ -121,17 +121,20 @@ Start using Mondly for free on your computer or tablet or, better yet, download 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-skills.techidaily.com/new-seo-power-play-strategies-to-amplify-your-podcasts-impact/"><u>[New] SEO Power Play Strategies To Amplify Your Podcast's Impact</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-xiaomi-14-pro-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Xiaomi 14 Pro | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/auditory-ambition-realized-selecting-the-ultimate-interface-for-2024/"><u>Auditory Ambition Realized Selecting the Ultimate Interface for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/dissecting-metaverse-and-omniverse-dynamics/"><u>Dissecting Metaverse & Omniverse Dynamics</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/diving-deep-into-viva-video-functionality/"><u>Diving Deep Into Viva Video Functionality</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-6-proven-ways-to-unlock-itel-p55plus-phone-when-you-forget-the-password-by-drfone-android/"><u>In 2024, 6 Proven Ways to Unlock Itel P55+ Phone When You Forget the Password</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-foreign-tongues-at-any-stage/"><u>Mastering Foreign Tongues At Any Stage</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlyvr-an-immersive-journey-to-language-fluency-awaits/"><u>MondlyVR: An Immersive Journey to Language Fluency Awaits!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/rapidly-learn-french-articulation-guide/"><u>Rapidly Learn French Articulation Guide</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/tips-for-swiftly-show-and-hide-directories-on-windows-11-pcs/"><u>Tips for Swiftly Show & Hide Directories on Windows 11 PCs</u></a></li>
-<li><a href="https://win-dash.techidaily.com/ultimate-tutorial-recording-playthroughs-of-flash-games-using-your-windows-laptopdesktop/"><u>Ultimate Tutorial: Recording Playthroughs of Flash Games Using Your Windows Laptop/Desktop</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/worldwide-traditions-of-a-haunting-holiday/"><u>Worldwide Traditions of a Haunting Holiday</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-how-to-pace-perfectly-on-iphone-capturing-and-editing-slowed-down-videos/"><u>[New] In 2024, How to Pace Perfectly on iPhone Capturing & Editing Slowed Down Videos</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-live-broadcast-essentials-for-macos-users-on-mixer/"><u>[Updated] Live Broadcast Essentials for macOS Users on Mixer</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-top-10-lost-and-found-techniques-for-iphone-x/"><u>[Updated] Top 10 Lost and Found Techniques for iPhone X</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-journey-through-dutch-languages-past/"><u>A Journey Through Dutch Language's Past</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/articulate-your-way-to-fluency-engaging-100-twisters/"><u>Articulate Your Way to Fluency: Engaging 100 Twisters</u></a></li>
+<li><a href="https://howto.techidaily.com/best-methods-for-oppo-a2-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Oppo A2 Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-vs-french-usability-in-international-business/"><u>German Vs French Usability in International Business</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/getting-started-with-windows-movie-maker-6-installs-for-2024/"><u>Getting Started with Windows Movie Maker 6 Installs for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grasping-french-pronunciation-a-starters-toolkit/"><u>Grasping French Pronunciation: A Starter's Toolkit</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-nubia-z50-ultra-location-by-number-drfone-by-drfone-virtual-android/"><u>How to Track Nubia Z50 Ultra Location by Number | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-top-6-free-audio-apps-convert-youtube-hits-to-your-android-device/"><u>In 2024, Top 6 Free Audio Apps - Convert YouTube Hits to Your Android Device</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/inside-mastery-exploring-polarrs-sophisticated-image-editing-for-2024/"><u>Inside Mastery Exploring Polarr's Sophisticated Image Editing for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/languagequest-immersive-vr-for-linguistic-journeys/"><u>LanguageQuest: Immersive VR for Linguistic Journeys</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/orthographic-odyssey-comparing-brazilian-and-european/"><u>Orthographic Odyssey: Comparing Brazilian and European</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719575317148-revolutionize-language-learning-8-impactful-reasons-to-study-hindi-with-mondly/"><u>Revolutionize Language Learning: 8 Impactful Reasons to Study Hindi with Mondly</u></a></li>
 </ul></div>
 

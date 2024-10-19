@@ -1,7 +1,7 @@
 ---
 title: Spanish Counting 1-10 For Starters
-date: 2024-08-27T22:51:53.149Z
-updated: 2024-08-28T22:51:53.149Z
+date: 2024-10-12T19:49:38.173Z
+updated: 2024-10-18T23:00:51.234Z
 tags:
   - speak
   - english
@@ -35,6 +35,19 @@ thumbnail: https://thmb.techidaily.com/30c3f68025cf60445ca0af9503de0d05421151fac
  Until then, here’s cool audio of a fluent speaker pronouncing the Spanish numbers 1 to 10:
 
 **Good to know:** _uno_becomes an article and changes to_un_if it’s in front of a noun. For example,_un cerdo_translates to “a pig” in English.
+
+<!-- affiliate ads begin -->
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Spanish numbers to 40
 
@@ -71,8 +84,12 @@ thumbnail: https://thmb.techidaily.com/30c3f68025cf60445ca0af9503de0d05421151fac
  As you can see, up to 30 (“thirty”), the numbers are bound together, but from there on they part ways to make counting in Spanish even easier for you. Basically, you won’t say “thirty-one”, but “thirty**and** one”:_treinta y uno_ .
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Count to 100 in Spanish
 
  As we already settled, counting in Spanish is all about mastering the basics. Now that you know how to count to 40, counting to 100 in Spanish is a piece of cake. Just learn the tens and you are ready to go.
@@ -103,8 +120,12 @@ thumbnail: https://thmb.techidaily.com/30c3f68025cf60445ca0af9503de0d05421151fac
 * 98 –_noventa y ocho_
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Spanish numbers to 1000 and beyond
 
  Hundreds shouldn’t scare you either. They are just as simple. Once you know how the hundreds are, you’ll also know the numbers in between.
@@ -143,17 +164,12 @@ Here are some more examples:
 ![count in Spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/07/count-in-spanish-960x663.jpg "Spanish Numbers: How To Count Numbers In Spanish 4")
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Barcelona, Spain
 
  If you want to go even further, thousands and millions work exactly like in English: number +_mil_ (“thousand”) or_millón_ (“million”). Here are some examples:
@@ -194,8 +210,6 @@ Here are some more examples:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -203,4 +217,21 @@ Here are some more examples:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-journey-beyond-boundaries-secure-this-top-7-metavue-tech/"><u>[New] 2024 Approved Journey Beyond Boundaries - Secure This Top 7 Metavue Tech</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-expert-tips-to-improve-skype-broadcasts-using-obs/"><u>[New] Expert Tips to Improve Skype Broadcasts Using OBS</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-fifa-video-highlights-top-youtube-data-infographics-for-2024/"><u>[New] FIFA Video Highlights Top YouTube Data Infographics for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-brighten-up-your-gaming-setup-eliminate-black-screens-with-obs/"><u>[New] In 2024, Brighten Up Your Gaming Setup Eliminate Black Screens with OBS</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-in-2024-step-by-step-incorporating-roles-into-your-discord-server/"><u>[New] In 2024, Step-by-Step Incorporating Roles Into Your Discord Server</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/from-raw-footage-to-social-stardom-the-art-of-video-cropping-on-instagram/"><u>From Raw Footage to Social Stardom The Art of Video Cropping on Instagram</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-life360-shows-wrong-location-on-oneplus-11r-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Life360 Shows Wrong Location On OnePlus 11R? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/los-dias-del-mundo-en-espanol-descubriendo-cada-jornada/"><u>Los Días Del Mundo en Español: Descubriendo Cada Jornada</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-years-gift-to-you-free-mondly-pro-for-life/"><u>New Year's Gift to You - Free Mondly Pro for Life!</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/step-by-step-instructions-for-downloading-broadcom-bluetooth-driver-for-windows-users/"><u>Step-by-Step Instructions for Downloading Broadcom Bluetooth Driver for Windows Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-heart-of-indonesia-greetings-and-more/"><u>The Heart of Indonesia: Greetings and More</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/toasting-to-1500-educational-milestones/"><u>Toasting to 1,500 Educational Milestones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vr-language-app-mondly-enhances-global-oculus-experience/"><u>VR Language App 'Mondly' Enhances Global Oculus Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/wow-venetians-with-unique-expressions-and-vocabulary/"><u>Wow Venetians with Unique Expressions and Vocabulary</u></a></li>
+</ul></div>
 

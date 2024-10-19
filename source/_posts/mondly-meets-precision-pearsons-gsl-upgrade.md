@@ -1,7 +1,7 @@
 ---
 title: "Mondly Meets Precision: Pearson's GSL Upgrade"
-date: 2024-08-27T22:56:23.555Z
-updated: 2024-08-28T22:56:23.555Z
+date: 2024-10-13T00:12:20.292Z
+updated: 2024-10-19T00:39:07.719Z
 tags:
   - speak
   - english
@@ -38,16 +38,17 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 
  By placing languages on a common scale, underpinned by a common set of Learning Objectives, the GSL can ensure comparability across languages to bring greater clarity and simplicity to language learning.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ### **How Pearson created the GSL**
 
  Building on the GSE, our research team at Pearson decided to prove that this scale could also be transferable to other languages. The study’s results were not only encouraging but groundbreaking. The research confirmed that the GSE is directly transferable to other languages, making it possible for Pearson to develop the new GSL framework.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **Why the GSL stands out**
 
 * **Unparalleled insights:**  Going a step beyond traditional language measurement tools like the CEFR, the GSL provides a more detailed understanding of a learner’s skills through extensive global research.
@@ -55,9 +56,12 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 * **Personalized learning pathways:**  With clear objectives at each scale point, the GSL ensures a learning journey tailored to individual goals, making progression more efficient.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<a href="https://appsumo.8odi.net/c/5597632/2151872/7443" target="_top" id="2151872">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151872" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151872/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Why start with French, Spanish, and Italian?**
 
  These three languages, rich in history and culture, have always been popular choices among our learners. We believe that by integrating GSL with these languages first, we can enhance the learning experience for a larger number of our users.
@@ -67,8 +71,12 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
  As a Mondly user immersing in these languages, you can expect a fresh content approach, and a progressively structured layout.
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Language learning backed by unparalleled global research**
 
  Our integration with the GSL reaffirms our commitment to providing an unmatched learning experience.
@@ -81,8 +89,12 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **Fast-track your progress with Mondly by Pearson**
 
  Whether you’re passionate about French, Spanish, Italian or English, Mondly now offers an enhanced learning journey backed by the precision of the GSL. Celebrate this European Day of Languages by diving into the world of languages with newfound clarity and insight.
@@ -95,8 +107,6 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -104,4 +114,18 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-the-ultimate-strategies-for-leveraging-the-question-sticker-on-instagram/"><u>[New] In 2024, The Ultimate Strategies for Leveraging the Question Sticker on Instagram</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-unlimited-free-image-refinement-onlinemobile/"><u>[Updated] 2024 Approved Unlimited Free Image Refinement Online/Mobile</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-6-ways-to-transfer-contacts-from-nubia-red-magic-8s-pro-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 6 Ways To Transfer Contacts From Nubia Red Magic 8S Pro to iPhone | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-innovate-iconoclastic-images-using-giphy/"><u>In 2024, Innovate Iconoclastic Images Using Giphy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mind-multitasker-top-6-benefits-of-dual-language-skills/"><u>Mind-Multitasker: Top 6 Benefits of Dual Language Skills</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolving-invalid-entry-error-in-directories-expert-tips-and-solutions/"><u>Resolving 'Invalid Entry' Error in Directories - Expert Tips & Solutions</u></a></li>
+<li><a href="https://extra-support.techidaily.com/shopping-highlights-editing-steps-for-hauls-and-collections-for-2024/"><u>Shopping Highlights Editing Steps for Hauls & Collections for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-italian-signal-speaking/"><u>The Art of Italian Signal Speaking</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essential-reference-for-japanese-language-learners/"><u>The Essential Reference for Japanese Language Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-skillful-home-cooking-techniques-and-strategies/"><u>The Ultimate Guide to Skillful Home Cooking Techniques and Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unraveling-korean-mastering-hangul-with-ease/"><u>Unraveling Korean: Mastering Hangul with Ease</u></a></li>
+</ul></div>
 

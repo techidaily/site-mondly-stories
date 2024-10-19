@@ -1,7 +1,7 @@
 ---
 title: Learn the Language of Respectful Communication in Japan
-date: 2024-10-06T00:56:39.799Z
-updated: 2024-10-12T23:47:28.633Z
+date: 2024-10-16T17:40:56.691Z
+updated: 2024-10-19T00:41:30.821Z
 tags:
   - speak
   - english
@@ -45,16 +45,16 @@ thumbnail: https://thmb.techidaily.com/32a49341dcd2e3ff58b1a58ec7c331011d71244cd
 
  Curious about why there are multiple types of characters in Japanese? Here’s everything there is to know about the [Japanese writing system](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **How to say “hello” on the phone in Japanese: moshi moshi (もしもし)**
 
  Unlike English, which uses the same “hello” for a lot of different social contexts, the Japanese language has a dedicated “hello” for answering the phone:**moshi moshi (もしもし).** Doesn’t that sound cute?
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 2\. Good morning in Japanese and other relevant greetings
 
@@ -75,10 +75,10 @@ This greeting is used both as a “hello” and as a “goodbye”.
  “Meguro River, Matsuno, Japan” by Sora Sagano©
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3.“Goodbye” in Japanese
@@ -98,13 +98,20 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![goodbye in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/goodbye-in-japanese-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 4")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  “See you soon, human” by Alain Pham©
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. “Thank you” in Japanese and other polite phrases that you should know
@@ -130,13 +137,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
 * _Iie_ (いいえ) – instead of_Dou itashi mashite,_ you can say_Iie,_ which means “no” as in “it was nothing”.
 
 ![arigato](https://edge.mondly.com/blog/wp-content/uploads/2019/08/arigato-1024x706.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 5")
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  “Kyoto, Japan” by Andre Benz©
 
@@ -209,24 +209,17 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-elevate-reach-optimal-strategies-for-crafting-youtube-titles-and-tags/"><u>[Updated] In 2024, Elevate Reach Optimal Strategies for Crafting YouTube Titles & Tags</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-aspiring-asmr-producers-guide-to-video-excellence-for-2024/"><u>[Updated] The Aspiring ASMR Producer's Guide to Video Excellence for 2024</u></a></li>
-<li><a href="https://apple-account.techidaily.com/apple-id-locked-or-disabled-on-apple-iphone-13-mini-7-mehtods-you-cant-miss-by-drfone-ios/"><u>Apple ID Locked or Disabled On Apple iPhone 13 mini? 7 Mehtods You Cant-Miss</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/combining-zoom-and-facebook-live-a-step-by-step-guide-for-2024/"><u>Combining Zoom & Facebook Live A Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/easy-guide-to-uploading-videos-from-your-computer-to-youtube-using-a-free-converter/"><u>Easy Guide to Uploading Videos From Your Computer to YouTube Using a Free Converter</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enhancing-your-lexicon-mondlys-revolutionized-phrases/"><u>Enhancing Your Lexicon: Mondly's Revolutionized Phrases</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-words-mastery-with-oxfords-innovative-approach/"><u>Essential Words Mastery with Oxford's Innovative Approach</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/experience-the-peak-of-ease-and-effectiveness-with-mondly/"><u>Experience the Peak of Ease and Effectiveness with Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exploring-vietnam-a-language-led-adventure/"><u>Exploring Vietnam: A Language-Led Adventure</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/flash-bangla-10-minute-a-day-language-routine/"><u>Flash Bangla: 10-Minute a Day Language Routine</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/flourish-in-multilingualisms-landscape/"><u>Flourish in Multilingualism's Landscape</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/french-shades-quickly-say-them-right/"><u>French Shades: Quickly Say Them Right!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/gaining-wisdom-in-world-languages/"><u>Gaining Wisdom in World Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/german-for-novices-mastering-sounds-and-symbols/"><u>German for Novices: Mastering Sounds & Symbols</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-honor-x50iplus-phone-with-broken-screen-by-drfone-android/"><u>In 2024, How to Unlock Honor X50i+ Phone with Broken Screen</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/navigating-through-gopro-models-and-specifications-for-2024/"><u>Navigating Through GoPro Models & Specifications for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/the-best-start-streamlined-tools-for-novice-game-editors/"><u>The Best Start Streamlined Tools for Novice Game Editors</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/the-most-effective-ways-to-bypass-iphone-6s-plus-activation-lock-by-drfone-ios/"><u>The Most Effective Ways to Bypass iPhone 6s Plus Activation Lock</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/top-4-innovative-features-of-the-new-iphone-16-that-propel-its-superiority-over-previous-models-insights/"><u>Top 4 Innovative Features of the New iPhone 16 That Propel Its Superiority Over Previous Models - Insights</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-eastern-mini-homes-top-6-creative-concepts-in-mc/"><u>[New] Eastern Mini-Homes Top 6 Creative Concepts in MC</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-secrets-of-squaring-up-making-square-format-videos-with-imovie-for-instagram/"><u>[Updated] The Secrets of Squaring Up Making Square-Format Videos with iMovie for Instagram</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-top-photo-browser-with-lightning-speed/"><u>[Updated] Top Photo Browser with Lightning Speed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beyond-ageing-language-learnings-untapped-potential/"><u>Beyond Ageing: Language Learning's Untapped Potential</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bow-or-shake-hands-japanese-greetings-explained/"><u>Bow or Shake Hands? Japanese Greetings Explained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-israels-preferred-mode-of-communication/"><u>Exploring Israel's Preferred Mode of Communication</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-itel-p55plus-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Itel P55+ without Losing Data | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-non-google-augmented-reality-visual-aids/"><u>In 2024, Non-Google Augmented Reality Visual Aids</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-top-5-asus-rog-phone-7-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>In 2024, Top 5 Asus ROG Phone 7 Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-final-cut-pro-essentials-rotating-clips-with-ease-for-2024/"><u>New Final Cut Pro Essentials Rotating Clips with Ease for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580234171-new-years-gift-to-you-free-mondly-pro-for-life/"><u>New Year's Gift to You - Free Mondly Pro for Life</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/quick-and-simple-guide-performing-a-fresh-installation-of-windows-11/"><u>Quick & Simple Guide: Performing a Fresh Installation of Windows 11</u></a></li>
 </ul></div>
 

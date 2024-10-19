@@ -1,7 +1,7 @@
 ---
 title: Language Nuances Between American and British Cultures
-date: 2024-10-05T18:22:47.101Z
-updated: 2024-10-12T16:09:48.438Z
+date: 2024-10-11T17:02:17.566Z
+updated: 2024-10-18T16:10:20.543Z
 tags:
   - speak
   - english
@@ -33,6 +33,19 @@ thumbnail: https://thmb.techidaily.com/cc01732303965dd5a4fe7a6395032b1f09e613e11
  Differences between American English and British English may be observed in pronunciation (Brits soften the pronunciation of the “R” sound while Americans [pronounce](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) it completely), vocabulary, grammar, spelling, punctuation, and even idioms. Additionally, Americans also chose to use different formatting for dates and numbers.
 
  Let’s dive into a little more detail and analyze each point of differentiation.
+
+<!-- affiliate ads begin -->
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## British vs American: most common vocabulary differences
 
@@ -95,18 +108,18 @@ thumbnail: https://thmb.techidaily.com/cc01732303965dd5a4fe7a6395032b1f09e613e11
 
  Although spelling, accent, and vocabulary differences are the most notorious distinctions, American English and British English are divergent in some [grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) matters as well.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Collective nouns
 
  In American English, collective nouns such as “band”, “team”, “family” or “crew” are considered plural. In contrast, British English considers collective nouns either singular or plural, but more often plural as a way to emphasize the members of the group.
 
  Thus, while**“The band is playing”** in the US, in the UK**“The band are playing”** . Likewise, if I’m in the US,**“My team is winning”** . But if I’m in the UK,**“My team are winning”** .
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Learned or learnt?
 
@@ -115,10 +128,10 @@ thumbnail: https://thmb.techidaily.com/cc01732303965dd5a4fe7a6395032b1f09e613e11
  Many verbs that are irregular in the past tense in British English (_dreamt, burnt, learnt_), have been made regular in American English (_dreamed, burned, learned_).
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Got or gotten?
@@ -129,18 +142,24 @@ thumbnail: https://thmb.techidaily.com/cc01732303965dd5a4fe7a6395032b1f09e613e11
 
 **American English:** get – got – gotten
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Tenses
 
  While Brits tend to use the present perfect tense to describe something that has recently occurred, Americans usually go with the past simple tense.
 
  Thus, in Britain, you’ll say**“I’ve been to the supermarket”** and in the US you’ll say**“I went to the supermarket”** .
+
+<!-- affiliate ads begin -->
+<span id="1982459">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Prepositions
 
@@ -157,10 +176,10 @@ thumbnail: https://thmb.techidaily.com/cc01732303965dd5a4fe7a6395032b1f09e613e11
  Additionally, in Britain, you are likely to hear “needn’t” a lot and in the US not at all. In its place, Americans use “don’t need to”.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## British accent vs American accent
@@ -183,13 +202,6 @@ thumbnail: https://thmb.techidaily.com/cc01732303965dd5a4fe7a6395032b1f09e613e11
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Brush up your English in just 10 minutes a day
 
@@ -216,24 +228,17 @@ thumbnail: https://thmb.techidaily.com/cc01732303965dd5a4fe7a6395032b1f09e613e11
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/n-2024-essential-free-editing-software-rankings/"><u>[New] In 2024, Essential Free Editing Software Rankings</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-top-meme-making-tools-discover-your-favorites/"><u>[Updated] Top Meme-Making Tools Discover Your Favorites</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/expert-strategies-for-effective-online-image-trimming-for-2024/"><u>Expert Strategies for Effective Online Image Trimming for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/get-set-to-engage-with-the-newest-ai-discussion-partner/"><u>Get Set to Engage with the Newest AI Discussion Partner</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/hurry-up-learn-french-chromatic-sounds/"><u>Hurry Up, Learn French Chromatic Sounds</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-achieving-a-natural-sound-curve-dimming-audio-smoothly/"><u>In 2024, Achieving a Natural Sound Curve Dimming Audio Smoothly</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-vivo-y36i-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Vivo Y36i? | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-top-affordable-panoramic-cameras-under-100/"><u>In 2024, Top Affordable Panoramic Cameras Under $100</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-vivo-t2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Vivo T2 5G | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/latin-legacy-the-most-coolest-50-phrases-to-use-wisely/"><u>Latin Legacy: The Most Coolest 50 Phrases to Use Wisely</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/love-transcends-find-more-ways-to-say-i-love-you/"><u>Love Transcends: Find More Ways to Say I Love You</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-and-german-a-symbiotic-masterpiece-for-education/"><u>Mondly & German - A Symbiotic Masterpiece for Education</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-launches-the-first-vr-language-app-with-speech-recognition-on-daydream/"><u>Mondly Launches the First VR Language App with Speech Recognition on Daydream</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/overcoming-system-lockups-expert-advice-for-defrosting-frozen-computers/"><u>Overcoming System Lockups: Expert Advice for Defrosting Frozen Computers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pedagogical-approaches-to-learning-mandarin-script/"><u>Pedagogical Approaches to Learning Mandarin Script</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/resolving-the-btballloondll-file-not-presentmissing-issue-on-your-pc/"><u>Resolving the btballloon.dll File Not Present/Missing Issue on Your PC</u></a></li>
-<li><a href="https://win-blog.techidaily.com/solving-sea-of-thieves-stuck-screen-problem-expert-advice-and-solutions/"><u>Solving Sea of Thieves Stuck Screen Problem: Expert Advice and Solutions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-bards-legacy-36-phrases-in-modern-speech/"><u>The Bard’s Legacy: 36 Phrases in Modern Speech</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-polite-speech-of-china-understanding-xiexie/"><u>The Polite Speech of China: Understanding Xièxiè</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/reak-free-from-linearity-mastering-jump-cut-transitions-for-2024/"><u>[New] Break Free From Linearity Mastering Jump Cut Transitions for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-sky-gazers-rejoice-discovering-the-elevation-expertise-of-dji-spark/"><u>[New] Sky Gazers Rejoice! Discovering the Elevation Expertise of DJI Spark</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-expert-reviews-top-5-high-performance-video-devices-for-2024/"><u>[Updated] Expert Reviews Top 5 High-Performance Video Devices for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-lightning-fast-instagram-videos-tips-for-mobile-users/"><u>[Updated] Lightning-Fast Instagram Videos Tips for Mobile Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-slovak-in-minutes-easy-online-learning-pathway/"><u>Conquer Slovak in Minutes: Easy Online Learning Pathway</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/gratuita-conversor-de-videos-online-para-archivo-flv-com-o-movavi-perfeito-para-download-e-uso/"><u>Gratuita: Conversor De Vídeos Online Para Archivo FLV Com O Movavi - Perfeito Para Download E Uso</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-unlock-icloud-activation-lock-and-icloud-account-on-iphone-7-by-drfone-ios/"><u>How to Unlock iCloud Activation Lock and iCloud Account On iPhone 7?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-how-to-post-photos-and-videos-on-twitter-from-smartphones/"><u>In 2024, How To Post Photos and Videos on Twitter From Smartphones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-leap-forward-fastest-to-learn-global-languages/"><u>Language Leap Forward: Fastest-to-Learn Global Languages</u></a></li>
+<li><a href="https://howto.techidaily.com/tecno-camon-20-camera-not-working-unexpected-error-fix-it-now-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Tecno Camon 20 Camera Not Working Unexpected Error? Fix It Now | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/turbocharge-your-turkish-learning-with-this-phonetic-and-orthographic-guide/"><u>Turbocharge Your Turkish Learning With This Phonetic & Orthographic Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-8-engaging-reasons-to-master-hindi-with-mondly-online/"><u>Unveiling 8 Engaging Reasons to Master Hindi with Mondly Online</u></a></li>
 </ul></div>
 

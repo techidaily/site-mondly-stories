@@ -1,7 +1,7 @@
 ---
 title: Saudar a Portugal Com Flauta Dos Dialetos
-date: 2024-10-11T17:14:11.214Z
-updated: 2024-10-12T19:20:15.596Z
+date: 2024-10-11T23:40:31.297Z
+updated: 2024-10-18T16:05:34.448Z
 tags:
   - speak
   - english
@@ -25,10 +25,10 @@ thumbnail: https://thmb.techidaily.com/fb9dc69321147c58e76f643c816e11fbbc732b6fd
  “Hello” is a [powerful word](https://www.merriam-webster.com/words-at-play/the-origin-of-hello) . It opens doors. It makes people smile. And said the right way and at the right time, “hello” can impact someone’s day and you wouldn’t even know it. So here are the right ways to say “hello” in Portuguese and open doors everywhere you go.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### “Hello” in Portuguese – Olá
@@ -42,6 +42,13 @@ _Olá_ is the best choice for most social situations regardless of the person yo
  Friendly and very informal,_Oi!_ is one of the most common ways to greet your friends in Brazil (people from Portugal use it as well, but not as much as_olá)_ . This is how you could greet your mates and close colleagues, but never the people you don’t really know. Don’t stress it tough! When the time comes, you will feel and just know what’s the required Portuguese greeting for that particular situation.
 
 ![hi in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-portuguese-1024x658.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 2")
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  “Lisbon, Portugal” by Diego García©
 
@@ -65,10 +72,10 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ![good morning in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/good-morning-in-portuguese-1024x642.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 3")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  “Rio de Janeiro, Brazil” by Raphael Nogueira©
@@ -95,14 +102,14 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ![portuguese greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/08/portuguese-greetings-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 4")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “Ruínas da Fortaleza de Arrifana, Aljezur, Portugal” by Ferhat Deniz Fors©
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Bonus: other basic Portuguese phrases that you should know
 
@@ -135,13 +142,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Here’s how to speak Portuguese in 10 minutes a day
 
  Do you want to practice what you’ve learned and maybe learn some more Portuguese? **Check Mondly, the revolutionary language learning platform that makes language learning fun, fast and easy!**
@@ -173,22 +173,17 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-navigating-content-size-on-igtv-top-5-expert-tips-to-consider/"><u>[New] 2024 Approved Navigating Content Size on IGTV Top 5 Expert Tips to Consider</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-cut-to-the-chase-quick-background-blur-tricks-for-everyday-meets/"><u>[Updated] 2024 Approved Cut to the Chase Quick Background Blur Tricks for Everyday Meets</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-navigating-instagrams-reel-arena-with-precision/"><u>[Updated] Navigating Instagram's Reel Arena with Precision</u></a></li>
-<li><a href="https://win-manuals.techidaily.com/1728476935493-windows-file-recovery/"><u>🛠️ 如何透過無需付費的 Windows File Recovery工具自行撤消刪除文件？</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-the-efficient-flow-of-content-tiktok-to-your-fb-profile/"><u>2024 Approved The Efficient Flow of Content TikTok to Your FB Profile</u></a></li>
-<li><a href="https://driver-download.techidaily.com/easy-tutorial-for-downloading-and-setting-up-hp-laserjet-pro-m402n-drivers-in-windows/"><u>Easy Tutorial for Downloading and Setting Up HP LaserJet Pro M402n Drivers in Windows</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/greeting-globetrotters-10-languages-one-sunrise-message/"><u>Greeting Globetrotters: 10 Languages, One Sunrise Message</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/hanzi-101-a-primer-on-chinese-writing/"><u>Hanzi 101: A Primer on Chinese Writing</u></a></li>
-<li><a href="https://common-error.techidaily.com/how-to-fix-common-wacom-tablet-connectivity-problems/"><u>How to Fix Common Wacom Tablet Connectivity Problems</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-journey-through-cinematic-universes-with-vr/"><u>In 2024, Journey Through Cinematic Universes with VR</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/is-the-samsung-un65nu8000fxza-overpriced-a-comprehensive-tv-showdown/"><u>Is the Samsung UN6^5NU8000FXZA Overpriced? A Comprehensive TV Showdown!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-russian-basic-numerical-skills/"><u>Mastering Russian: Basic Numerical Skills</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-leads-the-augmented-reality-in-language-classes/"><u>Mondly Leads the Augmented Reality in Language Classes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/most-extended-term-exploration-initiative/"><u>Most Extended Term Exploration Initiative</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/multilingual-eloquence-for-joyous-occasions/"><u>Multilingual Eloquence for Joyous Occasions</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/resolving-the-0x00000019-bad-pool-header-issue-in-windows-operating-systems/"><u>Resolving the '0X00000019: Bad Pool Header' Issue in Windows Operating Systems</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/warm-up-your-world-with-french-mastering-the-art-of-saying-bonjour/"><u>Warm Up Your World with French: Mastering the Art of Saying 'Bonjour'</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-instagram-saves-free-and-without-end/"><u>[New] In 2024, Instagram Saves Free and Without End</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-pioneering-applications-in-3d-animation-design/"><u>[New] In 2024, Pioneering Applications in 3D Animation Design</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-innovative-techniques-crafting-unique-boomerangs-on-snapchat/"><u>[New] Innovative Techniques Crafting Unique Boomerangs on Snapchat</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-streamlined-editing-of-your-tiktok-age/"><u>[Updated] Streamlined Editing of Your TikTok Age</u></a></li>
+<li><a href="https://driver-install.techidaily.com/access-top-tier-sound-in-minutes/"><u>Access Top-Tier Sound in Minutes!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apertenca-a-cultura-portuguesa-greves-tipicas/"><u>Apertença À Cultura Portuguesa: Greves Tipicas</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/charm-crafted-conversations-flirting-in-english-dialogue/"><u>Charm Crafted Conversations: Flirting in English Dialogue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-english-grammars-depth-with-9-essential-hints-from-an-experienced-esl-expert/"><u>Dive Into English Grammar's Depth with 9 Essential Hints From an Experienced ESL Expert</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-xiaomi-redmi-k70-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Xiaomi Redmi K70 to iPhone | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/marauders-dictionary-20-terms-to-sound-like-a-buccaneer/"><u>Marauder's Dictionary: 20 Terms to Sound Like a Buccaneer</u></a></li>
+<li><a href="https://driver-error.techidaily.com/no-display-for-hardware-drives-in-w1011/"><u>No Display for Hardware Drives in W10/11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-timeless-journey-of-polyglots/"><u>The Timeless Journey of Polyglots</u></a></li>
 </ul></div>
 

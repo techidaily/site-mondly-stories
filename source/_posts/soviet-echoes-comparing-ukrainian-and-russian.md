@@ -1,7 +1,7 @@
 ---
 title: "Soviet Echoes: Comparing Ukrainian and Russian"
-date: 2024-08-27T22:57:27.504Z
-updated: 2024-08-28T22:57:27.504Z
+date: 2024-10-12T16:41:34.014Z
+updated: 2024-10-18T20:22:24.392Z
 tags:
   - speak
   - english
@@ -26,8 +26,6 @@ thumbnail: https://thmb.techidaily.com/e20731976346abc5e9e51e32ccd4741e92a00f139
 
  Contrary to what some people believe, Ukrainian and Russian are not the same language. Despite sharing a common ancestor and the Cyrillic script, Ukrainian and Russian are two distinct languages. They are somehow similar, yes, but not one and the same. To help you understand the relationship between the two, we are going to look at their shared history and both their differences and similarities.
 
-
-
 ## Was Ukrainian really called Little Russian?
 
  In short, yes. The Ukrainian language was formerly called Little Russian, but the term is now considered pejorative. Let’s see how all the events leading to this name unfolded.
@@ -51,9 +49,6 @@ thumbnail: https://thmb.techidaily.com/e20731976346abc5e9e51e32ccd4741e92a00f139
 
  As a result of Ukraine’s centuries-long political subordination, Ukrainian had almost no literary expression until de 18th century when the modern literary Ukrainian language was born.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The Russian language – a short history
 
  Russian, known as Русский язык (romanized:_Russkiy yazyk_) to Russians, is the official language of Russia, Belarus, Kazakhstan, and Kyrgyzstan and it is also used as a second language in other former Soviet countries. Additionally, Russian is one of the six official United Nations languages and the 8th most spoken language in the world with a total of 260 million speakers.
@@ -66,6 +61,13 @@ thumbnail: https://thmb.techidaily.com/e20731976346abc5e9e51e32ccd4741e92a00f139
 
  Later, the Soviet period brought Russian worldwide prestige which declined after the 1991 collapse. Despite each USSR constituent republic having its own official language, Russian had a unified role and superior status. This is why there are so many people speaking Russian outside Russia.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How similar are Ukrainian and Russian?
 
  The misconception that Russian and Ukrainian are the same sometimes stems from the fact that Russian is widely spoken in Ukraine. The numbers can differ slightly according to various sources, but it’s generally agreed that 60% of Ukrainians consider Ukrainian their native language, while 15% consider Russian to be their native language. Moreover, 22% consider both to be their native languages.
@@ -77,33 +79,20 @@ thumbnail: https://thmb.techidaily.com/e20731976346abc5e9e51e32ccd4741e92a00f139
 !['Russian language' by Dimitry B©](https://edge.mondly.com/blog/wp-content/uploads/2022/03/russian-language-960x639.jpg "Ukrainian And Russian: How Similar Are These Two Languages? 5")
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Since most Ukrainian speakers also speak Russian or have extensive exposure to it, ‘asymmetric intelligibility’ is the best term to describe the relationship between the two languages. In other words, Ukrainian speakers can often understand Russian, while Russian speaker doesn’t understand Ukrainian, especially Russian speakers from outside Ukraine.
 
  However, all three languages – Ukrainian, Russian and Belarusian – are in part mutually intelligible, and already knowing one can help a lot if you want to learn one of the others.
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How different are Ukrainian and Russian?
 
  Now that we’ve explained the history behind Ukrainian and Russian, it’s time to look at some more practical examples. A 62% lexical similarity may sound like a lot, but these two languages are not as similar as many might think. Here are some of the most important differences between Russian and Ukrainian.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Alphabet
 
  Both Ukrainian and Russian use the 33-letter [Cyrillic alphabet](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , but there are four letters in Ukrainian missing from Russian (ґ, є, і, ї), and four letters in Russian missing from Ukrainian (ё, ъ, ы, э).
@@ -128,6 +117,13 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
  Showing 1 to 6 of 6 entries
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Sounds and pronunciation
 
  While to a non-trained ear Russian and Ukrainian might sound the same, they actually have several differences when it comes to pronunciation. For example, Ukrainian has a specific sound for “Г г” (similar to \[h\] in ‘aha!’) which Russian doesn’t have. For this letter, Russian uses the \[g\] sound which is similar to the ‘g’ in ‘go’ or ‘guard’. As a consequence, it’s very easy to differentiate a Ukrainian speaker from a Russian speaker as Ukrainians sometimes overlook the usage of \[g\] instead of \[h\].
@@ -139,9 +135,6 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 * Ukrainian uses more soft consonants compared to Russian;
 * Russian \[ы\] is deeper than Ukrainian \[и\] and Russian \[э\] is more open than Ukrainian \[е\].
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Grammar
 
  When it comes to grammar, Russian and Ukrainian have similar principles and categories:
@@ -164,8 +157,12 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Learn Ukrainian, Russian and more in just 10 minutes a day
 
  Do you want to learn languages fast? Get Mondly, the award-winning language app that will help you speak Ukrainian, Russian and more from day 1.
@@ -186,8 +183,6 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -195,4 +190,24 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-complete-capture-master-az-reviews-and-backups-for-2024/"><u>[New] Complete Capture Master - AZ Reviews & Backups for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-techniques-to-create-compelling-vlogger-dialogue-plans/"><u>2024 Approved Techniques to Create Compelling Vlogger Dialogue Plans</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/comprehensive-guide-and-verdict-on-the-alcatel-joy-tab-2s-value-packed-budget-lte-device/"><u>Comprehensive Guide & Verdict on the Alcatel Joy Tab 2'S Value-Packed Budget LTE Device</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/direct-hit-the-techno-friendly-way-to-upload-your-short-clips-for-2024/"><u>Direct Hit The Techno-Friendly Way to Upload Your Short Clips for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-lava-yuva-3-pro-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove Lava Yuva 3 Pro Fingerprint Lock</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-boost-canons-charm-10-free-luts-tailored-upgrades-await/"><u>In 2024, Boost Canon's Charm 10 Free LUTs, Tailored Upgrades Await</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-the-secret-sleuths-guide-exploring-instagram-stories-without-profile-visibility-pcandroidios/"><u>In 2024, The Secret Sleuth's Guide Exploring Instagram Stories without Profile Visibility [PC/Android/iOS]</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/join-the-quest-for-europes-language-riches-this-day/"><u>Join the Quest for Europe's Language Riches This Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-kinship-between-uk-and-russ/"><u>Linguistic Kinship Between Uk & Russ</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/revolutionize-your-soundtracks-a-comprehensive-guide-to-the-most-effective-voice-suppressing-technology-in-music-and-karaoke-production/"><u>Revolutionize Your Soundtracks A Comprehensive Guide to the Most Effective Voice-Suppressing Technology in Music and Karaoke Production.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rhythm-based-language-leapfrogging-scientific-approaches/"><u>Rhythm-Based Language Leapfrogging: Scientific Approaches</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/romantic-riddles-unraveling-italys-pick-up-lines/"><u>Romantic Riddles: Unraveling Italy's Pick Up Lines</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sich-zu-verantworten-deutsche-ausdrucksweisen-erlernen/"><u>Sich Zu Verantworten – Deutsche Ausdrucksweisen Erlernen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-numbers-1-10-explained/"><u>Spanish Numbers 1-10 Explained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-polyglot-puzzle-europes-linguistic-plurality-celebrated/"><u>The Polyglot Puzzle: Europe's Linguistic Plurality Celebrated</u></a></li>
+<li><a href="https://android-frp.techidaily.com/ultimate-guide-from-huawei-p60-frp-bypass-by-drfone-android/"><u>Ultimate Guide from Huawei P60 FRP Bypass</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-hindi-potential-with-mondly-the-best-reasons-why/"><u>Unlocking Hindi Potential with Mondly: The Best Reasons Why!</u></a></li>
+</ul></div>
 

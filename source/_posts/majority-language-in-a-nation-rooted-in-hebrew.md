@@ -1,7 +1,7 @@
 ---
 title: Majority Language in a Nation Rooted in Hebrew
-date: 2024-10-01T04:36:08.101Z
-updated: 2024-10-07T06:17:11.947Z
+date: 2024-10-13T00:40:28.266Z
+updated: 2024-10-18T20:03:13.049Z
 tags:
   - speak
   - english
@@ -27,10 +27,16 @@ thumbnail: https://thmb.techidaily.com/2fbc3e6f44db715797c33edc684fdec869f92d47c
  Although Hebrew can be seen and heard everywhere, Israel’s laws are officially published in Arabic and English as well. The same is true for most road signs, food labels, medicine brochures, safety regulations and messages published by the government.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1374819">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Hebrew
@@ -40,13 +46,6 @@ thumbnail: https://thmb.techidaily.com/2fbc3e6f44db715797c33edc684fdec869f92d47c
  What’s fascinating about [Hebrew](https://books.google.ro/books?id=EZCgpaTgLm0C&pg=PA1&redir%5Fesc=y#v=onepage&q&f=false) is that it ceased to be an everyday spoken language somewhere between the 2nd and 4th century CE. During the medieval period it survived only as a sacred language of Jewish liturgy and rabbinic literature. But then, toward the end of the 19th century and into the 20th century, with the rise of Zionism, it was revived as a spoken and literary language. Its renaissance is considered by many a linguistic miracle.
 
  Modern Hebrew is what you’ll hear on [the streets of Israel](https://link.springer.com/referenceworkentry/10.1007%2F978-3-030-02438-3%5F125) (and what you can [learn with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5614&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5614?mother%5Flang=en%5Fus?target%5Flang=he&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5614?mother%5Flang=en%5Fus?target%5Flang=he) ) and premodern Hebrew is now used only for prayer or study in Jewish communities.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Arabic
 
@@ -58,13 +57,6 @@ thumbnail: https://thmb.techidaily.com/2fbc3e6f44db715797c33edc684fdec869f92d47c
 
  “Dome of the Rock, Jerusalem, Israel” by Stacey Franco©
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Russian
 
  When you asked yourself “what language is spoken in Israel?”, probably Russian wasn’t your first choice. However, over one million [Russian-speaking Israelis](https://en.wikipedia.org/wiki/Languages%5Fof%5FIsrael) make Russian the most widely spoken non-official language in the State of Israel. Following a mass Jewish immigration from the USSR in the 1970s and later, Israel became home to many Soviet Jews who fled Russia to escape anti-Semitic discrimination.
@@ -73,9 +65,23 @@ thumbnail: https://thmb.techidaily.com/2fbc3e6f44db715797c33edc684fdec869f92d47c
 
 So, as you can see, Russian is surprisingly widespread in Israel.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Other languages
 
  Other languages you’re likely to hear in Israel are Yiddish, French (which was used as a diplomatic language in Israel until the 1990s when the Israeli-French alliance was undermined), German, Spanish and Romanian.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Can you speak English in Israel?
 
@@ -93,10 +99,10 @@ So, as you can see, Russian is surprisingly widespread in Israel.
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151872/7443" target="_top" id="2151872">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151872" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
+  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151872/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Speak Hebrew or Arabic fluently in just 10 minutes a day
@@ -124,16 +130,14 @@ So, as you can see, Russian is surprisingly widespread in Israel.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-experience-a-bundle-of-9-whole-film-christmas-treasures-for-free/"><u>[New] 2024 Approved Experience a Bundle of 9 Whole-Film Christmas Treasures for Free</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-social-streaming-breaking-the-virality-chain-on-twitter-for-2024/"><u>[New] Social Streaming Breaking the Virality Chain on Twitter for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/advanced-tips-for-integrating-markers-in-videography/"><u>Advanced Tips for Integrating Markers in Videography</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/amores-acoustic-alleyway-urban-italian-flirts/"><u>Amore's Acoustic Alleyway: Urban Italian Flirts</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-novice-to-scholar-top-language-examination-guides/"><u>From Novice to Scholar: Top Language Examination Guides</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-observer-to-expert-learn-korean-for-squid-game-fans/"><u>From Observer to Expert - Learn Korean for Squid Game Fans</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/norges-lexicon-leapfrogging-10-minutes-a-day/"><u>Norge's Lexicon Leapfrogging, 10 Minutes A Day</u></a></li>
-<li><a href="https://article-tips.techidaily.com/storyboard-pro-for-win8-for-2024/"><u>StoryBoard Pro for Win8 for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/top-10-solutions-for-restoring-functionality-of-your-laptop-webcam-in-windows-11/"><u>Top 10 Solutions for Restoring Functionality of Your Laptop Webcam in Windows 11</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ultimate-guide-essential-french-expressions-for-exploring-france/"><u>Ultimate Guide: Essential French Expressions for Exploring France</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/yield-entertaining-memes-through-adobe-path/"><u>Yield Entertaining Memes, Through Adobe Path</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-crafting-a-powerful-earnings-strategy-on-the-vimeo-platform-for-2024/"><u>[Updated] Crafting a Powerful Earnings Strategy on the Vimeo Platform for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/8-life-altering-reasons-for-being-bilingual/"><u>8 Life-Altering Reasons for Being Bilingual</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/building-a-french-foundation-at-home/"><u>Building a French Foundation at Home</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/capture-the-scene-right-basic-cinematography-for-new-directors/"><u>Capture the Scene Right Basic Cinematography for New Directors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/early-risers-late-sleepers-good-morning-in-10-different-languages/"><u>Early Risers, Late Sleepers: Good Morning In 10 Different Languages</u></a></li>
+<li><a href="https://games-able.techidaily.com/how-edge-outperforms-other-gaming-browsers/"><u>How Edge Outperforms Other Gaming Browsers</u></a></li>
+<li><a href="https://driver-download.techidaily.com/seamless-connectivity-with-easy-to-download-wireless-adapter-software/"><u>Seamless Connectivity with Easy-to-Download Wireless Adapter Software</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-silent-conversation-of-italian-hands/"><u>Unveiling the Silent Conversation of Italian Hands</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/windows-11-blue-screen-error-0xc000000e/"><u>Windows 11 で発生する Blue Screen Error 0xC000000E - 説明と回復方法</u></a></li>
 </ul></div>
 

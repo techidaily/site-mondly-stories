@@ -1,7 +1,7 @@
 ---
 title: New Year, New Linguistic Skills!
-date: 2024-10-11T00:42:08.778Z
-updated: 2024-10-12T19:54:48.147Z
+date: 2024-10-13T01:10:24.714Z
+updated: 2024-10-18T20:53:20.382Z
 tags:
   - speak
   - english
@@ -28,6 +28,13 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
 
  The success of New Year’s resolutions varies greatly. For some, they serve as a beneficial source of motivation for instigating positive transformations, while others may encounter difficulties maintaining their resolutions over the long term. The key to successful New Year’s resolutions often lies in setting realistic, specific, and achievable goals, accompanied by a well-structured plan to follow through on them.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## SMART Goals for Language Learning
 
  Our biggest problem when setting New Year’s resolutions is our apparent inability to regard each resolution as a**SMART goal** (Specific, Measurable, Achievable, Relevant, Time-bound). For example, a faulty resolution could be “I want to learn a new language this year”. That’s not enough to motivate you.
@@ -37,13 +44,6 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
  But wait! Now, instead of imagining how accomplished you are going to feel when you reach that certain goal, you should envision the process towards it and enjoy every second of it. Otherwise, you will just end up procrastinating.
 
 ![language learning 2024](https://edge.mondly.com/blog/wp-content/uploads/2019/01/language-learning-2024-600x600.png "New Year, New Language: Your New Year Aspirations 5")
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### A SMART Goal is
 
@@ -56,10 +56,10 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
  Studies show that breaking down your SMART goals into even smaller steps, like learning 1,000 French words by March, further boosts motivation and reward. Achieving this will let you understand 75% of written French without a dictionary. Moreover, involving a friend enhances motivation through competition, unlike sharing goals on social media. According to a [2019 research](https://as.nyu.edu/faculty/peter-m-gollwitzer.html/09%5FGollwitzer%5FSheeran%5FSeifert%5FMichalski%5FWhen%5FIntentions%5F.pdf) , public goal-sharing may diminish determination, as early social recognition acts as a premature reward. In contrast, friendly competition in learning a language or losing weight can spur your competitive spirit, with the reward being your improvement.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Mental Health Benefits of Language Learning
@@ -71,13 +71,6 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
  Your brain is like a muscle: train it now, and you will enjoy the health benefits later. And learning a second or a third language is a great way of training your brain – especially if you are not a student anymore and the information flow is not as good as it used to be. More precisely, various studies have shown that learning a new language is directly linked to a slower rate of mental decline in patients with [Alzheimer’s](https://www.dailymail.co.uk/health/article-5363123/Learning-language-protect-ALZHEIMERS.html) disease and [dementia prevention](https://www.telegraph.co.uk/news/science/science-news/12156709/Students-should-learn-second-language-to-prevent-dementia-in-later-life.html) .
 
  Moreover, language learning will give a great boost to your memory. In fact, it can increase the size of your brain! This is what [Swedish scientists discovered](https://www.theguardian.com/education/2014/sep/04/what-happens-to-the-brain-language-learning) when they used brain scans to monitor what happens when someone learns a second language.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Mental Well-Being Benefits
 
@@ -92,10 +85,10 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
 [Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-2519&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2519&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2519&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2519&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-2519%26mt%3D8)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Economic Advantages of Language Learning
@@ -108,6 +101,19 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
 * **Easier business travel:** Language proficiency enables professionals to communicate effectively and build stronger relationships with their local partners and clients and better navigate unfamiliar environments.
 
 ![personal growth](https://edge.mondly.com/blog/wp-content/uploads/2019/01/personal-growth-960x704.jpg "New Year, New Language: Your New Year Aspirations 7")
+
+<!-- affiliate ads begin -->
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Top 5 To-Do’s for Learning a New Language
 
@@ -160,20 +166,18 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-instagram-photo-perfection-applying-stylish-borders/"><u>[New] 2024 Approved Instagram Photo Perfection Applying Stylish Borders</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-professional-drone-selection-guide-top-5/"><u>[New] Professional Drone Selection Guide (Top 5)</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-economical-aerial-aviators-affordable-drones-guide-(500-for-2024/"><u>[Updated] Economical Aerial Aviators Affordable Drones Guide <$500 for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-from-humble-beginnings-building-a-brand-on-reddit/"><u>[Updated] From Humble Beginnings Building a Brand on Reddit</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-quick-youtube-snippets-explained-simply/"><u>[Updated] Quick YouTube Snippets Explained Simply</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/1726027905634-youtube/"><u>「YouTubeビデオのスクリーンショットをパソコン上で簡単に撮影する手順」</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/9-secrets-to-flawless-verbal-presentations-and-debates/"><u>9 Secrets to Flawless Verbal Presentations & Debates</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/acer-nitros-stunning-34-inch-curved-screen-qhd-quality-at-unbeatable-200-shop-now-on-newegg/"><u>Acer Nitro's Stunning 34-Inch Curved Screen: QHD Quality at Unbeatable $200 - Shop Now on Newegg</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/becoming-a-pronunciation-pro-engage-with-english-twisters-100/"><u>Becoming a Pronunciation Pro: Engage With English Twisters (100)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/compreendemos-abrecos-saudades-and-boas-vindas-no-portugues/"><u>Compreendemos Abreços, Saudades & Boas-Vindas No Português</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/core-vocabulary-boosted-by-oxfords-tech-innovation/"><u>Core Vocabulary Boosted by Oxford's Tech Innovation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/delightful-dolcetto-discover-more-than-20-slang-terms/"><u>Delightful Dolcetto: Discover More Than 20 Slang Terms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/din-valkommen-svensk-forsal/"><u>Din Välkommen: Svensk Försal</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-creating-low-volume-effects-a-guide-for-fading-out-audio-in-logic-pro/"><u>In 2024, Creating Low Volume Effects A Guide for Fading Out Audio in Logic Pro</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581253400-supercharge-your-second-language-skills-fast/"><u>Supercharge Your Second Language Skills, Fast</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-flashlog-screen-grab-review-and-substitutes-for-2024/"><u>[New] FlashLog Screen Grab Review and Substitutes for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-mastering-twitter-cleanup-top-apps-for-efficient-management/"><u>[Updated] Mastering Twitter Cleanup Top Apps for Efficient Management</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1725284070095-vobmp4/"><u>高品質VOB到MP4轉換器 - 強力影片格式變更工具解鎖方法</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579048028-black-friday-deal-endless-language-learning-at-96-less/"><u>Black Friday Deal: Endless Language Learning at 96% Less!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/crossing-borders-with-shared-easter-sentiments/"><u>Crossing Borders with Shared Easter Sentiments</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-native-6-pivotal-steps-for-seamless-surrender/"><u>From Novice to Native: 6 Pivotal Steps for Seamless Surrender</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-a-language-a-2024-goal/"><u>Learn a Language: A 2024 Goal</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maximizing-your-network-an-in-depth-review-of-the-linksys-wrt1900acs-open-source-router/"><u>Maximizing Your Network: An In-Depth Review of the Linksys WRT1900ACS Open Source Router</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-influence-on-my-multilingual-journey-the-essential-10-tips/"><u>Mondly's Influence on My Multilingual Journey – The Essential 10 Tips</u></a></li>
+<li><a href="https://win-able.techidaily.com/step-by-step-solutions-for-fixing-the-clownfish-voice-alteration-device/"><u>Step-by-Step Solutions for Fixing the Clownfish Voice Alteration Device</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/taking-photos-steadily-on-one-leg-in-2024/"><u>Taking Photos Steadily on One Leg, In 2024</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-use-face-id-to-pay-for-itunes-and-app-store-purchases-on-iphone-15-by-drfone-ios-unlock-ios-unlock/"><u>The way to Use Face ID to Pay for iTunes & App Store Purchases on iPhone 15</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/troubleshooting-missing-desktop-icon-woes-on-windows-10-systems-easy-fixes-and-expert-tips/"><u>Troubleshooting Missing Desktop Icon Woes on Windows 10 Systems: Easy Fixes and Expert Tips</u></a></li>
 </ul></div>
 

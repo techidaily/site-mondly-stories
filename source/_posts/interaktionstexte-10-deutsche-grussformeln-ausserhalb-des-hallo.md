@@ -1,7 +1,7 @@
 ---
 title: "Interaktionstexte: 10 Deutsche Grußformeln Außerhalb Des 'Hallo'"
-date: 2024-10-11T16:20:17.102Z
-updated: 2024-10-12T20:13:17.857Z
+date: 2024-10-11T16:45:18.269Z
+updated: 2024-10-18T20:57:17.777Z
 tags:
   - speak
   - english
@@ -36,6 +36,13 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 
  Since we’re discussing diminutives, let’s also mention that_tschüss_ (‘bye’) can become_tschüssi_ . How cute!
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. Guten Tag – “Hello” or “Good day”
 
  Time to put your tie on!_Guten Tag_ is how you keep things formal. If you want to say ‘hello’ in German to a stranger or maybe to someone you respect, this is the best choice for you.
@@ -66,6 +73,13 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 
  The simplest way to answer to_alles klar?_ is by saying_ya, danke_ meaning “yes, thanks”. As one would expect, this German greeting is mostly used by youngsters.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 6\. Was ist los? – “What’s up?”
 
  Very similar to_alles klar?_ ,_was ist los?_ is appropriate for very casual conversations.
@@ -73,20 +87,6 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
  When someone asks you_was ist los?_ , you have to pay close attention to their tone of voice. While in the context of greetings it can mean “what’s up?” or “what’s going on?”, if given the right tone, it can also mean “what’s wrong?” or “what’s the matter?”.
 
 !['German greetings' by Angelo Abear©](https://edge.mondly.com/blog/wp-content/uploads/2022/05/german-greetings-960x640.jpg "Hello In German: 10+ German Greetings Beyond Hallo 2")
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Regional German greetings
 
@@ -109,6 +109,19 @@ _– Na._ (“Fine. Thanks!”)
 
 **Localization:** mostly northern Germany.
 
+<!-- affiliate ads begin -->
+<span id="1424533">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Moin moin – “Hi”
 
  The ‘harsh’ German language strikes again. Imagine you’re in Hamburg and people are cheerfully saying_moin_ or_moin moin_ or even_moinsten_ to you. What do you do? You say_moin_ back, of course!
@@ -116,13 +129,6 @@ _– Na._ (“Fine. Thanks!”)
  Although its origins are tied to_Morgen_ (“morning”),_moin_ can be used to greet people all day long.
 
 **Localization:** northern Germany, especially in and around Hamburg.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Grüezi – “Hello”
 
@@ -139,10 +145,10 @@ _Grüezi_ is a greeting you can use in formal situations, such as speaking with 
 **Localization:** Bavaria (south-eastern Germany) and Austria.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\. Servus – “At your service”
@@ -193,24 +199,16 @@ _Tschüss!_ (‘Goodbye!’)
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-niconico-stars-in-snapchat-moments/"><u>[New] Niconico Stars in Snapchat Moments</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-tips-for-reducing-unsteady-shots/"><u>[New] Tips for Reducing Unsteady Shots</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-amplifying-audio-on-social-media-video-tweets/"><u>[Updated] Amplifying Audio on Social Media Video Tweets</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-in-2024-efficient-techniques-recording-saving-and-converting-movies-in-win-11/"><u>[Updated] In 2024, Efficient Techniques Recording, Saving, and Converting Movies in Win 11</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/effective-strategies-utilizing-chatgpt-for-personalized-car-customization-tips/"><u>Effective Strategies: Utilizing ChatGPT for Personalized Car Customization Tips</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enhance-leadership-by-mastering-effective-communication-tools/"><u>Enhance Leadership by Mastering Effective Communication Tools</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-expressions-and-vocabulary-for-south-american-travelers/"><u>Essential Expressions and Vocabulary for South American Travelers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exciting-educational-methods-for-spanish-study/"><u>Exciting Educational Methods for Spanish Study</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/experience-the-future-of-communication-mondlys-phrases/"><u>Experience the Future of Communication: Mondly’s Phrases</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/fixing-windows-store-cache-issues-solutions-and-troubleshooting/"><u>Fixing Windows Store Cache Issues: Solutions & Troubleshooting</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/foster-fluency-essential-3-mental-workouts/"><u>Foster Fluency: Essential 3 Mental Workouts</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-latin-to-iberia-spanish-vs-portuguese-phonetic-study/"><u>From Latin to Iberia: Spanish Vs. Portuguese Phonetic Study</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-novice-to-native-grasping-the-core-of-german-speech-and-script/"><u>From Novice to Native: Grasping the Core of German Speech & Script</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-novice-to-speaker-in-croatia-here-are-the-top-7-reasons/"><u>From Novice to Speaker in Croatia - Here Are The Top 7 Reasons!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/german-gratitude-ranking-the-most-meaningful-phrases/"><u>German Gratitude: Ranking the Most Meaningful Phrases</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-teach-you-to-transfer-files-from-vivo-s18e-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways To Teach You To Transfer Files from Vivo S18e to Other Android Devices Easily | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-inspiring-movies-to-ignite-your-inner-strength/"><u>In 2024, Inspiring Movies to Ignite Your Inner Strength</u></a></li>
-<li><a href="https://change-location.techidaily.com/pokemon-go-cooldown-chart-on-vivo-y200e-5g-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Vivo Y200e 5G | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/resolving-non-functional-remotes-on-windows-pcs/"><u>Resolving Non-Functional Remotes on Windows PCs</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-laughlineup-app-become-a-master-at-memes/"><u>2024 Approved LaughLineup App - Become a Master at Memes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bokmaal-basics-accelerated-learning-path/"><u>Bokmaal Basics, Accelerated Learning Path</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-capturing-piscine-adventures-5-superior-camers/"><u>In 2024, Capturing Piscine Adventures - 5 Superior Camers</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-honor-x50-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Honor X50? | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-essential-handbook-for-instagram-reels/"><u>In 2024, The Essential Handbook for Instagram Reels</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-unpacking-video-editing-excellence-is-inshot-at-the-top/"><u>In 2024, Unpacking Video Editing Excellence Is InShot at the Top?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-uk-idioms-and-expressions-become-a-true-brit/"><u>Master UK Idioms & Expressions: Become a True Brit!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-empowers-education-via-cutting-edge-apple-tools/"><u>Mondly Empowers Education via Cutting-Edge Apple Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swift-tone-mastery-french-color-words/"><u>Swift Tone Mastery: French Color Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-great-anglophone-divide/"><u>The Great Anglophone Divide</u></a></li>
+<li><a href="https://article-posts.techidaily.com/windows-videography-embrace-hdr-magic-for-2024/"><u>Windows Videography Embrace HDR Magic for 2024</u></a></li>
 </ul></div>
 

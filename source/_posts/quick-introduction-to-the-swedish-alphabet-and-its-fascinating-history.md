@@ -1,7 +1,7 @@
 ---
 title: Quick Introduction to the Swedish Alphabet and Its Fascinating History
-date: 2024-08-27T22:55:25.640Z
-updated: 2024-08-28T22:55:25.640Z
+date: 2024-10-16T21:17:58.113Z
+updated: 2024-10-18T16:02:31.209Z
 tags:
   - speak
   - english
@@ -28,6 +28,13 @@ thumbnail: https://thmb.techidaily.com/64b02260fc2e331299df22a1e999eab91ad890c07
 
  The current alphabet is considered modern because it arrived in Sweden together with the Christianization of Scandinavia that took place between the 8th and the 12th centuries. As a matter of fact, the translation of the New Testament into Swedish in 1526 actually marks the beginning of modern Swedish.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How was Swedish written before the Latin script?
 
  **Swedish used runes before the arrival of the Latin script in Scandinavia.** The [runic alphabet](https://www.britannica.com/topic/runic-alphabet) , also known as Futhark, was the first writing system the Norse and other Germanic people used for centuries. As it happens, isolated communities in a remote part of Sweden only [stopped using runes](https://sciencenordic.com/language-linguistics-runes/isolated-people-in-sweden-only-stopped-using-runes-100-years-ago/1418110) 100 years ago. To this day, the runic alphabet is considered a writing system of uncertain origin as scholars cannot find solid proof to support its ancestry.
@@ -39,15 +46,16 @@ thumbnail: https://thmb.techidaily.com/64b02260fc2e331299df22a1e999eab91ad890c07
  “Swedish runes” by petr sidorov©
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## The Swedish language in a nutshell
 
  Known in Swedish as**Svenska,** the [Swedish language](https://www.britannica.com/topic/Swedish-language) belongs to the East Scandinavian group of North Germanic languages and is the official language of Sweden and Finland. According to Ethnologue, the total number of Swedish speakers worldwide is over 13 million (both native and non-native speakers).
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Mutual intelligibility with the other Scandinavian languages
 
  Because Sweden ruled Finland from the 12th century until 1809, you’d think Swedish and Finnish are very much alike. Instead, Finnish is probably the most different from Swedish.
@@ -57,8 +65,12 @@ thumbnail: https://thmb.techidaily.com/64b02260fc2e331299df22a1e999eab91ad890c07
  Similar to the transformation the [Romance languages](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) went through over time, Old East Norse dialects were influenced by numerous factors. For example, between 800 and 1100 AD, Runic Swedish was only slightly different from Runic Danish, but they began to diverge during the 12th century. However, some aspects stayed the same. That’s why is easier to learn Swedish when you already know Danish and vice versa.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Pronunciation rules and usage
 
  Being a Germanic language makes Swedish one of the easiest languages to learn by native English speakers. In fact, according to the FSI (Foreign Service Institute) of the US government, an English speaker would need about [575 hours](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) or 23 weeks of practice to become fluent in Swedish. That makes Swedish even easier to learn than any Romance language such as Spanish, French or Italian.
@@ -67,9 +79,6 @@ thumbnail: https://thmb.techidaily.com/64b02260fc2e331299df22a1e999eab91ad890c07
 
  Would you like to have access to more content like this? Get Mondly and master the Swedish pronunciation in no time with real-life conversations recorded by fluent voice actors.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Uncommon letters
 
  Before jumping to pronunciation rules, you should know that**Swedes don’t really use the letters Q, W and Z.** So, in truth, the Swedish alphabet has the same number of letters as English: 26.
@@ -79,8 +88,12 @@ thumbnail: https://thmb.techidaily.com/64b02260fc2e331299df22a1e999eab91ad890c07
  Though officially in the Swedish alphabet, there are two other letters you’ll probably see in Swedish: ü and è. But again, these letters are only common in some loanwords.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### General pronunciation rules
 
  As you already know, the pronunciation of the names of the letters in Swedish wouldn’t really help you learn how to read Swedish. On the other hand, general pronunciation rules can come in handy:
@@ -101,9 +114,6 @@ thumbnail: https://thmb.techidaily.com/64b02260fc2e331299df22a1e999eab91ad890c07
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### From 0 to conversational in Swedish
 
  Do you want to see the Swedish alphabet in action? Get Mondly, the award-winning language learning app that will help you speak Swedish as if you were born in Stockholm.
@@ -125,8 +135,6 @@ thumbnail: https://thmb.techidaily.com/64b02260fc2e331299df22a1e999eab91ad890c07
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -134,4 +142,21 @@ thumbnail: https://thmb.techidaily.com/64b02260fc2e331299df22a1e999eab91ad890c07
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://mondly-stories.techidaily.com/mondly-bridging-communication-gaps-in-the-virtual-reality-arena-with-oculus-quest/"><u>'Mondly': Bridging Communication Gaps in the Virtual Reality Arena with Oculus Quest</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-unleash-creativity-on-snapchat-with-immersive-boomerangs-for-2024/"><u>[New] Unleash Creativity on Snapchat with Immersive Boomerangs for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-optimal-speech-recognition-for-silent-input/"><u>[Updated] Optimal Speech Recognition for Silent Input</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-funimate-pro-apk-review-and-how-to-guide/"><u>2024 Approved Funimate Pro APK Review and How-To Guide</u></a></li>
+<li><a href="https://change-location.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-samsung-galaxy-m34-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Samsung Galaxy M34 | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/dreamy-documentaries-bedtime-stories-reviewed/"><u>Dreamy Documentaries Bedtime Stories Reviewed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/harmony-or-hindrance-grammar-in-language-education/"><u>Harmony or Hindrance: Grammar in Language Education?</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-samsung-galaxy-m34-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location on TikTok to See More Content On your Samsung Galaxy M34 | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-remove-a-previously-synced-google-account-from-your-sony-xperia-1-v-by-drfone-android/"><u>In 2024, How to Remove a Previously Synced Google Account from Your Sony Xperia 1 V</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-innovative-approaches-to-social-media-video-making/"><u>In 2024, Innovative Approaches to Social Media Video Making</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-learning-guide-over-100-essential-russian-expressions/"><u>Quick-Learning Guide: Over 100 Essential Russian Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ranking-of-popularly-taught-international-languages-usa/"><u>Ranking of Popularly Taught International Languages USA</u></a></li>
+<li><a href="https://driver-error.techidaily.com/resolving-no-display-of-seagate-hd-in-win11/"><u>Resolving No Display of Seagate HD in Win11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-rich-tapestry-of-italian-handspeak/"><u>The Rich Tapestry of Italian Handspeak</u></a></li>
+</ul></div>
 

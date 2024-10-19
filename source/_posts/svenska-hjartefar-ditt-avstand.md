@@ -1,7 +1,7 @@
 ---
 title: "Svenska Hjärtefär: Ditt Avstånd"
-date: 2024-10-06T16:00:35.047Z
-updated: 2024-10-12T19:39:21.280Z
+date: 2024-10-14T20:19:38.580Z
+updated: 2024-10-18T20:30:17.011Z
 tags:
   - speak
   - english
@@ -26,43 +26,30 @@ thumbnail: https://thmb.techidaily.com/987e27a7892f02906f099613af94ad907edd8b772
 
  If you’re visiting and want to get a coffee, the simplest way to sound and look like a local is to throw in a smile and a **“Hej!”** (pronounced just like _Hey!_). This one is the perfect greeting, regardless of the time of day or to whom you address it.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to say “Hello!” in Swedish
 
  In more formal circumstances, you can use the word **“hallå”** (/haˈloː/). Sometimes, Swedes like to articulate the word when greeting someone by saying **“** **Hallå, hallå!”**  or even use it when they’re irritated and what to bring more attention to a situation they’re telling you about.
 
-<!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to answer the phone in Swedish
 
  Even if you’re just visiting, you might have to answer the phone at the hotel or when you’re expecting a call from the embassy, for example. The easiest way to do this is to say “Hello” followed by introducing yourself. This sounds something like : **“** **Hallå! Det här är \[your name\].”**  This will not only impress the person on the other end, but they might mistake you for a local. That would be a good thing, but you need to let them know you don’t speak Swedish fluently before they start talking faster.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to say “Good Morning!” in Swedish
 
  At the restaurant, cafés, or when you enter a building, saying “Good Morning!” is a sign of respect and will help you establish a connection with those around you. The Swedish equivalent of the morning greeting is **“God morgon!”**  . It’s important to use all the common greetings, even as a foreigner because you will most likely make a good impression.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to say “Good evening!” in Swedish
@@ -74,15 +61,22 @@ thumbnail: https://thmb.techidaily.com/987e27a7892f02906f099613af94ad907edd8b772
  After getting acquainted with Swedes, you will most likely enjoy late night talks and drinks, so a proper Goodnight is needed to end the day properly. **“Godnatt!”** , often pronounced _goo-natt_  is the way to wish locals a good night’s rest and let them know you can’t wait to hang out again soon.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to say “What’s up?” in Swedish
 
  What better way to find out more about your Swedish friends’ day or how they’re feeling than asking “what’s up?”? **“Hur är det?”** or **“hur går det?”**  are what is used to ask “how is it?” and “how is it going?”. They are both informal ways of getting a conversation started and can be used when talking on the phone as well, just after you introduce yourself.
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to say “Goodbye!” in Swedish
 
@@ -112,24 +106,17 @@ thumbnail: https://thmb.techidaily.com/987e27a7892f02906f099613af94ad907edd8b772
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-elite-picks-a-list-mac-video-capture-tools-for-2024/"><u>[New] Elite Picks A-List Mac Video Capture Tools for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/astering-the-art-of-embedding-youtube-playlist-content-for-2024/"><u>[New] Mastering the Art of Embedding YouTube Playlist Content for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-secrets-to-flawless-ppt-video-transcriptions-for-2024/"><u>[Updated] Secrets to Flawless PPT Video Transcriptions for 2024</u></a></li>
-<li><a href="https://solve-helper.techidaily.com/browse-and-enjoy-a-selection-of-free-christmas-hymns-and-classics-downloads/"><u>Browse & Enjoy a Selection of Free Christmas Hymns and Classics Downloads</u></a></li>
-<li><a href="https://video-capture.techidaily.com/effortless-transformation-of-g64-and-g64x-videos-into-mp4-comprehensive-tutorial/"><u>Effortless Transformation of G64 and G64X Videos Into MP4 - Comprehensive Tutorial</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/english-lexicon-blunders-a-compiled-rank-of-the-worst-mistakes/"><u>English Lexicon Blunders: A Compiled Rank of the Worst Mistakes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ensenanza-interactiva-sobre-el-cuerpo-humano-descubriendo-desde-la-piel-a-los-pulmones/"><u>Enseñanza Interactiva Sobre El Cuerpo Humano: Descubriendo Desde La Piel A Los Pulmones</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/tial-steps-for-online-gamers-banner-use-for-2024/"><u>Essential Steps for Online Gamers' Banner Use for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exploring-benefits-learn-german-now/"><u>Exploring Benefits: Learn German Now!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expotonguescape-dubai-2s020-crafting-future-communicators/"><u>ExpoTonguescape Dubai 2S020: Crafting Future Communicators</u></a></li>
-<li><a href="https://fake-location.techidaily.com/fake-the-location-to-get-around-the-mlb-blackouts-on-realme-narzo-n53-drfone-by-drfone-virtual-android/"><u>Fake the Location to Get Around the MLB Blackouts on Realme Narzo N53 | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/favored-foreign-languages-for-academic-study/"><u>Favored Foreign Languages for Academic Study</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-abcs-to-spanish-abcs-kindergarten-elementary-journey/"><u>From ABCs to Spanish ABCs: Kindergarten-Elementary Journey</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-beginner-to-fluent-learn-afrikaans-efficiently-on-mondly-heres-why/"><u>From Beginner to Fluent: Learn Afrikaans Efficiently on Mondly - Here’s Why</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-first-steps-to-fluent-speech-mastering-the-german-way/"><u>From First Steps to Fluent Speech: Mastering the German Way</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-shanties-to-speech-a-buccaneers-path/"><u>From Shanties to Speech: A Buccaneer’s Path</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/how-to-successfully-unplug-epic-games-from-your-w11-system/"><u>How to Successfully Unplug Epic Games From Your W11 System</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-best-10-mock-location-apps-worth-trying-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Best 10 Mock Location Apps Worth Trying On Poco F5 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/override-auto-suggesting-feature-for-podcasts-in-spotify-for-2024/"><u>Override Auto-Suggesting Feature for Podcasts in Spotify for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-lecture-transcription-at-zero-expense/"><u>[New] Lecture Transcription at Zero Expense</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-warzone-wonders-your-a-list-of-top-7-fps-adventures/"><u>[New] Warzone Wonders - Your A-List of Top 7 FPS Adventures</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-transforming-web-popularity-into-video-concepts-using-google-trends/"><u>2024 Approved Transforming Web Popularity Into Video Concepts Using Google Trends</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apples-worldwide-trendsetter-todays-app/"><u>Apple's Worldwide Trendsetter: Today's App</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/el-branding-mastery-securing-a-loyal-youtube-subscriber-base/"><u>Channel Branding Mastery Securing a Loyal YouTube Subscriber Base</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-launchpad-to-success-the-youtube-entrepreneurs-guide/"><u>In 2024, Launchpad to Success The YouTube Entrepreneur's Guide</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/inside-the-engine-room-large-scale-language-systems/"><u>Inside the Engine Room: Large-Scale Language Systems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/primary-speaking-language-of-croatia/"><u>Primary Speaking Language of Croatia</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-a-native-slovak-lesson-quick-fixes-online/"><u>Speak Like a Native - Slovak Lesson Quick Fixes Online!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-advantages-of-acquiring-new-tongues-post-50/"><u>The Advantages of Acquiring New Tongues Post-50</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-7-phone-number-locators-to-track-motorola-moto-g84-5g-location-drfone-by-drfone-virtual-android/"><u>Top 7 Phone Number Locators To Track Motorola Moto G84 5G Location | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/ultimate-tutorial-removing-the-login-password-from-windows-11-systems/"><u>Ultimate Tutorial: Removing the Login Password From Windows 11 Systems</u></a></li>
 </ul></div>
 

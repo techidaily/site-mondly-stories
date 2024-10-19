@@ -1,7 +1,7 @@
 ---
 title: The Cultural Wealth of Farsi & Its Rewards
-date: 2024-10-08T22:29:58.738Z
-updated: 2024-10-12T19:34:18.653Z
+date: 2024-10-17T19:54:49.536Z
+updated: 2024-10-18T21:37:09.831Z
 tags:
   - speak
   - english
@@ -36,13 +36,6 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
 
  Old Persian then developed into**Middle Persian,** which existed from around 300 BCE until 800 CE. Evidence of Middle Persian exists mainly in the religious texts of the Zoroastrian religion. However, **Middle Persian entered a new stage when the Islamic conquest in 651 AD happened.** The following 200 years are referred to as “the two centuries of silence” because there is very little to almost no literature available from this time period.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### The Arab rule
 
  It seems that during the Muslim conquest of Persia, the Persian language was in danger of being lost and replaced by Arabic. Luckily, Persia was one of the few places where the Arabic language did not replace the local language. However, Arabic was used by the elite and it definitely had a big impact on the vocabulary of the**Modern Persian** that was emerging.
@@ -50,13 +43,6 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
  After the end of Arab rule in Persia in the 9th century, the Persian language and culture were reborn and a new period of classic literature and poetry arose. One such important piece of literature was Ferdowsi’s_Shahnameh_ (the “Book of Kings”), which is said to be the longest work of epic poetry ever written. Because of its influence on Persian literature and culture, the Persian language remains relatively unchanged to this day. It is said that Ferdowsi deliberately limited the use of Arabic loan words in his epic poem in order to preserve the integrity of the Persian language.
 
 !["Ferdowsi Shahnameh" by McGill Library©](https://edge.mondly.com/blog/wp-content/uploads/2022/09/mcgill-library-AH42Li7NKUc-unsplash-960x629.jpg "Persian Language: History &Amp; Benefits Of Learning Farsi/Persian 2")
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Persian Literary History: Ferdowsi’s ‘Shahnameh’ — Siyavush in Sudaba’s private quarters.
 
@@ -69,10 +55,16 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
  As a matter of fact, there are even some English words of Persian origin. Some of them came directly into English from Persian, but most of them came indirectly into English via a different language. Some examples include bronze, jackal, lemon, mogul, mummy, scarlet, serendipity, shawl, tulip, turban, typhoon, khaki, caravan, and paradise. Probably the most interesting borrowing is the word “checkmate,” which comes from the Persian_Shah Mat_ , meaning “the king is dead”.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Persian vs Farsi: Is Farsi the same as Persian?
@@ -84,6 +76,13 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
  Over the course of history, the word ‘Farsi’ developed from the terms the natives used to refer to Old Persian, Middle Persian, and New Persian, which are_Parsa, Parsik_ or_Parsig_ and_Fars_ , respectively.
 
  According to the [Academy of Persian Language and Literature](https://iranicaonline.org/articles/farhangestan) , the endonym ‘Farsi’ should be avoided in foreign languages. Instead, ‘Persian’ should be the appropriate designation in English, as it has the longest tradition in western languages and is better suited to convey the language’s role as a national and cultural continuity symbol.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Persian vs Arabic: Is Persian similar to Arabic?
 
@@ -98,10 +97,10 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
  All in all, Persian and Arabic can’t be considered mutually intelligible. A speaker of either Persian or Arabic with no knowledge of the other could recognize some basic words in writing, but conversations are a whole other story.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The benefits of learning Farsi/Persian
@@ -123,6 +122,13 @@ Other benefits of learning Persian include:
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Learn Persian online with Mondly
 
@@ -155,24 +161,16 @@ Other benefits of learning Persian include:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-tweeting-tunes-converting-videos-into-melodic-gifs-for-2024/"><u>[New] Tweeting Tunes Converting Videos Into Melodic GIFs for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/cinema-crafting-excellence-top-5-camera-skills-to-hone/"><u>Cinema Crafting Excellence Top 5 Camera Skills to Hone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/delete-gmail-account-withwithout-password-on-vivo-y55s-5g-2023-by-drfone-android/"><u>Delete Gmail Account With/Without Password On Vivo Y55s 5G (2023)</u></a></li>
-<li><a href="https://games-able.techidaily.com/fe-nvidia-vs-asus-graphic-cards-which-to-choose/"><u>FE Nvidia Vs. ASUS Graphic Cards: Which to Choose?</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/fixing-your-origin-games-problematic-configuration-with-easy-solutions/"><u>Fixing Your Origin Game's Problematic Configuration with Easy Solutions</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-old-videos-from-your-oppo-a79-5g-by-fonelab-android-recover-video/"><u>How to recover old videos from your Oppo A79 5G</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-samsung-galaxy-m34-5g-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Samsung Galaxy M34 5G to Any iOS Devices | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-best-poco-x6-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>In 2024, Best Poco X6 Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-perfect-hues-at-your-fingertips-the-essential-11-tutorial-list/"><u>In 2024, Perfect Hues at Your Fingertips The Essential 11 Tutorial List</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/interactive-and-entertaining-latin-classes/"><u>Interactive & Entertaining Latin Classes</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-captioning-in-final-cut-pro-x-tips-and-tricks-for-success/"><u>New 2024 Approved Captioning in Final Cut Pro X Tips and Tricks for Success</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/smooth-talk-101-compendium-of-english-pickup-artistry/"><u>Smooth Talk 101: Compendium of English Pickup Artistry</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/stimulating-experience-fun-in-linguistics/"><u>Stimulating Experience: Fun in Linguistics</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-pathway-to-commanding-presence-9-speaking-tips/"><u>The Pathway to Commanding Presence: 9 Speaking Tips</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-danish-films-as-gateways-to-flawless-speech/"><u>Top Danish Films as Gateways to Flawless Speech</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/travellers-companion-the-ultimate-guide-of-93-indispensable-phrases/"><u>Traveller's Companion: The Ultimate Guide of 93 Indispensable Phrases</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/wie-man-sich-im-deutschen-verantwortlich-zeigt/"><u>Wie Man Sich Im Deutschen Verantwortlich Zeigt</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/wortgewandtheit-deutsches-greetings-vokabular-ohne-hallo/"><u>Wortgewandtheit: Deutsches Greetings-Vokabular Ohne 'Hallo'</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/zusammenspiel-von-wortern-grusse-im-deutschen-neben-hallo/"><u>Zusammenspiel Von Wörtern: Grüße Im Deutschen Neben Hallo</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-capture-cumulative-chronicles/"><u>[New] 2024 Approved Capture Cumulative Chronicles</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-young-yachtsmens-playtime-pleasures-for-2024/"><u>[New] Young Yachtsmen's Playtime Pleasures for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-diverse-languages-with-googles-editor-selection-mondly/"><u>Dive Into Diverse Languages With Google's Editor Selection - Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fast-track-korean-acquisition-with-these-top-6-e-learning-tools/"><u>Fast-Track Korean Acquisition with These Top 6 E-Learning Tools</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-frame-by-frame-a-beginners-guide-to-converting-videos-to-photos-10-converters/"><u>In 2024, Frame by Frame A Beginners Guide to Converting Videos to Photos 10 Converters</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-can-we-unlock-our-honor-80-pro-straight-screen-edition-phone-screen-by-drfone-android/"><u>In 2024, How Can We Unlock Our Honor 80 Pro Straight Screen Edition Phone Screen?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-lock-your-itel-p55-5g-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>In 2024, Lock Your Itel P55 5G Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/insiders-look-at-top-9-free-platforms-for-designing-youtube-logos/"><u>Insider's Look at Top 9 FREE Platforms for Designing YouTube Logos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-fix-valorant-thumbnails-professionally-done-now/"><u>Quick-Fix Valorant Thumbnails Professionally Done Now!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/romance-linguistics-a-study-guide/"><u>Romance Linguistics: A Study Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-up-your-language-game-with-dark-on-netflix/"><u>Step Up Your Language Game with Dark on Netflix</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Language Learning Journey: How Long Does It Take To Master A New Language?"
-date: 2024-10-09T19:56:44.418Z
-updated: 2024-10-12T23:17:01.759Z
+date: 2024-10-11T22:13:18.121Z
+updated: 2024-10-19T01:11:44.264Z
 tags:
   - speak
   - english
@@ -43,13 +43,6 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
 * **Knowing more than one language helps —** languages with shared features with English are generally easier to learn, while those with significant cultural and linguistic differences may take longer to learn;
 * **The time spent learning depends on you** **—** The time it takes to learn a new language varies greatly depending on your motivation and dedication to the task.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Interagency Language Roundtable scale or the IRL scale
 
  The Interagency Language Roundtable is a grading scale used by the US government to scale [employees](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and diplomats working for the FSI (Foreign Service Institute). You’ll find this scale to be the most accurate when it comes to native English speakers learning a foreign language. Basically, what this scale does is establish the language difficulty.
@@ -71,6 +64,13 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
  The data presented below reflects a study held by the FSI (Foreign Service Institute) of the US government. Again, this is probably the most accurate data regarding how much time it takes for a native English speaker to become fluent in a particular new language.
 
  The FSI has over 800 language learning courses in more than 70 languages with more than 70 years of experience in training US diplomats and foreign affairs employees.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **Tier 1:** Languages that are most closely related to English
 
@@ -104,6 +104,13 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
 * comparable stress and intonation patterns;
 * already share a number of vocabulary words.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **Tier 2:** Similar to English
 
 | Language | Time needed to reach fluency |
@@ -115,13 +122,6 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
  The grammar is more complicated and difficult to understand; hence, German gets a tier 2 difficulty score, but of course, there are other Germanic languages out there that are much harder to master, like Icelandic.
 
 !["Fastest way to learn a language" by RF._.studio©](https://edge.mondly.com/blog/wp-content/uploads/2018/04/fastest-way-to-learn-a-language-960x641.jpg "How Long Does It Take In Hours To Learn A Language? 4")
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **Tier 3:** Languages that may have cultural and linguistic differences compared to English
 
@@ -135,10 +135,10 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
 [Learn with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-1364&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-1364&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-1364)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **Tier 4:** Languages that are profoundly different from English
@@ -174,10 +174,10 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
  Based on all the data and testimonies English speakers made over the years, the hardest language to learn award may go to Japanese due to the thousands of characters you need to memorize while having three different writing varieties.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **Tier 5:** Extraordinary level of difficulty
@@ -232,24 +232,20 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/ditors-compendium-top-devices-transforming-media-projects/"><u>[New] Editor's Compendium Top Devices Transforming Media Projects</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-mastering-podcast-descriptions-insights-with-examples/"><u>[Updated] Mastering Podcast Descriptions Insights with Examples</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-unlocking-igtvs-potential-secrets-to-attract-more-subscribers/"><u>[Updated] Unlocking IGTV's Potential Secrets to Attract More Subscribers</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/a-comprehensive-look-at-merging-youtube-content-into-instagrams-story-feature-for-2024/"><u>A Comprehensive Look at Merging YouTube Content Into Instagram's Story Feature for 2024</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/easy-guide-to-itel-p55-frp-bypass-with-best-methods-by-drfone-android/"><u>Easy Guide to Itel P55 FRP Bypass With Best Methods</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/gran-guia-del-cuerpo-humano-la-historia-desde-el-cabello-a-los-pies/"><u>Gran Guía Del Cuerpo Humano: La Historia Desde El Cabello A Los Pies</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/how-long-does-it-take-in-hours-to-learn-a-language/"><u>How Long Does It Take in Hours to Learn a Language?</u></a></li>
-<li><a href="https://techidaily.com/how-to-perform-hard-reset-on-oppo-reno-9a-drfone-by-drfone-reset-android-reset-android/"><u>How to Perform Hard Reset on Oppo Reno 9A? | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-reset-gmail-password-on-itel-p55t-devices-by-drfone-android/"><u>How to Reset Gmail Password on Itel P55T Devices</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-gmail-password-on-vivo-y28-5g-devices-by-drfone-android/"><u>In 2024, How to Reset Gmail Password on Vivo Y28 5G Devices</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-metaverse-vs-multiverse-a-comprehensive-breakdown/"><u>In 2024, Metaverse vs Multiverse A Comprehensive Breakdown</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-innovation-on-oculus-quest-with-mondlys-integration/"><u>Language Innovation on Oculus Quest with Mondly's Integration</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/loves-universal-language-beyond-verbal-expressions/"><u>Love's Universal Language: Beyond Verbal Expressions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-dominates-2022-premier-language-learning-app/"><u>Mondly Dominates 2022: Premier Language Learning App</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/tales-of-arise-resolved-issues-and-bug-fixes/"><u>Tales of Arise: Resolved Issues and Bug Fixes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-10-films-for-aspiring-polyglots/"><u>Top 10 Films for Aspiring Polyglots</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/transform-your-talking-ability-now-at-half-the-usual-rate/"><u>Transform Your Talking Ability - Now at Half the Usual Rate</u></a></li>
-<li><a href="https://techidaily.com/turn-off-screen-lock-honor-magic-v2-by-drfone-android-unlock-android-unlock/"><u>Turn Off Screen Lock - Honor Magic V2</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/virtual-classroom-language-proficiency-made-easy/"><u>Virtual Classroom: Language Proficiency Made Easy</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-essential-app-picks-best-10-editors-to-transform-reels/"><u>[New] In 2024, Essential App Picks Best 10 Editors to Transform Reels</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-sculpting-speed-at-winter-olympics/"><u>[New] Sculpting Speed at Winter Olympics</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-record-complete-page-display/"><u>[Updated] 2024 Approved Record Complete Page Display</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/beginners-guide-to-iphone-screen-capture/"><u>Beginner's Guide to iPhone Screen Capture</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/celebrating-the-linguistic-tapestry-of-our-teachers/"><u>Celebrating the Linguistic Tapestry of Our Teachers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dialect-dynamics-portuguese-of-the-two-hemispheres/"><u>Dialect Dynamics: Portuguese of the Two Hemispheres</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/enhancing-your-love-quest-the-role-of-chatgpt-in-elevating-your-romantic-endeavors/"><u>Enhancing Your Love Quest: The Role of ChatGPT in Elevating Your Romantic Endeavors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-education-trends-top-languages-for-americans/"><u>Global Education Trends: Top Languages for Americans</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gsl-transformation-pearson-and-mondly-join-forces/"><u>GSL Transformation - Pearson & Mondly Join Forces</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-can-we-unlock-our-poco-x5-phone-screen-by-drfone-android/"><u>In 2024, How Can We Unlock Our Poco X5 Phone Screen?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-apple-iphone-12-pro-max-to-roku-drfone-by-drfone-ios/"><u>In 2024, How to Mirror Apple iPhone 12 Pro Max to Roku? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-czech-with-online-simplicity-techniques/"><u>Mastering Czech with Online Simplicity Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oculus-event-practice-your-spanish-and-socialize-in-mondly-vr-multiplayer/"><u>Oculus Event: Practice Your Spanish and Socialize in Mondly VR Multiplayer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/perfect-pronunciation-powered-by-100-dynamic-twisters/"><u>Perfect Pronunciation Powered by 100 Dynamic Twisters</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solving-common-sound-problems-in-outriders-a-comprehensive-guide/"><u>Solving Common Sound Problems in Outriders: A Comprehensive Guide</u></a></li>
 </ul></div>
 

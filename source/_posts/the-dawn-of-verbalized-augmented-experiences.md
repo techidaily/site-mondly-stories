@@ -1,7 +1,7 @@
 ---
 title: The Dawn of Verbalized Augmented Experiences
-date: 2024-10-08T22:34:56.315Z
-updated: 2024-10-12T22:20:21.971Z
+date: 2024-10-13T20:39:58.825Z
+updated: 2024-10-18T17:33:26.363Z
 tags:
   - speak
   - english
@@ -43,10 +43,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 > _We started working on Mondly AR in August 2017 and by the time [Blade Runner 2049](http://www.imdb.com/title/tt1856101/) was released, we already had a working demo. Watching Blade Runner 2049 made me realize that we were beginning to build the future. To me, Joi (the holographic companion of officer K) looked like a super advanced version of Mondly – the character we were creating. They can both understand speech, reply with a human voice and change outfits. Of course, Mondly is not as smart and realistic as Joi. Yet. But she can teach you 7 languages. And this is just the beginning._
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Here’s what you should know about Mondly AR
@@ -65,10 +65,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
-  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facts and figures about Mondly
@@ -85,10 +85,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 * [Mondly Press Kit](https://www.dropbox.com/sh/vo4j5214zvwdxy5/AAC20VxIgpuiEe7ED2%5F37VNEa?dl=0)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Media mentions about Mondly
@@ -120,16 +120,19 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-proven-pathways-for-cutting-edge-obs-studio-edits/"><u>[Updated] In 2024, Proven Pathways for Cutting-Edge OBS Studio Edits</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-next-gen-vision-top-10-cameras-of-the-year-2024/"><u>[Updated] Next-Gen Vision – Top 10 Cameras of the Year 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-call-logs-on-vivo-s18e-by-fonelab-android-recover-call-logs/"><u>Complete guide for recovering call logs on Vivo S18e</u></a></li>
-<li><a href="https://win11.techidaily.com/expert-insights-into-windows-booting-system-customization/"><u>Expert Insights Into Windows Booting System Customization</u></a></li>
-<li><a href="https://techidaily.com/how-to-factory-reset-itel-a60s-in-5-easy-ways-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Itel A60s in 5 Easy Ways | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lerne-die-deutschen-wochen-abschnitte-verstehen/"><u>Lerne Die Deutschen Wochen Abschnitte Verstehen</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/milestone-1500-no-cost-daily-learning-sessions/"><u>Milestone: 1,500 No-Cost Daily Learning Sessions</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/segmentscreen-examination/"><u>SegmentScreen Examination</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-with-confidence-mondly-for-all-ukrainians/"><u>Speak with Confidence: Mondly for All Ukrainians</u></a></li>
-<li><a href="https://fake-location.techidaily.com/spoofing-life360-how-to-do-it-on-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>Spoofing Life360 How to Do it on Apple iPhone 14 Pro Max? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unraveling-your-israeli-expedition-key-expressions-and-guidance/"><u>Unraveling Your Israeli Expedition: Key Expressions & Guidance</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-iphone-hacks-filming-and-modifying-lengthy-video-sequences/"><u>[New] IPhone Hacks Filming & Modifying Lengthy Video Sequences</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-expert-techniques-for-manipulating-iphone-photos/"><u>[Updated] Expert Techniques for Manipulating iPhone Photos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-closing-with-panache-free-youtubes-1-six/"><u>[Updated] In 2024, Closing with Panache Free YouTube's #1 Six!</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-removing-your-facebook-live-video-tech-steps/"><u>2024 Approved Removing Your Facebook Live Video Tech Steps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/9-english-grammar-tips-from-an-esl-speaker/"><u>9 English Grammar Tips From an ESL Speaker</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/childhood-nutrition-savvy-with-mondly-kids-google-plays-best-of-2017/"><u>Childhood Nutrition Savvy with Mondly Kids - Google Play’s Best of 2017</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-the-german-alphabet-and-its-phonetics/"><u>Discovering the German Alphabet and Its Phonetics</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/how-to-repair-a-fatal-unmountablebootvolume-bug-in-windows-10-easily/"><u>How to Repair a Fatal UNMOUNTABLE_BOOT_VOLUME Bug in Windows 10 Easily!</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-samsung-galaxy-s23-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Your Samsung Galaxy S23 Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-vivo-v29-pro-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Vivo V29 Pro online without jailbreak</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-the-gradual-sound-escalation-auditions-guide-to-fades/"><u>In 2024, The Gradual Sound Escalation Audition’s Guide to Fades</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-versatilitys-upside-6-perks-demystified/"><u>Linguistic Versatility's Upside: #6 Perks Demystified</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-languages-top-online-learning-methods/"><u>Mastering Languages: Top Online Learning Methods</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/visionaries-unite-global-insights-on-ai-advancements/"><u>Visionaries Unite: Global Insights on AI Advancements</u></a></li>
 </ul></div>
 

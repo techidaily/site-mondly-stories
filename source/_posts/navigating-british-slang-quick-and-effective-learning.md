@@ -1,7 +1,7 @@
 ---
 title: "Navigating British Slang: Quick & Effective Learning"
-date: 2024-09-27T23:09:38.546Z
-updated: 2024-10-02T00:07:00.905Z
+date: 2024-10-17T19:28:07.434Z
+updated: 2024-10-18T21:38:50.826Z
 tags:
   - speak
   - english
@@ -34,6 +34,13 @@ thumbnail: https://thmb.techidaily.com/48eff568c35933b40401a65faa40dbe7bb6a58eb4
 
  Well, the chances of that happening are much slimmer after you get through our list. That, plus looking for online tutors can better prep you for your next British conversation.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Common British Phrases
 
  In this section, we will look at the phrases that will make you sound more British. Some of them might be those British phrases you always hear on TV shows or movies.
@@ -42,28 +49,15 @@ thumbnail: https://thmb.techidaily.com/48eff568c35933b40401a65faa40dbe7bb6a58eb4
 
  Although it may mean “ok” in North America, it’s the equivalent of “how are you?” in British English.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### _I’m knackered_
 
 I’m tired.
 
 <!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### _Cheeky_
@@ -75,25 +69,32 @@ Mischievous or playful.
 This is a very British thing to say meaning very.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### _I’m pissed_
 
  Not meaning the regular “angry”, in British talk it actually means you’re very drunk and is used quite a lot when you are out drinking with friends.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### _Mate_
 
 A common one and quite cliché – mate means friend.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### _Rubbish_
@@ -107,6 +108,13 @@ A person native to East London.
 ### _Blimey_
 
  Similar to the American_wow_ ,_blimey_ is used to describe something that takes you by surprise.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### _Bloke_
 
@@ -139,24 +147,18 @@ A person native to East London.
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "50+ British Phrases And Slangs To Impress Your British Mates 4")
 
-<!-- affiliate ads begin -->
-<span id="1983475">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Improve your English, mate
 
  Speak English like a true Brit with Mondly.
 
 [Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-4428&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4428&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4428&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4428&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-4428%26mt%3D8)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Fancy British Words
 
@@ -178,13 +180,6 @@ A person native to East London.
 * _Verily_ – truly or indeed
 * _Quotidian_ – ordinary or everyday
 * _Yonks_ – ages, a very long time
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **British Slang Words**
 
@@ -243,10 +238,10 @@ A person native to East London.
  British phrases and expressions are extraordinarily interesting to those who aren’t familiar with their terms. The common British words we see already seem so fancy and sometimes even whimsical and learning them will surely give you a leg up next time you start writing your [5 paragraph essay](https://edubirdie.com/blog/five-paragraph-essay) , or have a chinwag with your British mates!
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Differences Between American and British English
@@ -282,19 +277,6 @@ A person native to East London.
 
 ---
 
-<!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Speak a new language in just 10 minutes a day
 
  Want to become fluent fast? With Mondly, the award-winning language learning app, you’ll speak any language from day 1\. It’s fun, easy and efficient. Quick Daily Lessons. 10 minutes a day. It’s so entertaining, you’ll become addicted. The best part? You’ll speak like a native in no time.
@@ -318,16 +300,21 @@ Get Mondly now and speak any language like you never dreamed you would ![Learn w
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-top-20-budget-friendly-screen-recorder-tools/"><u>[New] In 2024, Top 20 Budget-Friendly Screen Recorder Tools</u></a></li>
-<li><a href="https://common-error.techidaily.com/effortless-file-management-on-windows-11-mastering-the-art-of-file-explorer/"><u>Effortless File Management on Windows 11: Mastering the Art of File Explorer</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/honoring-1500-gratuitous-dayly-tutorials/"><u>Honoring 1,500 Gratuitous Dayly Tutorials</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-honor-magic-6-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Honor Magic 6 to Other Android Devices Devices? | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-many-attempts-to-unlock-apple-iphone-13-by-drfone-ios/"><u>In 2024, How Many Attempts To Unlock Apple iPhone 13</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/international-days-marking-gratitude-and-harvest/"><u>International Days Marking Gratitude and Harvest</u></a></li>
-<li><a href="https://win-answers.techidaily.com/1723012992381-left-4-dead-out-of-the-woods-no-more-crashes/"><u>Left 4 Dead ² Out of the Woods - No More Crashes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-through-spanish-linguistic-accents/"><u>Navigating Through Spanish Linguistic Accents</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/resolved-fixes-for-world-of-tanks-blitz-app-continuous-crash-issues/"><u>Resolved: Fixes for 'World of Tanks Blitz' App Continuous Crash Issues</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-reality-of-multilingualism-dissecting-falsehoods/"><u>The Reality of Multilingualism: Dissecting Falsehoods</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-the-power-of-language-mastering-spanish-with-top-10-greetings/"><u>Unlock the Power of Language: Mastering Spanish with Top 10 Greetings</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-ios-slide-show-tools-tailored-for-high-end-models-for-2024/"><u>[New] IOS Slide Show Tools Tailored for High-End Models for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-how-to-add-link-to-facebook-story-for-free/"><u>[Updated] In 2024, How to Add Link to Facebook Story for Free?</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-unveiling-the-10-best-free-os-agnostic-video-solutions/"><u>2024 Approved Unveiling the 10 Best Free OS-Agnostic Video Solutions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/catalog-of-linguistic-siblings-to-spain/"><u>Catalog of Linguistic Siblings to Spain</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-optimal-cost-free-image-refinement-toolkit/"><u>In 2024, Optimal, Cost-Free Image Refinement Toolkit</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-sleek-screenscape-top-wallpapers-for-your-device/"><u>In 2024, Sleek Screenscape Top Wallpapers for Your Device</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/japanese-on-calls-a-cultural-insight/"><u>Japanese On-Calls: A Cultural Insight</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-dilemma-opting-for-german-or-french/"><u>Language Dilemma: Opting for German or French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-exploration-the-top-ten-rationales-for-multilingualism/"><u>Language Exploration: The Top Ten Rationales for Multilingualism</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-korean-from-home-cutting-edge-online-resource-list/"><u>Mastering Korean From Home: Cutting-Edge Online Resource List</u></a></li>
+<li><a href="https://win-able.techidaily.com/mastering-the-fix-stable-playthrough-of-yakuza-the-song-of-life-on-your-personal-computer/"><u>Mastering the Fix: Stable Playthrough of Yakuza The Song of Life on Your Personal Computer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-kids-app-shines-in-google-plays-finest-selection/"><u>Mondly Kids App Shines in Google Play's Finest Selection</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-in-2024-10-best-meme-makers-online-free-to-use/"><u>New In 2024, 10 Best Meme Makers Online (Free to Use)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sprache-und-kultur-alternative-deutschen-begrussungen-ohne-hallo/"><u>Sprache Und Kultur: Alternative Deutschen Begrüßungen Ohne 'Hallo'</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/understanding-the-distinctions-a-deep-dive-into-4k-uhd-and-hdr-technology/"><u>Understanding the Distinctions: A Deep-Dive Into 4K UHD and HDR Technology</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-the-samsung-galaxy-s20-fe-5g-is-a-must-have-for-smartphone-aficionados/"><u>Why the Samsung Galaxy S20 FE 5G Is a Must-Have for Smartphone Aficionados</u></a></li>
 </ul></div>
 

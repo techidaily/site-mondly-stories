@@ -1,7 +1,7 @@
 ---
 title: Russian Numbers – Learn How to Count in Russian
-date: 2024-10-06T23:18:49.356Z
-updated: 2024-10-12T21:47:00.830Z
+date: 2024-10-16T16:38:59.309Z
+updated: 2024-10-19T01:06:40.145Z
 tags:
   - speak
   - english
@@ -37,10 +37,16 @@ thumbnail: https://thmb.techidaily.com/50b8c0240239aa64db52b1f5d6c9798f04334cb3a
 * neuter: одно _(odno)_ ; два _(dva)_
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Learn how to count to 20 in Russian
@@ -58,10 +64,10 @@ If you did manage, good job! You must be a natural.
 **Good to know:** If you want to bring a flower bouquet when you are invited to someone’s house in Russia, choose an odd number of flowers – so три, пять, семь or девять flowers. One Russian superstition says that bouquets with an even number of flowers are adequate only for funerals.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Russian numbers: 21 and onwards
@@ -69,6 +75,13 @@ If you did manage, good job! You must be a natural.
  From here on, Russian numbers are formed similarly to the English numbers (minus the word “and”). If 20 is двадцать_(dvadtsat)_ , then 21 is двадцать**один** _(_ _dvadtsat odin)_ and 22 is двадцать**два** _(dvadtsat dva)_ . Basically, you just**add the numbers from 1 to 9 to the tens.**
 
 ![russian numbers](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-numbers-600x424.jpg "Russian Numbers - Learn How To Count In Russian 4")
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Russian tens
 
@@ -87,10 +100,16 @@ And guess what! It works the same with the hundreds.
 ![russian hundreds](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-hundreds-600x424.jpg "Russian Numbers - Learn How To Count In Russian 5")
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1938141">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Russian hundreds
@@ -98,13 +117,6 @@ And guess what! It works the same with the hundreds.
  For example, if you want to say 146, you say сто сорок шесть_(sto sorok shest)_ .
 
 Not as hard as you’d expect, is it?
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Russian ordinal numbers
 
@@ -151,17 +163,22 @@ Not as hard as you’d expect, is it?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-the-ace-guide-to-smooth-laptop-video-editing-via-inshot-for-2024/"><u>[New] The Ace Guide to Smooth Laptop Video Editing via Inshot for 2024</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/updated-exclusive-list-affordable-mac-video-editing-on-tiktok-for-2024/"><u>[Updated] Exclusive List Affordable Mac Video Editing on TikTok for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-team-harmony-and-efficiency-8-recommended-facebook-timers-for-2024/"><u>[Updated] Team Harmony and Efficiency 8 Recommended Facebook Timers for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/accelerate-advocacy-with-precision-in-professional-vernacular/"><u>Accelerate Advocacy with Precision in Professional Vernacular</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/best-foreign-flicks-to-learn-a-new-tongue/"><u>Best Foreign Flicks To Learn A New Tongue</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/brussels-dialects-and-beyond-a-linguistic-journey/"><u>Brussels Dialects and Beyond: A Linguistic Journey</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719578479086-celebrate-new-beginnings-by-saving-big-with-mondly-pros-free-access/"><u>Celebrate New Beginnings by Saving Big with Mondly Pro's Free Access!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/conquer-language-hurdles-oxford-and-mondlys-blend/"><u>Conquer Language Hurdles - Oxford & Mondly's Blend</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/deciding-when-and-how-to-cut-ties-with-past-followers-on-the-newly-renamed-x-site/"><u>Deciding When and How to Cut Ties with Past Followers on the Newly Renamed X Site</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-exploring-unconventional-webcam-applications/"><u>In 2024, Exploring Unconventional Webcam Applications</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-revel-in-photo-excellence-with-this-guide-to-mastering-the-background-erase-tool/"><u>In 2024, Revel in Photo Excellence with This Guide to Mastering the Background Erase Tool</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/introducing-ai-driven-verse-creation-in-book-formations/"><u>Introducing AI-Driven Verse Creation in Book Formations</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-navigating-auto-captioned-content-in-social-media-visuals/"><u>[New] Navigating Auto-Captioned Content in Social Media Visuals</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-instant-live-from-obs-to-instagram-app/"><u>2024 Approved Instant Live From OBS to Instagram App</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-prime-windows-11-photo-inspector/"><u>2024 Approved Prime Windows 11 Photo Inspector</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/basic-anatomy-explained-body-parts-in-french-156-characters/"><u>Basic Anatomy Explained: Body Parts in French (156 Characters)</u></a></li>
+<li><a href="https://solve-news.techidaily.com/cookiebot-enabled-enhancing-your-websites-analytics-and-personalization/"><u>Cookiebot-Enabled: Enhancing Your Website's Analytics and Personalization</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/first-encounter-with-urdu-basic-vocabulary-lists/"><u>First Encounter with Urdu: Basic Vocabulary Lists</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-app-on-honor-v-purse-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Recover Deleted Photos from Android Gallery App on Honor V Purse</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-use-google-assistant-on-your-lock-screen-of-honor-x7b-phone-by-drfone-android/"><u>How to Use Google Assistant on Your Lock Screen Of Honor X7b Phone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-tips-for-youtube-thumbnail-size/"><u>In 2024, Tips for YouTube Thumbnail Size</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/my-journey-choosing-the-next-ideal-linguistic-quest/"><u>My Journey: Choosing the Next Ideal Linguistic Quest</u></a></li>
+<li><a href="https://win-blog.techidaily.com/overcoming-playback-glitches-enhancing-halo-infinites-audio-quality/"><u>Overcoming Playback Glitches: Enhancing Halo Infinite's Audio Quality</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-latin-grasp-best-digital-language-schools/"><u>Quick Latin Grasp: Best Digital Language Schools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/semaine-francaise-des-lundis/"><u>Semaine Française Des Lundis</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/starting-your-journey-in-learning-german-sounds/"><u>Starting Your Journey in Learning German Sounds</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tackling-german-grammar-through-popular-web-series/"><u>Tackling German Grammar Through Popular Web Series</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/warframe-patch-trouble-heres-how-to-resolve-update-issues-successfully/"><u>Warframe Patch Trouble? Here's How to Resolve Update Issues Successfully!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldly-wisdom-insights-into-successful-cross-cultural-engagement/"><u>Worldly Wisdom: Insights Into Successful Cross-Cultural Engagement</u></a></li>
 </ul></div>
 

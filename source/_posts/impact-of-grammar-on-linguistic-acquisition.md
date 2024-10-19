@@ -1,7 +1,7 @@
 ---
 title: Impact of Grammar on Linguistic Acquisition
-date: 2024-09-25T23:22:31.097Z
-updated: 2024-10-01T22:21:06.872Z
+date: 2024-10-17T18:24:59.090Z
+updated: 2024-10-18T17:09:02.258Z
 tags:
   - speak
   - english
@@ -24,29 +24,22 @@ Chances are that you probably took language classes at some point in your educat
 
 Many students can manage reading and writing in a foreign language, but they struggle to understand it in conversational form. These situations make it clear that the past methods of language education are lacking. What is the solution?
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Language Learning: What Holds People Back?**
 
 One of the best ways to learn a language is to practice both writing the language and speaking it in a conversational manner. This is where many people panic and lose confidence in everything they have learned. If you’re new at a language, chances are that you haven’t even begun to grasp all the important grammar rules. This can lead to insecurity about sounding stupid when you write or speak the language, and this fear might hold you back from practicing.
 
 This is why a focus on grammar is the wrong way to teach and learn a language. Grammar is the art of perfecting the use of a language you already know. When learning a language, it can hold students back in a variety of ways.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **1\. Complexity**
 
 There is a lot to take in when learning a language. The last thing a student needs is to get bogged down in a sea of confusing grammar rules. Of course, there are languages with simpler rules. For example, the [French grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) is more difficult than [the German grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875), but unless you’re naturally gifted at learning languages, realizing there are so many grammar rules to figure out might leave you so discouraged that you give up.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **2\. Incorrect Focus**
 
@@ -59,10 +52,10 @@ The goal for a language student is to become fluent as quickly as possible. Flue
 Most of us don’t speak in the exact same way that we write. We choose different words, use slang and sometimes even say things in a different order than we would when writing them down. How many people do you know who speak using perfect grammar? Sure, some might exist, but it isn’t very common regardless what language we are discussing. For this reason, if you insist on studying grammar first and conversational language second, you might struggle to understand people as they speak. Luckily, nowadays, there are [modern solutions available that immerse you in conversations](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) from day 1\.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **4\. A Major Lack of Fun**
@@ -72,10 +65,17 @@ This might seem like a crazy concept to some, but learning a language should be 
 ![Learn grammar with Mondly: French grammar, German Grammar, Spanish Grammar and more](https://edge.mondly.com/blog/wp-content/uploads/2017/10/Webp.net-compress-image-1.jpg "Is Grammar Holding You Back From Learning A Language? 2")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Returning to Our Roots: Learning with the Mind of a Child**
@@ -115,18 +115,17 @@ Start using Mondly for free on your computer or tablet or, better yet, download 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-fast-track-to-youtube-partner-level-achieve-10k-views/"><u>[New] 2024 Approved Fast Track to YouTube Partner Level - Achieve 10K Views</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-ultimate-directory-for-free-visual-treasures/"><u>[New] Ultimate Directory for Free Visual Treasures</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-unleash-the-content-free-movie-player-windowsmac/"><u>[New] Unleash the Content FREE MOVIE PLAYER (Windows/Mac)</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-elevating-content-strategy-with-effective-youtube-partnerships/"><u>[Updated] 2024 Approved Elevating Content Strategy with Effective YouTube Partnerships</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/master-healthy-eating-with-these-6-recommended-diet-tracking-mobile-apps/"><u>Master Healthy Eating with These 6 Recommended Diet Tracking Mobile Apps</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-introduces-cutting-edge-language-compendium/"><u>Mondly Introduces Cutting-Edge Language Compendium</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-mastery-revel-in-advanced-functionality/"><u>Mondly Mastery: Revel In Advanced Functionality</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/precise-plot-points-in-a-snapshot-for-2024/"><u>Precise Plot Points in a Snapshot for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/quick-czech-comprehension-tactics-online/"><u>Quick Czech Comprehension Tactics Online</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/rapid-learning-chromatic-french-speech/"><u>Rapid Learning: Chromatic French Speech</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/reinvent-language-learning-why-mondly-leads-the-way/"><u>Reinvent Language Learning: Why Mondly Leads the Way?</u></a></li>
-<li><a href="https://techidaily.com/simple-ways-to-get-recent-calls-back-from-tecno-spark-10-pro-by-fonelab-android-recover-call-logs/"><u>Simple ways to get recent calls back from Tecno Spark 10 Pro</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-keywords-of-squid-game-in-korean/"><u>The Keywords of Squid Game in Korean</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-navigating-through-vlcs-recording-options/"><u>[New] 2024 Approved Navigating Through VLC's Recording Options</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-a-step-by-step-on-downloading-instagrams-viral-content/"><u>2024 Approved A Step-by-Step on Downloading Instagram's Viral Content</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-stream-your-webcam-in-real-time-using-vlc-software/"><u>2024 Approved Stream Your Webcam in Real Time Using VLC Software</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciphering-the-teaching-mechanisms-of-mondly/"><u>Deciphering the Teaching Mechanisms of Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581567192-fluency-for-all-ages-dont-wait/"><u>Fluency For All Ages - Don't Wait</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gaining-wisdom-and-versatility-by-embracing-multilingualism-at-50/"><u>Gaining Wisdom and Versatility by Embracing Multilingualism at 50</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-forgot-pattern-lock-heres-how-you-can-unlock-htc-pattern-lock-screen-by-drfone-android/"><u>In 2024, Forgot Pattern Lock? Heres How You Can Unlock HTC Pattern Lock Screen</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-intuitivestepsforyoucamuseandrecording/"><u>In 2024, IntuitiveStepsForYouCamUseAndRecording</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/melodic-flirts-aphrodites-italian-gems/"><u>Melodic Flirts: Aphrodite’s Italian Gems</u></a></li>
+<li><a href="https://program-issues.techidaily.com/overcome-battlefield-2042-performance-hiccups-enhancing-your-pcs-fps-and-fluidity/"><u>Overcome Battlefield 2042 Performance Hiccups: Enhancing Your PC's FPS and Fluidity</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-complete-guide-assessing-googles-wireless-nest-doorbell-with-a-rechargeable-battery/"><u>The Complete Guide: Assessing Google's Wireless Nest Doorbell with a Rechargeable Battery</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/tomtoms-actioncamera-reveal-2023-edition-for-2024/"><u>TomTom's ActionCamera Reveal - 2023 Edition for 2024</u></a></li>
 </ul></div>
 

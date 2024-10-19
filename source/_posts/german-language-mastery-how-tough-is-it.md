@@ -1,7 +1,7 @@
 ---
 title: "German Language Mastery: How Tough Is It?"
-date: 2024-10-04T16:06:18.016Z
-updated: 2024-10-07T05:24:37.237Z
+date: 2024-10-13T19:16:08.567Z
+updated: 2024-10-18T18:22:11.736Z
 tags:
   - speak
   - english
@@ -32,13 +32,6 @@ thumbnail: https://thmb.techidaily.com/3e42d7d3d66b1bb7fc10d0f6ca519d43c3162c70f
 
 **Verdict: false assumption.**
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. German words are neverending
 
  Or so they seem. The German language is famous for having some of the [longest words in the world](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . But did you know that these words are, in fact, compounds? This means that German puts different words together to create a new word. In turn, English uses spaces or hyphens to make everything much easier to read. German, unfortunately, spells everything together. For example,_rindfleischetikettierungsüberwachungsaufgabenübertragungsgesetz_ (63 letters) means “law delegating beef label monitoring”.
@@ -46,13 +39,6 @@ thumbnail: https://thmb.techidaily.com/3e42d7d3d66b1bb7fc10d0f6ca519d43c3162c70f
  However, there’s an easy trick to overcome this problem. All you have to do is to mentally separate the awfully long word into smaller bits. The more short [German words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) you know, the more long German words you’ll master. Easy as that!
 
 **Verdict: true assumption, but not as scary as it seems.**
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Multiple genders AND formal vs. informal language
 
@@ -69,6 +55,13 @@ thumbnail: https://thmb.techidaily.com/3e42d7d3d66b1bb7fc10d0f6ca519d43c3162c70f
 
 !['German hard to learn' by Sebastian Herrmann©](https://edge.mondly.com/blog/wp-content/uploads/2022/04/german-hard-to-learn-960x640.jpg "Is German Hard To Study? 3")
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. German grammar is too hard to learn
 
  It’s true that German grammar is a bit more complex, but German is a very logical language. Once you will understand the basics, you’ll have no problem going forward with the rest of the curriculum. In addition, due to the shared vocabulary, there are many English and German phrases that follow the same order. For example:
@@ -82,10 +75,10 @@ Doesn’t this sound familiar?
 **Verdict: false assumption.**
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Is German hard to learn?
@@ -102,6 +95,13 @@ Doesn’t this sound familiar?
 
  Moreover, your progress can also be influenced by the learning method you’re using. While dry memorization techniques used to be the norm until a few years ago, nowadays learning German can be much more enjoyable.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Can German be easy to learn?
 
  Definitely yes. As complex as the German language may be, the language learning app [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6661&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6661?mother%5Flang=en%5Fus?target%5Flang=de&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6661?mother%5Flang=en%5Fus?target%5Flang=de) can make it fun and quite easy to learn. Millions of people have learned German with Mondly and they all agree that German is not as hard to learn as ‘advertised’.
@@ -114,10 +114,10 @@ Doesn’t this sound familiar?
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Study German in just 10 minutes a day
@@ -149,22 +149,17 @@ Doesn’t this sound familiar?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-deep-investigation-into-ustream-and-its-competitors/"><u>[New] Deep Investigation Into Ustream & Its Competitors</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-quick-and-effective-strategies-for-vimeo-capture/"><u>[New] Quick & Effective Strategies for Vimeo Capture</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-ultimate-chromebook-capture-top-screen-recorder-choice-for-2024/"><u>[New] Ultimate Chromebook Capture Top Screen Recorder Choice for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-methods-for-rolling-macos-sierra-back-to-el-capitan/"><u>[Updated] In 2024, Methods for Rolling MacOS Sierra Back to El Capitan</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-pinpointing-potential-a-youtube-niche-journey/"><u>[Updated] Pinpointing Potential A Youtube Niche Journey</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-linguistic-odyssey-unlocking-turkey-korea-bonds/"><u>A Linguistic Odyssey: Unlocking Turkey-Korea Bonds</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/addressing-stalled-keys-for-active-windows-11/"><u>Addressing Stalled Keys for Active Windows 11</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/comparative-linguistics-a-turk-korean-odyssey/"><u>Comparative Linguistics: A Turk-Korean Odyssey</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/conquer-languages-in-a-captivating-virtual-world-mondly-vr-adventure/"><u>Conquer Languages in a Captivating Virtual World - Mondly VR Adventure</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embracing-italys-non-verbal-communication-traditions/"><u>Embracing Italy's Non-Verbal Communication Traditions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/everything-you-need-to-know-about-spanish-verbs-and-conjugations/"><u>Everything You Need To Know About Spanish Verbs & Conjugations</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expand-language-skills-connect-socially-in-vr-world/"><u>Expand Language Skills - Connect Socially in VR World</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/expert-insights-the-6-leading-causes-of-persistent-car-battery-problems/"><u>Expert Insights: The 6 Leading Causes of Persistent Car Battery Problems</u></a></li>
-<li><a href="https://app-tips.techidaily.com/immutable-linux-explained-how-a-static-system-can-enhance-your-it-infrastructure/"><u>Immutable Linux Explained: How a Static System Can Enhance Your IT Infrastructure</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lorientation-les-jours-de-la-semaine-francaise/"><u>L'Orientation: Les Jours De La Semaine Française</u></a></li>
-<li><a href="https://windows11.techidaily.com/remedying-the-error-disabled-device-code-22-in-windows-11/"><u>Remedying the Error: Disabled Device, Code 22 in Windows 11</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-the-saga-tracing-old-norse-communication-styles/"><u>Speak the Saga: Tracing Old Norse Communication Styles</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-global-perspective-inclusive-technology-review/"><u>[Updated] 2024 Approved Global Perspective Inclusive Technology Review</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-iphone-laughs-and-lightheartedness/"><u>2024 Approved IPhone Laughs & Lightheartedness</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bengalian-easy-fast-language-learning-each-day/"><u>Bengalian Easy: Fast Language Learning Each Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/boost-your-words-power-list-of-the-best-50-latin-proverbs/"><u>Boost Your Words' Power - List of the Best 50 Latin Proverbs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decadent-delights-multilingual-names/"><u>Decadent Delights, Multilingual Names</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/digital-pioneers-handbook-making-a-mark-in-gif-artistry/"><u>Digital Pioneers' Handbook Making a Mark in GIF Artistry</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-upgrade-iphone-6s-without-losing-anything-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade iPhone 6s without Losing Anything? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-transfer-music-from-itel-p55-5g-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Transfer Music from Itel P55 5G to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-easiest-guide-how-to-clone-oppo-a78-5g-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Easiest Guide How to Clone Oppo A78 5G Phone? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-popularity-in-asia-tri-tiered-leaders/"><u>Linguistic Popularity in Asia: Tri-Tiered Leaders</u></a></li>
+<li><a href="https://extra-information.techidaily.com/quip-collection-event-specific-jest-compilation/"><u>Quip Collection Event-Specific Jest Compilation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-journey-into-hanguls-heart-adopting-korean-for-squid-game/"><u>The Journey Into Hangul's Heart - Adopting Korean for Squid Game</u></a></li>
 </ul></div>
 

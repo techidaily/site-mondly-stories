@@ -1,7 +1,7 @@
 ---
 title: "Latin Language Lore: Best Quotations & Proverbs of Ancient Rome"
-date: 2024-10-09T22:13:06.304Z
-updated: 2024-10-12T16:12:24.120Z
+date: 2024-10-16T19:18:13.310Z
+updated: 2024-10-18T18:45:58.613Z
 tags:
   - speak
   - english
@@ -27,33 +27,19 @@ These are nearly as famous as Julius Caesar himself.
  Famously attributed to Julius Caesar in a message he supposedly sent to the Roman Senate to describe his swift, conclusive victory against King Pharnaces II of Pontus near Zela in 47 BC.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **Alea iacta est. —** _The die has been cast._
 
  Another Latin phrase said by Julius Caesar upon crossing the Rubicon to enter Italy and begin the long civil war against Pompey and the Optimates. The meaning of this phrase refers to the point of no return.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **Carpe diem. —** _Seize the day._
 
  Probably the most popular Latin phrase of modern times. Luckily, we have an even better one:_carpe vinum_ . Literally ‘seize the wine’. The only Latin phrase you’ll ever need on a Friday night out. And speaking of night, you should also remember the_carpe noctem_ variation which literally translates to ‘seize the night’. Either way, the general meaning is to make the most of everything.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **Cogito, ergo sum. —** _I think, therefore I am._
 
@@ -61,15 +47,22 @@ These are nearly as famous as Julius Caesar himself.
 
  What Descartes doesn’t know is that nowadays people prefer the_bibo, ergo sum_ version which literally means “I drink, therefore I am”.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **In vino veritas. —_In wine, there is truth._**
 
  Be careful if you_carpe vinum_ on that Friday night out we talked about. This Latin saying suggests that you’ll probably spill all your secrets if you drink too much alcohol.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **Et tu, Brute? —** _“And you, Brutus?”_
@@ -78,16 +71,16 @@ These are nearly as famous as Julius Caesar himself.
 
  That scene is very tragic indeed, but nowadays, the phrase can be used jokingly to condemn a friend’s change of heart.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **Acta, non verba. —** _Deeds, not words._
 
  Similar to_res, non verba_ , the English equivalent of this phrase is “actions speak louder than words”. In other words, act upon it or always follow your declarations with actions.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **Carthago delenda est. —** _Carthage must be destroyed._
 
@@ -96,6 +89,13 @@ These are nearly as famous as Julius Caesar himself.
 ![latin phrases](https://edge.mondly.com/blog/wp-content/uploads/2021/07/latin-phrases.jpg "50 Popular Latin Phrases To Impress Your Friends 6")
 
  Using some Latin phrases here and there will automatically make you look smarter.
+
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
+  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Common Latin Words & Sayings
 
@@ -161,21 +161,7 @@ Every student’s favorite. We all know what this one means, don’t we?
 
 ![in vino veritas](https://edge.mondly.com/blog/wp-content/uploads/2021/07/in-vino-veritas-960x640.jpg "50 Popular Latin Phrases To Impress Your Friends 7")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “In vino veritas” by Daniel Vogel©
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Cool Latin that are still used today
 
@@ -305,6 +291,13 @@ Different phrase, same story. You’re welcome.
 
  “Roman statue” by engin akyurt©
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Latin Words and Phrases for Love
 
  To conclude our exploration of the Latin phrases in a positive tone, let’s see what the Romans had to say about love. It’s true they talked more about wars, but you don’t need that kind of negativity in your life, do you? Why [learn Latin phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) about war, when love wins no matter what?
@@ -328,6 +321,13 @@ Different phrase, same story. You’re welcome.
 * **Hei mihi! Quod nullis amor est medicabilis herbis.** —_Oh me! Love can not be cured by herbs._
 
 From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Why should you learn these cool Latin phrases?
 
@@ -377,19 +377,21 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-securely-snapshot-streaming-top-6-techniques-for-netflix-on-mac/"><u>[Updated] 2024 Approved Securely Snapshot Streaming Top 6 Techniques for Netflix on Mac</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-in-2024-initial-cinematographers-work-scrutiny-and-replacement-ideas/"><u>[Updated] In 2024, Initial Cinematographer's Work Scrutiny & Replacement Ideas</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-elevate-your-videos-with-these-proven-seo-tools-for-more-clicks/"><u>2024 Approved Elevate Your Videos with These Proven SEO Tools for More Clicks</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-unleash-the-potential-master-avi-to-gif-conversion-using-filmora/"><u>2024 Approved Unleash the Potential Master AVI-to-GIF Conversion Using Filmora</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581170012-96-off-for-lifetime-access-learn-a-new-language-today-at-black-friday-prices/"><u>96%‌ OFF For Lifetime Access: Learn A New Language Today At Black Friday Prices</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ais-impact-on-teaching-and-linguistic-mastery/"><u>AI's Impact on Teaching and Linguistic Mastery</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/aprende-a-agradecernos-con-60-nombres-hispanohablantes/"><u>Aprende a Agradecernos Con 60 Nombres Hispanohablantes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bilingualism-in-action-turkey-and-korea/"><u>Bilingualism in Action: Turkey & Korea</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/common-language-pitfalls-navigating-the-top-100-mispronunciations/"><u>Common Language Pitfalls: Navigating the Top 100 Mispronunciations</u></a></li>
-<li><a href="https://facebook.techidaily.com/disconnected-decoding-fb-suspension-factors/"><u>Disconnected: Decoding Fb Suspension Factors</u></a></li>
-<li><a href="https://fox-metric.techidaily.com/het-ontsnaarten-van-bestanden-door-avast-steps-om-geheugen-te-herstellen-en-toekomstig-vervallen-bij-avast-te-voorkomen/"><u>Het Ontsnaarten Van Bestanden Door Avast: Steps Om Geheugen Te Herstellen En Toekomstig Vervallen Bij Avast Te Voorkomen</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-any-poco-m6-5g-phone-password-using-emergency-call-by-drfone-android/"><u>How To Unlock Any Poco M6 5G Phone Password Using Emergency Call</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-discovering-8-cost-effective-video-meeting-software-options/"><u>In 2024, Discovering 8 Cost-Effective Video Meeting Software Options</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580458829-initiate-your-french-phonetic-journey-today/"><u>Initiate Your French Phonetic Journey Today!</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-tiktok-unboxing-hacks-spin-your-video-into-a-viral-hit/"><u>[New] 2024 Approved TikTok Unboxing Hacks Spin Your Video Into a Viral Hit</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/best-solutions-for-oppo-network-unlock-by-drfone-android/"><u>Best Solutions for Oppo Network Unlock</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/1726027269240-clipchamp/"><u>Clipchampにおけるビデオ音削除テクニック</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/elevating-your-gopro-vlogs-with-professionals-strategies/"><u>Elevating Your Gopro Vlogs with Professionals Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-voyage-preparedness-top-93-essential-spanish-phrases/"><u>Global Voyage Preparedness: Top 93 Essential Spanish Phrases</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-fix-oem-unlock-missing-on-honor-90-lite-by-drfone-android/"><u>How To Fix OEM Unlock Missing on Honor 90 Lite?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-itel-a70-mirror-screen-to-pc-drfone-by-drfone-android/"><u>In 2024, How Itel A70 Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-spotify-location-after-moving-to-another-country-on-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Spotify Location After Moving to Another Country On Asus ROG Phone 8 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-romanian-with-the-award-winning-app-made-by-romanians/"><u>Learn Romanian With the Award-Winning App Made by Romanians</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-insights-into-turk-korean-exchange/"><u>Linguistic Insights Into Turk-Korean Exchange</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719575079088-major-focus-most-popular-foreign-languages-us/"><u>Major Focus: Most Popular Foreign Languages U.S.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilanguage-mastery-and-brain-power/"><u>Multilanguage Mastery and Brain Power</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/premium-cameras-for-next-level-music-video-production/"><u>Premium Cameras for Next-Level Music Video Production</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swiftly-conquering-french-chromatic-speech/"><u>Swiftly Conquering French Chromatic Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-power-of-patience-in-polyglot-relationships/"><u>The Power of Patience in Polyglot Relationships</u></a></li>
+<li><a href="https://facebook.techidaily.com/vanishing-acts-of-support-masked-likes-across-platforms/"><u>Vanishing Acts of Support: Masked Likes Across Platforms</u></a></li>
 </ul></div>
 

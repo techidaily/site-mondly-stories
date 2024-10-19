@@ -1,7 +1,7 @@
 ---
 title: "Paso a Paso: Entender La Hora Y Segundo en Español"
-date: 2024-09-30T22:34:26.418Z
-updated: 2024-10-01T22:13:38.865Z
+date: 2024-10-18T00:04:41.750Z
+updated: 2024-10-18T16:38:14.535Z
 tags:
   - speak
   - english
@@ -58,16 +58,10 @@ But first things first.
 _**Nota bene:**_ If you prefer to use the 24-hour clock, you should say**_son las dieciséis_** **(“it’s 16:00”)** instead of **_son las cuatro_ (“it’s 4 o’clock p.m.”).** But that will require a little more studying on your part. Don’t worry though. Spanish numbers are just as easy as learning how to tell the time. You can master them with Mondly faster than you can say Jack Robinson. You can get started [here](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5345&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5345?mother%5Flang=en%5Fus?target%5Flang=es&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5345?mother%5Flang=en%5Fus?target%5Flang=es) .
 
 <!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
+  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How do you say the time in Spanish after 30?
@@ -86,14 +80,20 @@ Here are some examples:
 
 ![telling time in spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/06/telling-time-in-spanish-600x600.jpg "How To Tell Time In Spanish - A Complete Guide For Beginners 3")
 
- Telling time in Spanish – a visual guide
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Telling time in Spanish – a visual guide
 
 ### Hour + minutes in Spanish time
 
@@ -107,10 +107,10 @@ Here are some examples:
 * _Son las ocho y quince._ (“it’s eight and fifteen minutes”)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Different ways of telling time in Spanish
@@ -136,6 +136,13 @@ Here are some examples:
 * _tarde_ – in the afternoon
 
  To indicate that an event occurs at a specific time, use the formula **a +_la(s)_ \+ time** :_La clase de español empieza a las nueve_ – “The Spanish class begins at 9”.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Other useful time phrases in Spanish
 
@@ -172,13 +179,6 @@ Here are some examples:
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Speak Spanish fluently in just 10 minutes a day
 
  Do you want to [speak Spanish fluently](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) fast? Get Mondly, the award-winning language learning app that will help you speak Spanish as if you were Spanish-born.
@@ -204,24 +204,24 @@ Here are some examples:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-capturing-content-the-leading-online-television-recordings/"><u>[New] Capturing Content The Leading Online Television Recordings</u></a></li>
-<li><a href="https://some-tips.techidaily.com/new-unveiling-5-best-non-samsung-camera-picks-for-gear-enthusiasts/"><u>[New] Unveiling 5 Best Non-Samsung Camera Picks for Gear Enthusiasts</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-sounding-off-on-channel-titling-tips-from-experienced-filmmakers/"><u>[Updated] Sounding Off on Channel Titling Tips From Experienced Filmmakers</u></a></li>
-<li><a href="https://blog-min.techidaily.com/comparacion-de-dvd-blu-ray-y-archivos-digitales-que-opcion-es-la-mejor-para-ti/"><u>Comparación De DVD, Blu-Ray Y Archivos Digitales: ¿Qué Opción Es La Mejor Para Ti?</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/enhance-your-broadcasts-using-manycam-the-ultimate-live-video-and-webcam-application/"><u>Enhance Your Broadcasts Using ManyCam - The Ultimate Live Video and Webcam Application</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/failed-to-play-hevc-files-on-xiaomi-redmi-a2-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Failed to play HEVC files on Xiaomi Redmi A2</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-erase-iphone-13-pro-max-data-permanently-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>How To Erase iPhone 13 Pro Max Data Permanently | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/how-to-say-good-morning-in-10-different-languages/"><u>How To Say Good Morning In 10 Different Languages</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-network-locked-sim-card-inserted-on-your-oppo-k11x-phone-unlock-it-now-by-drfone-android/"><u>In 2024, Network Locked SIM Card Inserted On Your Oppo K11x Phone? Unlock It Now</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-premium-avi-playback-software-for-computers/"><u>In 2024, Premium Avi Playback Software for Computers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/indonesian-greetings-decoded-for-travelers-and-locals-alike/"><u>Indonesian Greetings Decoded for Travelers and Locals Alike</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/iniciar-tu-primer-viaje-a-la-hora-en-espanol/"><u>Iniciar Tu Primer Viaje a La Hora en Español</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/latin-rhythms-an-energetic-learning-approach/"><u>Latin Rhythms: An Energetic Learning Approach</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/master-latvian-fast-ten-minute-online-lessons-each-day/"><u>Master Latvian Fast: Ten-Minute Online Lessons Each Day</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-the-updated-tandu-with-ease/"><u>Navigating the Updated T&U with Ease</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/prepare-to-engage-with-the-ultimate-ai-friend/"><u>Prepare to Engage with the Ultimate AI Friend</u></a></li>
-<li><a href="https://howto.techidaily.com/solved-warning-camera-failed-on-oneplus-nord-3-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Solved Warning Camera Failed on OnePlus Nord 3 5G | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-top-francophone-countries-and-their-linguistic-statistics/"><u>The Top Francophone Countries and Their Linguistic Statistics</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-9-linguistic-quandaries-and-strategies-for-success/"><u>Top 9 Linguistic Quandaries & Strategies for Success</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-elevating-your-content-6-steps-to-higher-youtube-visibility/"><u>[New] In 2024, Elevating Your Content 6 Steps to Higher YouTube Visibility</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-insta-live-with-obs-broadcast/"><u>[New] In 2024, Insta Live with OBS Broadcast</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-explore-the-top-10-websites-for-no-fee-images/"><u>[Updated] In 2024, Explore the Top 10 Websites for No-Fee Images</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-speaking-for-characters-the-screenwriters-challenge/"><u>2024 Approved Speaking for Characters The Screenwriter's Challenge</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-your-path-to-a-unique-auditory-experience-customizing-ringtone-and-sound-on-android/"><u>2024 Approved Your Path to a Unique Auditory Experience Customizing Ringtone & Sound on Android</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/becoming-an-audience-star-with-top-language-test-preparation/"><u>Becoming an Audience Star with Top Language Test Preparation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/charms-of-chic-french-lingo-for-love/"><u>Charms of Chic: French Lingo for Love</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciphering-interlingual-secrets-turkey-and-korea/"><u>Deciphering Interlingual Secrets: Turkey and Korea</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/easy-guide-to-downloading-and-updating-your-epson-wf-3620-driver-for-new-windows-os-versions/"><u>Easy Guide to Downloading and Updating Your Epson WF-3620 Driver for New Windows OS Versions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578795871-german-vs-french-which-language-is-more-useful-to-learn/"><u>German vs French: Which Language Is More Useful to Learn</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/get-the-most-out-of-culinary-classes-with-these-essential-study-tips/"><u>Get the Most Out of Culinary Classes with These Essential Study Tips</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722960499017-get-your-windows-compatible-epson-et-2750-printing-drivers-instantly/"><u>Get Your Windows Compatible Epson ET-2750 Printing Drivers Instantly</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/gratis-omzettingen-ogm-in-mpeg-online-dit-doet-movavi/"><u>Gratis Omzettingen OGM in MPEG Online - Dit Doet Movavi</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-ioss-best-selection-of-premium-psp-emulators/"><u>In 2024, IOS's Best Selection of Premium PSP Emulators</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-dawns-good-morning-versions-from-10-different-cultures/"><u>International Dawns: Good Morning Versions From 10 Different Cultures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-transforming-the-way-we-learn-languages/"><u>Mondly: Transforming the Way We Learn Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-lifetime-plan-zero-price/"><u>Mondly's Lifetime Plan: Zero Price</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/navigate-the-world-of-podcast-seo-efficiently/"><u>Navigate the World of Podcast SEO Efficiently</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/skyrocket-your-portuguese-proficiency-with-these-six-steps/"><u>Skyrocket Your Portuguese Proficiency with These Six Steps</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Inaugural App Fusing Voice & Augmented Reality
-date: 2024-10-08T22:33:27.459Z
-updated: 2024-10-12T16:34:42.563Z
+date: 2024-10-12T21:16:48.556Z
+updated: 2024-10-18T17:01:55.365Z
 tags:
   - speak
   - english
@@ -43,10 +43,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 > _We started working on Mondly AR in August 2017 and by the time [Blade Runner 2049](http://www.imdb.com/title/tt1856101/) was released, we already had a working demo. Watching Blade Runner 2049 made me realize that we were beginning to build the future. To me, Joi (the holographic companion of officer K) looked like a super advanced version of Mondly – the character we were creating. They can both understand speech, reply with a human voice and change outfits. Of course, Mondly is not as smart and realistic as Joi. Yet. But she can teach you 7 languages. And this is just the beginning._
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Here’s what you should know about Mondly AR
@@ -65,10 +65,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facts and figures about Mondly
@@ -85,10 +85,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 * [Mondly Press Kit](https://www.dropbox.com/sh/vo4j5214zvwdxy5/AAC20VxIgpuiEe7ED2%5F37VNEa?dl=0)
 
 <!-- affiliate ads begin -->
-<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
-  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Media mentions about Mondly
@@ -120,19 +120,16 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-guidance.techidaily.com/updated-unparalleled-camera-tech-s-filmmaking/"><u>[Updated] Unparalleled Camera Tech 'S Filmmaking</u></a></li>
-<li><a href="https://program-issues.techidaily.com/diagnose-and-fix-blue-screen-problems-a-step-by-step-guide-for-helldivers-2-users/"><u>Diagnose and Fix Blue Screen Problems: A Step-by-Step Guide for HellDivers 2 Users</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/hands-on-latin-adventures-for-learners/"><u>Hands-On Latin Adventures for Learners</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/highest-priority-foreign-languages-for-us-learners/"><u>Highest Priority Foreign Languages for U.S. Learners</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-stop-google-chrome-from-tracking-your-location-on-nokia-c110-drfone-by-drfone-virtual-android/"><u>How to Stop Google Chrome from Tracking Your Location On Nokia C110? | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-jokesinframe-instant-memes-and-more/"><u>In 2024, JokesInFrame Instant Memes & More</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-process-of-screen-sharing-infinix-smart-8-to-pc-detailed-steps-drfone-by-drfone-android/"><u>In 2024, Process of Screen Sharing Infinix Smart 8 to PC- Detailed Steps | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-scouting-talent-top-5-video-artists-who-create-with-rhythm-and-beat/"><u>In 2024, Scouting Talent Top 5 Video Artists Who Create With Rhythm & Beat</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lexical-fusions-the-role-of-international-influence/"><u>Lexical Fusions: The Role of International Influence</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-easy-speak-quick-ultimate-easy-language-list/"><u>Speak Easy, Speak Quick: Ultimate Easy Language List</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/viking-verbal-vestiges-linguistic-traces-of-raiders/"><u>Viking Verbal Vestiges: Linguistic Traces of Raiders</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-honor-magic-6-lite-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Honor Magic 6 Lite? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/why-master-a-world-language-like-english/"><u>Why Master a World Language Like English?</u></a></li>
-<li><a href="https://discover-help.techidaily.com/wie-sie-onedrive-nahtlos-integrieren-konnen-eine-praktische-anleitung-fur-windows-serveradministratoren/"><u>Wie Sie OneDrive Nahtlos Integrieren Können: Eine Praktische Anleitung Für Windows Serveradministratoren</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-digital-classrooms-prime-ed-tutorials-online/"><u>2024 Approved Digital Classrooms Prime Ed Tutorials Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/busting-stereotypes-truths-behind-language-learning/"><u>Busting Stereotypes: Truths Behind Language Learning</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/easy-steps-for-command-line-system-exploration/"><u>Easy Steps for Command-Line System Exploration</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-noobs-manual-to-saving-streaming-radio-lines/"><u>In 2024, The Noob's Manual to Saving Streaming Radio Lines</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-tagalog-quickly-with-minimal-daily-commitment/"><u>Master Tagalog Quickly with Minimal Daily Commitment</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oculus-quest-gears-up-for-language-diversity-with-mondly/"><u>Oculus Quest Gears Up for Language Diversity with 'Mondly'</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/overcoming-the-challenge-of-a-disappeared-msvcrt10dll-expert-advice-and-fixes/"><u>Overcoming the Challenge of a Disappeared msvcrt10.dll - Expert Advice and Fixes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pronunciation-pathways-from-canadian-twang-to-british-cockney/"><u>Pronunciation Pathways: From Canadian Twang to British Cockney</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/snappy-vids-guide-essential-info-for-2024/"><u>Snappy Vids Guide Essential Info for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-and-write-fluently-in-latvia-just-10-minutes-of-practice/"><u>Speak and Write Fluently in Latvia - Just 10 Minutes of Practice</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-ultimate-accoutrement-assortment-for-a-top-tier-steam-deck-experience/"><u>The Ultimate Accoutrement Assortment for a Top-Tier Steam Deck Experience</u></a></li>
 </ul></div>
 

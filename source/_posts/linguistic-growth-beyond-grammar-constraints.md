@@ -1,7 +1,7 @@
 ---
 title: Linguistic Growth Beyond Grammar Constraints
-date: 2024-08-27T22:52:42.324Z
-updated: 2024-08-28T22:52:42.324Z
+date: 2024-10-16T20:56:41.085Z
+updated: 2024-10-18T17:19:33.998Z
 tags:
   - speak
   - english
@@ -31,16 +31,29 @@ One of the best ways to learn a language is to practice both writing the languag
 This is why a focus on grammar is the wrong way to teach and learn a language. Grammar is the art of perfecting the use of a language you already know. When learning a language, it can hold students back in a variety of ways.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **1\. Complexity**
 
 There is a lot to take in when learning a language. The last thing a student needs is to get bogged down in a sea of confusing grammar rules. Of course, there are languages with simpler rules. For example, the [French grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) is more difficult than [the German grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875), but unless you’re naturally gifted at learning languages, realizing there are so many grammar rules to figure out might leave you so discouraged that you give up.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **2\. Incorrect Focus**
 
 Grammar rules are generally about perfecting the written language. This isn’t to say that having a strong grasp on the written aspects of the language are not important. After all, many people do the majority of their communication online these days. However, if your aim is to learn to speak a foreign language, then spending a large amount of time focusing on grammar might be holding you back.
@@ -48,15 +61,16 @@ Grammar rules are generally about perfecting the written language. This isn’t 
 The goal for a language student is to become fluent as quickly as possible. Fluency with the spoken word will transfer to an understanding of the written word as well. The old models of teaching do not place importance on becoming fluent as quickly as possible, and it seems this is a huge part of the problem.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **3\. A Lack of Conversational Aspects**
 
 Most of us don’t speak in the exact same way that we write. We choose different words, use slang and sometimes even say things in a different order than we would when writing them down. How many people do you know who speak using perfect grammar? Sure, some might exist, but it isn’t very common regardless what language we are discussing. For this reason, if you insist on studying grammar first and conversational language second, you might struggle to understand people as they speak. Luckily, nowadays, there are [modern solutions available that immerse you in conversations](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) from day 1\.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 ### **4\. A Major Lack of Fun**
 
 This might seem like a crazy concept to some, but learning a language should be an enjoyable experience! Too much focus on perfecting grammar can suck all the joy out of learning. Instead, students should make language learning about having pleasant conversations and social interactions. The [new breed of language apps](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-717&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-717%26utm%5Fsource%3Dblog-post-id-717&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-717%26utm%5Fsource%3Dblog-post-id-717&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-717%26utm%5Fsource%3Dblog-post-id-717&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-717%26mt%3D8) made the process fun and even [VR apps that help you learn languages](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) have made their way to the market.
@@ -64,8 +78,12 @@ This might seem like a crazy concept to some, but learning a language should be 
 ![Learn grammar with Mondly: French grammar, German Grammar, Spanish Grammar and more](https://edge.mondly.com/blog/wp-content/uploads/2017/10/Webp.net-compress-image-1.jpg "Is Grammar Holding You Back From Learning A Language? 2")
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Returning to Our Roots: Learning with the Mind of a Child**
 
 If you’re a native English speaker, you probably didn’t begin learning the language by studying grammar at the age of two. You learned by listening to the people around you speak. Since all children learn languages by focusing on the spoken word, shouldn’t adults do the same? Why are our schools placing such importance on perfect grammar?
@@ -78,9 +96,6 @@ Do you feel that grammar holds you back from learning a language? Share your sto
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
-<!-- affiliate ads end -->
 ### Speak a new language in just 10 minutes a day
 
 Want to become fluent fast? With Mondly, the award-winning language learning app, you’ll speak any language from day 1\. It’s fun, easy and efficient. Quick Daily Lessons. 5 minutes a day. It’s so entertaining you’ll become addicted. The best part? You’ll be fluent in no time.
@@ -97,8 +112,6 @@ Start using Mondly for free on your computer or tablet or, better yet, download 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -106,4 +119,24 @@ Start using Mondly for free on your computer or tablet or, better yet, download 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-compare-and-contrast-best-6-hdmi-monitor-models-in-detail-for-2024/"><u>[New] Compare & Contrast Best 6 HDMI Monitor Models in Detail for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-10-best-youtube-music-reaction-videos-2023-for-2024/"><u>[Updated] 10 Best YouTube Music Reaction Videos 2023 for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-pixelate-photo-visages-a-selection-of-powerful-utilities/"><u>[Updated] Pixelate Photo Visages A Selection of Powerful Utilities</u></a></li>
+<li><a href="https://fox-http.techidaily.com/10-top-ai-tools-to-invent-unique-podcast-names-online-for-2024/"><u>10 Top AI Tools to Invent Unique Podcast Names Online for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/google-pixel-2023-leak-scoop-predicted-specs-expected-cost-and-launch-window-rumors-unpacked/"><u>Google Pixel 2023 Leak Scoop: Predicted Specs, Expected Cost & Launch Window Rumors Unpacked</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/high-resolution-revelations-top-15-cameras-of-2024/"><u>High-Resolution Revelations – Top 15 Cameras of 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-ultimate-windows-audio-suite/"><u>In 2024, Ultimate Windows Audio Suite</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-joy-on-american-independence-eve/"><u>International Joy on American Independence Eve</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jours-de-la-semaine-apprendre-en-francais/"><u>Jours De La Semaine: Apprendre en Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/official-and-vernacular-languages-in-croatia/"><u>Official and Vernacular Languages in Croatia</u></a></li>
+<li><a href="https://win-able.techidaily.com/overcome-star-wars-squadrons-bugs-easily-mastered-solutions-for-players/"><u>Overcome Star Wars: Squadrons Bugs Easily - Mastered Solutions for Players</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/partitioned-presence-ranking-splittest-cam-for-2024/"><u>Partitioned Presence Ranking Splittest Cam for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essentials-of-expressing-friendliness-in-mandarin/"><u>The Essentials of Expressing Friendliness in Mandarin</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-linguistic-profile-of-belgium/"><u>The Linguistic Profile of Belgium</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-learning-finnish-from-home/"><u>The Ultimate Guide to Learning Finnish From Home</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-spanish-verbal-tenses/"><u>Understanding Spanish Verbal Tenses</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-africas-language-tapestry/"><u>Unlocking Africa's Language Tapestry</u></a></li>
+</ul></div>
 

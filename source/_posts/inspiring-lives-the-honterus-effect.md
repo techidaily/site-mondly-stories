@@ -1,7 +1,7 @@
 ---
 title: "Inspiring Lives: The Honterus Effect"
-date: 2024-08-27T22:59:15.856Z
-updated: 2024-08-28T22:59:15.856Z
+date: 2024-10-15T16:20:46.131Z
+updated: 2024-10-18T20:08:25.191Z
 tags:
   - speak
   - english
@@ -26,6 +26,13 @@ thumbnail: https://thmb.techidaily.com/9b6869e231e2667ce5b62099e4b236daaa6b93b4b
 
  In our journey to help those who need it most, we draw inspiration from Honterus and pledge to give students the tools to succeed and the opportunity to learn in ways they never could have imagined. This is why we unveiled multiple state-of-the-art [iMac labs](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) at the Transilvania University of Brașov and several other high schools. In total, there are now 60 brand new iMacs helping young minds innovate in schools all over Brașov.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Rudimenta Cosmographica, the first European-wide manual
 
  After graduating from the University of Vienna between 1520 and 1525 with a_magister artium_ title, Honterus moved to Poland to teach at the Kraków’s Jagiellonian University. During his stay, he published two of his most important works: a Latin grammar and_Rudimenta Cosmographica_ , a cosmography manual. Then, he moved to Basel and practiced printing, publishing and wood engraving. This is where he came into contact with printers Heinrich Petri, Johann Bebel and Michael Isengrin. His connections with all four printing workshops in Basel at that time prove to be especially relevant when he returns to native Transylvania and decides to set up a printing press.
@@ -34,13 +41,24 @@ thumbnail: https://thmb.techidaily.com/9b6869e231e2667ce5b62099e4b236daaa6b93b4b
 
 ![honterus map](https://edge.mondly.com/blog/wp-content/uploads/2020/06/honterus-map-600x467.jpeg "Great Personalities Who Inspire Us: Johannes Honterus 2")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The map of the world by Johannes Honterus
 
  Additionally,_Rudimenta Cosmographica_ contained 13 maps of all known parts of the world engraved by Honterus himself. The book proved to be so successful that there were printed 39 editions of it in Brașov, Basel, Prague, Zürich, Antwerp and Cologne. Many consider_Rudimenta Cosmographica_ to be the first European-wide manual and the first Minor Atlas in Central and South-Eastern Europe.
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Draw inspiration from the best
 
  Everything Johannes Honterus did throughout his life is an inspiration for us at Mondly. He literally put Romania on the map before the unified nation was even born and our ambition is to continue his endeavor.
@@ -65,17 +83,17 @@ thumbnail: https://thmb.techidaily.com/9b6869e231e2667ce5b62099e4b236daaa6b93b4b
 Get Mondly now and speak any language like you never dreamed you would ![Get Mondly now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-5187&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-5187%26utm%5Fsource%3Dblog-post-id-5187&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-5187%26utm%5Fsource%3Dblog-post-id-5187&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-5187%26utm%5Fsource%3Dblog-post-id-5187&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-5187%26mt%3D8 "Get Mondly now")
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -84,4 +102,22 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-3-strategies-for-tiktok-livestreaming-from-desktop/"><u>[New] In 2024, 3 Strategies for TikTok Livestreaming From Desktop</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-cutting-edge-cinema-with-hero5-black-professional-techniques/"><u>[New] In 2024, Cutting Edge Cinema with Hero5 Black Professional Techniques</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-m1-innovation-elevating-smoothness-in-every-editors-toolkit/"><u>[Updated] M1 Innovation Elevating Smoothness in Every Editor's Toolkit</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-perfect-your-technique-mastery-of-remote-recording/"><u>2024 Approved Perfect Your Technique Mastery of Remote Recording</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-step-by-step-guide-for-cutting-edge-editing-in-gopro-studio/"><u>2024 Approved Step-by-Step Guide for Cutting-Edge Editing in GoPro Studio</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/easy-steps-on-how-to-create-a-new-apple-id-account-on-iphone-xr-drfone-by-drfone-ios/"><u>Easy Steps on How To Create a New Apple ID Account On iPhone XR | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-from-raw-files-to-stunning-artwork-mastering-polarrs-editing/"><u>In 2024, From Raw Files to Stunning Artwork Mastering Polarr's Editing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introduction-a-la-physiologie-parts-of-the-body-en-francais/"><u>Introduction À La Physiologie: Parts of the Body en Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-leaps-and-bounds-3-neurologically-supported-activities/"><u>Linguistic Leaps and Bounds: 3 Neurologically Supported Activities</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-a-pro-in-latvia-the-quick-learners-way/"><u>Speak Like a Pro in Latvia: The Quick Learner's Way</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tomorrows-tongues-revolutionizing-language-acquisition-today/"><u>Tomorrow's Tongues: Revolutionizing Language Acquisition Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-talk-advanced-speech-coaching-solutions/"><u>Transform Talk: Advanced Speech Coaching Solutions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukraine-and-russias-linguistic-similarities-unveiled/"><u>Ukraine and Russia's Linguistic Similarities Unveiled</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/weekly-milestones-mondlys-global-triumph/"><u>Weekly Milestones: Mondly's Global Triumph</u></a></li>
+</ul></div>
 

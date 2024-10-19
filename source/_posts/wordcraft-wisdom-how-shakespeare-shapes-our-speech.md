@@ -1,7 +1,7 @@
 ---
 title: "Wordcraft Wisdom: How Shakespeare Shapes Our Speech"
-date: 2024-08-27T22:57:07.471Z
-updated: 2024-08-28T22:57:07.471Z
+date: 2024-10-14T20:15:00.424Z
+updated: 2024-10-18T19:36:49.140Z
 tags:
   - speak
   - english
@@ -57,13 +57,24 @@ thumbnail: https://thmb.techidaily.com/5a4d47d2bc28159ccd90a432752164871c06ebbca
 
 ![Shakespeare words](https://edge.mondly.com/blog/wp-content/uploads/2023/02/shakespeare-words.jpg "Shakespeare’s Words: 36 Words Shakespeare Invented That We Still Use Today 2")
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Cool words Shakespeare invented
 
 _To invent new words, or not to invent new words?_ Clearly, William Shakespeare did not ask himself that. He just went with it and invented new words so he could properly tell his stories. In the end, he was so good at both storytelling and coining words that today it is impossible to have an English curriculum without Shakespeare. But enough tittle-tattle.**Let’s see what other words Shakespeare invented:**
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### **1\. Addiction**
 
 _Henry V_ , Act I, Scene II
@@ -73,15 +84,16 @@ _Henry V_ , Act I, Scene II
 _Timon of Athens_ , Act V, Scene I
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **3\. Bandit**
 
 _King Henry VI_ , Part II, Act IV, Scene I
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 ### **4.** Cold-blooded
 
 _King John_ , Act III, Scene I
@@ -90,32 +102,36 @@ _King John_ , Act III, Scene I
 
 _King Henry VI_ , Part III, Act III, Scene III
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **6\. Fashionable**
 
 _Troilus and Cressida_ , Act III, Scene III
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **7\. (to) Friend**
 
 _Hamlet_ , Act I, Scene V
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **8\. (to) Gossip**
 
 _The Comedy of Errors_ , Act V, Scene I
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ### **9\. Hint**
 
 _Othello_ , Act I, Scene III
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **10.** Laughable
 
 _The Merchant of Venice_ , Act I, Scene I
@@ -124,9 +140,23 @@ _The Merchant of Venice_ , Act I, Scene I
 
 _Julius Caesar_ , Act I, Scene II
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **12.** Marketable
 
 _As You Like It_ , Act I, Scene II
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **13.** Mimic
 
@@ -136,16 +166,10 @@ _A Midsummer Night’s Dream_ , Act III, Scene II
 
 _Troilus and Cressida_ , Act III, Scene III
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
-<!-- affiliate ads end -->
 ### **15.** Obscene
 
 _Love’s Labour’s Lost_ , Act I, Scene I
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
-<!-- affiliate ads end -->
 ### **16\. Ode**
 
 _Love’s Labour’s Lost_ , Act IV, Scene III
@@ -154,32 +178,14 @@ _Love’s Labour’s Lost_ , Act IV, Scene III
 
 _King Henry VI_ , Part III, Act II, Scene III
 
-<!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **18.** Outbreak
 
 _Hamlet_ , Act II, Scene I
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ### **19\. Puking (disputed)**
 
 _As You Like It_ , Act II, Scene VII
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ### **20\. Radiance**
 
 _All’s Well That Ends Well_ , Act I, Scene I
@@ -188,16 +194,17 @@ _All’s Well That Ends Well_ , Act I, Scene I
 
 _Hamlet_ , Act V, Scene I
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### **22\. (to) Swagger**
 
 _A Midsummer Night’s Dream_ , Act III, Scene I
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **23.** Tranquil
 
 _Othello_ , Act III, Scene III
@@ -239,8 +246,6 @@ _Love’s Labour’s Lost_ , Act V, Scene II
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -248,4 +253,26 @@ _Love’s Labour’s Lost_ , Act V, Scene II
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-expert-tips-on-choosing-the-best-youtube-to-avi-software-for-2024/"><u>[New] Expert Tips on Choosing the Best YouTube-to-AVI Software for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-mastering-the-art-of-action-shots-with-gopro/"><u>[New] Mastering the Art of Action Shots with GoPro</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-must-know-basics-for-mac-users-on-tiktok/"><u>[New] Must-Know Basics for Mac Users on TikTok</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-the-ultimate-guide-to-instagrams-gold-standard-six-tactics-to-attract-more-followers/"><u>[Updated] 2024 Approved The Ultimate Guide to Instagram's Gold Standard Six Tactics to Attract More Followers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-apex-artists-youtubes-most-followed-sages/"><u>[Updated] Apex Artists YouTube's Most-Followed Sages</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-exclusive-catalog-budget-friendly-image-treasuries-online/"><u>[Updated] Exclusive Catalog Budget-Friendly Image Treasuries Online</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-jubilant-join-and-disconnect-protocols-for-2024/"><u>[Updated] Jubilant Join & Disconnect Protocols for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/capturing-gameplay-a-sims-4-tutorial-for-2024/"><u>Capturing Gameplay A Sims 4 Tutorial for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/heartfelt-harmony-romes-seductive-speech/"><u>Heartfelt Harmony: Rome’s Seductive Speech</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-the-dos-and-donts-of-daily-vlogging/"><u>In 2024, The Dos and Don'ts of Daily Vlogging</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/kangaroo-talk-100plus-slang-for-the-aussies/"><u>Kangaroo Talk: 100+ Slang for the Aussies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-vr-multiplayer-the-future-of-language-learning-in-virtual-reality/"><u>Mondly VR Multiplayer: The Future Of Language Learning In Virtual Reality</u></a></li>
+<li><a href="https://program-issues.techidaily.com/resolved-fixing-the-error-when-updating-the-original-minecraft-launcher/"><u>Resolved: Fixing the Error When Updating the Original Minecraft Launcher</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swiftbangla-10-minute-daily-practice-routine/"><u>SwiftBangla: 10-Minute Daily Practice Routine</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-linguistic-renaissance-how-learning-a-new-language-at-40plus-enhances-life/"><u>The Linguistic Renaissance: How Learning a New Language at 40+ Enhances Life</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tiempo-y-segundo-una-guia-basica-en-espanol/"><u>Tiempo Y Segundo: Una Guía Básica en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-five-five-world-languages-compilation/"><u>Top Five-Five World Languages Compilation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-global-conversations-with-an-exclusive-95-discounted-learning-plan/"><u>Unlock Global Conversations with an Exclusive 95% Discounted Learning Plan!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/shmaia-eyxhs-kalh-morfh-gkreman/"><u>Σημαία Ευχής Καλή Μορφή Γκρεμάν</u></a></li>
+</ul></div>
 

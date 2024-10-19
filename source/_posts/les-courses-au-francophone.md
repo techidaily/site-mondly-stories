@@ -1,7 +1,7 @@
 ---
 title: Les Courses Au Francophone
-date: 2024-10-11T17:28:50.715Z
-updated: 2024-10-12T18:32:15.955Z
+date: 2024-10-15T18:55:49.896Z
+updated: 2024-10-18T20:09:07.852Z
 tags:
   - speak
   - english
@@ -74,16 +74,10 @@ The days of the week in French are:
  Planning to spend an entire week in France? Dont stop at_les jours de la semaine en français_ . French people are known to be proud of their language and heritage. Surprise them with your French skills and go beyond “Friday” in French with these [100+ French travel phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . You’ll thank me later.
 
 <!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Usage rules
@@ -130,19 +124,22 @@ The days of the week in French are:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-vivid-visual-storytelling-the-fade-technique/"><u>[New] In 2024, Vivid Visual Storytelling The Fade Technique</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/affordable-security-on-wheels-the-comprehensive-review-of-rexing-v1-dashcam/"><u>Affordable Security On Wheels - The Comprehensive Review of Rexing V1 DashCam</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-itel-p40-device-sim-by-drfone-android/"><u>Easily Unlock Your Itel P40 Device SIM</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-fix-part-of-the-touch-screen-not-working-on-oppo-reno-10-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Part of the Touch Screen Not Working on Oppo Reno 10 5G | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-the-complete-checklist-for-uploading-videos-on-twitpic/"><u>In 2024, The Complete Checklist for Uploading Videos on Twitpic</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-lineage-unraveling-brazilian-and-eu-linguistic-roots/"><u>Language Lineage: Unraveling Brazilian & EU Linguistic Roots</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lexical-divergence-in-us-and-uk/"><u>Lexical Divergence in US and UK</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/majority-language-of-israeli-culture/"><u>Majority Language of Israeli Culture?</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/refresh-your-desktop-a-step-by-step-on-adding-customizable-weather-icons-in-windows-11/"><u>Refresh Your Desktop: A Step-by-Step on Adding Customizable Weather Icons in Windows 11</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-tapestry-of-english-threads-from-abroad/"><u>The Tapestry of English: Threads From Abroad</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/top-7-strategies-to-enhance-pc-performance-swiftly/"><u>Top 7 Strategies to Enhance PC Performance Swiftly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-nye-goals-attainability-strategies/"><u>Top NYE Goals: Attainability Strategies</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/turkish-and-korean-linguistic-journey/"><u>Turkish and Korean Linguistic Journey</u></a></li>
-<li><a href="https://games-able.techidaily.com/unveiling-the-layers-of-steam-versus-gog-services/"><u>Unveiling the Layers of Steam Versus GOG Services</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-12-hacks-to-find-and-download-the-best-free-stock-photography/"><u>[New] 12 Hacks to Find and Download the Best Free Stock Photography</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/boost-language-ability-with-10-min-urdu-sessions/"><u>Boost Language Ability with 10-Min Urdu Sessions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effortless-online-path-to-czech-fluency/"><u>Effortless Online Path to Czech Fluency</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/future-proof-choices-the-premier-gaming-consoles-of-2024/"><u>Future-Proof Choices: The Premier Gaming Consoles of 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/guide-how-to-enable-and-view-dav-files-on-ios-devices/"><u>Guide: How to Enable and View DAV Files on iOS Devices</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/how-to-elevate-your-social-influence-the-six-step-guide-to-instagram-verified-status/"><u>How to Elevate Your Social Influence The Six-Step Guide to Instagram Verified Status</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-remove-activation-lock-on-the-apple-iphone-13-mini-without-previous-owner-by-drfone-ios/"><u>How to Remove Activation Lock On the Apple iPhone 13 mini Without Previous Owner?</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-remove-and-reset-face-id-on-apple-iphone-12-mini-by-drfone-ios/"><u>How to Remove and Reset Face ID on Apple iPhone 12 mini</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/how-to-remove-background-noise-in-final-cut-pro-x/"><u>How to Remove Background Noise in Final Cut Pro X?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-can-i-bypass-a-forgotten-phone-password-of-honor-play-8t-by-drfone-android/"><u>In 2024, Can I Bypass a Forgotten Phone Password Of Honor Play 8T?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-growth-at-50plus-five-key-advantages-unveiled/"><u>Linguistic Growth at 50+: Five Key Advantages Unveiled</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/live-google-meet-on-youtube-streaming-tutorial-for-beginners-for-2024/"><u>Live Google Meet on YouTube – Streaming Tutorial for Beginners for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lively-lessons-for-a-fun-and-engaging-spanish-journey/"><u>Lively Lessons for a Fun and Engaging Spanish Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-secret-to-exceptional-communication-skills/"><u>Mondly's Secret to Exceptional Communication Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-privacy-policy-unveiled-now/"><u>New Privacy Policy Unveiled Now</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/premier-asian-linguistic-trinity-backup-and-organize-lists/"><u>Premier Asian Linguistic Trinity: Backup & Organize Lists</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rapid-ukrainian-comprehension-in-minutes-a-day-95-chars/"><u>Rapid Ukrainian Comprehension in Minutes a Day (95 Chars)</u></a></li>
 </ul></div>
 

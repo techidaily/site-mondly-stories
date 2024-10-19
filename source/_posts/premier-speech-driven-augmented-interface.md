@@ -1,7 +1,7 @@
 ---
 title: Premier Speech-Driven Augmented Interface
-date: 2024-09-30T19:39:07.960Z
-updated: 2024-10-07T05:35:08.518Z
+date: 2024-10-14T22:28:05.241Z
+updated: 2024-10-18T23:36:10.988Z
 tags:
   - speak
   - english
@@ -43,10 +43,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 > _We started working on Mondly AR in August 2017 and by the time [Blade Runner 2049](http://www.imdb.com/title/tt1856101/) was released, we already had a working demo. Watching Blade Runner 2049 made me realize that we were beginning to build the future. To me, Joi (the holographic companion of officer K) looked like a super advanced version of Mondly – the character we were creating. They can both understand speech, reply with a human voice and change outfits. Of course, Mondly is not as smart and realistic as Joi. Yet. But she can teach you 7 languages. And this is just the beginning._
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Here’s what you should know about Mondly AR
@@ -65,10 +65,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
+  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facts and figures about Mondly
@@ -85,10 +85,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 * [Mondly Press Kit](https://www.dropbox.com/sh/vo4j5214zvwdxy5/AAC20VxIgpuiEe7ED2%5F37VNEa?dl=0)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Media mentions about Mondly
@@ -120,16 +120,24 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-melodies-for-millions-insta-music-secrets-for-2024/"><u>[New] Melodies for Millions Insta Music Secrets for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/british-american-language-variations-explored/"><u>British-American Language Variations Explored</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cultural-courtesy-express-gratitude-in-30-languages-148-under-156-but-original-concept/"><u>Cultural Courtesy: Express Gratitude in 30 Languages (148) [Under 156 but Original Concept]</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discover-new-languages-easily-only-047-more-than-before/"><u>Discover New Languages Easily – Only $0.47 More than Before</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discovering-russian-counting-patterns-and-formulas/"><u>Discovering Russian Counting Patterns and Formulas</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/re-8plus-places-for-gratis-hdr-environments-and-clips-for-2024/"><u>Explore 8+ Places for Gratis HDR Environments & Clips for 2024</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/in-2024-best-stop-motion-software-online-creators-ranked/"><u>In 2024, Best Stop Motion Software Online Creators Ranked</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-step-by-step-guide-to-stunning-collage-artistry/"><u>In 2024, Step-by-Step Guide to Stunning Collage Artistry</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/in-2024-youtubes-time-warp-watch-lists-in-the-reverse-order/"><u>In 2024, YouTube's Time Warp Watch Lists in the Reverse Order</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-italy-top-100-expressions-for-the-travelers-toolkit/"><u>Navigating Italy: Top 100 Expressions for the Traveler's Toolkit</u></a></li>
-<li><a href="https://program-issues.techidaily.com/troubleshooting-guide-why-is-metro-exodus-pc-enhanced-edition-experiencing-crashes/"><u>Troubleshooting Guide: Why Is Metro Exodus (PC) Enhanced Edition Experiencing Crashes?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-audio-visual-synergy-iphones-role-in-modern-music-videos/"><u>[New] 2024 Approved Audio-Visual Synergy IPhone's Role in Modern Music Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-breaking-down-8-common-blunders-in-early-stage-youtube-success-for-2024/"><u>[New] Breaking Down 8 Common Blunders in Early-Stage YouTube Success for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-audio-transformation-expertise-from-ttml-and-xml-to-dynamic-srts/"><u>[New] In 2024, Audio Transformation Expertise From TTML & XML to Dynamic SRTs</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-in-2024-securely-connect-a-step-by-step-guide-to-discord-calls/"><u>[New] In 2024, Securely Connect A Step-by-Step Guide to Discord Calls</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-lit-tales-in-just-a-minute-for-2024/"><u>[New] Lit Tales in Just a Minute for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-catch-the-flame-ideas-for-unbroken-snapstreaks-for-2024/"><u>[Updated] Catch the Flame - Ideas for Unbroken Snapstreaks for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-guide-to-silent-screen-time-view-unseen-stories-on-devices-for-2024/"><u>[Updated] Guide to Silent Screen Time View Unseen Stories on Devices for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-audience-expansion-strategies-that-honor-youtube-standards/"><u>[Updated] In 2024, Audience Expansion Strategies That Honor YouTube Standards</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581475811-10-minute-tagalog-grind-start-today/"><u>10-Minute Tagalog Grind - Start Today!</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-top-5-kid-friendly-flying-toys/"><u>2024 Approved Top 5 Kid-Friendly Flying Toys</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-spanish-verbal-grammar-for-beginners/"><u>Essential Spanish Verbal Grammar for Beginners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-new-vocabulary-with-mondlys-updated-phrasebook/"><u>Explore New Vocabulary with Mondly’s Updated Phrasebook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-shaking-hands-to-nodding-japenese-greetings-unveiled/"><u>From Shaking Hands to Nodding – Japenese Greetings Unveiled</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/how-to-get-resident-evil-5-running-again-after-pc-launch-issues/"><u>How to Get Resident Evil 5 Running Again After PC Launch Issues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-paves-the-way-affordable-education-in-ukrainian-and-beyond/"><u>Mondly Paves the Way: Affordable Education in Ukrainian & Beyond</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-years-sale-96-off-for-lifetime-access-to-mondly-premium/"><u>New Year’s Sale: 96% OFF for Lifetime Access to Mondly Premium</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/playful-phrases-the-poise-of-pick-up-lines-in-spanish/"><u>Playful Phrases: The Poise of Pick-Up Lines in Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sounds-of-language-across-atlantic/"><u>Sounds of Language Across Atlantic</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tecnicas-audiovisuales-con-colores/"><u>Técnicas Audiovisuales Con Colores</u></a></li>
 </ul></div>
 

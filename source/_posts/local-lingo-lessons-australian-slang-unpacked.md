@@ -1,7 +1,7 @@
 ---
 title: "Local Lingo Lessons: Australian Slang Unpacked"
-date: 2024-08-27T22:52:03.686Z
-updated: 2024-08-28T22:52:03.686Z
+date: 2024-10-11T22:42:06.607Z
+updated: 2024-10-18T16:31:47.962Z
 tags:
   - speak
   - english
@@ -26,19 +26,28 @@ thumbnail: https://thmb.techidaily.com/97b5d85adaa70d7cf066a732f43c0486f51d36a4b
 
  You don’t really know a language until you’ve learned its [slang](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . And when it comes to English, many people agree that Australian slang is the richest, liveliest and funniest slang you could learn. Sure, there’s always British English, but the Brits don’t call their barbecue “barbie”. And that’s a missed opportunity. Wouldn’t you agree? How can you have just a plain, dull barbecue when you could have a “barbie”? The Aussie slang is the best slang.
 
-
-
 ## Top 10 Popular Australian Slang Terms & Words
 
  Let’s start with the basics: core Australian slang vocabulary. Here’s a list of popular Australian slang terms you probably heard before but didn’t know what they meant.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1._Ta_ – Thank you
 
  You can also use “thanks heaps” when you are really grateful to someone for doing something for you or “cheers” to combine both “thank you”‌ and “goodbye” ‌in a single word. For example, “cheers” is a perfect choice for leaving the shop after the barista gives you your coffee.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 2._Brekkie_ – Breakfast
 
  Although it sounds like breakfast for kids, brekkie is the Australian meal everyone has in the morning.
@@ -49,9 +58,6 @@ _“So… what did you have for brekkie today?”_
 
 Well, I don’t mind if you call me a “barbie girl” now.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 4._Crikey!_ – An Exclamation of Surprise
 
  Famously used by Steve Irwin. It’s similar to the [British English slang](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) “blimey!”.
@@ -69,8 +75,12 @@ It can also refer to a small, aggressive dog like a chihuahua.
  A “bogan” is an uncouth or unrefined person regarded as being of low social status. The term is usually pejorative, but it can also be regarded as a joke between friends.
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 8._Bush Telly_ – What You Watch at Night When You Are Camping
 
  You heard “telly” before, but “bush telly”? That’s a new one. Basically, when you are camping, you can’t watch traditional television, so you watch the “bush telly”: the campfire, the stars or just… the bush.
@@ -81,19 +91,12 @@ You’ll ask for a “bikkie” just to hear yourself say it.
 
  There’s also the very cute expression “to cost big bikkies”, meaning that something is very expensive.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
-<!-- affiliate ads end -->
 ### 10._Mate_ – Friend
 
 _Oi, mate!_ This one’s a classic. You ought to use it. Additionally, you can also say “cobber”.
 
 ![aussie slang](https://edge.mondly.com/blog/wp-content/uploads/2020/05/aussie-slang-600x600.jpg "100+ Australian Slang Words To Help You Speak Like A True Aussie 6")
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
  Australian slang
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "100+ Australian Slang Words To Help You Speak Like A True Aussie 7")
@@ -203,12 +206,16 @@ _Oi, mate!_ This one’s a classic. You ought to use it. Additionally, you can a
 
  Aussie slang
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Funny Australian Slang Phrases
 
  If it weren’t for this list, you’d need an Australian slang translator when you hear these Australian slang phrases! Use them in your day-to-day conversations and Aussies might think you’re one of their own.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. What’s the John Dory?
 
@@ -249,8 +256,12 @@ It seems that this phrase has had a lot of variations:
  While the original message referred to an object that is out of place, the modern meaning has slightly shifted. So, when you hear someone using this Australian slang phrase, know that they are referring to someone who behaves foolishly, makes a fuss, complains, or rants.
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 6\. Dog’s breakfast
 
 **Complete chaos, mess.**
@@ -258,8 +269,12 @@ It seems that this phrase has had a lot of variations:
  You can think of it this way: what does a dog’s breakfast consist of? Leftovers. Chicken bones or maybe a half-eaten pizza from last night. So, if something is really messy or disordered, then it looks like a dog’s breakfast.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 7\. Do the Harry
 
 **Disappear.**
@@ -293,8 +308,12 @@ Coming Soon
  Australian slang
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## What You Need to Know About Aussie Slang
 
  Whether you want to move to the Australian paradise, spend a holiday there to visit the Irwin family’s Australia Zoo, or just learn the Australian slang because you feel like spicing up your [English](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) vocabulary, there are a few things you need to remember:
@@ -306,16 +325,10 @@ Coming Soon
 
 Before you go, let’s answer some frequently asked questions.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ### What does ‘Aussie’ mean?
 
  Aussie means Australian, also known as a person from Australia. Remember that “Aussie” is an informal word and you should use it accordingly.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
-<!-- affiliate ads end -->
 ### What is the most common Australian slang?
 
  The most common Australian slang words are ‘arvo’ (afternoon), ‘Maccas’ (McDonald’s), ‘sheila’ (woman or female), ‘brekkie’ (breakfast), ‘barbie’ (barbecue), ‘mate’ (friend), ‘avo’ (avocado), ‘bikkie’ (biscuit), ‘cobber’ (friend) and many other more.
@@ -326,8 +339,12 @@ Before you go, let’s answer some frequently asked questions.
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Crikey, mate! This language learnin’ app is bonzer
 
  Do you want to impress a_bloke_ or a_sheila_ with your newly acquired language skills? Well, this is your lucky day. Because with Mondly, the award-winning language learning app, you’ll speak any language from day 1\. It’s as fun as learning Aussie slang!
@@ -336,16 +353,11 @@ Before you go, let’s answer some frequently asked questions.
 
 Get Mondly now and speak any language like you never dreamed you would ![Give it a try](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-4765&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-4765%26utm%5Fsource%3Dblog-post-id-4765&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-4765%26utm%5Fsource%3Dblog-post-id-4765&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-4765%26utm%5Fsource%3Dblog-post-id-4765&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-4765%26mt%3D8 "Give it a try")
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -354,4 +366,26 @@ Get Mondly now and speak any language like you never dreamed you would ![Give it
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-riddle-me-this-the-ultimate-room-conundrums/"><u>[New] 2024 Approved Riddle Me This The Ultimate Room Conundrums</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-the-experts-choice-top-10-streamer-pickers-guide/"><u>[New] The Expert's Choice Top 10 Streamer Pickers Guide</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-pro-screen-recording-tool-for-successful-youtubers/"><u>[Updated] In 2024, Pro Screen Recording Tool for Successful YouTubers</u></a></li>
+<li><a href="https://fake-location.techidaily.com/full-guide-to-fix-itoolab-anygo-not-working-on-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>Full Guide to Fix iToolab AnyGO Not Working On Apple iPhone 13 mini | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-the-newest-nvidia-quadro-rtx-8000-windows-drivers-ideal-for-wndows-11-8-and-7-systems/"><u>Get the Newest Nvidia Quadro RTX 8000 Windows Drivers: Ideal for Wndows 11, 8 & 7 Systems</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-youtube-view-bots-and-other-easy-hacks-to-increase-views/"><u>In 2024, YouTube View Bots and Other Easy Hacks to Increase Views</u></a></li>
+<li><a href="https://review-topics.techidaily.com/issues-playing-h-265-hevc-video-on-samsung-galaxy-s24-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Issues playing H.265 HEVC video on Samsung Galaxy S24</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/launching-the-all-new-faq-facility-for-mondly-users/"><u>Launching the All-New FAQ Facility for Mondly Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-german-made-easy-the-ultimate-25-idiom-collection-guide/"><u>Learning German Made Easy: The Ultimate 25 Idiom Collection Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/los-diez-nombres-del-mundo-en-espanol-un-curso-semanal/"><u>Los Diez Nombres Del Mundo en Español: Un Curso Semanal</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-french-books-best-novels-for-beginners-outlined/"><u>Mastering French Books: Best Novels For Beginners Outlined</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/meet-italians-the-right-way-with-these-basic-greetings/"><u>Meet Italians the Right Way with These Basic Greetings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-british-slang-quick-and-effective-learning/"><u>Navigating British Slang: Quick & Effective Learning</u></a></li>
+<li><a href="https://driver-install.techidaily.com/optimize-kodak-inkjet-performance-in-win11/"><u>Optimize Kodak Inkjet Performance in Win11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/self-taught-french-strategies-unveiled/"><u>Self-Taught French Strategies Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/state-of-the-art-platforms-for-language-learning-efficiency/"><u>State-of-the-Art Platforms for Language Learning Efficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-path-to-essential-words-oxford-mondly-guide/"><u>The Path to Essential Words: Oxford-Mondly Guide</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/unveiling-innovations-with-toms-hardware-your-guide-to-cutting-edge-pc-components/"><u>Unveiling Innovations with Tom's Hardware - Your Guide to Cutting-Edge PC Components</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-in-2024-extract-audio-from-video-top-mp4-to-mp3-apps/"><u>Updated In 2024, Extract Audio From Video Top MP4 to MP3 Apps</u></a></li>
+</ul></div>
 

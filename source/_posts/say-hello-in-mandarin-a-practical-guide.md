@@ -1,7 +1,7 @@
 ---
 title: "Say Hello in Mandarin: A Practical Guide"
-date: 2024-08-23T00:35:03.015Z
-updated: 2024-08-24T00:35:03.015Z
+date: 2024-10-17T23:23:43.461Z
+updated: 2024-10-18T17:20:42.765Z
 tags:
   - speak
   - english
@@ -34,38 +34,33 @@ thumbnail: https://thmb.techidaily.com/3e0d42175915583cc99b1c2fc829a0f2223c8a7d7
 
  Now that you know the easiest and most popular way to say “hello” in Chinese, let’s move on to more advanced Mandarin Chinese greetings that are guaranteed to make you sound fluent.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 1\. 早！(zǎo) – “Morning!” in Chinese
 
  早 (zǎo) is short for 早上好 (zǎo shang hǎo), which means “good morning” in Chinese. The same as our English “good morning”, 早 (zǎo) can be used safely in all kinds of social interactions as long as it is… you’ve guessed it: morning.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
-<!-- affiliate ads end -->
 ## 2\. 你好吗? (nǐ hǎo ma) – “How are you?” in Chinese
 
 Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
  This expression is generally used as a response to a greeting, but it can also work as a “how are you?”.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## 3\. 你怎么样? (nǐ zěnmeyàng) – “What’s up?” in Chinese
 
  As you can probably already tell, this is an informal greeting you can use with your friends.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 4\. 你吃了吗？(nǐ chī le ma) – “Have you eaten?”
 
  Are you confused? Amused? Or maybe a little bit of both? I was, too, when I first heard this greeting. When someone says 你吃了吗？(nǐ chī le ma) to you, they don’t actually want to know if you have eaten. In Chinese culture, this greeting is used as a way of showing someone you care about their well-being.
 
  To answer to this greeting, you can say “chī le, nǐ ne?” which means “I’ve eaten, how about you?”.
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 5\. 久仰 (jiǔyǎng) – a very formal Chinese greeting
 
  On your way to a business meeting where you’ll meet someone for the first time? Well, that’s the perfect moment to use this very formal Mandarin greeting.
@@ -80,23 +75,38 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
  “Hello there!” by Theodor Lundqvist©
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 7\. 大家好 (dàjiā hǎo) – say “hello” to a crowd in Chinese
 
  As mentioned earlier, 你好 nǐ hǎo is used to greet only one person at a time. So, if you need to say “hello” to a group of people in Mandarin Chinese, simply go with 大家好 (dàjiā hǎo).
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 8\. 下午好 (xiàwǔ hǎo) – “Good afternoon” in Chinese
 
  Want to diversify the way you greet people in Chinese? Then you can go with 下午好 (xiàwǔ hǎo) when it’s the right time of the day.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 9\. 晚上好 (wǎnshàng hǎo) – “Good evening” in Chinese
 
  Staying up late to meet with your friends? Then this your chance to show them how well you’ve mastered the Mandarin greetings!
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 10\. 喂 (wèi) – answer your phone like a fluent speaker
 
@@ -125,8 +135,6 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -134,4 +142,26 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-navigating-green-screen-integration-in-post-production/"><u>[Updated] 2024 Approved Navigating Green Screen Integration in Post-Production</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-enhancing-video-appeal-20-premium-thumbnail-fonts/"><u>[Updated] Enhancing Video Appeal 20 Premium Thumbnail Fonts</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-in-2024-the-guardian-of-gifs-saving-memorable-moments-from-twitter/"><u>[Updated] In 2024, The Guardian of GIFs Saving Memorable Moments From Twitter</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-the-income-impact-of-sharing-on-youtube-shorts/"><u>[Updated] In 2024, The Income Impact of Sharing on YouTube Shorts</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-gopro-innovations-a-side-by-side-exploration/"><u>2024 Approved GoPro Innovations A Side-by-Side Exploration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/9-most-difficult-languages-to-learn-and-how-to-master-them/"><u>9 Most Difficult Languages To Learn And How To Master Them</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-czech-language-the-internet-advantage/"><u>Conquer Czech Language: The Internet Advantage</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/disabling-apple-iphone-7-plus-parental-restrictions-withwithout-password-by-drfone-ios/"><u>Disabling Apple iPhone 7 Plus Parental Restrictions With/Without Password</u></a></li>
+<li><a href="https://driver-download.techidaily.com/effortless-downloading-of-wacom-device-drivers-step-by-step/"><u>Effortless Downloading of Wacom Device Drivers - Step by Step</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577154336-heres-how-to-use-mondly-and-get-the-best-out-of-it/"><u>Here’s How to Use Mondly and Get the Best Out of It</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-top-3-beyond-youtube-innovative-videostreaming-communities/"><u>In 2024, Top 3 Beyond Youtube Innovative Videostreaming Communities</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/is-your-iphone-6-plus-in-security-lockout-proper-ways-to-unlock-drfone-by-drfone-ios/"><u>Is Your iPhone 6 Plus in Security Lockout? Proper Ways To Unlock | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-colloquialisms-top-17-spanish-phrases/"><u>Mastering Colloquialisms: Top 17 Spanish Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-keywords-with-oxfords-ease/"><u>Mastering Keywords with Oxford's Ease</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/monday-to-domingo-learn-the-days-of-the-week-in-spanish/"><u>Monday to Domingo – Learn the Days of the Week in Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-pursuits-cognitive-mastery/"><u>Multilingual Pursuits, Cognitive Mastery</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/overcoming-battery-drained-laptop-screens/"><u>Overcoming Battery-Drained Laptop Screens</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sprachgenie-10-ubliche-deutsche-begrussungen-ohne-hallo/"><u>Sprachgenie: 10 Übliche Deutsche Begrüßungen Ohne 'Hallo'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tutti-i-numeri-italiani-divisi-in-1000-esperienze/"><u>Tutti I Numeri Italiani Divisi in 1000 Esperienze</u></a></li>
+</ul></div>
 

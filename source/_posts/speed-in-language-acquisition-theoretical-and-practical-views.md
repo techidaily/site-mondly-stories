@@ -1,7 +1,7 @@
 ---
 title: "Speed in Language Acquisition: Theoretical & Practical Views"
-date: 2024-08-27T22:54:13.807Z
-updated: 2024-08-28T22:54:13.807Z
+date: 2024-10-12T22:03:21.432Z
+updated: 2024-10-18T22:19:07.167Z
 tags:
   - speak
   - english
@@ -17,8 +17,6 @@ thumbnail: https://thmb.techidaily.com/05054cfe506491b99a35f8cf834debaebdbdb9bad
 ## Speed in Language Acquisition: Theoretical & Practical Views
 
  English is the most international language on the globe. If you are a native English speaker, chances are, you can get along quite comfortably in most Western countries without learning a word in another language. In Europe especially, with enough luck, someone out there may know enough English to initiate and sustain basic communication situations.
-
-
 
  But of course, for various other reasons either personal, cultural or work-related, you will find yourself in need of learning a foreign language. The next natural question after deciding to learn a new language is: how many hours does it take to learn a foreign language and achieve fluency?
 
@@ -45,6 +43,13 @@ thumbnail: https://thmb.techidaily.com/05054cfe506491b99a35f8cf834debaebdbdb9bad
 * **Knowing more than one language helps —** languages with shared features with English are generally easier to learn, while those with significant cultural and linguistic differences may take longer to learn;
 * **The time spent learning depends on you** **—** The time it takes to learn a new language varies greatly depending on your motivation and dedication to the task.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Interagency Language Roundtable scale or the IRL scale
 
  The Interagency Language Roundtable is a grading scale used by the US government to scale [employees](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and diplomats working for the FSI (Foreign Service Institute). You’ll find this scale to be the most accurate when it comes to native English speakers learning a foreign language. Basically, what this scale does is establish the language difficulty.
@@ -68,8 +73,18 @@ thumbnail: https://thmb.techidaily.com/05054cfe506491b99a35f8cf834debaebdbdb9bad
  The FSI has over 800 language learning courses in more than 70 languages with more than 70 years of experience in training US diplomats and foreign affairs employees.
 
 <!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **Tier 1:** Languages that are most closely related to English
 
  The fastest way to learn a language is to learn any language from Tier 1\. These are the easiest languages to learn for English speakers and will take the least amount of time to master.
@@ -102,11 +117,6 @@ thumbnail: https://thmb.techidaily.com/05054cfe506491b99a35f8cf834debaebdbdb9bad
 * comparable stress and intonation patterns;
 * already share a number of vocabulary words.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ### **Tier 2:** Similar to English
 
 | Language | Time needed to reach fluency |
@@ -120,8 +130,19 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 !["Fastest way to learn a language" by RF._.studio©](https://edge.mondly.com/blog/wp-content/uploads/2018/04/fastest-way-to-learn-a-language-960x641.jpg "How Long Does It Take In Hours To Learn A Language? 4")
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **Tier 3:** Languages that may have cultural and linguistic differences compared to English
 
 | Language       | Time needed to reach fluency |
@@ -159,19 +180,12 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
  The languages above are just a part of the European languages classified as tier 4 by the FSI. The list goes on with other languages from all over the world, like Mongolian, Nepali, Thai, Xhosa, Zulu or Hebrew. All of them take about 1100 hours or 44 weeks to become fluent in. Thus, when it comes to the difficulty of languages, this list does indeed include hard languages to learn, but not the hardest.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
-<!-- affiliate ads end -->
 ## Hardest language to learn for English speakers
 
  All of the tier 5 languages are highly sophisticated and complex compared to English having an average learning curve of up to 4 times the period it takes for the average English speaker to learn Dutch for example. So arm yourself with a lot of patience and plenty of determination.
 
  Based on all the data and testimonies English speakers made over the years, the hardest language to learn award may go to Japanese due to the thousands of characters you need to memorize while having three different writing varieties.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **Tier 5:** Extraordinary level of difficulty
 
 | Language         | Time needed to reach fluency |
@@ -186,9 +200,6 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
 ![Mondly 1000 daily lessons for free](https://edge.mondly.com/blog/wp-content/uploads/2017/09/iphone_main_screen_s_FW7fe-1024x682.jpg "How Long Does It Take In Hours To Learn A Language? 5")
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
  Let’s not also forget that the above FSI statistics don’t include the help of modern language learning aids like apps on your smartphone can bring to the table. In theory, today you can [learn a foreign language much faster.](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fhow-many-hours-learn-language%2F&t=How+Long+Does+It+Take+in+Hours+to+Learn+a+Language%3F "Share on Facebook")
@@ -218,8 +229,6 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -227,4 +236,19 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-approaches.techidaily.com/new-moneyminded-cloud-vault-capacious-cost-effective/"><u>[New] MoneyMinded Cloud Vault - Capacious, Cost-Effective</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-privacy-centric-explore-instagram-stories-anon-on-your-devices/"><u>[New] Privacy-Centric Explore Instagram Stories Anon on Your Devices</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-syma-x5c-exposed-perfect-pick-for-novice-aerial-enthusiasts/"><u>[New] Syma X5C Exposed Perfect Pick for Novice Aerial Enthusiasts</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-how-to-make-gmail-meetings-work-zipping-up-zoom-integrations/"><u>2024 Approved How to Make Gmail Meetings Work Zipping Up Zoom Integrations</u></a></li>
+<li><a href="https://android-frp.techidaily.com/about-samsung-galaxy-s23-fe-frp-bypass-by-drfone-android/"><u>About Samsung Galaxy S23 FE FRP Bypass</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-vpna-to-fake-gps-location-on-nokia-g42-5g-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use VPNa to Fake GPS Location On Nokia G42 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/guide-to-profiting-from-youtube-shorts-key-requirements-and-potential-income-for-2024/"><u>Guide to Profiting From YouTube Shorts Key Requirements & Potential Income for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-say-good-morning-in-10-different-languages/"><u>How To Say Good Morning In 10 Different Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/indonesian-greetings-decoded-for-travelers-and-locals-alike/"><u>Indonesian Greetings Decoded for Travelers and Locals Alike</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-liberation-pronouncing-tricky-terminology-with-ease/"><u>Language Liberation: Pronouncing Tricky Terminology with Ease</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-top-francophone-countries-and-their-linguistic-statistics/"><u>The Top Francophone Countries and Their Linguistic Statistics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-the-art-of-russian-greeting-essentials-and-beyond/"><u>Unlocking the Art of Russian Greeting: Essentials and Beyond</u></a></li>
+</ul></div>
 

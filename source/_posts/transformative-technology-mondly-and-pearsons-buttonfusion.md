@@ -1,7 +1,7 @@
 ---
 title: "Transformative Technology: Mondly and Pearson's ButtonFusion"
-date: 2024-08-27T22:56:40.422Z
-updated: 2024-08-28T22:56:40.422Z
+date: 2024-10-11T16:35:06.185Z
+updated: 2024-10-19T00:16:52.032Z
 tags:
   - speak
   - english
@@ -39,6 +39,13 @@ thumbnail: https://thmb.techidaily.com/3053aa186a22e246fde2fd4dd8f2c112e4536c6f6
 
  At Pearson, our purpose is simple: to add life to a lifetime of learning. We believe that every learning opportunity is a chance for a personal breakthrough. That’s why our c.20,000 Pearson employees are committed to creating vibrant and enriching learning experiences designed for real-life impact. We are the world’s leading learning company, serving customers in more than 200 countries with digital content, assessments, qualifications, and data. For us, learning isn’t just what we do. It’s who we are. Visit us at pearsonplc.com
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **About Mondly**
 
  Mondly is a leading language learning platform that has been named “Regional App of the Year” by Facebook, “App of the Day” by Apple, and “Editors’ Choice” by Google Play. Launched in 2014, it quickly became a leading app in the mobile space. According to Statista, Mondly is currently in the Top 5 language learning apps worldwide by number of downloads.
@@ -51,8 +58,6 @@ thumbnail: https://thmb.techidaily.com/3053aa186a22e246fde2fd4dd8f2c112e4536c6f6
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -60,8 +65,21 @@ thumbnail: https://thmb.techidaily.com/3053aa186a22e246fde2fd4dd8f2c112e4536c6f6
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-switching-spotify-playlists-transferring-to-youtube-music-format/"><u>[New] In 2024, Switching Spotify Playlists Transferring to YouTube Music Format</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-mastering-photo-framing-best-web-and-app-solutions/"><u>[New] Mastering Photo Framing Best Web and App Solutions</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-unseen-social-media-hits-top-10-meme-pages/"><u>[New] Unseen Social Media Hits – Top 10 Meme Pages</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-download-and-installation-made-easy-for-ez-grabber-users/"><u>[Updated] Download and Installation Made Easy for EZ Grabber Users</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-branding-breakthrough-constructing-logos-for-podcasts/"><u>2024 Approved Branding Breakthrough Constructing Logos for Podcasts</u></a></li>
+<li><a href="https://win11.techidaily.com/discover-the-ultimate-selection-of-5-acapella-sites-for-free-tunes-perfect-for-dj-playlists/"><u>Discover the Ultimate Selection of 5 Acapella Sites for Free Tunes Perfect for DJ Playlists</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/heartstrings-and-heritage-love-filled-french-films/"><u>Heartstrings and Héritage: Love-Filled French Films</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-boutonniere-bookmarks-casino-critique/"><u>In 2024, BOUTONNIERE BOOKMARKS Casino Critique</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/la-semaine-dun-novice-guide-des-dix-jours/"><u>La Semaine D'un Novice: Guide Des Dix Jours</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/local-lingo-lessons-australian-slang-unpacked/"><u>Local Lingo Lessons: Australian Slang Unpacked</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-is-now-available-on-huawei-appgallery/"><u>Mondly Is Now Available on Huawei AppGallery</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/upgrading-your-system-with-aomei-backupper-steps-to-access-the-newest-version/"><u>Upgrading Your System with AOMEI Backupper: Steps to Access the Newest Version</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-linguistic-curiosity-is-still-flourishing-at-sixty/"><u>Why Linguistic Curiosity Is Still Flourishing at Sixty?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-ways-to-express-cupids-affection-this-day/"><u>Worldwide Ways to Express Cupid's Affection This Day</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->

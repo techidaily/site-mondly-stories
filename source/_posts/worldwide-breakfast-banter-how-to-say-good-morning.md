@@ -1,7 +1,7 @@
 ---
 title: "Worldwide Breakfast Banter: How to Say 'Good Morning'"
-date: 2024-10-10T16:36:15.901Z
-updated: 2024-10-13T00:27:09.619Z
+date: 2024-10-11T17:11:31.088Z
+updated: 2024-10-18T17:48:40.343Z
 tags:
   - speak
   - english
@@ -38,10 +38,10 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
  It is also important to note that in some countries from South America it’s common to say “buen día” which is literally the singular form of “buenos días”. However, if you go to Spain, it’s best to stick with “buenos días”.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. Good morning in French:_Bon matin !_
@@ -52,31 +52,24 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 
  Both “bonjour” and “bon matin” are appropriate in both formal and informal settings and can be used with friends and strangers alike.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3\. Good morning in German:_Guten Morgen!_
 
  To say “good morning” in German, you can use the phrase “Guten Morgen”. This is a common and polite way to greet someone until noon. It can be used with both friends and strangers which makes it appropriate in both formal and informal social contexts.
 
  As you probably know, Germans like to be efficient, so sometimes greetings tend to be kept short. Therefore, in informal situations, you can simply say “Morgen!”.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4\. Good morning in Italian:_Buongiorno!_
 
  Everyone is familiar with the Italian “ciao” which means “hi”. It has become so popular, that it is often used between friends in countries all around the world. However, if you want to say “good morning” in Italian, the word you are looking for is “buongiorno”.
 
  Literally meaning “good day”, “buongiorno” can safely be used in all kinds of social contexts from morning until after lunch.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. Good morning in Portuguese:_Bom dia!_
 
@@ -96,6 +89,13 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 
  Additionally, if you want to go the extra mile, it is considered polite to ask about the person’s well-being after greeting them. For example, “как дела?”_(kak dela?)_ which means “how are you?” is often used in conjunction with “доброе утро”_(dobraye utro)_ . This makes the greeting more friendly and personal.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 7\. Good morning in Chinese:_早上好！_
 
  早上好_(Zǎoshang hǎo)_ is how you normally say “good morning” in Chinese. However, if you want to keep it short and sound more like a native, you can just simply say 早_(zǎo)_ .
@@ -111,10 +111,10 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 !["Good morning in Spanish" by Dawid Zawiła©](https://edge.mondly.com/blog/wp-content/uploads/2023/01/good-morning-in-spanish-960x640.jpg "How To Say Good Morning In 10 Different Languages 2")
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 9\. Good morning in Arabic:_صباح الخير!_
@@ -173,24 +173,21 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-a-step-by-step-approach-to-crafting-your-video-market-standouts/"><u>[New] A Step-by-Step Approach to Crafting Your Video' Market Standouts</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-behind-the-mascara-youtubes-top-makeup-artists-unveiled/"><u>[New] Behind the Mascara YouTube's Top Makeup Artists Unveiled</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-experience-the-pinnacle-of-free-fb-image-and-vfx-crafting-for-2024/"><u>[Updated] Experience the Pinnacle of Free FB Image and VFX Crafting for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-video-bite-by-celeb-on-vimeo/"><u>[Updated] In 2024, Video Bite by Celeb on Vimeo</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/best-british-show-selection-on-netflix-for-right-now/"><u>Best British Show Selection on Netflix for Right Now</u></a></li>
-<li><a href="https://fox-zero.techidaily.com/creating-interactive-flipbooks-from-pdfs-a-guide-on-incorporating-watermarks-using-flipbuilder/"><u>Creating Interactive Flipbooks From PDFs: A Guide on Incorporating Watermarks Using FlipBuilder</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/downloading-apple-podcasts-for-easy-listening/"><u>Downloading Apple Podcasts for Easy Listening</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/effective-solutions-to-the-missing-or-not-found-msstdfmtdll-error/"><u>Effective Solutions to the 'Missing' Or 'Not Found' Msstdfmt.dll Error</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/harnessing-the-power-of-gopro-a-guide-to-streaming-on-facebookperiscope-for-2024/"><u>Harnessing the Power of GoPro A Guide to Streaming on Facebook/Periscope for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-motorola-edgeplus-2023-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Motorola Edge+ (2023) | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/iseebell-video-doorbell-review/"><u>IseeBell Video Doorbell Review</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-bridge-a-study-of-turkish-and-korean/"><u>Language Bridge: A Study of Turkish & Korean</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-mastery-in-focus-mondlys-augmented-reality-learning-sessions/"><u>Language Mastery in Focus: Mondly's Augmented Reality Learning Sessions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/leverage-team-potential-through-superior-linguistic-software/"><u>Leverage Team Potential Through Superior Linguistic Software</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-quest-to-become-the-1-language-learning-app/"><u>Mondly's Quest to Become the #1 Language Learning App</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/swift-pathways-into-hangul-the-easiest-alphabet-lesson/"><u>Swift Pathways Into Hangul: The Easiest Alphabet Lesson</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/travel-talk-essential-french-for-every-francophile/"><u>Travel Talk: Essential French for Every Francophile</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/travelers-guide-120plus-vietnamese-words-and-phrases-you-must-know/"><u>Traveler's Guide: 120+ Vietnamese Words And Phrases You Must Know</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/triple-threat-in-language-acquisition-easy-pathways-to-fluency/"><u>Triple Threat in Language Acquisition: Easy Pathways to Fluency!</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ptimize-video-pace-on-youtube-for-devices-speed-adjustments/"><u>[New] Optimize Video Pace on YouTube for Devices (Speed Adjustments)</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-fast-and-fun-the-quick-guide-to-taking-screenshots-on-chromebook/"><u>[Updated] 2024 Approved Fast & Fun The Quick Guide to Taking Screenshots on Chromebook</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-unparalleled-audio-capture-top-9-online-microphone-systems-in-23-for-2024/"><u>[Updated] Unparalleled Audio Capture Top 9 Online Microphone Systems in '23 for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aging-wisely-the-power-of-multilingualism/"><u>Aging Wisely: The Power of Multilingualism</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bilingual-banter-eloquent-pick-up-lines-in-spanish/"><u>Bilingual Banter: Eloquent Pick-Up Lines in Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-persian-origins-and-learning-lifelines/"><u>Decoding Persian Origins & Learning Lifelines</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-romance-french-films-to-learn-language/"><u>Embrace Romance: French Films to Learn Language</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-honor-90-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On Honor 90 Pro? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lecturas-estrategicas-como-decir-colores/"><u>Lecturas Estratégicas: Cómo Decir Colores</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-contacts-from-oneplus-by-fonelab-android-recover-contacts/"><u>Possible solutions to restore deleted contacts from OnePlus .</u></a></li>
+<li><a href="https://win-bits.techidaily.com/prepare-your-wallet-microsoft-announces-paid-windows-11-update-feature-starting-next-year-what-you-need-to-know/"><u>Prepare Your Wallet: Microsoft Announces Paid Windows 11 Update Feature Starting Next Year – What You Need to Know</u></a></li>
+<li><a href="https://discover-alternatives.techidaily.com/real-time-streaming-discover-how-manycam-enhances-your-online-presence-with-superior-live-video-tech-and-digital-webcams/"><u>Real-Time Streaming: Discover How ManyCam Enhances Your Online Presence with Superior Live Video Tech and Digital Webcams</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solutions-for-fixing-speaker-distortion-on-windows-107-devices/"><u>Solutions for Fixing Speaker Distortion on Windows 10/7 Devices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-fluent-portuguese-using-these-6-techniques/"><u>The Ultimate Guide to Fluent Portuguese Using These 6 Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tips-and-techniques-for-fast-and-effective-language-learning/"><u>Tips and Techniques for Fast and Effective Language Learning</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-how-to-make-a-flv-photo-slideshow-with-music-for-2024/"><u>Updated How to Make a FLV Photo Slideshow with Music for 2024</u></a></li>
 </ul></div>
 

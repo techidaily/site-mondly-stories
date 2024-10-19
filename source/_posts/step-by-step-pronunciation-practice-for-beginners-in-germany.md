@@ -1,7 +1,7 @@
 ---
 title: Step-by-Step Pronunciation Practice for Beginners in Germany
-date: 2024-08-27T22:51:55.471Z
-updated: 2024-08-28T22:51:55.471Z
+date: 2024-10-17T22:08:31.807Z
+updated: 2024-10-18T21:09:40.114Z
 tags:
   - speak
   - english
@@ -26,6 +26,13 @@ thumbnail: https://thmb.techidaily.com/3ad4f7e8b48f19c37105255d0826afad52f6608be
 
  Considering you’re already familiar with all the other letters, let’s continue by taking a closer look at these four special letters: ß, ä, ö and ü.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### ß also known as ‘sharp S’, ‘eszett’ or ‘scharfes S’
 
  Although it looks different from everything you’ve ever seen in English, ß shouldn’t intimidate you. Vaguely resembling a capital ‘B’,**the letter ß is pronounced like a sharp S** (like the ‘s’ in ‘see’) – hence its name ‘eszett’ or ‘scharfes S’.
@@ -34,9 +41,6 @@ thumbnail: https://thmb.techidaily.com/3ad4f7e8b48f19c37105255d0826afad52f6608be
 
  Eszett not having a capitalized version sparked debates for a long time, so the Council for German Orthography [officially adopted](https://www.sueddeutsche.de/bildung/rechtschreibung-das-alphabet-bekommt-einen-neuen-buchstaben-1.3566309) a capital in 2017\. The capital of ß is ẞ.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ### German umlauts: ä, ö, ü
 
  While highly representative for the German language, the German umlauts are ‘guilty’ of making the most uncommon sounds to English speakers.
@@ -54,11 +58,19 @@ Now round off your lips and start practicing!
 ![german alphabet](https://edge.mondly.com/blog/wp-content/uploads/2022/04/german-alphabet-960x640.jpg "A Beginner’s Guide To The German Pronunciation &Amp; Alphabet 2")
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 <!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## German pronunciation guide for single letters
 
  Now that we’ve settled the matters with ß, ä, ö and ü, it’s time to move on to more familiar letters and see how their pronunciation differs from English.
@@ -73,9 +85,6 @@ Now round off your lips and start practicing!
 4. **J** – _Oh ja,_ you already know this one! The German _j_ is pronounced like the English ‘y’.
 5. **E** – If you see an _e_ at the end of a German word, make sure to pronounce it like this: ‘eh’. Come on! Loud and clear: _Katze_ (‘cat’)!
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## German pronunciation guide for letter combinations
 
  Just a few more examples and you’ll soon be ready to speak like a German! Let’s see how you should pronounce certain letter combinations in German:
@@ -94,8 +103,12 @@ Now round off your lips and start practicing!
  Did you recognize_ze rules_ in this example?
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to pronounce long German words
 
 _Ja,_ the German language is famous for its very long words, but once again – this shouldn’t intimidate you. Most [German words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) are, in fact, compounds.
@@ -133,8 +146,6 @@ _Tschüss!_
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -142,4 +153,21 @@ _Tschüss!_
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/024-approved-unveiling-the-art-of-youtube-split-screens/"><u>[New] 2024 Approved Unveiling the Art of YouTube Split-Screens</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-home-studio-ready-essential-webcam-recorders-reviewed/"><u>[New] In 2024, Home Studio Ready Essential WebCam Recorders Reviewed</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-top-30-inspirational-ideas-fusing-animated-themes-and-social-media/"><u>[New] In 2024, Top 30 Inspirational Ideas Fusing Animated Themes and Social Media</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-clash-of-legends-5-iconic-fist-fighters-in-virtual-world/"><u>[Updated] In 2024, Clash of Legends 5 Iconic Fist-Fighters in Virtual World</u></a></li>
+<li><a href="https://games-able.techidaily.com/a-step-towards-better-gameplay-replace-joy-con-joysticks/"><u>A Step Towards Better Gameplay: Replace Joy-Con Joysticks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hablar-en-espanol-el-ciclo-de-los-dias-del-mes/"><u>Hablar en Español: El Ciclo De Los Días Del Mes</u></a></li>
+<li><a href="https://techidaily.com/hard-resetting-an-tecno-camon-20-premier-5g-device-made-easy-drfone-by-drfone-reset-android-reset-android/"><u>Hard Resetting an Tecno Camon 20 Premier 5G Device Made Easy | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-itel-a60-by-drfone-android/"><u>In 2024, Three Ways to Sim Unlock Itel A60</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/optimal-language-learning-platforms-for-success/"><u>Optimal Language Learning Platforms for Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/origins-of-the-germanic-dialektaal-voortgang/"><u>Origins of the Germanic Dialektaal Voortgang</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/outstanding-5-educational-platforms-for-language-instruction/"><u>Outstanding 5 Educational Platforms for Language Instruction</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sverige-mojligen-allt-i-gorelse/"><u>Sverige Möjligen: Allt I Görelse</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/valkommen-till-sverige-svensk-valkomman/"><u>Välkommen Till Sverige: Svensk Välkomman</u></a></li>
+<li><a href="https://location-social.techidaily.com/why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-motorola-moto-g84-5g-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Location is Not Updating and How to Fix On Motorola Moto G84 5G | Dr.fone</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Learn Korean for In-Depth Squid Game Insights
-date: 2024-08-27T22:54:23.850Z
-updated: 2024-08-28T22:54:23.850Z
+date: 2024-10-15T21:03:25.718Z
+updated: 2024-10-18T17:05:06.308Z
 tags:
   - speak
   - english
@@ -19,8 +19,6 @@ thumbnail: https://thmb.techidaily.com/177db7c45381f8f94f304fef5764a3ae21d49762f
  Obsessed with Squid Game? Let’s be serious. ‘Obsessed’ is a light word. If BTS made me think about learning Korean, Squid Game outright bought my subscription to [learn Korean](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6194&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko) .
 
  It’s Netflix’s biggest ever series launch and it’s bloody… splendid. The world loves it. In fact, people love it so much that more and more of them want to learn Korean. It’s not just me or just you. It’s the whole world. Squid Game literally took the world by storm.
-
-
 
  The only problem is that the meaning of some scenes in Squid Game seems to have been changed by subtitles. Ever since the show’s official release in September, Korean-speaking fans have been sharing Squid Game mistranslations all over Twitter and TikTok.
 
@@ -44,6 +42,13 @@ So what’s there to be done?
 
  Now, this global phenomenon even has its own name. **The cultural boom coming from South Korea since the 1990s is known today as the Korean wave or [hallyu](https://en.wikipedia.org/wiki/Korean%5Fwave) .** Basically, everything we love about Korean pop culture is embedded in hallyu.
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why Squid Game got lost in translation
 
  Not everyone will get this, but can you imagine how sad it is to be lost in translation without Scarlett Johansson and Bill Murray?
@@ -56,6 +61,13 @@ So what’s there to be done?
 
 ![korean culture](https://edge.mondly.com/blog/wp-content/uploads/2021/10/learn-korean-960x640.jpg "Obsessed With Squid Game, But Lost In Translation? Learn Korean 6")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  ‘Korean women’ by zero take©
 
  To be completely honest, some things are culturally difficult to explain and understand when it comes to translation. The Squid Game situation became notorious due to the show’s popularity, but this is not an isolated case. You may not be aware, but many other foreign-language movies and series are facing the same problem. Because of length and cultural particularities, subtitles can never be 100% accurate.
@@ -65,9 +77,18 @@ So there’s only one conclusion we can draw from this…
 **Like Thanos, getting lost in translation is inevitable.**
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Learn Korean and overcome the one-inch-tall barrier of subtitles
 
  It’s amazing how people learn languages for love. There’s no greater drive than love. And I’m not talking just about romantic love. The fact that so many people are learning Korean after they watched Squid Game, it’s an act of love. All these people learn Korean out of love for this show. Others have been learning the language out of love for BTS. You could even go so far as to say that love makes us smarter. Or better.
@@ -75,13 +96,12 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 ![squid game love](https://media.giphy.com/media/USVF7ZnGqVuoABCBUr/giphy.gif "Obsessed With Squid Game, But Lost In Translation? Learn Korean 7")
 
 <!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
+  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  **Would you [learn Korean](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6194&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko) out of love for hallyu?** In 2020, in his Oscar acceptance speech, ‘Parasite’ director Bong Joon Ho said something the world will never forget:
 
  Once you overcome the 1-inch-tall barrier of subtitles, you will be introduced to so many more amazing films.
@@ -90,9 +110,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  And you know what’s the second-best thing about this? You’ll be in great company. Since the launch of Squid Game, Mondly has seen a massive increase in people starting to learn Korean. You can join them all **[here](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6194&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko)**  .
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Even the English language wants to learn Korean
 
  Do you need an extra reason to start learning? Here’s a good one: even the English language started to learn Korean.
@@ -104,9 +121,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## From 0 to conversational in Korean
 
  Here’s the best way to up your Korean game fast. Get Mondly, the award-winning language learning app, put your enthusiasm to work and speak Korean like a pro in no time. It can be really tricky to master the Korean pronunciation if you don’t actively live in South Korea. But with Mondly, you’ll have access to a fast and highly efficient learning method that allows you to learn Korean naturally with:
@@ -126,8 +140,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -135,4 +147,20 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-contemplating-if-video-selfies-need-validation-on-instagram/"><u>[New] Contemplating if Video Selfies Need Validation On Instagram</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-connectivity-unlocked-best-languages-applications-ranked/"><u>Global Connectivity Unlocked: Best Languages Applications Ranked</u></a></li>
+<li><a href="https://win-forum.techidaily.com/guia-completa-para-convertir-contenido-multimedia-desde-flv-a-avi-utilizando-herramientas-de-conversion-avanceadas-como-movavi/"><u>Guía Completa Para Convertir Contenido Multimedia Desde FLV a AVI Utilizando Herramientas De Conversión Avanceadas Como Movavi</u></a></li>
+<li><a href="https://windows11.techidaily.com/how-to-fix-the-xbox-game-pass-0x800700e9-error-in-windows-11-and-11/"><u>How to Fix the Xbox Game Pass 0X800700e9 Error in Windows 11 & 11</u></a></li>
+<li><a href="https://techidaily.com/how-to-upgrade-or-downgrade-apple-iphone-14-pro-max-without-data-loss-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Upgrade or Downgrade Apple iPhone 14 Pro Max Without Data Loss? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-vivo-y200-phones-by-drfone-android/"><u>In 2024, Top 11 Free Apps to Check IMEI on Vivo Y200 Phones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/innovative-approaches-learning-czech-in-short-timeframes/"><u>Innovative Approaches: Learning Czech in Short Timeframes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-the-new-face-of-excellence-in-apples-top-1-cookbook-listings/"><u>Mondly: The New Face of Excellence in Apple’s Top 1 Cookbook Listings</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-realme-narzo-n53-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Realme Narzo N53? | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/unlocking-access-steps-to-see-instagram-posts-without-signing-up/"><u>Unlocking Access: Steps to See Instagram Posts without Signing Up</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-french-sound-system-start-with-the-basics/"><u>Unveiling French Sound System: Start with the Basics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/varfor-sverige-svenska-forsalar/"><u>Varför Sverige? - Svenska Försalar</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/what-are-the-romance-languages/"><u>What Are The Romance Languages?</u></a></li>
+</ul></div>
 

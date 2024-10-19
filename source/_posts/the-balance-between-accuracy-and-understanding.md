@@ -1,7 +1,7 @@
 ---
 title: The Balance Between Accuracy and Understanding
-date: 2024-10-11T00:22:36.610Z
-updated: 2024-10-12T20:48:24.867Z
+date: 2024-10-16T19:05:41.807Z
+updated: 2024-10-18T23:30:10.084Z
 tags:
   - speak
   - english
@@ -24,18 +24,18 @@ Chances are that you probably took language classes at some point in your educat
 
 Many students can manage reading and writing in a foreign language, but they struggle to understand it in conversational form. These situations make it clear that the past methods of language education are lacking. What is the solution?
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Language Learning: What Holds People Back?**
 
 One of the best ways to learn a language is to practice both writing the language and speaking it in a conversational manner. This is where many people panic and lose confidence in everything they have learned. If you’re new at a language, chances are that you haven’t even begun to grasp all the important grammar rules. This can lead to insecurity about sounding stupid when you write or speak the language, and this fear might hold you back from practicing.
 
 This is why a focus on grammar is the wrong way to teach and learn a language. Grammar is the art of perfecting the use of a language you already know. When learning a language, it can hold students back in a variety of ways.
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **1\. Complexity**
 
@@ -47,16 +47,16 @@ Grammar rules are generally about perfecting the written language. This isn’t 
 
 The goal for a language student is to become fluent as quickly as possible. Fluency with the spoken word will transfer to an understanding of the written word as well. The old models of teaching do not place importance on becoming fluent as quickly as possible, and it seems this is a huge part of the problem.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **3\. A Lack of Conversational Aspects**
 
 Most of us don’t speak in the exact same way that we write. We choose different words, use slang and sometimes even say things in a different order than we would when writing them down. How many people do you know who speak using perfect grammar? Sure, some might exist, but it isn’t very common regardless what language we are discussing. For this reason, if you insist on studying grammar first and conversational language second, you might struggle to understand people as they speak. Luckily, nowadays, there are [modern solutions available that immerse you in conversations](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) from day 1\.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **4\. A Major Lack of Fun**
 
@@ -65,10 +65,10 @@ This might seem like a crazy concept to some, but learning a language should be 
 ![Learn grammar with Mondly: French grammar, German Grammar, Spanish Grammar and more](https://edge.mondly.com/blog/wp-content/uploads/2017/10/Webp.net-compress-image-1.jpg "Is Grammar Holding You Back From Learning A Language? 2")
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Returning to Our Roots: Learning with the Mind of a Child**
@@ -84,16 +84,16 @@ Do you feel that grammar holds you back from learning a language? Share your sto
 ---
 
 <!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Speak a new language in just 10 minutes a day
@@ -121,22 +121,18 @@ Start using Mondly for free on your computer or tablet or, better yet, download 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-the-ultimate-guide-to-respecting-musicians-rights-on-ig/"><u>[New] 2024 Approved The Ultimate Guide to Respecting Musicians' Rights on IG</u></a></li>
-<li><a href="https://extra-information.techidaily.com/updated-androids-best-top-ten-collage-creators/"><u>[Updated] Android's Best Top-Ten Collage Creators</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-crafting-viral-covers-for-your-facebook-profile/"><u>[Updated] In 2024, Crafting Viral Covers for Your Facebook Profile</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-projected-expenses-for-bringing-songs-to-life-on-screen/"><u>2024 Approved Projected Expenses for Bringing Songs to Life on Screen</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-the-experts-manual-for-fusing-linktree-and-tiktok-biographies/"><u>2024 Approved The Expert's Manual for Fusing Linktree and TikTok Biographies</u></a></li>
-<li><a href="https://video-capture.techidaily.com/wma-to-mp3itunes/"><u>効果的なWMA to MP3コンバート手順：iTunesでの実践例</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/breakthrough-strategies-for-effective-fb-health-promotion-for-2024/"><u>Breakthrough Strategies for Effective FB Health Promotion for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/direct-video-tweet-sharing-content-without-including-others-tweets-for-2024/"><u>Direct Video Tweet Sharing Content Without Including Others' Tweets for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/honteruss-tales-of-triumph-and-tenacity/"><u>Honterus's Tales of Triumph & Tenacity</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-insight-deciphering-por-que-vs-por-que/"><u>Language Insight: Deciphering 'Por Qué' Vs 'Por Que'</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/new-years-savings-bonanza-get-free-premium-access-for-life-on-mondly/"><u>New Year's Savings Bonanza: Get Free Premium Access for Life on Mondly!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pro-tips-for-swift-online-czech-study/"><u>Pro Tips for Swift Online Czech Study</u></a></li>
-<li><a href="https://techtrends.techidaily.com/resolving-mss32dll-wheres-the-file-and-how-to-find-it/"><u>Resolving mss32.dll: Where's the File and How to Find It</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-melodic-world-of-romance-tongues/"><u>The Melodic World of Romance Tongues</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unveiling-a-centurys-worth-of-lessons/"><u>Unveiling a Century's Worth of Lessons</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/verschiedene-abschiedsfloskeln-auf-deutsch/"><u>Verschiedene Abschiedsfloskeln Auf Deutsch</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/kalotatoi-eygnwmwn-paradoseis-gkreman/"><u>Καλοτάτοι Ευγνώμων Παραδόσεις Γκρεμάν</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-sneak-peeks-into-slow-motion-mastery-on-instagram/"><u>[New] In 2024, Sneak Peeks Into Slow-Motion Mastery on Instagram</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-step-into-the-world-of-modified-snapchat-speeches-two-simple-steps-for-2024/"><u>[New] Step Into the World of Modified Snapchat Speeches Two Simple Steps for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-bringing-back-the-glitter-integrating-instagram-effects-to-past-media-for-2024/"><u>[Updated] Bringing Back the Glitter Integrating Instagram Effects to Past Media for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-crafting-impact-best-9-video-thumbnail-makers-reviewed/"><u>[Updated] In 2024, Crafting Impact Best 9 Video Thumbnail Makers Reviewed</u></a></li>
+<li><a href="https://howto.techidaily.com/9-solutions-to-fix-samsung-galaxy-s23-tactical-edition-system-crash-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Samsung Galaxy S23 Tactical Edition System Crash Issue | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprovechando-la-pronunciacion-para-colores/"><u>Aprovechando La Pronunciación Para Colores</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-europes-tongues-language-diversity-declared/"><u>Embrace Europe's Tongues: Language Diversity Declared</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multi-language-navigation-button-enhanced-for-oculus-quest-users/"><u>Multi-Language Navigation Button Enhanced for Oculus Quest Users</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-oppo-reno-10-proplus-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on Oppo Reno 10 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/russian-counting-made-simple-a-guide/"><u>Russian Counting Made Simple: A Guide</u></a></li>
+<li><a href="https://techtrends.techidaily.com/solving-the-dilemma-a-step-by-step-guide-on-restoring-power-to-your-malfunctioning-roku-television/"><u>Solving the Dilemma: A Step-by-Step Guide on Restoring Power to Your Malfunctioning Roku Television</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-6-appsservices-to-trace-any-tecno-camon-30-pro-5g-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>Top 6 Apps/Services to Trace Any Tecno Camon 30 Pro 5G Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/unlock-your-potential-best-video-editing-hacks-for-2024/"><u>Unlock Your Potential Best Video Editing Hacks for 2024</u></a></li>
 </ul></div>
 

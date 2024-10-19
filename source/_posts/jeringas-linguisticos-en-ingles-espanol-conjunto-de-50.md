@@ -1,7 +1,7 @@
 ---
 title: "Jeringas Lingüísticos en Inglés-Español: Conjunto De 50"
-date: 2024-09-25T21:56:06.873Z
-updated: 2024-10-02T00:56:49.027Z
+date: 2024-10-16T17:13:02.785Z
+updated: 2024-10-18T22:18:33.360Z
 tags:
   - speak
   - english
@@ -42,25 +42,11 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 
  Some of the most popular examples are: _hospital, horrible, actor, artificial, agenda, animal, original, idea, flexible, vulnerable, superficial, reunion_ (_reunión_ in Spanish)_, melon, interminable, inevitable, tropical, experimental, excursion_ (_excursión_ in Spanish)_, capital, chocolate, probable, conclusion_ (_conclusión_ in Spanish) _, doctor, director, festival, general, individual, nostalgia, panorama, television_ (_televisión_ in Spanish)_, perfume, total, similar, terror_ and_verbal._
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Near-perfect English-Spanish cognates
 
  Did you know that about 90% of Spanish cognates have the same meaning in English? The rest of them are, obviously, false friends words. This means you have only a 10% chance of saying something embarrassing or awkward. That’s not too bad, isn’t it? Besides, after reading this article the percent will surely drop significantly. Even below 0 if you also start [learning Spanish with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4685&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4685?mother%5Flang=en%5Fus?target%5Flang=es&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4685?mother%5Flang=en%5Fus?target%5Flang=es) right now (wink wink).
 
  But before going there, we have one more type of English-Spanish cognates: near-perfect cognates or words that have the same meaning in both languages, but slightly different spelling.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
-  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Spanish Cognates that change “-tion” to “-ción”
 
@@ -74,6 +60,13 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 * examina**tion** and   _examina**ción**_
 * erup**tion** and   _erup**ción**_
 * addi**tion** and   _adi**ción**_
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Spanish Cognates that change “-nt” to “-nte”
 
@@ -105,6 +98,19 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 
  “Mommy, what are cognates?” by Josh Applegate©
 
+<!-- affiliate ads begin -->
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Spanish cognates that add an “-o”
 
 * academic and   _académic**o**_
@@ -117,13 +123,6 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 * basic and   _básic**o**_
 * artistic and   _artístic**o**_
 * dynamic and   _dinámic**o**_
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Spanish cognates that add an “-ar” or an “-ir”
 
@@ -140,6 +139,13 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 * calm and   _calm**ar**_
 * control and   _control**ar**_
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Spanish cognates that change “-ly” to “-mente”
 
 * absolute**ly** and   _absoluta**mente**_
@@ -152,13 +158,6 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 * especial**ly** and   _especial**mente**_
 * complete**ly** and   _completa**mente**_
 * exact**ly** and   _exacta**mente**_
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Spanish-English False Friend Words
 
@@ -221,6 +220,13 @@ _Realizar_ in Spanish means “to do” or “to perform” and not “to realiz
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Speak Spanish in just 10 minutes a day
 
  All these funny little examples convinced you it’s high time you learned Spanish, didn’t they? Lucky for you, we have the perfect tool for learning Spanish: Mondly, the award-winning language learning app that makes language learning fun, fast and easy.
@@ -248,15 +254,18 @@ _Realizar_ in Spanish means “to do” or “to perform” and not “to realiz
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-youtube-awareness-tactics-for-social-media-visibility/"><u>[New] YouTube Awareness Tactics for Social Media Visibility</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-innovative-ways-to-record-and-tweak-videos-using-the-adobe-connect-platform/"><u>[Updated] In 2024, Innovative Ways to Record & Tweak Videos Using the Adobe Connect Platform</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-step-by-step-including-in-apples-premium-catalog/"><u>In 2024, Step-by-Step Including in Apple's Premium Catalog</u></a></li>
-<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-vivo-y100-fixed-drfone-by-drfone-virtual-android/"><u>iSpoofer is not working On Vivo Y100? Fixed | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/key-russian-language-elements-your-journey-starter-kit/"><u>Key Russian Language Elements: Your Journey Starter Kit</u></a></li>
-<li><a href="https://common-error.techidaily.com/maccamera-woes-heres-how-to-get-your-camera-up-and-running-smoothly/"><u>MacCamera Woes? Here's How to Get Your Camera Up and Running Smoothly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/perfect-your-pronunciation-with-these-100-english-tongue-twisters/"><u>Perfect Your Pronunciation With These 100 English Tongue Twisters</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/pivot-to-popularity-mastering-video-flip-on-social-for-2024/"><u>Pivot to Popularity Mastering Video Flip on Social for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ideal-online-approach-to-learn-finnish-effectively/"><u>The Ideal Online Approach to Learn Finnish Effectively</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/which-language-benefits-you-more-in-global-settings-german-or-french/"><u>Which Language Benefits You More in Global Settings, German or French?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/eighing-the-video-sharing-options-for-personal-use-tiktok-vs-youtube-shorts-for-2024/"><u>[New] Weighing the Video Sharing Options for Personal Use TikTok vs YouTube Shorts for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-charting-youtubes-untapped-markets-niche-strategies-for-2024/"><u>[Updated] Charting Youtube's Untapped Markets Niche Strategies for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-copyright-compliance-for-streaming-songs-on-instagram/"><u>2024 Approved Copyright Compliance for Streaming Songs on Instagram</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-art-of-low-volume-playback-system-guide/"><u>2024 Approved The Art of Low-Volume Playback System Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apex-communicator-the-business-linguistic-blueprint/"><u>Apex Communicator: The Business Linguistic Blueprint</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579667558-basic-anatomy-the-parts-of-the-body-in-french/"><u>Basic Anatomy: The Parts Of The Body In French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciding-on-the-next-ideal-linguistic-journey-to-pursue/"><u>Deciding on the Next Ideal Linguistic Journey to Pursue</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/exploring-the-pinnacle-of-wearable-technology-an-in-depth-look-at-the-refined-apple-watch-series-4/"><u>Exploring the Pinnacle of Wearable Technology: An In-Depth Look at the Refined Apple Watch Series 4</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-fix-msvcrtdll-is-missing-or-not-found-errors/"><u>How to Fix Msvcrt.dll Is Missing or Not Found Errors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-youthful-minds-conquer-linguistic-barriers/"><u>How Youthful Minds Conquer Linguistic Barriers</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-no-8-advanced-online-photographic-merge-suite/"><u>In 2024, No. 8 Advanced Online Photographic Merge Suite</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leading-non-native-language-curriculum-for-us-students/"><u>Leading Non-Native Language Curriculum for U.S. Students</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/manejo-de-horas-un-principio-de-lectura-en-espanol/"><u>Manejo De Horas: Un Principio De Lectura En Español</u></a></li>
 </ul></div>
 

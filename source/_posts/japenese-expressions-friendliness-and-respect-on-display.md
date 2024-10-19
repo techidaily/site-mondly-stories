@@ -1,7 +1,7 @@
 ---
 title: "Japenese Expressions: Friendliness & Respect on Display"
-date: 2024-09-21T19:03:14.587Z
-updated: 2024-09-26T17:11:06.982Z
+date: 2024-10-17T17:00:46.093Z
+updated: 2024-10-18T16:47:18.249Z
 tags:
   - speak
   - english
@@ -45,13 +45,6 @@ thumbnail: https://thmb.techidaily.com/e5643a5ff8d74b4fe59c3561d40554a2f62dd8947
 
  Curious about why there are multiple types of characters in Japanese? Here’s everything there is to know about the [Japanese writing system](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
-  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **How to say “hello” on the phone in Japanese: moshi moshi (もしもし)**
 
  Unlike English, which uses the same “hello” for a lot of different social contexts, the Japanese language has a dedicated “hello” for answering the phone:**moshi moshi (もしもし).** Doesn’t that sound cute?
@@ -75,10 +68,10 @@ This greeting is used both as a “hello” and as a “goodbye”.
  “Meguro River, Matsuno, Japan” by Sora Sagano©
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3.“Goodbye” in Japanese
@@ -97,13 +90,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
 * See you soon! – _Mata ne!_  (またね！)
 
 ![goodbye in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/goodbye-in-japanese-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 4")
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  “See you soon, human” by Alain Pham©
 
@@ -133,6 +119,13 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
  “Kyoto, Japan” by Andre Benz©
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Don’t forget about the Japanese bow
 
  Every**“hello” in Japanese** is usually accompanied by a bow, the Western world equivalent of a handshake. Our advice would be to not skip the bow if you really want to feel like you belong.
@@ -148,6 +141,13 @@ This greeting is used both as a “hello” and as a “goodbye”.
  – 30-degree bows are for people you just met or are of a higher social status than you;
 
  – 45-degree bows are used for greetings only if you meet a very important person like the Emperor or the Prime Minister.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Bonus: basic conversation in Japanese
 
@@ -171,10 +171,10 @@ This greeting is used both as a “hello” and as a “goodbye”.
 ![sayonara](https://edge.mondly.com/blog/wp-content/uploads/2019/08/sayonara-1024x680.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 6")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  “Tenryu-ji Temple, Kyōto-shi, Japan” by Masaaki Komori©
@@ -209,22 +209,18 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-how-to-make-facebook-videos-full-screen/"><u>[New] 2024 Approved How to Make Facebook Videos Full Screen?</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-convert-twitter-vids-to-customized-soundtracks-for-2024/"><u>[New] Convert Twitter Vids to Customized Soundtracks for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-the-ultimate-guide-to-charging-up-your-video-empire/"><u>[New] The Ultimate Guide to Charging Up Your Video Empire</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/updated-turning-twitter-video-into-engaging-customizable-gifs-for-2024/"><u>[Updated] Turning Twitter Video Into Engaging Customizable GIFs for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/apex-communicator-the-business-linguistic-blueprint/"><u>Apex Communicator: The Business Linguistic Blueprint</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/capturing-your-gaming-adventures-best-practices-reviewed-for-2024/"><u>Capturing Your Gaming Adventures Best Practices Reviewed for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/deciding-on-the-next-ideal-linguistic-journey-to-pursue/"><u>Deciding on the Next Ideal Linguistic Journey to Pursue</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/hablar-de-semana-en-espanol-descubrimiento-desde-lunes-al-domingo/"><u>Hablar De Semana en Español: Descubrimiento Desde Lunes Al Domingo</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/how-youthful-minds-conquer-linguistic-barriers/"><u>How Youthful Minds Conquer Linguistic Barriers</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-maximize-your-experience-with-key-iphone-x-hacks/"><u>In 2024, Maximize Your Experience with Key iPhone X Hacks</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/leading-non-native-language-curriculum-for-us-students/"><u>Leading Non-Native Language Curriculum for U.S. Students</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/manejo-de-horas-un-principio-de-lectura-en-espanol/"><u>Manejo De Horas: Un Principio De Lectura En Español</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/may-the-words-be-with-you-exploring-the-fascinating-languages-of-star-wars/"><u>May The Words Be With You: Exploring The Fascinating Languages Of Star Wars</u></a></li>
-<li><a href="https://techidaily.com/1723808223748-moving-chrome-bookmarks-to-firefox-made-simple-fast-and-stress-free-tutorial/"><u>Moving Chrome Bookmarks to Firefox Made Simple - Fast and Stress-Free Tutorial!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-slang-lexicon-common-expressions-in-todays-tongue/"><u>The Slang Lexicon: Common Expressions in Today's Tongue</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/top-8-best-book-reader-applications-your-ultimate-guide/"><u>Top 8 Best Book Reader Applications : Your Ultimate Guide</u></a></li>
-<li><a href="https://some-skills.techidaily.com/ultimate-avi-player-the-perfect-match-for-pcmobile-for-2024/"><u>Ultimate AVi Player The Perfect Match for PC/Mobile for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/101-the-ultimate-guide-to-japanese-salutations/"><u>101: The Ultimate Guide to Japanese Salutations</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-the-pathway-to-perfect-zoom-communication-unlocking-effective-online-interactions/"><u>2024 Approved The Pathway to Perfect ZOOM Communication Unlocking Effective Online Interactions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/5-outstanding-software-choices-over-microsoft-office/"><u>5 Outstanding Software Choices Over Microsoft Office</u></a></li>
+<li><a href="https://fox-triigers.techidaily.com/1728493671576-windows-108/"><u>永遠に再起動が止まらないWindows 10？これで修正！8方法をご紹介</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/break-barriers-with-these-17-simple-spanish-idioms/"><u>Break Barriers with These 17 Simple Spanish Idioms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conveying-deep-emotions-in-magyar-language/"><u>Conveying Deep Emotions in Magyar Language</u></a></li>
+<li><a href="https://common-error.techidaily.com/fixing-windows-network-connection-errors-due-to-unplugged-cables/"><u>Fixing Windows Network Connection Errors Due to Unplugged Cables</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-remove-find-my-iphone-without-apple-id-on-your-apple-iphone-6-plus-by-drfone-ios/"><u>How to Remove Find My iPhone without Apple ID On your Apple iPhone 6 Plus?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-gourmet-guides-leading-food-vloggers-online/"><u>In 2024, Gourmet Guides Leading Food Vloggers Online</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/initiating-meetings-on-the-move-tech-advice-for-2024/"><u>Initiating Meetings on the Move Tech Advice for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/pasting-trouble-in-windows-11-os/"><u>Pasting Trouble in Windows 11 OS</u></a></li>
+<li><a href="https://techidaily.com/solved-bad-and-corrupt-videos-that-won-t-play-on-samsung-by-stellar-video-repair-mobile-video-repair/"><u>Solved Bad and Corrupt Videos that won't Play on Samsung</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581343205-zero-to-hero-learn-a-new-language-for-just-half-the-price/"><u>Zero to Hero: Learn a New Language for Just Half the Price</u></a></li>
 </ul></div>
 

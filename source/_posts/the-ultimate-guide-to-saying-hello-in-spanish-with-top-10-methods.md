@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide To Saying 'Hello' In Spanish With Top 10 Methods
-date: 2024-10-04T02:31:21.337Z
-updated: 2024-10-06T18:27:26.179Z
+date: 2024-10-15T00:40:51.090Z
+updated: 2024-10-18T16:27:01.897Z
 tags:
   - speak
   - english
@@ -35,10 +35,10 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
 **Bonus dating tip:** “Hello, beautiful” in Spanish is “Hola, hermosa” and “Hello, handsome” in Spanish is “Hola, hermoso”. Good luck! (wink wink)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Spanish greetings for certain moments of the day
@@ -53,14 +53,14 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
 
 ![hi in spanish](https://edge.mondly.com/blog/wp-content/uploads/2019/04/hi-in-spanish-600x463.jpg "Hello In Spanish And Other Basic Spanish Greetings You Need To Know 3")
 
- ¡Hola, señor! by Bruce Jastrow©
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ ¡Hola, señor! by Bruce Jastrow©
 
 ## “How are you?” in Spanish
 
@@ -74,6 +74,13 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
 **¿Qué hay?** – generally used in Spain; it is used the same way we use “hey!” or “what’s up” in English  
 **¿Cómo va?** – it translates to “how is it going?” and you can also add “todo” at the end – ¿cómo va todo? – to expand its meaning to “how is it all going?
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## “Yes”, “please” and “thank you” in Spanish
 
  If you want to [learn Spanish colors](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , “yes”, “no”, “please” and “thank you” together with the above-mentioned greetings are the absolute basics you’ll need to master before moving forward. Here’s how to say these basic but at the same time crucial [Spanish words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) :
@@ -86,13 +93,6 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
 * I’m sorry – Lo siento
 * I have/I don’t have – Tengo/No tengo
 * Nice to meet you – Encantado/Encantada de conocerte
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Goodbye in Spanish
 
@@ -112,10 +112,16 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
 ![hasta la vista](https://media.giphy.com/media/2oVfyRHk1EuRy/giphy-downsized-large.gif "Hello In Spanish And Other Basic Spanish Greetings You Need To Know 4")
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
-  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Not sure you understand how Spanish accents work? Check out our [article on how to master them all](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
@@ -150,20 +156,18 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-5-steps-to-crafting-engaging-cost-effective-youtube-ads/"><u>[New] 2024 Approved 5 Steps to Crafting Engaging, Cost-Effective YouTube Ads</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-from-raw-to-refined-the-ultimate-youtube-studio-editing-journey/"><u>[Updated] 2024 Approved From Raw to Refined The Ultimate YouTube Studio Editing Journey</u></a></li>
-<li><a href="https://android-location.techidaily.com/10-fake-gps-location-apps-on-android-of-your-honor-90-drfone-by-drfone-virtual/"><u>10 Fake GPS Location Apps on Android Of your Honor 90 | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-tribute-to-lifelong-daily-learning/"><u>A Tribute to Lifelong Daily Learning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/assessing-the-practicality-between-german-and-french/"><u>Assessing the Practicality Between German & French</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/best-practices-in-language-education-software/"><u>Best Practices in Language Education Software</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cut-through-red-tape-easy-to-access-latino-schools/"><u>Cut Through Red Tape: Easy-to-Access Latino Schools</u></a></li>
-<li><a href="https://driver-download.techidaily.com/get-your-microsoft-wireless-mouse-5000-up-and-running-with-simple-driver-download-instructions/"><u>Get Your Microsoft Wireless Mouse ([[5000]) Up and Running with Simple Driver Download Instructions!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/hearken-hearth-tracing-viking-speech-patterns/"><u>Hearken, Hearth: Tracing Viking Speech Patterns</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-nokia-g22-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On Nokia G22? | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-a-vivo-x90s-easily-by-drfone-android/"><u>In 2024, How To Unlock a Vivo X90S Easily?</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-timing-of-youtube-earnings-a-closer-insight/"><u>In 2024, Timing of YouTube Earnings A Closer Insight</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/microsoft-introduces-obligatory-feedback-form-for-closing-your-onedrive-account/"><u>Microsoft Introduces Obligatory Feedback Form for Closing Your OneDrive Account</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/new-era-of-filters-mondly-and-pearson-unite/"><u>New Era of Filters: Mondly and Pearson Unite</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ukrainian-russian-relations-through-language/"><u>Ukrainian-Russian Relations Through Language</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-2024s-cloud-pricing-breakdown-a-detailed-comparison/"><u>[New] 2024'S Cloud Pricing Breakdown A Detailed Comparison</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-effortless-transfer-facebook-videos-from-pcmac/"><u>[New] Effortless Transfer Facebook Videos From PC/Mac</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-simplified-tutorial-mastering-meets-background-blur-for-2024/"><u>[New] Simplified Tutorial Mastering Meet's Background Blur for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-making-your-voice-heard-in-the-podcast-realm/"><u>2024 Approved Making Your Voice Heard in the Podcast Realm</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-your-step-by-step-roadmap-for-instagrams-latest-feature-sharing-gifs/"><u>2024 Approved Your Step-by-Step Roadmap for Instagram's Latest Feature - Sharing GIFs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/educonnect-uniting-international-educators-at-bett-2022/"><u>EduConnect - Uniting International Educators at BETT 2022</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-reboot-to-renaissance-instagrams-potential-return/"><u>From Reboot to Renaissance: Instagram's Potential Return</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-my-honor-x8b-location-is-wrong-drfone-by-drfone-virtual-android/"><u>How to Fix My Honor X8b Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-11-pro-max-passcode-without-computer-by-drfone-ios/"><u>How to Unlock iPhone 11 Pro Max Passcode without Computer?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-leap-forward-our-special-95-off-language-program/"><u>Linguistic Leap Forward: Our Special 95% Off Language Program!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/symphony-of-syntax-musics-impact-on-learning-languages/"><u>Symphony of Syntax: Music's Impact on Learning Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-best-of-mondly-now-at-your-fingertips/"><u>The Best of Mondly, Now at Your Fingertips</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-contrast-between-brazilian-and-european-keyboard-features/"><u>The Contrast Between Brazilian & European Keyboard Features</u></a></li>
 </ul></div>
 

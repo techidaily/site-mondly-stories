@@ -1,7 +1,7 @@
 ---
 title: Introducing the Precision of the Global Scale of Languages by Pearson to Mondly
-date: 2024-08-27T22:55:23.305Z
-updated: 2024-08-28T22:55:23.305Z
+date: 2024-10-17T22:54:29.393Z
+updated: 2024-10-18T20:34:57.219Z
 tags:
   - speak
   - english
@@ -30,6 +30,13 @@ thumbnail: https://thmb.techidaily.com/dbcd91d398192e490625be17ab539ce0390575e1c
 
  Unlike other frameworks that describe language proficiency in broad bands, the GSE offers a finely-grained scale. It identifies what a learner can accomplish at each point across speaking, listening, reading, and writing skills. This unique approach motivates learners by offering a more detailed view of their progression.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Introducing the Global Scale of Languages (GSL)**
 
 Building on this solid foundation, **Pearson has now introduced the Global Scale of Languages (GSL).**
@@ -38,17 +45,10 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 
  By placing languages on a common scale, underpinned by a common set of Learning Objectives, the GSL can ensure comparability across languages to bring greater clarity and simplicity to language learning.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->
 ### **How Pearson created the GSL**
 
  Building on the GSE, our research team at Pearson decided to prove that this scale could also be transferable to other languages. The study’s results were not only encouraging but groundbreaking. The research confirmed that the GSE is directly transferable to other languages, making it possible for Pearson to develop the new GSL framework.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **Why the GSL stands out**
 
 * **Unparalleled insights:**  Going a step beyond traditional language measurement tools like the CEFR, the GSL provides a more detailed understanding of a learner’s skills through extensive global research.
@@ -56,8 +56,12 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 * **Personalized learning pathways:**  With clear objectives at each scale point, the GSL ensures a learning journey tailored to individual goals, making progression more efficient.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Why start with French, Spanish, and Italian?**
 
  These three languages, rich in history and culture, have always been popular choices among our learners. We believe that by integrating GSL with these languages first, we can enhance the learning experience for a larger number of our users.
@@ -67,8 +71,12 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
  As a Mondly user immersing in these languages, you can expect a fresh content approach, and a progressively structured layout.
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Language learning backed by unparalleled global research**
 
  Our integration with the GSL reaffirms our commitment to providing an unmatched learning experience.
@@ -81,8 +89,12 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **Fast-track your progress with Mondly by Pearson**
 
  Whether you’re passionate about French, Spanish, Italian or English, Mondly now offers an enhanced learning journey backed by the precision of the GSL. Celebrate this European Day of Languages by diving into the world of languages with newfound clarity and insight.
@@ -95,8 +107,6 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -104,4 +114,22 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-from-virality-to-value-ajays-playbook-for-profitable-content-creation/"><u>[New] 2024 Approved From Virality to Value Ajay’s Playbook for Profitable Content Creation</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-editing-pro-tips-for-aspiring-sports-video-makers-for-2024/"><u>[New] Editing Pro Tips for Aspiring Sports Video Makers for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-social-media-music-rules-and-regulations/"><u>[Updated] Social Media Music Rules and Regulations</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-eye-candy-roundup-the-best-and-worst-of-8k-tv-tech/"><u>2024 Approved Eye Candy Roundup The Best and Worst of 8K TV Tech</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-maximizing-engagement-in-your-tiktok-unpacking-sessions/"><u>2024 Approved Maximizing Engagement in Your TikTok Unpacking Sessions</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-stop-google-chrome-from-tracking-your-location-on-realme-gt-5-drfone-by-drfone-virtual-android/"><u>How to Stop Google Chrome from Tracking Your Location On Realme GT 5? | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/in-2024-how-to-send-and-fake-live-location-on-facebook-messenger-of-your-vivo-y200-drfone-by-drfone-virtual-android/"><u>In 2024, How to Send and Fake Live Location on Facebook Messenger Of your Vivo Y200 | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-top-10-strategies-for-crafting-engaging-podcast-graphics/"><u>In 2024, Top 10 Strategies for Crafting Engaging Podcast Graphics</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-tecno-pova-6-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Tecno Pova 6 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-simplified-mondlys-victory-2022-edition/"><u>Language Learning Simplified: Mondly's Victory, 2022 Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-croatian-why-and-how-discover-the-7-key-advantages/"><u>Learn Croatian: Why and How – Discover the 7 Key Advantages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/six-sweet-secrets-of-being-bilingual/"><u>Six Sweet Secrets of Being Bilingual</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-happily-ever-after-in-hungarian-dialects/"><u>Speaking Happily Ever After in Hungarian Dialects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-hands-of-italy-deciphering-silent-dialogue/"><u>The Hands of Italy: Deciphering Silent Dialogue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/timwtores-eygnwmwn-dyshs/"><u>Τιμωτόρες Ευγνώμων Δύσης</u></a></li>
+</ul></div>
 

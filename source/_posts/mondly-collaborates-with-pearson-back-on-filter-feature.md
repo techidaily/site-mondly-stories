@@ -1,7 +1,7 @@
 ---
 title: Mondly Collaborates with Pearson Back on Filter Feature
-date: 2024-09-28T17:09:47.933Z
-updated: 2024-10-01T17:39:15.674Z
+date: 2024-10-12T00:29:39.593Z
+updated: 2024-10-18T18:29:29.990Z
 tags:
   - speak
   - english
@@ -40,16 +40,10 @@ thumbnail: https://thmb.techidaily.com/fa206782af9b714e31a62f7ae5d0a20ed9b793265
  At Pearson, our purpose is simple: to add life to a lifetime of learning. We believe that every learning opportunity is a chance for a personal breakthrough. That’s why our c.20,000 Pearson employees are committed to creating vibrant and enriching learning experiences designed for real-life impact. We are the world’s leading learning company, serving customers in more than 200 countries with digital content, assessments, qualifications, and data. For us, learning isn’t just what we do. It’s who we are. Visit us at pearsonplc.com
 
 <!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **About Mondly**
@@ -73,20 +67,17 @@ thumbnail: https://thmb.techidaily.com/fa206782af9b714e31a62f7ae5d0a20ed9b793265
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://blog-min.techidaily.com/mp4-gratuitos-convertidos-en-linea-guia-paso-a-paso-con-movavi/"><u>.mp4 Gratuitos Convertidos en Línea: Guía Paso a Paso Con Movavi</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/mprove-viewability-master-the-art-of-adding-timestamps-to-youtube-urls/"><u>[New] Improve Viewability Master the Art of Adding Timestamps to YouTube URLs</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-mastering-video-reversal-on-ios-devices-for-2024/"><u>[New] Mastering Video Reversal on iOS Devices for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-facebooks-novelty-the-leading-five-new-features-unraveled/"><u>[Updated] 2024 Approved Facebook's Novelty The Leading Five New Features Unraveled</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-guide-to-reinventing-facebook-video-coverages-step-by-step-for-2024/"><u>[Updated] Guide to Reinventing Facebook Video Coverages Step-by-Step for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-mastering-windows-animation-the-best-9-software-for-high-quality-gif-capture/"><u>[Updated] In 2024, Mastering Windows Animation The Best 9 Software for High-Quality GIF Capture</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/guia-intuitiva-al-entender-el-tiempo-en-espanol/"><u>Guía Intuitiva Al Entender El Tiempo en Español</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/identifica-los-animales-en-espanol-con-estos-topos/"><u>Identifica Los Animales en Español Con Estos Topos</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/johannes-honterus-driving-change/"><u>Johannes Honterus: Driving Change</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lexical-differences-a-tale-of-two-englishes/"><u>Lexical Differences: A Tale of Two Englishes</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/merry-media-archive-inspector/"><u>Merry Media Archive Inspector</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlyar-redefining-communication-in-virtual-reality/"><u>MondlyAR: Redefining Communication in Virtual Reality</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/rapidly-acquire-japanese-numbers-today/"><u>Rapidly Acquire Japanese Numbers Today</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-3-most-popular-asian-languagesback-buttonfilter-button/"><u>Top 3 Most Popular Asian LanguagesBack ButtonFilter Button</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/unlock-6-free-youtube-endings-for-pros-in-2024/"><u>Unlock 6 Free YouTube Endings for Pros, In 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-boost-your-online-presence-tips-and-techniques-for-exceptional-fb-profiles/"><u>[New] Boost Your Online Presence Tips and Techniques for Exceptional FB Profiles</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/he-economics-of-t-series-a-deep-dive-into-youtube-earnings/"><u>[New] The Economics of T-Series A Deep Dive Into YouTube Earnings</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-exploring-snapchats-top-stories/"><u>[Updated] 2024 Approved Exploring Snapchat's Top Stories</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-how-to-access-government-recorded-content-for-free-online/"><u>2024 Approved How to Access Government-Recorded Content for Free Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/age-defying-linguistic-skills-post-fifty-milestone/"><u>Age-Defying Linguistic Skills Post-Fifty Milestone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/communicate-with-command-ultimate-training-techniques/"><u>Communicate with Command: Ultimate Training Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/euro-dialects-revealed-europes-language-festival-today/"><u>Euro-Dialects Revealed – Europe's Language Festival Today</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/exploring-the-power-of-minimalism-with-xbox-series-s-a-review-of-its-unmatched-performance-and-size-advantage/"><u>Exploring the Power of Minimalism with Xbox Series S: A Review of Its Unmatched Performance and Size Advantage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-pronunciation-basics-for-first-timers/"><u>French Pronunciation Basics for First-Timers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/profiling-highest-numbers-of-speakers-in-each-country-written-in-french/"><u>Profiling Highest Numbers of Speakers in Each Country' Written In French</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/simplifying-the-process-of-enabling-virtual-screen-on-meet-for-2024/"><u>Simplifying the Process of Enabling Virtual Screen on Meet for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/step-by-step-solution-to-get-valorant-running-smoothly-on-your-computer-2024-edition/"><u>Step-by-Step Solution to Get Valorant Running Smoothly on Your Computer - 2024 Edition</u></a></li>
 </ul></div>
 

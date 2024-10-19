@@ -1,7 +1,7 @@
 ---
 title: Introduction to Chinese Onomatopoeic Greetings
-date: 2024-08-27T22:58:55.720Z
-updated: 2024-08-28T22:58:55.720Z
+date: 2024-10-17T18:22:03.843Z
+updated: 2024-10-18T16:25:09.438Z
 tags:
   - speak
   - english
@@ -39,27 +39,41 @@ thumbnail: https://thmb.techidaily.com/6d778735b7f740e653b201094c23e32c3c4849964
  早 (zǎo) is short for 早上好 (zǎo shang hǎo), which means “good morning” in Chinese. The same as our English “good morning”, 早 (zǎo) can be used safely in all kinds of social interactions as long as it is… you’ve guessed it: morning.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 2\. 你好吗? (nǐ hǎo ma) – “How are you?” in Chinese
 
 Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
  This expression is generally used as a response to a greeting, but it can also work as a “how are you?”.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
-<!-- affiliate ads end -->
 ## 3\. 你怎么样? (nǐ zěnmeyàng) – “What’s up?” in Chinese
 
  As you can probably already tell, this is an informal greeting you can use with your friends.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 4\. 你吃了吗？(nǐ chī le ma) – “Have you eaten?”
 
  Are you confused? Amused? Or maybe a little bit of both? I was, too, when I first heard this greeting. When someone says 你吃了吗？(nǐ chī le ma) to you, they don’t actually want to know if you have eaten. In Chinese culture, this greeting is used as a way of showing someone you care about their well-being.
 
  To answer to this greeting, you can say “chī le, nǐ ne?” which means “I’ve eaten, how about you?”.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. 久仰 (jiǔyǎng) – a very formal Chinese greeting
 
@@ -73,32 +87,27 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
 ![hi in chinese](https://edge.mondly.com/blog/wp-content/uploads/2019/12/hi-in-chinese-1024x682.jpg "How To Say Hello In Chinese: A Quick Guide To Chinese Greetings 3")
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
  “Hello there!” by Theodor Lundqvist©
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 7\. 大家好 (dàjiā hǎo) – say “hello” to a crowd in Chinese
 
  As mentioned earlier, 你好 nǐ hǎo is used to greet only one person at a time. So, if you need to say “hello” to a group of people in Mandarin Chinese, simply go with 大家好 (dàjiā hǎo).
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 8\. 下午好 (xiàwǔ hǎo) – “Good afternoon” in Chinese
 
  Want to diversify the way you greet people in Chinese? Then you can go with 下午好 (xiàwǔ hǎo) when it’s the right time of the day.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 9\. 晚上好 (wǎnshàng hǎo) – “Good evening” in Chinese
 
  Staying up late to meet with your friends? Then this your chance to show them how well you’ve mastered the Mandarin greetings!
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ## 10\. 喂 (wèi) – answer your phone like a fluent speaker
 
  Although it is not specific to face-to-face interactions, 喂 (wèi) is still a greeting. So, if you want to answer your phone like a fluent speaker or check whether the person you are talking to is still on the other end of the line, 喂 (wèi) is the Chinese word you are looking for!
@@ -126,8 +135,6 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -135,4 +142,16 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-global-content-makers-conference-for-2024/"><u>[New] Global Content Makers' Conference for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-top-tools-for-efficient-video-capture-on-windows-11-for-2024/"><u>[New] Top Tools for Efficient Video Capture on Windows 11 for 2024</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/apply-transition-effects-between-slides-and-custom-animations-to-multimedia-objects-as-needed/"><u>Apply Transition Effects Between Slides and Custom Animations to Multimedia Objects as Needed.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/get-your-gs-on-right-down-under/"><u>Get Your G's on Right Down Under</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-enable-usb-debugging-on-a-locked-poco-f5-pro-5g-phone-by-drfone-android/"><u>In 2024, How To Enable USB Debugging on a Locked Poco F5 Pro 5G Phone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/snack-safely-with-mondly-kids-a-top-2017-app-by-google-play/"><u>Snack Safely with Mondly Kids: A Top 2017 App by Google Play</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-international-map-of-french-language-proficiency/"><u>The International Map of French Language Proficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-streetwise-vocabulary-popular-english-jargon-and-meanings/"><u>The Streetwise Vocabulary: Popular English Jargon and Meanings</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-in-2024-the-ultimate-list-of-adobe-premiere-pro-plugins-free-downloads-inside/"><u>Updated In 2024, The Ultimate List of Adobe Premiere Pro Plugins Free Downloads Inside</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Saudações Em Português: Todas as Avispasidades Da Bênção"
-date: 2024-10-08T00:21:34.709Z
-updated: 2024-10-12T16:09:31.476Z
+date: 2024-10-17T00:59:11.278Z
+updated: 2024-10-18T19:26:03.385Z
 tags:
   - speak
   - english
@@ -24,18 +24,18 @@ thumbnail: https://thmb.techidaily.com/85ea88a283ba15f13d63e8eaf5823127ecc1dabd5
 
  “Hello” is a [powerful word](https://www.merriam-webster.com/words-at-play/the-origin-of-hello) . It opens doors. It makes people smile. And said the right way and at the right time, “hello” can impact someone’s day and you wouldn’t even know it. So here are the right ways to say “hello” in Portuguese and open doors everywhere you go.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### “Hello” in Portuguese – Olá
 
 _Olá_ is the best choice for most social situations regardless of the person you are addressing. It’s somehow formal, but also friendly.
 
  Be careful with your Portuguese pronunciation though! A lot of people accidentally mistake Portuguese for Spanish. You don’t want to do that. Just say “OH-lah” and everybody from Brazil to Mozambique will understand that you are saying “hello” in Portuguese.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### “Hi” in Portuguese – Oi
 
@@ -61,10 +61,10 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 * **_Como foi o seu dia?_ – How’s your day?** – Used the same as in English.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. “Bom dia!” and other Portuguese greetings for certain moments of the day
@@ -80,13 +80,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
  **Good night in Portuguese –_Boa noite!_**  – The Portuguese language does not make any difference between evening and night. Thus, “goodnight” and “good evening” have the same translation in Portuguese. While in Brazil you will say “boa NOEE-tsh”, in Portugal you will say “boa NOEE-t”.
 
  All three of these are safe to use in any kind of interaction (formal or informal).
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 3.“Goodbye” in Portuguese – Adeus
 
@@ -105,10 +98,10 @@ _Olá_ is the best choice for most social situations regardless of the person yo
  “Ruínas da Fortaleza de Arrifana, Aljezur, Portugal” by Ferhat Deniz Fors©
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Bonus: other basic Portuguese phrases that you should know
@@ -142,6 +135,13 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Here’s how to speak Portuguese in 10 minutes a day
 
  Do you want to practice what you’ve learned and maybe learn some more Portuguese? **Check Mondly, the revolutionary language learning platform that makes language learning fun, fast and easy!**
@@ -173,14 +173,19 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-enhance-your-livestream-going-beyond-obs/"><u>[New] Enhance Your Livestream Going Beyond OBS</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-figures-unveiled-exploring-youtubes-curious-numbers-2017/"><u>[Updated] Figures Unveiled! Exploring YouTube's Curious Numbers (2017)</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-hues-in-harmony-the-process-of-film-coloring/"><u>2024 Approved Hues in Harmony The Process of Film Coloring</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/excellence-in-app-design-mondly-family-edition/"><u>Excellence in App Design - Mondly Family Edition</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/explore-the-latest-in-picsart-a-comprehensive-guide-and-review/"><u>Explore the Latest in PicsArt - A Comprehensive Guide and Review</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fluently-french-your-key-vocabulary-list-for-exploring-france/"><u>Fluently French: Your Key Vocabulary List for Exploring France</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-fan-to-fluent-speaker-learn-korean-play-squid-game/"><u>From Fan to Fluent Speaker: Learn Korean, Play Squid Game</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/gallant-glossary-the-eloquence-in-spanish-flirting/"><u>Gallant Glossary: The Eloquence in Spanish Flirting</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-android-unlock-code-sim-unlock-your-oppo-find-n3-phone-and-remove-locked-screen-by-drfone-android/"><u>In 2024, Android Unlock Code Sim Unlock Your Oppo Find N3 Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-harness-the-full-potential-of-your-youtube-content-using-wmm/"><u>[New] 2024 Approved Harness the Full Potential of Your YouTube Content Using WMM</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-ultimate-guide-top-ten-meme-designs-for-virality/"><u>[New] 2024 Approved Ultimate Guide Top Ten Meme Designs for Virality</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-best-routes-to-collecting-visual-content-for-2024/"><u>[Updated] Best Routes to Collecting Visual Content for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-effective-ways-to-design-fb-ad-videos-for-2024/"><u>[Updated] Effective Ways to Design FB Ad Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/2024-approved-mastering-facebook-visuals-adding-text-boxes-and-dark-bar-overlays/"><u>2024 Approved Mastering Facebook Visuals Adding Text Boxes & Dark Bar Overlays</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/5-things-to-consider-before-you-buy-a-fitness-tracker/"><u>5 Things to Consider Before You Buy a Fitness Tracker</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/anonymous-legacy-non-protected-creative-pieces/"><u>Anonymous Legacy Non-Protected Creative Pieces</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/career-advantages-with-cognition-the-top-4-reasons-to-learn-languages-later-in-life/"><u>Career Advantages with Cognition: The Top 4 Reasons to Learn Languages Later in Life</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exacting-education-pearsons-gsl-meets-mondly/"><u>Exacting Education: Pearson’s GSL Meets Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-path-resolution-of-2024/"><u>Language Learning Path - Resolution of 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-afrikaans-unveil-how-mondly-makes-learning-easy-and-effective/"><u>Mastering Afrikaans: Unveil How Mondly Makes Learning Easy & Effective</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/skagen-falster-3-review-the-perfect-blend-of-timeless-elegance-and-cutting-edge-technology-in-a-smartwatch/"><u>Skagen Falster 3 Review: The Perfect Blend of Timeless Elegance and Cutting-Edge Technology in a Smartwatch</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/soviet-speech-the-common-thread-of-uk-and-russ/"><u>Soviet Speech: The Common Thread of Uk & Russ</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tage-der-woche-deutsche-sprachreise-antreten/"><u>Tage Der Woche: Deutsche Sprachreise Antreten</u></a></li>
 </ul></div>
 

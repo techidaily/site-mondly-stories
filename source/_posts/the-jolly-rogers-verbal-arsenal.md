@@ -1,7 +1,7 @@
 ---
 title: The Jolly Roger's Verbal Arsenal
-date: 2024-08-23T00:34:45.781Z
-updated: 2024-08-24T00:34:45.781Z
+date: 2024-10-15T18:46:59.859Z
+updated: 2024-10-19T00:23:03.474Z
 tags:
   - speak
   - english
@@ -40,9 +40,6 @@ thumbnail: https://thmb.techidaily.com/4ce44fa7b8a9c69e95f42f702280ebfd0bb16df8b
 
 Easy peasy, ain’t it?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Pirate lingo: useful pirate words and phrases
 
  Here are some nautical pirate phrases to help you get into character easier:
@@ -71,17 +68,12 @@ Easy peasy, ain’t it?
  Arr! Is Talk Like a Pirate Day one of the best parodic holidays ever or what? Not even [World Chocolate Day](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) sounds as good as talking like a pirate all day long with ye’ maties.
 
 <!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Avast, ye! Pirates have discovered a new way to learn languages
 
  **If ye’ wish to learn a new language to help you in yer sea voyages, try [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-3348&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-3348&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-3348) , the language learnin’ app every buccaneer will enjoy!**
@@ -89,16 +81,24 @@ Easy peasy, ain’t it?
 ![jack sparrow](https://media.giphy.com/media/LrIA0CryFKvN6/giphy.gif "How To Talk Like A Pirate: 20 Pirate Words 4")
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fahoy-its-talk-like-a-pirate-day-arr%2F&t=How+to+Talk+Like+a+Pirate%3A+20+Pirate+Words "Share on Facebook")
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Ahoy! Get your language skills to the next level
 
 [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-3348&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-3348&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-3348) is a pocket-held language tutor that allows you to put your brain on autopilot and enjoy the sail to fluency in 33 languages.
@@ -106,15 +106,17 @@ Easy peasy, ain’t it?
  By combining solid neural science, cutting edge technologies, bite-sized Daily Lessons and a gamified experience guaranteed to make you addicted to learning languages, Mondly gets you fluent faster than you could ever imagine. Every true pirate loves it ![Learn a new language now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-3348&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-3348%26utm%5Fsource%3Dblog-post-id-3348&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-3348%26utm%5Fsource%3Dblog-post-id-3348&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-3348%26utm%5Fsource%3Dblog-post-id-3348&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-3348%26mt%3D8 "Learn a new language now")
 
 <!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -123,4 +125,21 @@ Easy peasy, ain’t it?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/ideo-traffic-triumph-key-youtube-seo-tools/"><u>[New] Video Traffic Triumph - Key YouTube SEO Tools</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-streamlinedwebcamtechniqueinstruction/"><u>[Updated] StreamlinedWebCamTechniqueInstruction</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprendre-lanatomie-du-systeme-nerveux-parts-in-french/"><u>Comprendre L'Anatomie Du Système Nerveux: Parts in French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daily-10-min-urdu-mastery-journey/"><u>Daily 10-Min Urdu Mastery Journey</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/fixing-the-application-error-for-nvstreamuseraagentexe-on-your-pc-easy-solutions-unveiled/"><u>Fixing the 'Application Error' For NvStreamUseraAgent.exe on Your PC - Easy Solutions Unveiled</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-google-frp-lock-from-oppo-f23-5g-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock from Oppo F23 5G Devices</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-zte-axon-40-lite-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your ZTE Axon 40 Lite Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-3-ways-to-export-contacts-from-apple-iphone-15-plus-to-excel-csv-and-vcard-easily-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 3 Ways to Export Contacts from Apple iPhone 15 Plus to Excel CSV & vCard Easily | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581605473-learn-bulgarian-in-dashes-10-minute-sessions/"><u>Learn Bulgarian in Dashes - 10-Minute Sessions!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-joins-with-pearson-learning-networks/"><u>Mondly Joins With Pearson Learning Networks</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/speed-up-your-pc-solve-sluggish-startup-problems-on-windows-7/"><u>Speed Up Your PC: Solve Sluggish Startup Problems on Windows 7</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-czech-ease-through-effective-online-learning/"><u>Unlock Czech Ease Through Effective Online Learning</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ling-the-cash-generated-by-every-viewed-stream/"><u>Unveiling the Cash Generated by Every Viewed Stream</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/wiggle-and-jiggle-fun-for-fido-and-friends/"><u>Wiggle and Jiggle: Fun for Fido & Friends</u></a></li>
+</ul></div>
 

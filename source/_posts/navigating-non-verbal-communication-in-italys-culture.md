@@ -1,7 +1,7 @@
 ---
 title: Navigating Non-Verbal Communication in Italy's Culture
-date: 2024-08-27T22:53:57.787Z
-updated: 2024-08-28T22:53:57.787Z
+date: 2024-10-17T17:40:13.467Z
+updated: 2024-10-18T23:25:42.202Z
 tags:
   - speak
   - english
@@ -20,11 +20,16 @@ thumbnail: https://thmb.techidaily.com/dc8c23798056f26fbb4ba042d36186a35f13e6ccd
 
  For example, did you know that Italians use about 250 hand gestures on a daily basis? And no, that’s not a typo. Italians’ hands don’t like to keep still. However, only a handful_(wink)_ of these are [essential to most Italian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) conversations. And even though it’s not entirely correct, many online charts combine together both popular and obscure gestures. For this reason, I took it upon myself to make**the real top 10 most popular Italian gestures** – a top that includes only signs or gestures that Italians use regularly.
 
-
-
 ## Italian hand gestures meaning and usage
 
  The following Italian gestures are the key to a better understanding of colloquial Italian. To help you fully comprehend their meaning, I also included their origin and the proper context in which they should be used. Let’s start with the least popular gesture and build our way up to the most popular one.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 10\. The “Are you afraid?” gesture
 
@@ -34,6 +39,13 @@ thumbnail: https://thmb.techidaily.com/dc8c23798056f26fbb4ba042d36186a35f13e6ccd
 
 ![are you afraid italian gesture](https://edge.mondly.com/blog/wp-content/uploads/2022/01/are-you-afraid-italian-gesture-960x833.jpg "Top 10 Italian Hand Gestures Italians Use All The Time 12")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The ‘Are you afraid?’ gesture
 
 **When to do it:** when you challenge someone to do something dangerous or when someone is afraid to do something and you want to tease them.
@@ -42,15 +54,19 @@ thumbnail: https://thmb.techidaily.com/dc8c23798056f26fbb4ba042d36186a35f13e6ccd
 
 **Origin:** funnily enough, the most common theory could be considered inappropriate and I shall not disclose it here. Google is a big place, though. I’m sure you’ll manage 🤭.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 9\. The “stealing” gesture
 
 **How to do it:** lower the palm and move all your fingers towards the palm, starting with the little finger and finishing with the index while also slowly moving the wrist.
 
 ![stealing sign](https://edge.mondly.com/blog/wp-content/uploads/2022/01/stealing-sign-960x831.jpg "Top 10 Italian Hand Gestures Italians Use All The Time 13")
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  The ‘stealing’ gesture
 
 **When to do it:** when you want to tell a friend you want to steal something (not literally, might just be a cookie from the jar!) or you want to point out that someone stole or took something.
@@ -59,9 +75,6 @@ thumbnail: https://thmb.techidaily.com/dc8c23798056f26fbb4ba042d36186a35f13e6ccd
 
 **Origin:** this gesture symbolizes something ‘magically’ disappearing.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
-<!-- affiliate ads end -->
 ### 8\. The “I can’t stand you” gesture
 
 **How to do it:** put your flat hand and forearm horizontally against your stomach.
@@ -96,9 +109,6 @@ thumbnail: https://thmb.techidaily.com/dc8c23798056f26fbb4ba042d36186a35f13e6ccd
 
 ![i don't know italian gesture](https://edge.mondly.com/blog/wp-content/uploads/2022/01/i-dont-know-italian-gesture-960x785.jpg "Top 10 Italian Hand Gestures Italians Use All The Time 16")
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
  The ‘I don’t know’ gesture
 
 **When to do it:** when you want to say that whatever happened is not your fault, it’s not up to you, or simply you know nothing about it.
@@ -116,17 +126,12 @@ This is a pretty common gesture among angry drivers and football players.
 ![outstretched arm](https://edge.mondly.com/blog/wp-content/uploads/2022/01/outstretched-arm-960x867.jpg "Top 10 Italian Hand Gestures Italians Use All The Time 17")
 
 <!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  The ‘angry football player’ gesture
 
 **When to do it:** this gesture basically means “get lost!” or “get bent!”. Although it can also be used in a rude way depending on what you are saying, it’s not necessarily an offensive gesture. If used to joke around between friends, it means something like “come on, I don’t believe you!”.
@@ -136,8 +141,12 @@ This is a pretty common gesture among angry drivers and football players.
 **Origin:** we can’t know for sure, but it probably refers to an unspecified direction where you want the person talking to you to go (so he/she will leave you alone).
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 4\. The “I don’t care” gesture (the ‘chin flick’)
 
  This gesture generally means “get lost” in Northern Italy, whereas in Southern Italy, it simply means “no”.
@@ -145,6 +154,13 @@ This is a pretty common gesture among angry drivers and football players.
 **How to do it:** flatten all your fingers with the palm facing your body and flick them out from under your chin with indifference.
 
 ![chin flick](https://edge.mondly.com/blog/wp-content/uploads/2022/01/chin-flick-960x942.jpg "Top 10 Italian Hand Gestures Italians Use All The Time 18")
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  The ‘chin flick’
 
@@ -154,9 +170,6 @@ This is a pretty common gesture among angry drivers and football players.
 
 **Origin:** you’re basically scratching your chin, hence you’re completely indifferent to something that requires your attention.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3\. The “horns” gesture
 
  While in other cultures, this is not a rude gesture and usually means “rock and roll”, in Italy, it can be kind of rude and has two very distinct meanings:
@@ -168,15 +181,6 @@ This is a pretty common gesture among angry drivers and football players.
 
 ![italian horns sign](https://edge.mondly.com/blog/wp-content/uploads/2022/01/italian-horns-sign-960x840.jpg "Top 10 Italian Hand Gestures Italians Use All The Time 19")
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
-<!-- affiliate ads end -->
  The ‘horns’
 
 **When to do it:** when someone is being a jinx or when you believe something bad might happen.
@@ -185,9 +189,6 @@ This is a pretty common gesture among angry drivers and football players.
 
 **Origin:** several [sources](https://www.ipersoap.com/2019/11/04/il-vero-significato-e-lorigine-di-alcuni-dei-gesti-piu-diffusi/) agree that the horns are theoretically pointed toward bad luck the same way an animal would strike something with its horns.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. The “get out” gesture
 
 **How to do it:** Flatten all fingers but the thumb, keep your wrist steady and move your other hand up and down at least 3 times (it should be a 90-degree movement). Be careful, though: if done very energetically and accompanied by an angry face, this gesture could be considered rude.
@@ -195,6 +196,19 @@ This is a pretty common gesture among angry drivers and football players.
  Additionally, you can also use the other hand to tap the one with the four flattened fingers, or you can raise the entire arm while keeping the four fingers flattened. These variants emphasize the gesture even further, but they could be considered offensive.
 
 ![get out sign](https://edge.mondly.com/blog/wp-content/uploads/2022/01/get-out-sign-960x738.jpg "Top 10 Italian Hand Gestures Italians Use All The Time 20")
+
+<!-- affiliate ads begin -->
+<span id="1983588">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  The ‘let’s get out of here’ gesture
 
@@ -204,6 +218,13 @@ This is a pretty common gesture among angry drivers and football players.
 
 **Origin:** it symbolizes the movement from one place to another.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. The “finger purse/pinched fingers” gesture
 
  Undoubtedly, the most famous around the world and probably the most used in Italy as well. It became a meme and also an emoji to basically symbolize the whole country.
@@ -212,9 +233,6 @@ This is a pretty common gesture among angry drivers and football players.
 
 ![finger purse](https://edge.mondly.com/blog/wp-content/uploads/2022/01/finger-purse-960x720.jpg "Top 10 Italian Hand Gestures Italians Use All The Time 21")
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
  The ‘finger purse’ gesture
 
 **When to do it:** when the person you’re talking to says something silly or asks you to do something stupid or dangerous.
@@ -234,9 +252,6 @@ The rest is history.
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## From 0 to conversational in Italian
 
  Now that you are fluent in Italian hand gestures, you can level up to words and phrases._Va bene?_
@@ -260,8 +275,6 @@ The rest is history.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -269,4 +282,21 @@ The rest is history.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-expert-endorsed-tools-for-improving-your-windows-video-edits/"><u>[New] Expert-Endorsed Tools for Improving Your Windows Video Edits</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-navigating-reddit-submissions-practical-steps-unveiled/"><u>[New] In 2024, Navigating Reddit Submissions Practical Steps Unveiled</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-maximize-your-content-strategy-understanding-instagrams-video-limits/"><u>[Updated] 2024 Approved Maximize Your Content Strategy Understanding Instagram's Video Limits</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-ultimate-screen-upgrade-high-resolution-video-enhancer/"><u>[Updated] In 2024, Ultimate Screen Upgrade High-Resolution Video Enhancer</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-ultimate-compilation-of-2023-writers-on-youtube/"><u>[Updated] The Ultimate Compilation of 2023’ Writers on YouTube</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-mastering-lengthy-iphone-photo-captures/"><u>2024 Approved Mastering Lengthy iPhone Photo Captures</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-honor-magic-vs-2frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Honor Magic Vs 2FRP Lock</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-hangul-the-easiest-asian-alphabet-to-learn/"><u>Master Hangul: The Easiest Asian Alphabet To Learn</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-insights-into-its-pedagogy/"><u>Mondly: Insights Into Its Pedagogy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-milestone-marked-in-time/"><u>Mondly’s Milestone Marked in Time</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/streamlining-system-operations-task-scheduler-and-batches/"><u>Streamlining System Operations: Task Scheduler & Batches</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swift-steps-to-expertise-learn-latin-easily/"><u>Swift Steps to Expertise: Learn Latin Easily</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tapping-into-ais-capabilities-for-academic-advancement/"><u>Tapping Into AI's Capabilities for Academic Advancement</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-first-and-oldest-languages-ever-spoken-origins-of-human-communication/"><u>The First & Oldest Languages Ever Spoken: Origins of Human Communication</u></a></li>
+</ul></div>
 

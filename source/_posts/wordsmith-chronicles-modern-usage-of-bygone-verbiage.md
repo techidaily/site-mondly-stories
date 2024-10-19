@@ -1,7 +1,7 @@
 ---
 title: "Wordsmith Chronicles: Modern Usage of Bygone Verbiage"
-date: 2024-08-27T22:54:27.462Z
-updated: 2024-08-28T22:54:27.462Z
+date: 2024-10-14T18:05:55.770Z
+updated: 2024-10-18T16:15:56.801Z
 tags:
   - speak
   - english
@@ -62,36 +62,42 @@ thumbnail: https://thmb.techidaily.com/188e4b5f7b4d2d2127c0913fec4bf39f7b63f882f
 _To invent new words, or not to invent new words?_ Clearly, William Shakespeare did not ask himself that. He just went with it and invented new words so he could properly tell his stories. In the end, he was so good at both storytelling and coining words that today it is impossible to have an English curriculum without Shakespeare. But enough tittle-tattle.**Let’s see what other words Shakespeare invented:**
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **1\. Addiction**
 
 _Henry V_ , Act I, Scene II
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **2\. Arch-villain**
 
 _Timon of Athens_ , Act V, Scene I
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ### **3\. Bandit**
 
 _King Henry VI_ , Part II, Act IV, Scene I
 
 <!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **4.** Cold-blooded
 
 _King John_ , Act III, Scene I
 
 <!-- affiliate ads begin -->
-
+<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **5\. Dauntless**
 
 _King Henry VI_ , Part III, Act III, Scene III
@@ -105,38 +111,35 @@ _Troilus and Cressida_ , Act III, Scene III
 _Hamlet_ , Act I, Scene V
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **8\. (to) Gossip**
 
 _The Comedy of Errors_ , Act V, Scene I
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082520/7443" target="_top" id="2082520">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082520" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082520/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **9\. Hint**
 
 _Othello_ , Act I, Scene III
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 ### **10.** Laughable
 
 _The Merchant of Venice_ , Act I, Scene I
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ### **11\. Majestic**
 
 _Julius Caesar_ , Act I, Scene II
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **12.** Marketable
 
 _As You Like It_ , Act I, Scene II
@@ -158,8 +161,12 @@ _Love’s Labour’s Lost_ , Act I, Scene I
 _Love’s Labour’s Lost_ , Act IV, Scene III
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **17.** Olympian
 
 _King Henry VI_ , Part III, Act II, Scene III
@@ -168,12 +175,16 @@ _King Henry VI_ , Part III, Act II, Scene III
 
 _Hamlet_ , Act II, Scene I
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ### **19\. Puking (disputed)**
 
 _As You Like It_ , Act II, Scene VII
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
+  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **20\. Radiance**
 
@@ -183,12 +194,16 @@ _All’s Well That Ends Well_ , Act I, Scene I
 
 _Hamlet_ , Act V, Scene I
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
-<!-- affiliate ads end -->
 ### **22\. (to) Swagger**
 
 _A Midsummer Night’s Dream_ , Act III, Scene I
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **23.** Tranquil
 
@@ -198,9 +213,6 @@ _Othello_ , Act III, Scene III
 
 _Macbeth_ , Act III, Scene IV
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
-<!-- affiliate ads end -->
 ### **25\. Zany**
 
 _Love’s Labour’s Lost_ , Act V, Scene II
@@ -234,8 +246,6 @@ _Love’s Labour’s Lost_ , Act V, Scene II
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -243,4 +253,24 @@ _Love’s Labour’s Lost_ , Act V, Scene II
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-combining-visual-and-auditory-elements-in-the-windows-photos-app/"><u>[New] 2024 Approved Combining Visual and Auditory Elements in the Windows Photos App</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-apples-m1-max-attachments-a-detailed-guide/"><u>[New] In 2024, Apple’s M1 Max Attachments A Detailed Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-pro-gopro-filming-tips-for-flawless-results/"><u>2024 Approved Pro Gopro Filming Tips for Flawless Results</u></a></li>
+<li><a href="https://program-issues.techidaily.com/conquer-window-based-browser-flutter-step-by-step-fixes-for-google-chrome-in-microsoft-operating-systems-complete-manual/"><u>Conquer Window-Based Browser Flutter: Step-by-Step Fixes for Google Chrome in Microsoft Operating Systems (Complete Manual)</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-top-tier-tech-marvel-a-review-on-asus-zephyrus-g1-groper-no-compromises-here/"><u>Exploring the Top-Tier Tech Marvel - A Review on Asus Zephyrus G1 Groper: No Compromises Here</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/heartfelt-expressions-german-pickup-line-guide/"><u>Heartfelt Expressions: German Pickup Line Guide</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-unfortunately-contacts-has-stopped-error-on-nokia-g42-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Unfortunately, Contacts Has Stopped Error on Nokia G42 5G | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-meizu-21-location-by-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Meizu 21 Location by Number | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-fake-gps-location-spoofer-a-good-choice-on-oppo-k11x-drfone-by-drfone-virtual-android/"><u>In 2024, Is Fake GPS Location Spoofer a Good Choice On Oppo K11x? | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-the-true-score-analyzing-recordcasts-performance/"><u>In 2024, The True Score Analyzing RecordCast's Performance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lepiderme-et-la-peau-composants-en-francais-anatomie/"><u>L'épiderme Et La Peau: Composants en Français (Anatomie)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-decorates-with-award-in-tech-awards/"><u>Mondly Decorates with Award in Tech Awards</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spooky-celebrations-across-continents/"><u>Spooky Celebrations Across Continents</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/thanksgiving-around-the-world-spread/"><u>Thanksgiving Around The World Spread</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/triad-of-popular-asian-vernaculars-quick-reorder-save/"><u>Triad of Popular Asian Vernaculars: Quick Reorder, Save</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unfolding-the-chronicles-of-farsi-for-modern-minds/"><u>Unfolding the Chronicles of Farsi for Modern Minds</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/what-primary-speech-is-used-by-israelis-today/"><u>What Primary Speech Is Used by Israelis Today?</u></a></li>
+</ul></div>
 

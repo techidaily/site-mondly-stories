@@ -1,7 +1,7 @@
 ---
 title: Global Vernacular Intersections with English
-date: 2024-10-07T00:49:34.619Z
-updated: 2024-10-12T23:56:20.965Z
+date: 2024-10-11T21:17:48.284Z
+updated: 2024-10-18T23:28:12.955Z
 tags:
   - speak
   - english
@@ -37,13 +37,6 @@ thumbnail: https://thmb.techidaily.com/6eaa3e36b8ce62866baa3f0397f35b108aa431d0b
  Early Modern English began in the late 15th century with the Renaissance trend of borrowing Latin and Greek words and roots, which also coincided with the Great Vowel Shift. The era culminated in the King James Bible and the works of William Shakespeare.
 
  While the question may sound funny (“where did English come from?”), it is a popular inquiry among Google users for obvious reasons. After all, 1.3 billion people worldwide speak English either natively or as a second language. It’s only natural for them to be curious about the origin of the English language.
-
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
-  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## English Words from Foreign Languages
 
@@ -88,15 +81,22 @@ thumbnail: https://thmb.techidaily.com/6eaa3e36b8ce62866baa3f0397f35b108aa431d0b
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "100+ English Words Borrowed From Other Languages 5")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Improve your English fast 🚀
 
  With Mondly, English mastery is at your fingertips – and in your native tongue. Start today ![Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-9827&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-9827%26mt%3D8)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## French loanwords: English words that are actually French
@@ -126,6 +126,13 @@ thumbnail: https://thmb.techidaily.com/6eaa3e36b8ce62866baa3f0397f35b108aa431d0b
 | Gourmet      |
 
  Did you know that approximately**30% of the English vocabulary** consists of words that have their origins in**French and Latin** ? Considering that French was the language of the English king and his court for over 300 years, it’s no surprise. During that time, as many as 10,000 French loanwords came into English.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Spanish loanwords: English words that are actually Spanish
 
@@ -178,10 +185,10 @@ thumbnail: https://thmb.techidaily.com/6eaa3e36b8ce62866baa3f0397f35b108aa431d0b
  Thanks to Italy’s cultural influence throughout history, especially during the Renaissance period, many languages borrowed its words. Italian words related to art, music, architecture and cuisine have an especially high predominance in the English vocabulary.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## German loanwords: English words that are actually German
@@ -207,13 +214,6 @@ thumbnail: https://thmb.techidaily.com/6eaa3e36b8ce62866baa3f0397f35b108aa431d0b
 | Diesel       |
 
  Some of the first German words were borrowed into English during the interactions between Germanic-speaking tribes and English-speaking communities in early medieval Europe. Words related to everyday life, family, and community were among the earliest borrowings. Later, thanks to Germany’s influence in various fields, English borrowed German words related to science and technology, music, philosophy, literature and engineering.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Understanding the Size of the English Vocabulary
 
@@ -273,19 +273,20 @@ Coming Soon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-insiders-selection-prime-vr-device-picks/"><u>[New] 2024 Approved Insider's Selection Prime VR Device Picks</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/est-asmr-series-on-youtube-platform-for-2024/"><u>[New] Best ASMR Series on YouTube Platform for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-the-reverse-playlist-routine-tail-end-dominance-on-yt/"><u>[New] The Reverse Playlist Routine Tail-End Dominance on YT</u></a></li>
-<li><a href="https://howto.techidaily.com/9-quick-fixes-to-unfortunately-touchwiz-has-stopped-of-samsung-galaxy-a05-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Quick Fixes to Unfortunately TouchWiz has stopped Of Samsung Galaxy A05 | Dr.fone</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/converting-text-to-tunes-employing-chatgpt-for-audio-crafting/"><u>Converting Text to Tunes: Employing ChatGPT for Audio Crafting</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exploring-multilingualism-in-europe-a-celebration-journey/"><u>Exploring Multilingualism in Europe - A Celebration Journey</u></a></li>
-<li><a href="https://win-dash.techidaily.com/exploring-windows-11-s-a-comprehensive-guide-to-its-unique-features-and-distinctions/"><u>Exploring Windows 11 S: A Comprehensive Guide to Its Unique Features and Distinctions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exuberant-echoes-of-july-4th-joy/"><u>Exuberant Echoes of July 4Th Joy</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/forties-fluency-the-joy-and-wisdom-found-in-multilingualism/"><u>Forties Fluency: The Joy and Wisdom Found in Multilingualism</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/forty-plus-fluency-unleashing-the-power-of-multilingualism-today/"><u>Forty-Plus Fluency: Unleashing the Power of Multilingualism Today</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/foundation-of-hope-dannys-colombia-support-initiative/"><u>Foundation of Hope: Danny's Colombia Support Initiative</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fundamentos-de-la-hora-en-espanol-para-iniciados/"><u>Fundamentos De La Hora en Español Para Iniciados</u></a></li>
-<li><a href="https://blog-min.techidaily.com/guide-ultime-corriger-des-distorsions-video-causees-par-handbrake-lors-de-lextraction-de-films-en-dvd-sous-windows-11/"><u>Guide Ultime : Corriger Des Distorsions Vidéo Causées Par Handbrake Lors De L'extraction De Films en DVD Sous Windows 11</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-whatsapp-messages-on-lava-yuva-2-pro-without-them-knowing-drfone-by-drfone-virtual-android/"><u>How to Track WhatsApp Messages on Lava Yuva 2 Pro Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-guffaw-generation-generating-7-hilarious-video-moments-online/"><u>[New] Guffaw Generation Generating 7 Hilarious Video Moments Online</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-mastering-skewed-imagery-texts-for-2024/"><u>[New] Mastering Skewed Imagery Texts for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-customize-video-speed-to-match-your-desired-watch-time-for-2024/"><u>[Updated] Customize Video Speed to Match Your Desired Watch Time for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-unlocking-the-power-of-visual-storytelling-on-instagram/"><u>2024 Approved Unlocking the Power of Visual Storytelling on Instagram</u></a></li>
+<li><a href="https://driver-error.techidaily.com/correcting-errors-with-enex-driver-not-loading-in-win11/"><u>Correcting Errors with eNEX Driver Not Loading in Win11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cutting-edge-systems-for-effective-language-study/"><u>Cutting-Edge Systems for Effective Language Study</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-basic-sound-structures-in-german-language/"><u>Discover Basic Sound Structures in German Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-croatian-language-skills-for-cultural-immersion-success/"><u>Essential Croatian Language Skills for Cultural Immersion Success!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/heres-how-to-use-mondly-and-get-the-best-out-of-it/"><u>Here’s How To Use Mondly And Get The Best Out Of It</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-apple-iphone-13-passcode-screen-by-drfone-ios/"><u>How to Unlock Apple iPhone 13 Passcode Screen?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-korean-at-your-fingertips-discover-6-online-goldmines/"><u>Mastering Korean at Your Fingertips - Discover 6 Online Goldmines</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/navigating-through-the-advantages-and-disadvantages-of-a-local-llm-choice/"><u>Navigating Through The Advantages And Disadvantages Of A Local LLM Choice</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pasos-para-saber-los-dias-de-la-semana-en-espanol/"><u>Pasos Para Saber Los Días De La Semana en Español</u></a></li>
+<li><a href="https://win-luxury.techidaily.com/schritt-fur-schritt-anleitung-zum-offnen-von-windows-10-wiederherstellungsmodus-fur-sysrepair/"><u>Schritt-Für-Schritt Anleitung Zum Öffnen Von Windows 10 Wiederherstellungsmodus Für SysRepair</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-words-in-english-language-mergers-over-time/"><u>Worldwide Words in English: Language Mergers Over Time</u></a></li>
 </ul></div>
 

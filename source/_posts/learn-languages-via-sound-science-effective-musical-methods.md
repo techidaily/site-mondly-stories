@@ -1,7 +1,7 @@
 ---
 title: "Learn Languages via Sound Science: Effective, Musical Methods"
-date: 2024-08-27T22:54:10.249Z
-updated: 2024-08-28T22:54:10.249Z
+date: 2024-10-14T16:05:24.356Z
+updated: 2024-10-18T19:19:42.950Z
 tags:
   - speak
   - english
@@ -36,6 +36,13 @@ Music and language go together like Beyoncé and Jay-Z for many reasons:
 * **Better understanding of grammar and structure:** Through song lyrics, you can get exposed to many different grammar structures. This way, you can get a feel for how sentences are constructed in a particular language.
 * **Increased cultural understanding:** By listening to the right music, you can get valuable insights into a country’s culture, history and values.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Scientifically proven: learning a language through music works
 
  Okay, learning a language through music works, but is it scientifically proven? The answer is yes. Over the years, there have been multiple studies regarding music’s positive impact on language acquisition. Needless to say, all of them had encouraging results for all those wanting to ease the process of learning a new language.
@@ -44,6 +51,19 @@ Music and language go together like Beyoncé and Jay-Z for many reasons:
 
 !['Listening to music in Spanish' by Nicholas Githiri©](https://edge.mondly.com/blog/wp-content/uploads/2023/05/listening-to-music-in-spanish-960x640.jpg "The Power Of Music When Learning A New Language – Sing That Language! 2")
 
+<!-- affiliate ads begin -->
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Another [study](https://www.researchgate.net/publication/249966411%5FSinging%5Fcan%5Ffacilitate%5Fforeign%5Flanguage%5Flearning) published in the journal Memory & Cognition demonstrates that melodies can help in learning and recalling new phrases in a foreign language. This is because music and language share neural pathways in the brain, particularly in areas responsible for auditory processing and memory. The process of attaching words to a rhythmic pattern or melody helps reinforce memory retention of those words.
 
  Furthermore, a [study](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC6162612/) in the journal Brain Sciences showed that exposure to music at a young age can improve linguistic abilities, emphasizing the connection between music and language development. The rhythm and pitch variations in music mirror the modulation and stress patterns in language, helping learners understand and mimic these patterns.
@@ -51,6 +71,13 @@ Music and language go together like Beyoncé and Jay-Z for many reasons:
  The list of studies can continue – all showing the same promising results. As you can see, there’s a firm scientific basis for the notion that learning a language through music can be beneficial.
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "The Power Of Music When Learning A New Language – Sing That Language! 3")
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##### Language learning made easy
 
@@ -74,8 +101,18 @@ Music and language go together like Beyoncé and Jay-Z for many reasons:
 !['Music language' by Jamakassi©](https://edge.mondly.com/blog/wp-content/uploads/2023/05/music-language-960x640.jpg "The Power Of Music When Learning A New Language – Sing That Language! 4")
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Learning a new language with songs: tips and tricks
 
  Once you have chosen your favorite songs in the language you’re trying to learn, the idea is to have fun and listen carefully. We’re all vibin’ to**Shakira’s new revenge Spanish song** for Pique, but do we understand what she’s saying? If you’re listening to music in Spanish in an effort to learn the language, make sure you’re doing it right. Here are a few tips and tricks you should keep in mind:
@@ -95,12 +132,6 @@ Music and language go together like Beyoncé and Jay-Z for many reasons:
 
 ![music language](https://media.giphy.com/media/l2QDLujtcAvAr2gRa/giphy.gif "The Power Of Music When Learning A New Language – Sing That Language! 5")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ### How to learn a language by listening to music?
 
  One way to learn a language through music is to listen to songs in the target language and try to follow along with the lyrics. You can also look up the lyrics and translations online to better understand the meaning of the words. Another way is to just listen to concentration music while studying the language.
@@ -109,23 +140,21 @@ Music and language go together like Beyoncé and Jay-Z for many reasons:
 
  Studying music lyrics involves analyzing the structure and meaning of the lyrics and using that knowledge to improve your language skills. This can include learning new vocabulary, grammar rules, and pronunciation.
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How does listening to music help you learn a language?
 
  Listening to music helps you learn a language by exposing you to native speakers and commonly used words, improving your listening skills, and providing you with a fun and engaging way to practice your language skills.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ### Who said “to learn music is to learn a whole new language”?
 
 This quote is often attributed to Plato.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### How to learn a language from music?
 
  To learn a language from music, you can try listening to songs in the target language and trying to understand or study the lyrics. You can also use the lyrics to learn new vocabulary and grammar rules.
@@ -157,8 +186,6 @@ This quote is often attributed to Plato.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -166,4 +193,22 @@ This quote is often attributed to Plato.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-top-choice-elite-videographer-tool-for-vimeo/"><u>2024 Approved Top Choice Elite Videographer Tool for Vimeo</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-the-two-factor-authentication-from-apple-iphone-6-by-drfone-ios/"><u>How To Remove the Two Factor Authentication From Apple iPhone 6</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/ideal-frames-per-second-in-slow-motion-vids/"><u>Ideal Frames Per Second in Slow Motion Vids</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-plant-pals-playlist-the-best-agrigames-for-friends/"><u>In 2024, Plant Pals' Playlist The Best AgriGames for Friends</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jolly-roger-jargon-decoding-20-piratical-terms/"><u>Jolly Roger Jargon: Decoding 20 Piratical Terms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-bulgarian-daily-quick-10-minute-routine/"><u>Mastering Bulgarian Daily: Quick 10-Minute Routine</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mind-expansion-elders-and-emerging-languages/"><u>Mind Expansion: Elders and Emerging Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-tandc-for-better-privacy-control/"><u>New T&C for Better Privacy Control</u></a></li>
+<li><a href="https://driver-error.techidaily.com/sata-controller-interrupt-quashed/"><u>SATA Controller Interrupt Quashed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/shakespeares-words-36-words-shakespeare-invented-that-we-still-use-today/"><u>Shakespeare’s Words: 36 Words Shakespeare Invented That We Still Use Today</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722960680232-simplify-your-life-update-your-canon-printerscameras-on-windows-today/"><u>Simplify Your Life: Update Your Canon Printers/Cameras on Windows Today!</u></a></li>
+<li><a href="https://fox-access.techidaily.com/streamlined-accessibility-learning-iphoneipad-techniques-for-podcast-downloads/"><u>Streamlined Accessibility Learning iPhone/iPad Techniques for Podcast Downloads</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-the-secrets-to-correct-spaniard-diacritics/"><u>Unlocking the Secrets to Correct Spaniard Diacritics</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-the-ipogo-get-you-banned-and-how-to-solve-it-on-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>Will the iPogo Get You Banned and How to Solve It On Honor Magic V2 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/your-gateway-to-fluency-embrace-mondlys-magic/"><u>Your Gateway to Fluency: Embrace Mondly's Magic</u></a></li>
+</ul></div>
 

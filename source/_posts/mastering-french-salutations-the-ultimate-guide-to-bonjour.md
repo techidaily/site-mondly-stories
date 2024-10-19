@@ -1,7 +1,7 @@
 ---
 title: "Mastering French Salutations: The Ultimate Guide to 'Bonjour'"
-date: 2024-09-20T19:10:13.385Z
-updated: 2024-09-26T19:31:22.189Z
+date: 2024-10-12T23:38:56.803Z
+updated: 2024-10-18T21:09:16.551Z
 tags:
   - speak
   - english
@@ -32,18 +32,18 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  Meaning “hi”, “hello” or sometimes even “bye”,_Salut_ is the informal French greeting you can use with family and friends but not with your boss or teacher.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2\. “Good morning” in French –_Bon matin!_
 
  European French doesn’t have an equivalent for “good morning”. So it’s good to know that while in France you shouldn’t use Bon matin. But if you happen to spend a charming morning in Paris, you can safely use – you guessed it –_Bonjour!_
 
  However, if you are in Quebec, you are free to use_Bon matin_ until 10 or 11 AM.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. “Good afternoon” in French –_Bon après-midi!_
 
@@ -52,10 +52,10 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
  But take notice! French speakers generally use it when they are saying goodbye, so you should follow their lead and avoid using it at the beginning of a conversation.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. “Good evening” in French –_Bonsoir!_
@@ -70,13 +70,6 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  “French fashion” by Charles 🇵🇭©
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 6\. Hello? –_Allô?_
 
  Although it is not specific to face to face interactions,_Allô_ is still considered a greeting.
@@ -86,6 +79,13 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 ## 7\. Excuse me? –_Excusez-moi?_
 
  Looking for a polite way to get someone’s attention in French? Maybe there’s someone blocking your way in the store or maybe you want to get noticed by the office clerk. In these situations, a classic greeting would be a bit redundant. So instead you could use this “question-like”_Excusez-moi?_ that has a double meaning and works as both a greeting and a way to get someone’s attention.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 8\. “How are you” in French –_Comment ça va?_
 
@@ -101,23 +101,9 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  The only slight difference is the level for formality associated of each phrase:_Ça va?_ is obviously more suitable for informal interactions with friends and family.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 10\. What’s up? –_Quoi de neuf?_
 
  Want to spice up and diversify your “ça-va”s? Go with the informal_Quoi de neuf_ that translates to “what’s up?” or “what’s new?”.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 11\. The cute Bonjour:_Coucou!_
 
@@ -126,6 +112,13 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
  Although extremely cute, you shouln’t use_Coucou_ in formal contexts. It would be a bit weird to greet your boss using_Coucou_ , wouldn’t it?
 
 ![bonjour](https://edge.mondly.com/blog/wp-content/uploads/2019/11/bonjour-scaled-960x641.jpg "How To Say Hello In French: 12 Useful French Greetings 3")
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  “Coucou! Is me! The Frenchie!” by Graham Holtshausen©
 
@@ -137,6 +130,19 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Here’s how to learn French in just 10 minutes a day
 
@@ -167,18 +173,18 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/updated-tips-for-perfected-framing-implementing-letterboxing-on-social-media/"><u>[Updated] Tips for Perfected Framing Implementing Letterboxing on Social Media</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-discover-the-top-10-iosandroid-vr-games/"><u>2024 Approved Discover the Top 10 iOS/Android VR Games</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-simplifying-post-production-using-luts-in-after-effects/"><u>2024 Approved Simplifying Post Production Using LUTs in After Effects</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/2024s-finest-usb-wireless-adapters-reviewed-and-ranked/"><u>2024'S Finest USB Wireless Adapters Reviewed and Ranked</u></a></li>
-<li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-oppo-f23-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Oppo F23 5G | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/aussie-language-sayings-and-slang-for-daily-chit-chat/"><u>Aussie Language: Sayings & Slang for Daily Chit-Chat</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/efficient-path-japans-numeral-system-in-minutes/"><u>Efficient Path: Japan's Numeral System in Minutes</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-realme-c67-5g-device-by-drfone-android/"><u>In 2024, The Ultimate Guide How to Bypass Swipe Screen to Unlock on Realme C67 5G Device</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/making-languid-latin-lessons-a-blast/"><u>Making Languid Latin Lessons a Blast</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pronunciation-patchwork-british-irish-and-american-accent-tapestry/"><u>Pronunciation Patchwork: British, Irish, and American Accent Tapestry</u></a></li>
-<li><a href="https://howto.techidaily.com/samsung-galaxy-a14-4g-not-receiving-texts-10-hassle-free-solutions-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Samsung Galaxy A14 4G Not Receiving Texts? 10 Hassle-Free Solutions Here | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/viking-language-what-language-did-vikings-speak/"><u>Viking Language: What Language Did Vikings Speak?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581479128-why-learn-german-10-reasons-to-learn-german/"><u>Why Learn German? 10 Reasons To Learn German</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-enhance-web-presentations-top-12-html5-video-platforms/"><u>2024 Approved Enhance Web Presentations Top 12 HTML5 Video Platforms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effortless-polyglots-playlist-top-10-simple-tongues/"><u>Effortless Polyglots' Playlist: Top 10 Simple Tongues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/germans-premier-learning-portal-mondly-emerges-victorious/"><u>German's Premier Learning Portal - Mondly Emerges Victorious</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/oth-sides-right-expert-tips-on-crafting-compelling-pov-based-youtube-reaction-videos-2-pov-perspective/"><u>Get Both Sides Right – Expert Tips on Crafting Compelling POV-Based YouTube Reaction Videos (2 POV Perspective)</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/harnessing-the-power-of-cookiebot-for-customized-web-interactions/"><u>Harnessing the Power of Cookiebot for Customized Web Interactions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/i-cento-e-piu-numero-italiani-esplorati/"><u>I Cento E Più Numero Italiani Esplorati</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-vivo-v27-pro-by-phone-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Vivo V27 Pro by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-leapfrogging-6-steps-to-full-engagement-in-a-new-tongue/"><u>Linguistic Leapfrogging: 6 Steps to Full Engagement in a New Tongue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-global-networks-with-language-skills/"><u>Navigating Global Networks with Language Skills</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/seamless-transition-from-h2email-protected-to-h2email-protected-tips-for-lossless-compression-and-smaller-files/"><u>Seamless Transition From H.2([email Protected]) to H.2[email Protected]: Tips for Lossless Compression and Smaller Files</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/transforming-srt-a-complete-reference-guide-for-conversion/"><u>Transforming SRT A Complete Reference Guide for Conversion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-hiragana-and-katakana-fundamentals/"><u>Understanding Hiragana & Katakana Fundamentals</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlocking-the-power-of-smart-lock-a-beginners-guide-for-infinix-smart-7-users-by-drfone-android/"><u>Unlocking the Power of Smart Lock A Beginners Guide for Infinix Smart 7 Users</u></a></li>
 </ul></div>
 

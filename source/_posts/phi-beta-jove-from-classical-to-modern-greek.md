@@ -1,7 +1,7 @@
 ---
 title: "Phi Beta Jove: From Classical to Modern Greek"
-date: 2024-09-25T18:35:54.886Z
-updated: 2024-10-01T20:23:22.791Z
+date: 2024-10-11T23:02:57.747Z
+updated: 2024-10-18T18:04:43.403Z
 tags:
   - speak
   - english
@@ -39,13 +39,6 @@ thumbnail: https://thmb.techidaily.com/6afde60cdf2c4ed08818a0c3bb279e1893a9ceb46
 
  Spanning an oral tradition of 4,000 years and a written tradition of 3,500 years, Greek boasts the lengthiest lineage among Indo-European languages, making it one of the [oldest languages in the world](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Many consider it unique due to its unbroken historical continuity and we can’t help but agree!
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Ancient Greek – the language of the Homeric Poems
 
  Ancient Greek, the language of the “Dark Ages” and the Archaic and Classical periods (1200-300 BCE), emerged following the fall of the Mycenaean civilization. Despite the abandonment of the standardized Mycenaean language, local vernacular dialects persisted and evolved into various Greek dialects over time.
@@ -79,13 +72,6 @@ Other literary works of art representative of this period include:
 
 ![ancient greece language](https://edge.mondly.com/blog/wp-content/uploads/2023/10/ancient-greece-language.jpg "Ancient Greek Language Influence On Modern Languages 6")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Ancient Greek Writing System and Alphabet
 
  Did you know the word **‘alphabet’ originates from the initial two letters of the Greek alphabet,_‘alpha’_ and_‘beta’_ ?** While this may seem like a fun piece of unimportant trivia, you’ll soon discover that the influence of the ancient Greek language on modern languages is far greater than we think.
@@ -95,10 +81,10 @@ Other literary works of art representative of this period include:
  However, the earliest attested form of the Greek language is a clay tablet written in the Linear B script. Historians claim that it dates to between 1450 and 1350 BC. Unrelated to the Greek alphabet, which emerged around the 8th century BC, Linear B last appeared in the 13th century BC. The centuries between the two writing scripts, where no Greek writings have been found, is referred to as the Greek Dark Ages.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Cultural Influences of Ancient Greek on the Western Civilization
@@ -110,13 +96,6 @@ Other literary works of art representative of this period include:
  We can’t know how much of this is true. But one thing we know for sure: **inscriptions at Olympia place the inception of the Ancient Olympics in 776 BC.** Apparently, they reached their peak somewhere between the 6th and 5th centuries BCE and then slowly declined in significance as the Romans gained influence in Greece.
 
  From politics and governance to philosophy and science, Greek terminologies and ideas laid the foundations for Western thought. Words like ‘democracy’, ‘philosophy’, and ‘astronomy’ are testimonials of Ancient Greek’s influence on today’s world. But let’s go into a little more detail.
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Ancient Greek influence on governance and philosophy
 
@@ -154,6 +133,20 @@ Other literary works of art representative of this period include:
 
 ![ancient Greek vs modern Greek](https://edge.mondly.com/blog/wp-content/uploads/2023/10/ancient-greek-vs-modern-greek.jpg "Ancient Greek Language Influence On Modern Languages 8")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Ancient Greek Language Influence on Modern Languages
 
  Now that you have an overview of the intellectual and artistic heritage we received from ancient Greece, it’s time to take an even closer look at languages. Because yes, the Ancient Greek language has carved its imprints not just in the annals of history but in the very syntax and semantics of modern languages. **English, Spanish, and French are probably the most important bearers of Greek influences.**
@@ -173,19 +166,6 @@ Other literary works of art representative of this period include:
  As you can see, **ancient Greek words have infiltrated the English language through a complex route, often via Latin and French,** but their imprint is unmistakable. Although modern English contains numerous borrowed words from languages such as French, Italian, and Spanish, a significant portion of them actually originate from ancient Greek.
 
  This is just one example among countless others where a modern English word owes its existence to Ancient Greek ancestry. As a matter of fact, it’s estimated that **more than 150,000 English words can be traced back to their Greek origins.**
-
-<!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## English words of Greek origin
 
@@ -209,13 +189,6 @@ Other literary works of art representative of this period include:
 | cardiology       | from ‘kardiā’ (heart) + ‘logia’ (study)                                                                   |
 | technology       | from ‘tekhnē’ (art, craft) + ‘logia’ (study)                                                              |
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Expressions that originated from Greek
 
  Apart from [Latin phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , the only thing that can make you sound like a true erudite without much work are the expressions that originated from Greek.
@@ -233,6 +206,13 @@ _Describes a weakness in spite of overall great strength or resilience._
  _Refers to something that creates a lot of new problems that you did not expect._
 
  The myth of Pandora’s box originates from the story where Prometheus steals fire from the gods to give to mankind. As a punishment for humanity, the gods create Pandora, the first woman, and give her a box with strict instructions not to open it. Overcome by curiosity, Pandora opens the box, releasing all the world’s troubles. Only Hope remains trapped inside.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Herculean task
 
@@ -258,6 +238,20 @@ _Refers to a person who has good fortune._
 
 ![what is greece's language](https://edge.mondly.com/blog/wp-content/uploads/2023/10/what-is-greeces-language.jpg "Ancient Greek Language Influence On Modern Languages 9")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
+  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Differences Between Ancient Greek and Modern Greek
 
  Centuries of political, social, and cultural transformations, coupled with the dispersion of Greek populations and industrial changes, have profoundly influenced the evolution and richness of the Greek language. Thus, the transition from the ancient Greek language to the modern Greek language was all about adaptation and evolution. The language spoken in Plato’s Greece is indeed very different from the language spoken today in Greece. However, it is said that **a person proficient in Modern Greek can generally understand about 50% of ancient Greek texts** due to similar root words.
@@ -272,13 +266,6 @@ _Refers to a person who has good fortune._
 
  To summarize everything we learned about the ancient Greek language, let’s look at some frequently asked questions.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Is ancient Greek still spoken today?
 
  Just like Latin, the ancient Greek language is still used in scholarly circles and ecclesiastical domains, preserved in texts and liturgies. However, nobody speaks ancient Greek natively anymore.
@@ -288,10 +275,10 @@ _Refers to a person who has good fortune._
  A lot of English words, concepts, and idiomatic expressions are of Greek origin. For example, the words that begin with the letter ‘ph’ are particularly easy to trace back to Greek.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### What writing system did ancient Greeks use?
@@ -306,6 +293,13 @@ _Refers to a person who has good fortune._
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Speak Greek like a true philosopher
 
@@ -332,20 +326,19 @@ _Refers to a person who has good fortune._
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/10-easy-strategies-for-capturing-youtube-content/"><u>10 Easy Strategies for Capturing YouTube Content</u></a></li>
-<li><a href="https://howto.techidaily.com/8-quick-fixes-unfortunately-snapchat-has-stopped-on-motorola-razr-40-ultra-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Quick Fixes Unfortunately, Snapchat has Stopped on Motorola Razr 40 Ultra | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-gratitude-for-american-birthday/"><u>Global Gratitude for American Birthday</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/iberian-language-puzzle-solving-spanish-and-portuguese-distinctions/"><u>Iberian Language Puzzle: Solving Spanish and Portuguese Distinctions</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/in-2024-gaming-gains-graphed-income-insights-on-finn/"><u>In 2024, Gaming Gains Graphed Income Insights on Finn</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-vivo-x90s-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Vivo X90S | Dr.fone</u></a></li>
-<li><a href="https://solve-outstanding.techidaily.com/mac-dvd-mojave/"><u>Mac 環境における DVD 再生課題：Mojave以上へ対応した対策とテクニック</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-7-year-journey-connecting-cultures/"><u>Mondly's 7-Year Journey: Connecting Cultures</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/rediscovering-the-original-forms-of-human-speech/"><u>Rediscovering the Original Forms of Human Speech</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/1726227869254-swf-mp4-movavi/"><u>SWF 파일을 MP4로 변환하는 최고의 방법 - Movavi 공부자에게</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-shared-language-puzzle-of-anatolia-and-hanguk/"><u>The Shared Language Puzzle of Anatolia & Hanguk</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-vietnamese-dialogue/"><u>The Ultimate Guide to Vietnamese Dialogue</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/titre-seo-extraire-et-convertir-rapidement-vos-dvd-au-format-mp4h265-avec-notre-solution-simple-de-correction-derreur/"><u>Titre SEO : Extraire Et Convertir Rapidement Vos DVD Au Format MP4/H.265 Avec Notre Solution Simple De Correction D'erreur</u></a></li>
-<li><a href="https://win11.techidaily.com/transform-windows-tasks-admin-cmd-mode/"><u>Transform Windows Tasks: Admin CMD Mode</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unveiling-the-secrets-of-successful-portuguese-learning-strategies/"><u>Unveiling the Secrets of Successful Portuguese Learning Strategies</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-best-undersea-gopro-enhancements/"><u>[Updated] Best Undersea Gopro Enhancements</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-directing-tweeted-vids-to-fb-audiences/"><u>[Updated] Directing Tweeted Vids to FB Audiences</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-the-power-of-slug-lines-in-seo-and-content-marketing/"><u>[Updated] In 2024, The Power of Slug Lines in SEO and Content Marketing</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-ultimate-series-top-tier-webcam-grips/"><u>[Updated] Ultimate Series Top-Tier Webcam Grips</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-refining-your-online-visual-experience-with-zooms/"><u>2024 Approved Refining Your Online Visual Experience with Zooms</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-stepwise-adjustment-fins-speech-on-win-os-devices/"><u>2024 Approved Stepwise Adjustment Fins Speech on Win-OS Devices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/arabic-basics-unwrapped-for-starters/"><u>Arabic Basics Unwrapped for Starters</u></a></li>
+<li><a href="https://discover-best.techidaily.com/cookiebot-driven-solutions-elevate-your-online-engagement-today/"><u>Cookiebot Driven Solutions - Elevate Your Online Engagement Today!</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/mp3ify-your-fb-videos-directly-for-2024/"><u>MP3ify Your FB Videos Directly for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saber-el-esquema-del-mes-dias-en-espanol-de-a-a-f/"><u>Saber El Esquema Del Mes: Días en Español De A a F</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/supercharge-global-business-interactions-with-prime-language-software/"><u>Supercharge Global Business Interactions with Prime Language Software</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-careers-with-multilingual-prowess/"><u>Transform Careers with Multilingual Prowess</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581723463-transformative-language-experience-unveiling-7-compelling-advantages-of-hindi-study-online-with-mondly/"><u>Transformative Language Experience: Unveiling 7 Compelling Advantages of Hindi Study Online with Mondly!</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/1726030068921-youtubeitunes/"><u>YouTubeのミュージックビデオがiTunesフォルダに保存する方法</u></a></li>
 </ul></div>
 

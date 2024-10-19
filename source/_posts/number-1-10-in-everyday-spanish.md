@@ -1,7 +1,7 @@
 ---
 title: Number 1-10 in Everyday Spanish
-date: 2024-08-27T22:56:53.520Z
-updated: 2024-08-28T22:56:53.520Z
+date: 2024-10-11T17:01:08.580Z
+updated: 2024-10-18T17:13:06.913Z
 tags:
   - speak
   - english
@@ -35,6 +35,13 @@ thumbnail: https://thmb.techidaily.com/f780668281f43de469309d641324f16afda3a68eb
  Until then, here’s cool audio of a fluent speaker pronouncing the Spanish numbers 1 to 10:
 
 **Good to know:** _uno_becomes an article and changes to_un_if it’s in front of a noun. For example,_un cerdo_translates to “a pig” in English.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Spanish numbers to 40
 
@@ -71,8 +78,12 @@ thumbnail: https://thmb.techidaily.com/f780668281f43de469309d641324f16afda3a68eb
  As you can see, up to 30 (“thirty”), the numbers are bound together, but from there on they part ways to make counting in Spanish even easier for you. Basically, you won’t say “thirty-one”, but “thirty**and** one”:_treinta y uno_ .
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Count to 100 in Spanish
 
  As we already settled, counting in Spanish is all about mastering the basics. Now that you know how to count to 40, counting to 100 in Spanish is a piece of cake. Just learn the tens and you are ready to go.
@@ -103,8 +114,12 @@ thumbnail: https://thmb.techidaily.com/f780668281f43de469309d641324f16afda3a68eb
 * 98 –_noventa y ocho_
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Spanish numbers to 1000 and beyond
 
  Hundreds shouldn’t scare you either. They are just as simple. Once you know how the hundreds are, you’ll also know the numbers in between.
@@ -143,8 +158,12 @@ Here are some more examples:
 ![count in Spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/07/count-in-spanish-960x663.jpg "Spanish Numbers: How To Count Numbers In Spanish 4")
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Barcelona, Spain
 
  If you want to go even further, thousands and millions work exactly like in English: number +_mil_ (“thousand”) or_millón_ (“million”). Here are some examples:
@@ -185,8 +204,6 @@ Here are some more examples:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -194,4 +211,20 @@ Here are some more examples:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-master-your-most-watched-videos-on-fb-today-and-beyond-2023/"><u>[New] In 2024, Master Your Most-Watched Videos on FB Today & Beyond 2023</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/astering-video-production-with-chroma-key-techniques/"><u>[New] Mastering Video Production with Chroma Key Techniques</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-after-switching-from-motorola-moto-g73-5g-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data After Switching From Motorola Moto G73 5G to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-brings-forth-a-new-era-of-interactive-qanda/"><u>Mondly Brings Forth a New Era of Interactive Q&A</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-milestone-worldwide-education-network-expands-to-70-million/"><u>Mondly Milestone: Worldwide Education Network Expands to 70 Million</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/newest-techniques-to-fix-your-squad-mic-a-comprehensive-202cu-guide/"><u>Newest Techniques To Fix Your Squad Mic: A Comprehensive 202Cu Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/say-hello-in-mandarin-a-practical-guide/"><u>Say Hello in Mandarin: A Practical Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/song-based-learning-for-language-proficiency-researched-techniques/"><u>Song-Based Learning for Language Proficiency - Researched Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spelling-slip-ups-in-everyday-english-essential-list-of-errors/"><u>Spelling Slip-Ups in Everyday English - Essential List of Errors</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/step-by-step-tutorial-fb-video-and-apple-tv-combination-for-2024/"><u>Step-By-Step Tutorial FB Video & Apple TV Combination for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/ucinne-metody-hnuti-souboru-klicovych-slozek-pro-konverzace-vozovky-na-zvuci-movavi/"><u>Účinné Metody Hnutí Souboru Klíčových Složek Pro Konverzace Vozovky Na Zvuci - Movavi</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/universal-accessibility-in-learning-mondly-for-ukraine/"><u>Universal Accessibility in Learning - Mondly for Ukraine</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/winos-stability-fixed-end-bluescreen-via-wdf-compliance/"><u>WinOS Stability Fixed: End BlueScreen via WDF Compliance</u></a></li>
+</ul></div>
 

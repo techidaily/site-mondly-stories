@@ -1,7 +1,7 @@
 ---
 title: Launching the Novel Auditory AR Interface
-date: 2024-08-27T22:52:16.727Z
-updated: 2024-08-28T22:52:16.727Z
+date: 2024-10-16T22:43:15.686Z
+updated: 2024-10-18T22:00:22.839Z
 tags:
   - speak
   - english
@@ -42,6 +42,13 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 > _We started working on Mondly AR in August 2017 and by the time [Blade Runner 2049](http://www.imdb.com/title/tt1856101/) was released, we already had a working demo. Watching Blade Runner 2049 made me realize that we were beginning to build the future. To me, Joi (the holographic companion of officer K) looked like a super advanced version of Mondly – the character we were creating. They can both understand speech, reply with a human voice and change outfits. Of course, Mondly is not as smart and realistic as Joi. Yet. But she can teach you 7 languages. And this is just the beginning._
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Here’s what you should know about Mondly AR
 
 * Is available on [Google Play](https://play.google.com/store/apps/details?id=com.atistudios.mondlyar.languages&hl=en)
@@ -58,9 +65,12 @@ Alex Iliescu, our CEO, spoke about the launch:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Facts and figures about Mondly
 
 * 30 million downloads, in over 190 countries
@@ -75,12 +85,12 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 * [Mondly Press Kit](https://www.dropbox.com/sh/vo4j5214zvwdxy5/AAC20VxIgpuiEe7ED2%5F37VNEa?dl=0)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Media mentions about Mondly
 
 * **INC.com** – “The New Way to Learn Languages”
@@ -101,8 +111,6 @@ No advertising on the website.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -110,4 +118,26 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-nightlight-nuggets-essential-dos-and-donts-of-nocturnal-imaging/"><u>[New] Nightlight Nuggets Essential Do's & Don'ts of Nocturnal Imaging</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-essential-role-of-voice-in-visual-content/"><u>2024 Approved The Essential Role of Voice in Visual Content</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-the-premier-software-selection-for-youtube-intros/"><u>2024 Approved The Premier Software Selection for YouTube Intros</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-vpna-fake-gps-location-free-review-on-oneplus-ace-2-pro-drfone-by-drfone-virtual-android/"><u>A Detailed VPNa Fake GPS Location Free Review On OnePlus Ace 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/decouvrez-les-top-6-logiciels-libres-sans-frais-pour-la-copie-et-la-restauration-du-contenu-complet-dun-dvdfilm-principal/"><u>Découvrez Les Top 6 Logiciels Libres Sans Frais Pour La Copie Et La Restauration Du Contenu Complet D'un DVD/Film Principal</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-remove-passcode-from-apple-iphone-13-complete-guide-by-drfone-ios/"><u>In 2024, How To Remove Passcode From Apple iPhone 13? Complete Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/kangaroo-talk-australian-lingo-made-simple/"><u>Kangaroo Talk: Australian Lingo Made Simple</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-languages-with-mondly-discover-the-top-10-secrets/"><u>Mastering Languages with Mondly - Discover the Top 10 Secrets</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-achieves-milestone-in-apples-top-educational-app-ranks/"><u>Mondly Achieves Milestone in Apple's Top Educational App Ranks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-crafted-for-those-who-crave-language-mastery/"><u>Mondly Crafted for Those Who Crave Language Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-accuracy-meets-pearsons-high-quality-gsl/"><u>Mondly's Accuracy Meets Pearson’s High-Quality GSL</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-flip-and-rotate-videos-with-ease-top-10-free-tools/"><u>New In 2024, Flip and Rotate Videos with Ease Top 10 Free Tools</u></a></li>
+<li><a href="https://fox-links.techidaily.com/perfecting-the-art-of-silence-increase-in-audacity-for-2024/"><u>Perfecting the Art of Silence Increase in Audacity for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-and-convenient-online-latin-studies-hub/"><u>Quick and Convenient Online Latin Studies Hub</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essential-guide-for-seamless-tours-master-the-93-key-expressions/"><u>The Essential Guide for Seamless Tours: Master the 93 Key Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-fastest-way-to-fluency-try-these-leading-language-learning-aids/"><u>The Fastest Way to Fluency? Try These Leading Language Learning Aids</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-language-of-hospitality-mastering-italys-most-common-greetings/"><u>The Language of Hospitality: Mastering Italy's Most Common Greetings</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/turtle-beach-recon-70-headset-mic-issue-heres-how-to-repair-it/"><u>Turtle Beach Recon 70 Headset Mic Issue? Here's How to Repair It</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/unlocking-the-full-potential-of-your-logitech-mx-master-step-by-step-guide/"><u>Unlocking the Full Potential of Your Logitech MX Master: Step-by-Step Guide</u></a></li>
+</ul></div>
 

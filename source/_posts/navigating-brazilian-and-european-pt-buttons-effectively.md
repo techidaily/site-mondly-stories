@@ -1,7 +1,7 @@
 ---
 title: Navigating Brazilian & European PT Buttons Effectively
-date: 2024-08-27T22:55:50.007Z
-updated: 2024-08-28T22:55:50.007Z
+date: 2024-10-15T16:47:38.196Z
+updated: 2024-10-18T22:25:34.133Z
 tags:
   - speak
   - english
@@ -26,22 +26,36 @@ thumbnail: https://thmb.techidaily.com/9cc152d1aca0892df1ca5596ac3ad03cce388893b
 
  The other countries colonized by Portugal speak a Portuguese more akin to the [mother language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Why? Many of them are [African](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) countries, so they don’t have external contact from other cultures that could have impacted their way of speaking. Secondly, compared to Brazil, those countries gained their independence much later and had more contact with Portugal during their early development.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Differences in the Pronunciation
 
  Pronunciation is one of the main differences between the languages. Brazilians speak vowels longer and wider, while Portuguese pronounce the words with a more closed mouth, without pronouncing the vowels as much.
 
  The pronunciation of some consonants is also different, particularly the S at the end of a word. In Brazilian Portuguese, an S at the end of a word is pronounced as SS; in Portugal, it is pronounced as SH.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Accents
 
  Brazilian Portuguese is thought to be more phonetically pleasing to the ear thanks to its open vowels, while European Portuguese can sound somewhat garbled. Brazilian accents have a strong cadence and lift to them, making it easier to learn and understand.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Grammar and Spelling
 
  Some words are spelled differently. For instance, reception in European Portuguese is “receção”, but in Brazilian Portuguese, there is an audible p to the spelling of “recepção.” In other words, the letter p is audible in Brazilian Portuguese and silent in European Portuguese.
@@ -50,17 +64,18 @@ thumbnail: https://thmb.techidaily.com/9cc152d1aca0892df1ca5596ac3ad03cce388893b
 
  Sometimes, Brazilian Portuguese takes words from American English, ignoring its Latin roots. European Portuguese usually adopts words from Latin roots, keeping the original spelling. Overall, European Portuguese is more resistant to change and assimilation of foreign words.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ## Formal and Informal Speech
 
  European Portuguese is the more formal of the two versions. In Brazilian Portuguese, the word**você** is used for “you” in informal settings; in European Portuguese,**tu** is utilized in the same context. In Portugal, they view the você as crude and thus remove the second-person pronoun in less casual situations and instead use the verb in the third-person singular.  
  When describing actions, Brazilians use “estou fazendo” to mean “I am doing,” and the European Portuguese use the infinitive form, “estou a fazer.” The latter is less direct and translates to “I am taken to doing.”
 
 <!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Should You Learn Brazilian or European Portuguese?
 
  This is a highly personal decision. This will depend on your personal motives, availability of resources, future aspirations and goals. In general, the thing that sparked your interest in the language will have a direct impact on the dialect you choose. For example, if you love classic literature, European Portuguese might be the best way to go for you. If you love Carnival and samba, Brazilian Portuguese may be best.
@@ -68,8 +83,12 @@ thumbnail: https://thmb.techidaily.com/9cc152d1aca0892df1ca5596ac3ad03cce388893b
  The availability of resources will also influence your decision. _“Brazil has a larger population than Portugal with many native speakers, impacting_ availability _of content. In other words, it’s simpler to locate resources for Brazilian Portuguese learners than it is for those who study the European kind”_ says Ryan McMunn of BRIC Language Systems. Finding a professional resource that offers instruction in Brazilian Portuguese with access to native speakers will greatly improve your chances of being successful and learning both at your pace and in a way that will last.
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Future Goals
 
  What are your future plans? The answer will help you determine which Portuguese variety would be best for you. If you would like to work for the United Nations someday, you should learn Continental Portuguese because its operations are based in Europe. If you want a job in a North American enterprise, Brazilian Portuguese will be best because that country has a bigger economic and trading base.
@@ -102,10 +121,6 @@ thumbnail: https://thmb.techidaily.com/9cc152d1aca0892df1ca5596ac3ad03cce388893b
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ### Speak Portuguese fluently in just 10 minutes a day
 
  Do you want to speak Portuguese fluently fast? Get Mondly, the award-winning language learning app that will help you speak Portuguese as if it were your first language.
@@ -122,8 +137,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -131,4 +144,22 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-unlocking-the-power-of-capturing-facetime-calls/"><u>[New] 2024 Approved Unlocking the Power of Capturing FaceTime Calls</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-add-youtube-melodies-in-imovie-without-hurdles-for-2024/"><u>[New] Add YouTube Melodies in iMovie Without Hurdles for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-detecting-bots-amongst-your-brands-facebook-supporters/"><u>[Updated] Detecting Bots Amongst Your Brand's Facebook Supporters</u></a></li>
+<li><a href="https://fake-location.techidaily.com/a-detailed-vpna-fake-gps-location-free-review-on-vivo-y200-drfone-by-drfone-virtual-android/"><u>A Detailed VPNa Fake GPS Location Free Review On Vivo Y200 | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/como-cambiar-tu-musica-de-mp3-a-avi-sin-costo-tutorial-completo-para-usuarios-de-movavi/"><u>Cómo Cambiar Tu Música De MP3 a AVI Sin Costo - Tutorial Completo Para Usuarios De Movavi</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/free-mod-video-editor-roundup-top-picks/"><u>Free MOD Video Editor Roundup Top Picks</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-fake-gps-location-apps-on-android-of-your-oppo-reno-8t-drfone-by-drfone-virtual/"><u>In 2024, 10 Fake GPS Location Apps on Android Of your Oppo Reno 8T | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-life360-shows-wrong-location-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Fix Life360 Shows Wrong Location On Apple iPhone 8? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-blend-how-global-speech-shapes-english/"><u>Language Blend: How Global Speech Shapes English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-evolution-in-action-popular-slang-and-meanings/"><u>Language Evolution in Action: Popular Slang and Meanings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-spanish-socially-through-vr-adventures/"><u>Mastering Spanish Socially Through VR Adventures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-sunrise-salutations-good-mornings-in-10-languages/"><u>The Art of Sunrise Salutations: Good Mornings in 10 Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/us-leading-non-native-language-classes/"><u>U.S. Leading Non-Native Language Classes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unleash-potential-with-arabic-and-mondly-onlines-6-key-reasons/"><u>Unleash Potential with Arabic & Mondly Online's 6 Key Reasons</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/visualizing-tweet-reactions-a-complete-twitch-tale-for-23/"><u>Visualizing Tweet Reactions - A Complete Twitch-Tale for '23</u></a></li>
+</ul></div>
 

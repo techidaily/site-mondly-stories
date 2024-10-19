@@ -1,7 +1,7 @@
 ---
 title: "Saying Hi in Indonesia: Key Greeting Phrases"
-date: 2024-10-03T00:19:15.180Z
-updated: 2024-10-06T16:25:46.248Z
+date: 2024-10-13T20:58:41.808Z
+updated: 2024-10-18T16:34:03.559Z
 tags:
   - speak
   - english
@@ -41,10 +41,10 @@ thumbnail: https://thmb.techidaily.com/5f29ab47c82493b144af09fd3ee1e6f095ceaed40
  On the other hand, if someone asks you how you are doing, you can say_kabar baik,_ which means “I am fine” or “I am well”. Here’s what a basic conversation in Indonesian sounds like:
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ‘Hi’ in Indonesian
@@ -66,10 +66,10 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 ![indonesian words](https://edge.mondly.com/blog/wp-content/uploads/2022/07/indonesian-words.png "Hello In Indonesian: A Quick Guide To Indonesian Greetings 2")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The same way we say “morning!’ in English, Indonesians sometimes drop the_selamat_ . This results in a very informal greeting that can be used with friends and family.
@@ -79,10 +79,16 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
  Naturally,_selamat tidur_ is only used when someone is retiring for the night.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983552">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to say goodbye
@@ -97,10 +103,10 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Start learning Indonesian today
@@ -134,17 +140,17 @@ Get Mondly today and learn Indonesian naturally with the following:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://sound-issues.techidaily.com/fixed-no-sound-on-windows-10-quickly-and-easily/"><u>[Fixed] No Sound on Windows 10 - Quickly & Easily</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-expert-tips-securing-your-best-gaming-moments-with-4-methods/"><u>[New] 2024 Approved Expert Tips Securing Your Best Gaming Moments with 4 Methods</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-the-ultimate-checklist-for-new-channels/"><u>[New] 2024 Approved The Ultimate Checklist for New Channels</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/echniques-for-rapid-deletion-of-youtube-feedback-for-2024/"><u>[New] Techniques for Rapid Deletion of Youtube Feedback for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-eye-candy-extravaganza-highest-watched-videos-in-a-day/"><u>[Updated] Eye Candy Extravaganza Highest Watched Videos in a Day</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-unleash-creativity-complimentary-premiere-pro-toolset/"><u>2024 Approved Unleash Creativity - Complimentary Premiere Pro Toolset</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579055981-discovering-santas-language-proficiency/"><u>Discovering Santa's Language Proficiency!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dive-into-davy-jones-vocabulary-pool/"><u>Dive Into Davy Jones' Vocabulary Pool</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/germanys-educational-beacon-mondly-named-champion/"><u>Germany's Educational Beacon: Mondly Named Champion</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-fix-unfortunately-contacts-has-stopped-error-on-realme-c67-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Unfortunately, Contacts Has Stopped Error on Realme C67 4G | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/instagram-filming-blending-into-new-backgrounds-easily/"><u>Instagram Filming Blending Into New Backgrounds Easily</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/understanding-key-phrases-a-beginners-journey-through-latin-american-vernaculars/"><u>Understanding Key Phrases: A Beginner's Journey Through Latin American Vernaculars</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-maximize-collaboration-via-zooms-share-feature/"><u>[New] 2024 Approved Maximize Collaboration via Zoom's Share Feature</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-complete-guide-for-seamlessly-linking-content-into-your-tiktok-profile/"><u>2024 Approved Complete Guide for Seamlessly Linking Content Into Your TikTok Profile</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accelerated-ukranian-learning-in-brief-sessions-104-chars/"><u>Accelerated Ukranian Learning in Brief Sessions (104 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apples-global-ed-tech-showcase-hails-mondly-at-10-spotlight/"><u>Apple's Global Ed-Tech Showcase Hails Mondly at #10 Spotlight</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/complete-step-by-step-tutorial-on-handbrakes-av1-encoding/"><u>Complete Step-by-Step Tutorial on HandBrake's AV1 Encoding</u></a></li>
+<li><a href="https://fox-that.techidaily.com/detailed-evaluation-of-the-gaomon-pd1560-stylus-tablet/"><u>Detailed Evaluation of the Gaomon PD1560 Stylus Tablet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-the-soul-of-indonesia-through-its-salutations/"><u>Discover the Soul of Indonesia Through Its Salutations</u></a></li>
+<li><a href="https://win-answers.techidaily.com/eradicate-halo-infinite-freeze-ups-and-play-smoothly-with-these-essential-pc-tweaks-7-proven-methods/"><u>Eradicate Halo Infinite Freeze-Ups and Play Smoothly with These Essential PC Tweaks (7 Proven Methods)</u></a></li>
+<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-realme-v30t-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Realme V30T | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/google-validates-mondly-your-assured-path-to-multilingual-excellence/"><u>Google Validates: Mondly, Your Assured Path to Multilingual Excellence</u></a></li>
+<li><a href="https://discover-alternatives.techidaily.com/optimized-with-the-help-of-cookiebot-enhancing-user-experience-and-conversion-rates/"><u>Optimized with the Help of Cookiebot: Enhancing User Experience and Conversion Rates</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-tolls-facebook-and-cos-6-hour-disruption/"><u>Tech Tolls: Facebook and Co.'s 6-Hour Disruption</u></a></li>
 </ul></div>
 

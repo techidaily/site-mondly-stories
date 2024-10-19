@@ -1,7 +1,7 @@
 ---
 title: The Essential Guide to Spanish Counting
-date: 2024-08-27T22:54:51.950Z
-updated: 2024-08-28T22:54:51.950Z
+date: 2024-10-14T16:39:45.335Z
+updated: 2024-10-19T00:18:54.276Z
 tags:
   - speak
   - english
@@ -35,6 +35,13 @@ thumbnail: https://thmb.techidaily.com/3092233dd7a3eec690ede8061b1cb9bd708780813
  Until then, here’s cool audio of a fluent speaker pronouncing the Spanish numbers 1 to 10:
 
 **Good to know:** _uno_becomes an article and changes to_un_if it’s in front of a noun. For example,_un cerdo_translates to “a pig” in English.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Spanish numbers to 40
 
@@ -71,8 +78,12 @@ thumbnail: https://thmb.techidaily.com/3092233dd7a3eec690ede8061b1cb9bd708780813
  As you can see, up to 30 (“thirty”), the numbers are bound together, but from there on they part ways to make counting in Spanish even easier for you. Basically, you won’t say “thirty-one”, but “thirty**and** one”:_treinta y uno_ .
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Count to 100 in Spanish
 
  As we already settled, counting in Spanish is all about mastering the basics. Now that you know how to count to 40, counting to 100 in Spanish is a piece of cake. Just learn the tens and you are ready to go.
@@ -103,8 +114,12 @@ thumbnail: https://thmb.techidaily.com/3092233dd7a3eec690ede8061b1cb9bd708780813
 * 98 –_noventa y ocho_
 
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Spanish numbers to 1000 and beyond
 
  Hundreds shouldn’t scare you either. They are just as simple. Once you know how the hundreds are, you’ll also know the numbers in between.
@@ -143,8 +158,12 @@ Here are some more examples:
 ![count in Spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/07/count-in-spanish-960x663.jpg "Spanish Numbers: How To Count Numbers In Spanish 4")
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
+  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Barcelona, Spain
 
  If you want to go even further, thousands and millions work exactly like in English: number +_mil_ (“thousand”) or_millón_ (“million”). Here are some examples:
@@ -185,8 +204,6 @@ Here are some more examples:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -194,4 +211,18 @@ Here are some more examples:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-acclaimed-editing-software-for-virtual-recordings-for-2024/"><u>[New] Acclaimed Editing Software for Virtual Recordings for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-master-the-art-of-steadiness-in-imaging-for-2024/"><u>[New] Master the Art of Steadiness in Imaging for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-virtual-conversations-unleashed-with-pc-based-whatsapp-web-chat/"><u>[Updated] In 2024, Virtual Conversations Unleashed with PC-Based WhatsApp Web Chat</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-engaging-audiences-with-jujutsu-kaisen-tiktok-content/"><u>2024 Approved Engaging Audiences with Jujutsu Kaisen TikTok Content</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-compact-gaming-experience-with-the-nintendo-switch-lite-a-detailed-examination/"><u>Affordable, Compact Gaming Experience with the Nintendo Switch Lite: A Detailed Examination</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grecian-lexicon-historical-journey-and-modern-day-importance/"><u>Grecian Lexicon: Historical Journey & Modern Day Importance</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-how-to-detect-and-remove-spyware-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Detect and Remove Spyware on Apple iPhone 6? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-swedish-letters-and-accents-swiftly/"><u>Learn Swedish Letters & Accents Swiftly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-elite-unbeatable-ever-lasting-pricing/"><u>Mondly Elite: Unbeatable, Ever-Lasting Pricing!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tender-tongues-the-lore-of-love-in-french/"><u>Tender Tongues: The Lore of Love in French</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/unveiling-the-trio-a-deep-dive-into-vr-ar-and-mr/"><u>Unveiling the Trio A Deep Dive Into VR, AR, & MR</u></a></li>
+</ul></div>
 

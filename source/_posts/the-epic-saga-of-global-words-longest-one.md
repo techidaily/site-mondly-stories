@@ -1,7 +1,7 @@
 ---
 title: The Epic Saga of Global Words' Longest One
-date: 2024-08-27T22:59:13.481Z
-updated: 2024-08-28T22:59:13.481Z
+date: 2024-10-15T23:03:28.357Z
+updated: 2024-10-19T00:36:22.734Z
 tags:
   - speak
   - english
@@ -92,11 +92,15 @@ Good luck posting it on Twitter!
 
 ![surprised lemur](https://edge.mondly.com/blog/wp-content/uploads/2018/10/surprised-lemur-960x639.jpg "What Is The Longest Word In The World? 3")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  “I don’t believe you!” by Maik Stahnke©
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The longest word in the dictionary – really official version
 
 Enough with the jokes already! This one is for real. Promise.
@@ -128,15 +132,16 @@ Enough with the jokes already! This one is for real. Promise.
 ![longest word in the english language](https://media.giphy.com/media/jkFGHT7XLzpg4/giphy.gif "What Is The Longest Word In The World? 5")
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Finally, the word everybody seems to agree on is [**electroencephalographically (27 letters)**](https://www.merriam-webster.com/dictionary/electroencephalographically) . Fair enough! We heard about that, haven’t we? By the sound of it, I’d say it’s connected to the “electroencephalograph” – a machine used to measure electrical activity in different parts of the brain.
 
  Now that you know all the arguments of this complicated debate, feel free to be the judge and decide which one is the longest word in the dictionary,**the longest word in the English language** or even the longest word in the galaxy!
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Bonus: supercalifragilisticexpialidocious (34 letters)
 
  This is your absolute favorite. You thought this was the longest word, haven’t you? But**supercalifragilisticexpialidocious** is, in fact, a coined word made popular by Marry Poppins. Because you tried to pronounce it countless times, here’s a little help:
@@ -152,18 +157,26 @@ Enough with the jokes already! This one is for real. Promise.
 ![funny monkey](https://edge.mondly.com/blog/wp-content/uploads/2018/10/funny-monkey-960x636.jpg "What Is The Longest Word In The World? 6")
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
+<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  “Oh my God, really?” by Jamie Haughton©
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The longest word in Spanish and 11 other languages
 
  Because it is considered a global language and the world’s second-[most spoken native language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , after Mandarin Chinese, I decided I must include**the longest word in Spanish** in our discovery mission.
 
  So here it is:**the longest word in Spanish is** **esternocleidomastoideitis (30 letters)** – this is a medical term which translates to “inflammation of the sternocleidomastoid muscle”. Surprisingly short, don’t you think?
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### The longest word in Afrikaans
 
@@ -181,9 +194,6 @@ Enough with the jokes already! This one is for real. Promise.
 
  Like many Germanic languages, Dutch is capable of forming compounds of potentially limitless length. However, **meervoudigepersoonlijkheidsstoornissen (38 letters)** is the longest word that was included in the Van Dale Dutch dictionary. The giant word means “multiple personality disorders”.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ### The longest word in Finnish
 
 **Peruspalveluliikelaitoskuntayhtymä (34 letters)** — it’s present in the everyday use of the Finnish language (can you even imagine that?) and “translates to “a public utility of a municipal federation for the provision of basic services”.
@@ -193,6 +203,13 @@ Enough with the jokes already! This one is for real. Promise.
 ### The longest word in French
 
 **Anticonstitutionnellement (25 letters)** — translates to “contrary to the constitution”. Pretty straightforward, I’d say.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### The longest word in Icelandic
 
@@ -210,10 +227,6 @@ Enough with the jokes already! This one is for real. Promise.
 
  Modern Greek words, on the other hand, are much shorter: **ηλεκτροεγκεφαλογράφημα (ilektroenkefalográfima), is a 22-letter word** that means “electroencephalogram”. Yes, you remember that correctly! It really is connected to the word we mentioned for English (electroencephalographically).
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 ### The longest word in**Polish**
 
  Polish allows the creation of gigantic adjectives from numerals and nouns. For example, **dziewięćsetdziewięćdziesiątdziewięćmiliardówdziewięćsetdziewięćdziesiątdziewięćmilionówdziewięćsetdziewięćdziesiątdziewięćtysięcydziewięćsetdziewięćdziesięciodziewięcioletniego**  is**176 letters long** and it means “of 999,999,999,999 years old”.
@@ -221,16 +234,24 @@ Enough with the jokes already! This one is for real. Promise.
  But one of the longest common Polish words is**dziewięćdziesięciokilkuletniemu (31 letters)** — the dative singular form of “ninety-and-some years old one”.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### The longest word in**Turkish**
 
  As an agglutinative language, Turkish carries the potential for huge words such as **muvaffakiyetsizleştiricileştiriveremeyebileceklerimizdenmişsinizcesine (70 letters)**
  that means “as if you would be from those we can not easily/quickly make a maker of unsuccessful ones”.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### The longest word in**Welsh**
 
  **Llanfairpwllgwyngyllgogerychwyrndrobwllllantysiliogogogoch (51 letters)** is a large village and local government community on the island of Anglesey in Wales and the longest place name in the Welsh language.
@@ -240,8 +261,12 @@ Enough with the jokes already! This one is for real. Promise.
 Suddenly “supercalifragilisticexpialidocious” seems waaay shorter and easier to pronounce, doesn’t it?
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## The longest words with one syllable, no vowels and all vowels
 
 **The longest one-syllable word**
@@ -278,8 +303,6 @@ Suddenly “supercalifragilisticexpialidocious” seems waaay shorter and easier
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -287,4 +310,23 @@ Suddenly “supercalifragilisticexpialidocious” seems waaay shorter and easier
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-explore-the-best-in-class-android-apps-to-revive-ps2-games/"><u>[New] In 2024, Explore the Best-in-Class Android Apps to Revive PS2 Games</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-samurai-spirit-explored-in-top-10-gaming-worlds/"><u>2024 Approved Samurai Spirit, Explored in Top 10 Gaming Worlds</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-techniques-to-transfer-data-from-lava-yuva-3-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Techniques to Transfer Data from Lava Yuva 3 to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/everything-you-need-to-know-about-unlocked-apple-iphone-14-pro-drfone-by-drfone-ios/"><u>Everything You Need To Know About Unlocked Apple iPhone 14 Pro | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-unbrick-a-dead-oneplus-ace-3-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Unbrick a Dead OnePlus Ace 3 | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-honor-90-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How To Pause Life360 Location Sharing For Honor 90 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-after-switching-from-motorola-moto-g13-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data After Switching From Motorola Moto G13 to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-the-premier-audio-augmented-app/"><u>Introducing the Premier Audio-Augmented App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-simplifies-global-dialogue-with-new-words/"><u>Mondly Simplifies Global Dialogue with New Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navegacion-basica-del-reloj-digital-en-espanol/"><u>Navegación Básica Del Reloj Digital en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/perfect-pronunciation-and-expression-essential-french-phrases-for-proficiency/"><u>Perfect Pronunciation & Expression: Essential French Phrases for Proficiency</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-lost-data-from-oppo-k11-5g-by-fonelab-android-recover-data/"><u>Recover lost data from Oppo K11 5G</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-comparative-voice-analyzing-spanish-vs-portuguese-dialects/"><u>The Comparative Voice: Analyzing Spanish Vs. Portuguese Dialects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/translate-intrigue-become-fluent-in-squid-games-language/"><u>Translate Intrigue: Become Fluent in Squid Game's Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-multilingual-potential-duration-matters/"><u>Unlocking Multilingual Potential: Duration Matters</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/unlocking-performance-secrets-tips-from-toms-hardware-analysis/"><u>Unlocking Performance Secrets - Tips From Tom's Hardware Analysis</u></a></li>
+</ul></div>
 

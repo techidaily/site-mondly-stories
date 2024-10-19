@@ -1,7 +1,7 @@
 ---
 title: Origins of the Germanic Dialektaal Voortgang
-date: 2024-09-30T23:18:08.076Z
-updated: 2024-10-06T16:00:10.676Z
+date: 2024-10-13T17:06:24.375Z
+updated: 2024-10-18T23:54:49.897Z
 tags:
   - speak
   - english
@@ -28,19 +28,6 @@ thumbnail: https://thmb.techidaily.com/19cc3daca0ae766efaf5a0d940f51eeacf8f63806
 
 **The Dutch people are from the Netherlands.** As unrelated as that may seem, there is a whole history to it.
 
-<!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Why are Dutch people called Dutch?
 
  It seems that the confusion stems from the English-speaking people and the reason can be found by studying **the [etymology](https://www.etymonline.com/word/dutch) of the word ‘dutch’** . I won’t bore you with all the details, but the bottom line is that in the late 14th century the word referred to ‘a German language’ or to ‘German, non-Scandinavian continental Germanic’. Additionally, the word corresponds to the Old English adjective_þeodisc_ (‘belonging to the people’) which was used to refer to the common language of Germanic people (as opposed to Latin).
@@ -48,6 +35,13 @@ thumbnail: https://thmb.techidaily.com/19cc3daca0ae766efaf5a0d940f51eeacf8f63806
  As a consequence, over time, **English-speaking people used the word ‘Dutch’ to refer to both people from Netherlands and Germany.** ‘High Dutch’ referred to people living in the mountainous region (now southern Germany). ‘Low Dutch’ referred to people from the flatlands (now the Netherlands).
 
  And this is not everything. Within the Holy Roman Empire, the word ‘Netherlands’ was widely used to indicate people from the low-lying (‘nether’) region (‘land’). That’s how ‘the Kingdom of the Netherlands’ got its name when it became a formal, separate country in 1815.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Where is the Netherlands?
 
@@ -63,24 +57,24 @@ Okay, bare with me. There’s more.
 
 ![netherlands vs holland](https://edge.mondly.com/blog/wp-content/uploads/2022/02/netherlands-vs-holland.png "Where Are Dutch People From? Discover The Dutch Language 2")
 
+<!-- affiliate ads begin -->
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The Netherlands vs Holland
 
  It all goes back (again) to Old English. Originally referring to the people from the northern region of the Netherlands, ‘Holland’ literally meant ‘wood-land’. But over time, English speakers began to mistakenly associate it with the entire country.
 
  Formerly the County of Holland (the most important county in the Low Countries region), Holland now consists of North and South Holland. These are two of the nation’s twelve provinces.
-
-<!-- affiliate ads begin -->
-<span id="1983551">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## What language do they speak in the Netherlands?
 
@@ -96,7 +90,21 @@ Okay, bare with me. There’s more.
 
 ![language in the netherlands](https://edge.mondly.com/blog/wp-content/uploads/2022/02/language-in-the-netherlands-960x573.jpg "Where Are Dutch People From? Discover The Dutch Language 3")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  ‘Tulip fields in the Netherlands’ by redcharlie©
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### What other countries speak Dutch?
 
@@ -105,13 +113,6 @@ Okay, bare with me. There’s more.
  The Dutch language is also spoken in a small part of France and on the islands of Curaçao, Sint Maarten, Aruba (all three part of the Kingdom of the Netherlands), Bonaire, Saba, and Sint Eustatius.
 
  If you travel to South Africa, you may think people speak Dutch, but they actually speak [Afrikaans](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , a language that evolved from Dutch.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Is German Dutch?
 
@@ -125,13 +126,6 @@ Okay, bare with me. There’s more.
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Start learning Dutch today
 
@@ -162,24 +156,22 @@ Is Dutch easy to learn? It is if you learn it with Mondly.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-free-gift-guide-all-about-our-50-unique-youtube-ads-for-you/"><u>[Updated] Free Gift Guide All About Our 50 Unique YouTube Ads for You</u></a></li>
-<li><a href="https://fox-that.techidaily.com/7-rapid-repairs-troubleshooting-stuck-predictive-emojis-on-iphones-and-ipads/"><u>7 Rapid Repairs: Troubleshooting Stuck Predictive Emojis on iPhones & iPads</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-beginners-pathway-to-proper-spanish-accent-and-typography/"><u>A Beginner's Pathway to Proper Spanish Accent and Typography</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/aussie-language-101-the-ultimate-guide/"><u>Aussie Language 101: The Ultimate Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embrace-advanced-dialogue-introducing-new-ai/"><u>Embrace Advanced Dialogue: Introducing New AI</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-many-attempts-to-unlock-apple-iphone-13-by-drfone-ios/"><u>How Many Attempts To Unlock Apple iPhone 13</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-a-quick-guide-to-xiaomi-redmi-13c-frp-bypass-instantly-by-drfone-android/"><u>In 2024, A Quick Guide to Xiaomi Redmi 13C FRP Bypass Instantly</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-audience-wow-factor-best-stream-cameras-for-your-twitch-channel/"><u>In 2024, Audience Wow Factor Best Stream Cameras for Your Twitch Channel</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-streamline-your-creation-process-with-this-youtube-shorts-guide/"><u>In 2024, Streamline Your Creation Process with This YouTube Shorts Guide</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/install-new-targus-displaylink-driver-software-on-your-pc-windows-instructions/"><u>Install New Targus DisplayLink Driver Software on Your PC - Windows Instructions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719578416188-jumpstart-your-slovak-journey-with-daily-micro-lessons/"><u>Jumpstart Your Slovak Journey with Daily Micro-Lessons</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lovely-french-one-liners-explained/"><u>Lovely French One-Liners Explained</u></a></li>
-<li><a href="https://network-issues.techidaily.com/recovering-unrecognized-pc-gpu-compatibility-issue/"><u>Recovering Unrecognized PC GPU Compatibility Issue</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719576862006-speak-croatian-and-boost-your-career-discover-these-7-advantages/"><u>Speak Croatian and Boost Your Career: Discover These 7 Advantages!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/take-your-portuguese-skills-to-new-heights-discover-6-effective-methods/"><u>Take Your Portuguese Skills to New Heights: Discover 6 Effective Methods</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ultimate-top-3-for-rapid-linguistic-proficiency/"><u>The Ultimate Top 3 for Rapid Linguistic Proficiency</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unity-in-diversity-mastering-cultural-exchange-techniques/"><u>Unity in Diversity: Mastering Cultural Exchange Techniques</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/unlock-your-oppo-a79-5gs-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>Unlock Your Oppo A79 5Gs Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
-<li><a href="https://apple-account.techidaily.com/why-apple-account-disabled-from-your-apple-iphone-8-plus-how-to-fix-by-drfone-ios/"><u>Why Apple Account Disabled From your Apple iPhone 8 Plus? How to Fix</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-expert-tips-for-designing-text-in-3d-space-ps-for-2024/"><u>[New] Expert Tips for Designing Text in 3D Space PS for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-a-beginners-guide-to-navigating-digital-marketing-with-reddit-savvy/"><u>[Updated] A Beginner's Guide to Navigating Digital Marketing with Reddit Savvy</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-pioneer-the-future-of-youtube-content-with-tubebuddy/"><u>[Updated] Pioneer the Future of YouTube Content with TubeBuddy</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unleashing-laughter-on-screen-essential-tactics-for-youtube-reaction-video-making-3-ways/"><u>[Updated] Unleashing Laughter on Screen Essential Tactics for YouTube Reaction Video Making (3 Ways)</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-the-win10-users-guide-to-recording-mov/"><u>2024 Approved The Win10 User's Guide to Recording MOV</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ausdrucksreichtum-10-ubliche-deutsche-begrussungen-ohne-hallo/"><u>Ausdrucksreichtum: 10 Übliche Deutsche Begrüßungen Ohne Hallo</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-tecno-spark-10-4g-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Tecno Spark 10 4G Device SIM</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-oneplus-12-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from OnePlus 12 to Laptop Without USB | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/inspiring-lives-johannes-honterus/"><u>Inspiring Lives: Johannes Honterus</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/j-script-mastery-an-all-encompassing-reference/"><u>J-Script Mastery: An All-Encompassing Reference</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/kobo-clara-hd-assessment-perfect-for-mobile-bibliophiles-in-search-of-convenience/"><u>Kobo Clara HD Assessment - Perfect for Mobile Bibliophiles in Search of Convenience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-mastery-achieved-mondlys-best-of-2022-award/"><u>Language Mastery Achieved: Mondly's Best of 2022 Award</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-languages-via-screen-top-tactics-and-guidance/"><u>Mastering Languages via Screen: Top Tactics & Guidance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revamp-user-agreement-and-rights/"><u>Revamp: User Agreement & Rights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sunrise-salutations-exploring-10-different-morning-expressions/"><u>Sunrise Salutations: Exploring 10 Different Morning Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-the-potential-of-your-mind-learn-languages-with-mondlys-ar/"><u>Unlock the Potential of Your Mind: Learn Languages with Mondly’s AR</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/unveiling-the-power-of-gamesirs-g8-galileo-a-new-contender-in-the-world-of-portable-consoles/"><u>Unveiling the Power of GameSir's G8 Galileo: A New Contender in the World of Portable Consoles</u></a></li>
 </ul></div>
 

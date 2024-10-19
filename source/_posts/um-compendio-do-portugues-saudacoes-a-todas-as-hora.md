@@ -1,7 +1,7 @@
 ---
 title: "Um Compêndio Do Português: Saudações a Todas as Hora"
-date: 2024-09-26T20:45:40.180Z
-updated: 2024-10-01T23:33:24.920Z
+date: 2024-10-11T19:42:41.459Z
+updated: 2024-10-18T22:36:40.982Z
 tags:
   - speak
   - english
@@ -30,13 +30,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
  Be careful with your Portuguese pronunciation though! A lot of people accidentally mistake Portuguese for Spanish. You don’t want to do that. Just say “OH-lah” and everybody from Brazil to Mozambique will understand that you are saying “hello” in Portuguese.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### “Hi” in Portuguese – Oi
 
  Friendly and very informal,_Oi!_ is one of the most common ways to greet your friends in Brazil (people from Portugal use it as well, but not as much as_olá)_ . This is how you could greet your mates and close colleagues, but never the people you don’t really know. Don’t stress it tough! When the time comes, you will feel and just know what’s the required Portuguese greeting for that particular situation.
@@ -60,6 +53,13 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 * **_Quanto tempo!_ – Long time no see!** – Used the same as in English.
 * **_Como foi o seu dia?_ – How’s your day?** – Used the same as in English.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. “Bom dia!” and other Portuguese greetings for certain moments of the day
 
 ![good morning in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/good-morning-in-portuguese-1024x642.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 3")
@@ -73,6 +73,19 @@ _Olá_ is the best choice for most social situations regardless of the person yo
  **Good night in Portuguese –_Boa noite!_**  – The Portuguese language does not make any difference between evening and night. Thus, “goodnight” and “good evening” have the same translation in Portuguese. While in Brazil you will say “boa NOEE-tsh”, in Portugal you will say “boa NOEE-t”.
 
  All three of these are safe to use in any kind of interaction (formal or informal).
+
+<!-- affiliate ads begin -->
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3.“Goodbye” in Portuguese – Adeus
 
@@ -89,19 +102,19 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ![portuguese greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/08/portuguese-greetings-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 4")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  “Ruínas da Fortaleza de Arrifana, Aljezur, Portugal” by Ferhat Deniz Fors©
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Bonus: other basic Portuguese phrases that you should know
@@ -127,13 +140,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 * No. –_Não._
 
 ![obrigado](https://edge.mondly.com/blog/wp-content/uploads/2019/08/obrigado-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 5")
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  “Gruta do Lago Azul, Brazil” by Ademir Alves©
 
@@ -173,22 +179,24 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-revamped-dialogue-strategies-for-engaging-podcasters/"><u>[New] 2024 Approved Revamped Dialogue Strategies for Engaging Podcasters</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-high-ranking-nintendo-switch-brawlers-index-max-156/"><u>[Updated] 2024 Approved High-Ranking Nintendo Switch Brawlers Index (Max 156)</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-cutting-edge-video-techniques-for-windows-11-users/"><u>2024 Approved Cutting-Edge Video Techniques for Windows 11 Users</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/acoustic-adventures-from-american-broadband-to-british-cockney/"><u>Acoustic Adventures: From American Broadband to British Cockney</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/become-effortless-essential-17-natural-spanish-sayings/"><u>Become Effortless: Essential 17 Natural Spanish Sayings</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/brain-boost-in-your-fifties-with-foreign-languages-learning/"><u>Brain Boost in Your Fifties with Foreign Languages Learning</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/crafting-captivating-stories-embedding-melodies-into-visual-narratives/"><u>Crafting Captivating Stories Embedding Melodies Into Visual Narratives</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/hack-your-way-to-instant-signature-bg-elimination/"><u>Hack Your Way to Instant Signature BG Elimination</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/e-investigation-the-streamlined-3-part-method-to-assess-your-youtube-income-levels/"><u>Income Investigation The Streamlined 3-Part Method to Assess Your YouTube Income Levels</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/mixing-masterclass-elevate-drone-audio-with-20-complimentary-luts/"><u>Mixing Masterclass - Elevate Drone Audio with 20 Complimentary LUTs</u></a></li>
-<li><a href="https://program-issues.techidaily.com/no-more-freezing-how-to-repair-phoenix-point-game-crashes-easily/"><u>No More Freezing - How to Repair Phoenix Point Game Crashes Easily</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/resolving-comctl32dll-file-not-found-effective-troubleshooting-steps/"><u>Resolving 'comctl32.dll' File Not Found: Effective Troubleshooting Steps</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/santas-secretive-speech-skills-exposed/"><u>Santa's Secretive Speech Skills Exposed</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-smart-stand-out-elite-english-coaching/"><u>Speak Smart, Stand Out: Elite English Coaching</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-joy-of-language-acquisition-beyond-50/"><u>The Joy of Language Acquisition Beyond 50</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579252516-this-innovative-virtual-reality-app-helps-you-learn-a-foreign-language/"><u>This Innovative Virtual Reality App Helps You Learn A Foreign Language!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/why-mondly-is-your-essential-language-learning-ally/"><u>Why Mondly Is Your Essential Language Learning Ally</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-exploring-advanced-recording-alternatives-to-fbx-frameworks/"><u>[New] Exploring Advanced Recording Alternatives to FBX Frameworks</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-elevate-your-content-game-studio-aptitude-essentials-for-2024/"><u>[Updated] Elevate Your Content Game Studio Aptitude Essentials for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/complete-list-of-top-100-commonly-misspelled-words-in-english/"><u>Complete List Of Top 100 Commonly Misspelled Words In English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-languages-confidently-with-mondlys-ar-technology/"><u>Conquer Languages Confidently With Mondly's AR Technology</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/data-protection-strategy-updated/"><u>Data Protection Strategy Updated</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/elgato-hd60-sync-problems-fast-fixes-and-simple-solutions/"><u>Elgato HD60 Sync Problems: Fast Fixes and Simple Solutions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/forsok-till-swedish-valkommen-pa-sverige/"><u>Försök Till Swedish: Välkommen På Sverige</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-monolingual-to-polylingual-a-century-for-europe-day/"><u>From Monolingual to Polylingual: A Century for Europe Day</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-apple-iphone-x-without-passcode-4-easy-methods-by-drfone-ios/"><u>How To Unlock Apple iPhone X Without Passcode? 4 Easy Methods</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-infinix-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Infinix</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-amplifying-your-videos-music-integration-on-win11/"><u>In 2024, Amplifying Your Videos Music Integration on Win11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/local-tongue-mastery-uk-phrases-and-sayings/"><u>Local Tongue Mastery: UK Phrases & Sayings</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-text-in-motion-the-best-tracking-and-animation-tools/"><u>New 2024 Approved Text in Motion The Best Tracking and Animation Tools</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/powerful-outdoor-beaming-tool-reviewed-the-unstoppable-romer-charge-free-flashlight/"><u>Powerful Outdoor Beaming Tool Reviewed: The Unstoppable Romer Charge-Free Flashlight</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579854344-saying-i-love-you-in-over-50-countries-today/"><u>Saying 'I Love You' In Over 50 Countries Today!</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-simple-steps-to-erase-and-restore-your-ps4/"><u>The Simple Steps to Erase & Restore Your PS4</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/unveiling-the-least-memory-hungry-browsers-on-windows-platforms/"><u>Unveiling the Least Memory-Hungry Browsers on Windows Platforms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/viking-verbal-legacy-the-echoes-of-old-norse-speech/"><u>Viking Verbal Legacy: The Echoes of Old Norse Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pista-logia-eygnwmwn-gkreman/"><u>Πιστά Λόγια Ευγνώμων Γκρεμάν</u></a></li>
 </ul></div>
 

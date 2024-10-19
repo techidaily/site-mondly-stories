@@ -1,7 +1,7 @@
 ---
 title: "Mandarin Manners Made Simple: Learn to Thank in Chinese"
-date: 2024-08-27T22:53:51.807Z
-updated: 2024-08-28T22:53:51.807Z
+date: 2024-10-16T20:17:34.997Z
+updated: 2024-10-18T23:25:28.967Z
 tags:
   - speak
   - english
@@ -40,6 +40,13 @@ thumbnail: https://thmb.techidaily.com/3de73e34857cd0f78a7df37ffea6db9e6fc87f29f
 
  “Xiangxi, China” by Theodor Lundqvist©
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Thank you very much in Chinese
 
  Just like in any other language, the way you say “thank you” in Chinese can alter its meaning. If you say it harshly and keep a straight face, Chinese speakers may perceive your attitude as sarcastic. So smile, act as you would in your native country and nod respectfully (don’t bow as you would do in Japan). Even if your pronunciation is not perfect, your message will certainly be conveyed correctly.
@@ -57,9 +64,6 @@ Other variations include:
 * (I’m) really grateful! – 非常感谢你!_Fēi cháng gǎn xiè nǐ!_ (slightly more formal than the previous)
 * Thank you SO much! – 太谢谢你了! –_Tài xiè xiè nǐ le!_
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 3\. Thank you for… in Chinese
 
  Just as important as the simple, plain “thank you” is the “thank you for something” thank you. Because sometimes you need to be more specific. What are you thanking them for? So here’s how to thank someone in Chinese for the gift they gave you and some more [Chinese phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) that might come in handy next time you visit China.
@@ -76,13 +80,14 @@ Other variations include:
 ![xiexie chinese](https://edge.mondly.com/blog/wp-content/uploads/2019/10/xiexie-chinese-1024x682.jpg "Thank You In Chinese: Xièxiè And 12 Other Thank You Chinese Phrases 3")
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  “Jiaxing, China” by Jay©
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 4\. Other ways to express your gratitude in Chinese
 
  Depending on the social context, in some cases, you might want to vary your answers. For example, when someone compliments you, instead of saying 谢谢_xièxiè_ – which may sound a little arrogant, you could say 哪里哪里_nǎlǐ nǎlǐ_ . In English, that translates to “no, no” or “where, where” as in “you’re flattering me” or “you’re too kind”.
@@ -90,8 +95,12 @@ Other variations include:
  In fact, Chinese culture is known for its preference for modesty and humility. Deflecting a compliment rather than accepting it with a plain “thank you” is much more appreciated. Thus, another way to deflect a compliment (while secretly enjoying it) is to say 没有没有_méiyǒu méiyǒu_ – meaning “no, no, that’s nonsense”.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## BONUS: You’re welcome in Chinese
 
  If you want to respond to someone’s thanks with “you’re welcome” in Chinese, you can say 不客气_bù kèqì._
@@ -106,8 +115,12 @@ Other variations include:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Here’s how to speak Chinese in just 10 minutes a day
 
  It can be really tricky to master Chinese pronunciation if you don’t actively live in China. But with [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-3462&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-3462?mother%5Flang=en%5Fus?target%5Flang=zh&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-3462?mother%5Flang=en%5Fus?target%5Flang=zh) , the award-winning language learning app, **you can learn Chinese naturally with practical topics and authentic Chinese conversations** recorded by fluent voice artists so you can tackle day-to-day situations.
@@ -126,8 +139,6 @@ Other variations include:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -135,4 +146,22 @@ Other variations include:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-unlocking-the-potential-of-instagrams-sound-symbols-for-2024/"><u>[New] Unlocking the Potential of Instagram's Sound Symbols for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-weekly-essentials-the-best-of-igtv-for-2024/"><u>[New] Weekly Essentials The Best of IGTV for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-harmonize-your-preferences-how-to-create-an-engaging-youtube-playlist/"><u>[Updated] 2024 Approved Harmonize Your Preferences How to Create an Engaging YouTube Playlist</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-incognito-observer-of-online-chronicles/"><u>[Updated] 2024 Approved Incognito Observer of Online Chronicles</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-perfect-pairing-of-livestream-tech-top-recommendations-for-youtubers-for-2024/"><u>[Updated] Perfect Pairing of Livestream Tech Top Recommendations for Youtubers for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-masterful-methods-to-add-a-secure-link-to-your-tiktok-profile/"><u>2024 Approved Masterful Methods to Add a Secure Link to Your TikTok Profile</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/globalizations-tale-in-the-story-of-eng/"><u>Globalization's Tale in the Story of ENG</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hungarian-languages-for-romantic-dialogue/"><u>Hungarian Languages for Romantic Dialogue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saying-thanks-in-china-beyond-the-basics-of-xiexie/"><u>Saying Thanks in China: Beyond the Basics of Xièxiè</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/stir-up-sparkles-in-sicily-20plus-slang-and-phrase-guide/"><u>Stir Up Sparkles in Sicily: 20+ Slang & Phrase Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-definitive-list-of-93-crucial-spanish-commands-for-tours/"><u>The Definitive List of 93 Crucial Spanish Commands for Tours</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tongue-triumphs-perfect-your-accent-with-twisters/"><u>Tongue Triumphs: Perfect Your Accent With Twisters</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/two-ways-to-sync-contacts-from-nokia-c110-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Two Ways to Sync Contacts from Nokia C110 to Gmail | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/ultimate-choices-for-accurate-3ds-simulators-pc-edition-for-2024/"><u>Ultimate Choices for Accurate 3DS Simulators, PC Edition for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-winner-apples-new-app/"><u>Worldwide Winner: Apple's New App</u></a></li>
+</ul></div>
 

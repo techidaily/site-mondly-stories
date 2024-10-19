@@ -1,7 +1,7 @@
 ---
 title: "The Art of Formality: Expressing 'Bonjour' In French Culture"
-date: 2024-09-27T16:20:26.182Z
-updated: 2024-10-01T20:38:02.115Z
+date: 2024-10-16T17:55:07.452Z
+updated: 2024-10-19T01:12:31.019Z
 tags:
   - speak
   - english
@@ -38,28 +38,42 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  However, if you are in Quebec, you are free to use_Bon matin_ until 10 or 11 AM.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. “Good afternoon” in French –_Bon après-midi!_
 
  While it’s used less often than its brothers,_Bon après-midi_ is a nice twist to_Bonjour_ .
 
  But take notice! French speakers generally use it when they are saying goodbye, so you should follow their lead and avoid using it at the beginning of a conversation.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4\. “Good evening” in French –_Bonsoir!_
 
  The same as the_clasique Bonjour_ ,_Bonsoir_ is a universal greeting suitable for most social contexts. The only restriction is the moment of the day. So once the twilight settles in, it is safe to switch from_Bonjour_ to_Bonsoir_ !
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. “Good night” in French –_Bonne nuit!_
 
  Literally meaning “good night”,_Bonne nuit_ is used more as a “goodbye” than as a “hello”. So if you are spending time with your French friends,_Bonne nuit_ is a great way to let them them know you are retiring.
 
 ![french greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/11/french-greetings-scaled-722x960.jpg "How To Say Hello In French: 12 Useful French Greetings 2")
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  “French fashion” by Charles 🇵🇭©
 
@@ -68,13 +82,6 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
  Although it is not specific to face to face interactions,_Allô_ is still considered a greeting.
 
  Usually expressed with the raising tone of a question,_Allô_ is what you could say over the phone to check whether the person you are talking to is still on the other end of the line or not:_Allô?_
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 7\. Excuse me? –_Excusez-moi?_
 
@@ -88,29 +95,22 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  Or you can play it simple, follow the lead of the French speakers and answer directly with_Et toi?_ (“And you?”) since the_Ça va bien_ (“I’m good”) answer is usually implied.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 9\. What’s up? –_Ça va?_
 
  The English translation of_Ça va?_ , the little and cooler brother of_Comment ça va?_ , is “how’s it going” or literally “does it go?” and it can be used exactly the same like in the previous examples.
 
  The only slight difference is the level for formality associated of each phrase:_Ça va?_ is obviously more suitable for informal interactions with friends and family.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 10\. What’s up? –_Quoi de neuf?_
 
  Want to spice up and diversify your “ça-va”s? Go with the informal_Quoi de neuf_ that translates to “what’s up?” or “what’s new?”.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 11\. The cute Bonjour:_Coucou!_
 
@@ -119,13 +119,6 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
  Although extremely cute, you shouln’t use_Coucou_ in formal contexts. It would be a bit weird to greet your boss using_Coucou_ , wouldn’t it?
 
 ![bonjour](https://edge.mondly.com/blog/wp-content/uploads/2019/11/bonjour-scaled-960x641.jpg "How To Say Hello In French: 12 Useful French Greetings 3")
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  “Coucou! Is me! The Frenchie!” by Graham Holtshausen©
 
@@ -137,6 +130,13 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Here’s how to learn French in just 10 minutes a day
 
@@ -167,21 +167,14 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-screen-time-saviors-expert-evaluations-of-video-tech/"><u>[New] In 2024, Screen Time Saviors Expert Evaluations of Video Tech</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-leveraging-zoom-for-superior-skype-interactions-and-communication/"><u>[Updated] 2024 Approved Leveraging Zoom for Superior Skype Interactions & Communication</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-how-to-start-a-google-meet-on-laptops-and-mobile-for-2024/"><u>[Updated] How to Start a Google Meet on Laptops & Mobile for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-immersive-insight-amd-radeon-update/"><u>[Updated] In 2024, Immersive Insight AMD Radeon Update</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/windows-118/"><u>💻Windows 11の最高スクリーンレコーダー：画面キャプチャの達人8つを紹介しよう！</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-phantom-pitches-is-this-magical-talker-an-illusion-or-reality-explore-more-options/"><u>2024 Approved Phantom Pitches Is This Magical Talker an Illusion or Reality? Explore More Options</u></a></li>
-<li><a href="https://fox-place.techidaily.com/guide-restoring-removed-imessage-history-from-your-iphone/"><u>Guide: Restoring Removed iMessage History From Your iPhone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/high-ranking-asian-vernaculars-archive-access-swiftly/"><u>High-Ranking Asian Vernaculars: Archive, Access Swiftly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/intrepid-infatuations-through-film/"><u>Intrepid Infatuations Through Film</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learning-romanian-the-locally-developed-way/"><u>Learning Romanian, The Locally-Developed Way</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-made-my-language-journey-easier-and-more-effective-the-ultimate-10-tips/"><u>Mondly Made My Language Journey Easier and More Effective - The Ultimate 10 Tips</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-outshines-competitors-germanys-language-utopia/"><u>Mondly Outshines Competitors - Germany’s Language Utopia</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-turkeys-alphabet-an-intuitive-learning-resource-for-foreigners/"><u>Navigating Turkey's Alphabet: An Intuitive Learning Resource for Foreigners</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/resolving-audio-interruptions-from-bluetooth-devices-on-your-pc-with-windows-1110/"><u>Resolving Audio Interruptions From Bluetooth Devices on Your PC with Windows 11/10</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Realme 11 Pro+? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/your-israeli-itinerary-crucial-guidance-and-language-basics/"><u>Your Israeli Itinerary: Crucial Guidance and Language Basics</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-dissecting-the-emerging-trends-in-facebook-short-videos/"><u>[Updated] 2024 Approved Dissecting the Emerging Trends in Facebook Short Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-online-practices-for-rapid-language-proficiency/"><u>Essential Online Practices for Rapid Language Proficiency</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fixing-foneazy-mockgo-not-working-on-realme-c51-drfone-by-drfone-virtual-android/"><u>In 2024, Fixing Foneazy MockGo Not Working On Realme C51 | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-historical-imagery-unleashed-from-copyrights/"><u>In 2024, Historical Imagery Unleashed From Copyrights</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-asus-rog-phone-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Asus ROG Phone 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-youtube-celebs-gabbing-via-snapchat/"><u>In 2024, YouTube Celebs Gabbing via Snapchat</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-morning-chatter-expressing-good-morning-in-10-languages/"><u>International Morning Chatter: Expressing Good Morning in 10 Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/la-gran-exploracion-del-corazon-humano-en-espanol-de-las-narices-al-subterraneo/"><u>La Gran Exploración Del Corazón Humano en Español: De Las Narices Al Subterráneo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-new-words-the-pathway-to-pronunciation-in-germany/"><u>Navigating New Words: The Pathway to Pronunciation in Germany</u></a></li>
 </ul></div>
 

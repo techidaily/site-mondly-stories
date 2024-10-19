@@ -1,7 +1,7 @@
 ---
 title: "International Etiquette: Saying Thanks in 30 Languages (154)"
-date: 2024-08-27T22:58:32.371Z
-updated: 2024-08-28T22:58:32.371Z
+date: 2024-10-18T00:02:13.783Z
+updated: 2024-10-19T00:54:52.939Z
 tags:
   - speak
   - english
@@ -58,6 +58,13 @@ thumbnail: https://thmb.techidaily.com/a9441716968b4b370228db8f919eac0889d914a97
 
  “Thanks” by Hanny Naibaho©
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The origin of saying “thank you”
 
  The mere act of expressing gratitude sits at the core of human interaction, so it should be interesting to analyze it a bit more. As the [Oxford Dictionaries](https://en.oxforddictionaries.com/definition/thank%5Fyou) explain, “thank you” is “a polite expression used when acknowledging a gift, service, or compliment, or accepting or refusing an offer”. “Thank you” is basically the general expression of gratitude or politeness to someone for an act of kindness that he or she has done.
@@ -82,22 +89,12 @@ thumbnail: https://thmb.techidaily.com/a9441716968b4b370228db8f919eac0889d914a97
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
+<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## From 0 to conversational in over 40 languages
 
  Do you want to speak Spanish fluently fast? Or maybe French? Get [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6274&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6274&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6274) , the award-winning language learning app that will help you speak up to 41 languages.
@@ -119,8 +116,6 @@ Key features:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -128,4 +123,24 @@ Key features:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-information.techidaily.com/new-best-5-streamlined-online-convertors-for-gifs-to-video/"><u>[New] Best 5 Streamlined Online Convertors for GIFs to Video</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unlock-youtubes-small-screen-image-magic/"><u>[New] Unlock YouTube's Small Screen Image Magic</u></a></li>
+<li><a href="https://howto.techidaily.com/android-screen-stuck-general-xiaomi-civi-3-disney-100th-anniversary-edition-partly-screen-unresponsive-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Screen Stuck General Xiaomi Civi 3 Disney 100th Anniversary Edition Partly Screen Unresponsive | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-nokia-c12-pro-drfone-by-drfone-virtual-android/"><u>Does Life360 Notify When You Log Out On Nokia C12 Pro? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/horas-y-dias-ensenanza-diaria-en-espanol/"><u>Horas Y Días: Enseñanza Diaria en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jours-francais-sans-dimanche/"><u>Jours Français Sans Dimanche</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-farsi-ancient-insights-future-opportunities/"><u>Mastering Farsi: Ancient Insights, Future Opportunities</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/navigating-download-land-free-photo-frames/"><u>Navigating Download Land Free Photo Frames</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/overcoming-linguistic-misunderstandings-for-better-fluency/"><u>Overcoming Linguistic Misunderstandings for Better Fluency</u></a></li>
+<li><a href="https://article-helps.techidaily.com/pic-perfect-ranking-the-best-photo-stickering-apps-for-iphonesandroids/"><u>Pic Perfect Ranking the Best Photo Stickering Apps for iPhones/Androids</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-modern-vocabulary-guide-to-street-talk/"><u>The Modern Vocabulary Guide to Street Talk</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-italys-silent-communication-codes/"><u>Understanding Italy's Silent Communication Codes</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/unlock-the-secrets-of-maingear-zero-series-advanced-hidden-cabling-tech-in-new-premium-desktops-from-1399/"><u>Unlock the Secrets of Maingear Zero Series: Advanced Hidden Cabling Tech in New Premium Desktops From $1,399</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-frances-language-travelers-must-learn-phrases/"><u>Unlocking France's Language: Travelers' Must-Learn Phrases</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-free-game-downloads-the-top-10-websites-you-need-to-know/"><u>Updated Free Game Downloads The Top 10 Websites You Need to Know</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-htc-u23-phone-network-ready-by-drfone-android/"><u>What Is a SIM Network Unlock PIN? Get Your HTC U23 Phone Network-Ready</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-accolades-for-vocational-wordsmiths/"><u>Worldwide Accolades for Vocational Wordsmiths</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Principios Del Entendimiento Del Tiempo en Español
-date: 2024-10-06T20:27:59.357Z
-updated: 2024-10-12T18:06:58.918Z
+date: 2024-10-17T19:26:17.168Z
+updated: 2024-10-18T23:13:57.446Z
 tags:
   - speak
   - english
@@ -32,13 +32,6 @@ But first things first.
 
  In addition to the now well-known_**¿que hora es?**_ which literally translates to “what hour is it?”, you can also ask_**¿tiene hora?**_ which is literally “do you have the hour?”. Easy enough!
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## The basics of Spanish time
 
  To_decir la hora_ (“tell the time”) in Spanish, there are a few simple rules you’ll have to know.
@@ -64,13 +57,6 @@ But first things first.
 
 _**Nota bene:**_ If you prefer to use the 24-hour clock, you should say**_son las dieciséis_** **(“it’s 16:00”)** instead of **_son las cuatro_ (“it’s 4 o’clock p.m.”).** But that will require a little more studying on your part. Don’t worry though. Spanish numbers are just as easy as learning how to tell the time. You can master them with Mondly faster than you can say Jack Robinson. You can get started [here](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5345&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5345?mother%5Flang=en%5Fus?target%5Flang=es&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5345?mother%5Flang=en%5Fus?target%5Flang=es) .
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How do you say the time in Spanish after 30?
 
  Now, the time is not always on the hour. So how do you say “half past”, “quarter past” and “quarter to” in Spanish? There are only two new words you need to remember:_**media**_ and_**cuarto**_ .
@@ -87,7 +73,21 @@ Here are some examples:
 
 ![telling time in spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/06/telling-time-in-spanish-600x600.jpg "How To Tell Time In Spanish - A Complete Guide For Beginners 3")
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
+  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Telling time in Spanish – a visual guide
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Hour + minutes in Spanish time
 
@@ -100,6 +100,13 @@ Here are some examples:
 * _Son las ocho y cuarto._ (“it’s a quarter past eight”)
 * _Son las ocho y quince._ (“it’s eight and fifteen minutes”)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Different ways of telling time in Spanish
 
  There are three formulas of telling time in Spanish. Here are different ways of telling it’s 3:10:
@@ -111,10 +118,10 @@ Here are some examples:
  Which one do you prefer? Additionally, if we also count it_cuarto_ and_media_ , there are no less than four different ways to tell the time in Spanish. And you’ve just mastered them all!
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to indicate the time of day in Spanish
@@ -130,13 +137,6 @@ Here are some examples:
 * _tarde_ – in the afternoon
 
  To indicate that an event occurs at a specific time, use the formula **a +_la(s)_ \+ time** :_La clase de español empieza a las nueve_ – “The Spanish class begins at 9”.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Other useful time phrases in Spanish
 
@@ -198,16 +198,21 @@ Here are some examples:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://discord-videos.techidaily.com/new-in-2024-guide-on-populating-emojis-in-discord-user-status-field/"><u>[New] In 2024, Guide on Populating Emojis in Discord User Status Field</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/nlocking-youtubes-central-hub-for-video-crafting-for-2024/"><u>[New] Unlocking YouTube's Central Hub for Video Crafting for 2024</u></a></li>
-<li><a href="https://apple-account.techidaily.com/guide-on-how-to-remove-apple-id-from-iphone-12-pro-max-by-drfone-ios/"><u>Guide on How To Remove Apple ID From iPhone 12 Pro Max</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>In 2024, How to Watch Hulu Outside US On Oppo Find N3 Flip | Dr.fone</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-iphones-panoramic-videos-explained-for-fb-sharing/"><u>In 2024, IPhone's Panoramic Videos Explained for FB Sharing</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguafutura-embracing-language-learning-at-expo-dubai-2020/"><u>LinguaFutura: Embracing Language Learning at Expo Dubai 2020</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speaking-to-the-soul-africas-multilingual-identity/"><u>Speaking to the Soul: Africa’s Multilingual Identity</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ten-years-of-connectivity-and-growth-at-mondly/"><u>Ten Years of Connectivity and Growth at Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/universal-vernacular-key-skills-in-global-communication/"><u>Universal Vernacular: Key Skills in Global Communication</u></a></li>
-<li><a href="https://techtrends.techidaily.com/watch-dragon-ball-episode-by-episode-a-comprehensive-guide-for-beginners/"><u>Watch Dragon Ball Episode by Episode - A Comprehensive Guide For Beginners</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/why-take-up-the-challenge-of-learning-a-new-language-at-40-and-beyond-four-compelling-points/"><u>Why Take Up the Challenge of Learning a New Language at 40 and Beyond? Four Compelling Points</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-expert-psd-text-framing/"><u>[Updated] Expert PSD Text Framing</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-tweeted-cinematics-from-video-to-wavmp3-for-2024/"><u>[Updated] Tweeted Cinematics From Video to WAV/MP3 for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-top-secrets-to-improve-your-gopro-videos/"><u>2024 Approved Top Secrets to Improve Your GoPro Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accelerate-your-learning-of-japanese-digits/"><u>Accelerate Your Learning of Japanese Digits</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-vpna-to-fake-gps-location-on-nubia-red-magic-9-proplus-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use VPNa to Fake GPS Location On Nubia Red Magic 9 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-gps-on-infinix-note-30-5g-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>In 2024, How To Fake GPS On Infinix Note 30 5G For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-educators-day-multilingual-commemoration/"><u>International Educators' Day: Multilingual Commemoration</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/recorder-at-zero-free-capture-of-your-android-content-for-2024/"><u>Recorder at Zero Free Capture of Your Android Content for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sharpen-articulation-skills-100-engaging-tongue-twisters/"><u>Sharpen Articulation Skills: 100 Engaging Tongue Twisters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-by-step-japan-study-independent-paths-and-free-tools/"><u>Step-By-Step Japan Study: Independent Paths and Free Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-foundations-of-hiragana-and-katakana-systems/"><u>The Foundations of Hiragana and Katakana Systems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-power-of-two-tongues-essential-bilingual-gains/"><u>The Power of Two Tongues: Essential Bilingual Gains</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-recover-deleted-contacts-on-tecno-without-backup-by-fonelab-android-recover-contacts/"><u>The way to recover deleted contacts on Tecno without backup.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tracing-dutch-linguistics-origin-and-evolution/"><u>Tracing Dutch Linguistics: Origin and Evolution</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/ultimate-guide-to-reviving-your-airpods-when-and-how-to-perform-a-factory-reset-cnet-guides/"><u>Ultimate Guide to Reviving Your AirPods: When & How To Perform A Factory Reset | CNET Guides</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/your-next-best-source-for-world-exploration-for-2024/"><u>Your Next-Best Source for World Exploration for 2024</u></a></li>
 </ul></div>
 

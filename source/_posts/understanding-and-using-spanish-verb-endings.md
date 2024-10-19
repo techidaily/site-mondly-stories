@@ -1,7 +1,7 @@
 ---
 title: Understanding and Using Spanish Verb Endings
-date: 2024-10-12T01:21:50.897Z
-updated: 2024-10-13T00:18:26.741Z
+date: 2024-10-12T20:15:06.578Z
+updated: 2024-10-18T22:00:16.243Z
 tags:
   - speak
   - english
@@ -64,6 +64,13 @@ Spanish verbs conjugations make sense now, don’t they?
 
  Before moving on to irregular Spanish verbs and more examples, let’s also explore**the past and future of regular Spanish verbs** . What do you think? Wouldn’t that be useful?
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Spanish Preterite Tense – Regular Preterite Verb Endings
 
 **The Spanish preterite tense** or_el pretérito_ is the equivalent of the**simple past tense** in English. Naturally, the same as the simple past tense,**the Spanish preterite tense** is used to describe actions completed at some point in the past.
@@ -107,6 +114,13 @@ And the conjugation of comer will look like this:
 
  Keep in mind the fact that the first person singular (_yo_), third person singular (_él, ella_), and second person formal singular (_usted_) forms use tildes on the final letters of the verb endings. And one little tilde can make all the difference in the world! If you don’t know yet how accents work, take a look at our article on **[Spanish accents and how to master them all](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .**
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Spanish Simple Future Tense – Regular Simple Future Verb Endings
 
  In Spanish, there are two ways to form the future tense:**the informal future tense** (the verb_ir_ \+ a + infinitive ->_voy a comer_) and**the simple future tense,** which we will illustrate in this article.
@@ -140,16 +154,10 @@ And the conjugation of comer will look like this:
 * _Ellos / Ellas / Ustedes escrib**irán**_
 
 <!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Spanish verbs: how to master irregular Spanish verbs
@@ -157,13 +165,6 @@ And the conjugation of comer will look like this:
  Remember how you managed to learn**irregular English verbs** ? Well, there are tricks that you can use, but the truth is that, in time,**irregular Spanish verbs** will just… come to you. No joke. Once you get used to the language and use it all the time, your brain will start making connections.
 
  As you already know,**irregular verbs** are “rebel” verbs that follow no regular set of rules. Statistically, in Spanish, almost all verbs ending in_\-ar_ are regular, almost all verbs ending in_\-er_ are irregular and less than half of all verbs ending in_\-ir_ are irregular. So, let’s disentangle this complicated situation of**irregular Spanish verbs** and look for some patterns to help us learn faster.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. Stem-Changing Verbs in Spanish
 
@@ -220,10 +221,10 @@ And the conjugation of comer will look like this:
 _Adquirir_ (to acquire) and_inquirir_ (to inquire) are just as rebellious because to the final letter “i” of their stem, we will need to add an “e”. Thus, “I acquire” will be “Yo adquiero”.
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Spanish verbs with an irregular “yo” form
@@ -249,13 +250,6 @@ _Adquirir_ (to acquire) and_inquirir_ (to inquire) are just as rebellious becaus
  –_salir_ (to exit) –_Yo salgo_ ,_Tú sales_
  –_dar_ (to give) –_Yo doy_ ,_Tú das_
  –_ver_ (to see) –_Yo veo_ ,_Tú ves_
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Spanish verbs conjugation examples –_ser, estar, ir_
 
@@ -348,19 +342,14 @@ Well… this is it! This is our full lesson on**Spanish verbs.**
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-2023-8-most-viewed-videos-on-facebook/"><u>[New] 2024 Approved 2023 | 8 Most Viewed Videos on Facebook</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-tiktok-sound-comprerancy-on-muted-video-segments/"><u>[Updated] TikTok Sound Comprerancy on Muted Video Segments</u></a></li>
-<li><a href="https://discover-excellent.techidaily.com/avoid-common-mistakes-learn-how-to-orient-your-flip-book-ideally-insights-from-flipbuildercom-experts/"><u>Avoid Common Mistakes - Learn How to Orient Your Flip Book Ideally, Insights From FlipBuilder.com Experts</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/building-confidence-with-second-language-education/"><u>Building Confidence with Second Language Education</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/chinese-graciousness-deciphering-xiexie-and-related-terms/"><u>Chinese Graciousness: Deciphering Xièxiè and Related Terms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/completar-tu-vocabulario-semanalmente/"><u>Completar Tu Vocabulario Semanalmente</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/crafting-a-tapestry-of-shared-experiences-regardless-of-language/"><u>Crafting a Tapestry of Shared Experiences, Regardless of Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/decoding-language-top-10-benefits-of-bilingualism/"><u>Decoding Language: Top 10 Benefits of Bilingualism</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/expedite-your-content-with-smart-title-tools-for-2024/"><u>Expedite Your Content With Smart Title Tools for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-top-7-skype-hacker-to-hack-any-skype-account-on-your-infinix-smart-8-hd-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Skype Hacker to Hack Any Skype Account On your Infinix Smart 8 HD | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/sim-unlock-tecno-spark-20-proplus-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>Sim Unlock Tecno Spark 20 Pro+ Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
-<li><a href="https://discover-bytes.techidaily.com/step-by-step-tutorial-for-saving-tvn24-broadcasts-as-mp4-files-on-your-computer/"><u>Step-by-Step Tutorial for Saving TVN24 Broadcasts as MP4 Files on Your Computer</u></a></li>
-<li><a href="https://video-capture.techidaily.com/top-5-cost-effective-video-editing-software-for-gamers/"><u>Top 5 Cost-Effective Video Editing Software (For Gamers)</u></a></li>
-<li><a href="https://win-answers.techidaily.com/troubleshooting-guide-for-fixing-windows-grounded-issues-on-pc/"><u>Troubleshooting Guide for Fixing Windows 'Grounded' Issues on PC</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridge-cultures-master-more-languages/"><u>Bridge Cultures: Master More Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-daily-gesture-lingo-in-italy/"><u>Decoding Daily Gesture Lingo in Italy</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-oneplus-12-by-phone-number-drfone-by-drfone-virtual-android/"><u>How to Track OnePlus 12 by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-itel-p55plus-phone-without-password-by-drfone-android/"><u>In 2024, How To Unlock Itel P55+ Phone Without Password?</u></a></li>
+<li><a href="https://win-studio.techidaily.com/norton-ghost-substitute-revolutionnaire-aomei-backupper-standard-votre-guide-pour-la-sauvegarde-facile-et-gratuite/"><u>Norton Ghost Substitute Révolutionnaire - AOMEI Backupper Standard, Votre Guide Pour La Sauvegarde Facile Et Gratuite !</u></a></li>
+<li><a href="https://video-capture.techidaily.com/superior-screen-reporter-optimal-chromebook-choice/"><u>Superior Screen Reporter Optimal Chromebook Choice</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-spelling-blunder-index-for-english-proficiency/"><u>The Ultimate Spelling Blunder Index for English Proficiency</u></a></li>
+<li><a href="https://program-issues.techidaily.com/ultimate-guide-solve-your-rainbow-six-siege-stuttering-issues-with-these-techniques/"><u>Ultimate Guide: Solve Your Rainbow Six Siege Stuttering Issues with These Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/uncovering-the-realities-behind-effective-language-education/"><u>Uncovering the Realities Behind Effective Language Education</u></a></li>
 </ul></div>
 

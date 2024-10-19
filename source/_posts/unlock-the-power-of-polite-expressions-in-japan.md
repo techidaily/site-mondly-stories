@@ -1,7 +1,7 @@
 ---
 title: Unlock the Power of Polite Expressions in Japan
-date: 2024-09-24T22:14:23.012Z
-updated: 2024-10-02T00:21:21.115Z
+date: 2024-10-16T21:15:08.248Z
+updated: 2024-10-19T00:22:17.911Z
 tags:
   - speak
   - english
@@ -45,22 +45,22 @@ thumbnail: https://thmb.techidaily.com/2ba6e093c71356d417ecac5da46572ca39801b84e
 
  Curious about why there are multiple types of characters in Japanese? Here’s everything there is to know about the [Japanese writing system](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
-<!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **How to say “hello” on the phone in Japanese: moshi moshi (もしもし)**
 
  Unlike English, which uses the same “hello” for a lot of different social contexts, the Japanese language has a dedicated “hello” for answering the phone:**moshi moshi (もしもし).** Doesn’t that sound cute?
+
+<!-- affiliate ads begin -->
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 2\. Good morning in Japanese and other relevant greetings
 
@@ -97,7 +97,21 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![goodbye in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/goodbye-in-japanese-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 4")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  “See you soon, human” by Alain Pham©
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 4\. “Thank you” in Japanese and other polite phrases that you should know
 
@@ -124,10 +138,10 @@ This greeting is used both as a “hello” and as a “goodbye”.
 ![arigato](https://edge.mondly.com/blog/wp-content/uploads/2019/08/arigato-1024x706.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 5")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  “Kyoto, Japan” by Andre Benz©
@@ -147,13 +161,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
  – 30-degree bows are for people you just met or are of a higher social status than you;
 
  – 45-degree bows are used for greetings only if you meet a very important person like the Emperor or the Prime Minister.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Bonus: basic conversation in Japanese
 
@@ -175,13 +182,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
 * No problem. – _Daijōbudesu._
 
 ![sayonara](https://edge.mondly.com/blog/wp-content/uploads/2019/08/sayonara-1024x680.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 6")
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  “Tenryu-ji Temple, Kyōto-shi, Japan” by Masaaki Komori©
 
@@ -215,19 +215,22 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-maximizing-meeting-impact-with-effective-snap-usage/"><u>[New] In 2024, Maximizing Meeting Impact with Effective Snap Usage</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-the-insiders-guide-to-creating-stunning-iphone-hdr-photos/"><u>[New] The Insider's Guide to Creating Stunning iPhone HDR Photos</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-teach-you-to-transfer-files-from-vivo-x-fold-2-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways To Teach You To Transfer Files from Vivo X Fold 2 to Other Android Devices Easily | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-7-ways-to-unlock-a-locked-honor-90-pro-phone-by-drfone-android/"><u>In 2024, 7 Ways to Unlock a Locked Honor 90 Pro Phone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-vivo-y02t-drfone-by-drfone-virtual-android/"><u>In 2024, Fake the Location to Get Around the MLB Blackouts on Vivo Y02T | Dr.fone</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-refine-your-recordings-the-art-of-sound-reduction/"><u>In 2024, Refine Your Recordings The Art of Sound Reduction</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-landscapes-evolved-mondlylanguages-bold-journey/"><u>Language Landscapes Evolved: MondlyLanguages' Bold Journey</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/pro-tips-for-streaming-and-screening-netflix-on-mac-for-2024/"><u>Pro-Tips for Streaming & Screening Netflix on Mac for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/revamped-learning-pearsons-gsl-with-mondly-precision/"><u>Revamped Learning: Pearson's GSL with Mondly Precision</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/timecode-made-easy-top-online-and-mobile-calculators/"><u>Timecode Made Easy Top Online and Mobile Calculators</u></a></li>
-<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-honor-x7b-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Honor X7b | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-101-croatian-phrases-your-travel-guides-essential-toolkit/"><u>Top 101 Croatian Phrases: Your Travel Guide's Essential Toolkit</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/trendy-5-tech-based-aids-for-language-schools/"><u>Trendy 5 Tech-Based Aids for Language Schools</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/worldwide-who-are-the-major-francophones-analysis/"><u>Worldwide, Who Are The Major Francophones? Analysis</u></a></li>
+<li><a href="https://win-answers.techidaily.com/guide-stop-halo-3-from-suddenly-closing-pc-gaming-fixes-at-hand/"><u>[Guide] Stop Halo 3 From Suddenly Closing – PC Gaming Fixes at Hand</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-professional-photographers-pick-of-edits/"><u>[New] 2024 Approved Professional Photographers' Pick of Edits</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-easy-steps-to-audit-your-favorite-tiktok-sessions-for-2024/"><u>[New] Easy Steps to Audit Your Favorite TikTok Sessions for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-depth-premiere-pro-fs-view-techniques/"><u>[New] In-Depth Premiere Pro FS View Techniques</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-cutting-edge-methods-to-record-and-save-lectures-on-imac/"><u>[Updated] 2024 Approved Cutting-Edge Methods to Record and Save Lectures on iMac</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/advance-your-teaching-with-these-top-5-language-apps/"><u>Advance Your Teaching with These Top 5 Language Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/echoes-in-english-the-ever-present-bards-speech/"><u>Echoes in English: The Ever-Present Bard's Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-vs-french-assessing-linguistic-practicality/"><u>German vs French: Assessing Linguistic Practicality</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-show-wi-fi-password-on-vivo-y78plus-by-drfone-android/"><u>How to Show Wi-Fi Password on Vivo Y78+</u></a></li>
+<li><a href="https://common-error.techidaily.com/master-the-art-of-reactivating-bluetooth-in-windows-11-effective-tips-inside/"><u>Master the Art of Reactivating Bluetooth in Windows 11: Effective Tips Inside!</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/mastering-the-openai-api-a-comprehhemous-tutorial-for-infinite-applications/"><u>Mastering the OpenAI API: A Comprehhemous Tutorial for Infinite Applications</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-cupids-arrow-say-i-love-you-more-ways/"><u>Multilingual Cupid’s Arrow: Say 'I Love You' More Ways!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/nombre-de-bichos-en-espanol-60-puntos-clave/"><u>Nombre De Bichos en Español: 60 Puntos Clave</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/shattering-myths-the-path-to-genuine-multilingual-skills/"><u>Shattering Myths: The Path to Genuine Multilingual Skills</u></a></li>
+<li><a href="https://howto.techidaily.com/tecno-spark-go-2023-camera-not-working-unexpected-error-fix-it-now-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Tecno Spark Go (2023) Camera Not Working Unexpected Error? Fix It Now | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/turkish-korean-conversation-mysteries-unraveled/"><u>Turkish-Korean Conversation Mysteries Unraveled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/two-anniversary-mondlylanguages-unforgettable-aspirations/"><u>Two Anniversary: MondlyLanguages, Unforgettable Aspirations</u></a></li>
 </ul></div>
 

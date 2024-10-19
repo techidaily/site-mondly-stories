@@ -1,7 +1,7 @@
 ---
 title: "Multilingual Thanks: Techniques for 30 Languages (156)"
-date: 2024-08-27T22:53:31.132Z
-updated: 2024-08-28T22:53:31.132Z
+date: 2024-10-16T17:09:29.695Z
+updated: 2024-10-19T00:46:22.091Z
 tags:
   - speak
   - english
@@ -58,6 +58,13 @@ thumbnail: https://thmb.techidaily.com/6079315b4a8f6d3d142f95147af6d1bac63be2253
 
  “Thanks” by Hanny Naibaho©
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The origin of saying “thank you”
 
  The mere act of expressing gratitude sits at the core of human interaction, so it should be interesting to analyze it a bit more. As the [Oxford Dictionaries](https://en.oxforddictionaries.com/definition/thank%5Fyou) explain, “thank you” is “a polite expression used when acknowledging a gift, service, or compliment, or accepting or refusing an offer”. “Thank you” is basically the general expression of gratitude or politeness to someone for an act of kindness that he or she has done.
@@ -82,8 +89,12 @@ thumbnail: https://thmb.techidaily.com/6079315b4a8f6d3d142f95147af6d1bac63be2253
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
+  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## From 0 to conversational in over 40 languages
 
  Do you want to speak Spanish fluently fast? Or maybe French? Get [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6274&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6274&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6274) , the award-winning language learning app that will help you speak up to 41 languages.
@@ -105,8 +116,6 @@ thumbnail: https://thmb.techidaily.com/6079315b4a8f6d3d142f95147af6d1bac63be2253
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -114,4 +123,24 @@ thumbnail: https://thmb.techidaily.com/6079315b4a8f6d3d142f95147af6d1bac63be2253
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-identifying-key-windows-movie-maker-alternatives/"><u>[New] In 2024, Identifying Key Windows Movie Maker Alternatives</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-smooth-volume-reduction-a-system-friendly-approach/"><u>[Updated] In 2024, Smooth Volume Reduction A System-Friendly Approach</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-brightening-up-your-videography-gopro-fog-free-techniques/"><u>2024 Approved Brightening Up Your Videography GoPro Fog-Free Techniques</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-and-update-sata-controller-drivers-on-windows-with-simple-instructions/"><u>Download and Update SATA Controller Drivers on Windows with Simple Instructions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-cocoa-conversations-learn-chocolate-in-30plus-tongues/"><u>Global Cocoa Conversations: Learn Chocolate in 30+ Tongues</u></a></li>
+<li><a href="https://fox-zaraz.techidaily.com/how-to-resolve-code-0xc0000221-on-your-windows-11-pc-expert-fixes/"><u>How to Resolve Code 0Xc0000221 on Your Windows 11 PC – Expert Fixes</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-google-pixel-fold-pin-codepattern-lockpassword-by-drfone-android/"><u>In 2024, How to Unlock Google Pixel Fold PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-mastering-snapchat-for-business-success/"><u>In 2024, Mastering Snapchat for Business Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-american-versus-old-world-portuguese-buttons/"><u>Latin American Versus Old World Portuguese Buttons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/perfezionamento-dei-numeri-italiani-1-mille-e-oltre/"><u>Perfezionamento Dei Numeri Italiani: 1 - Mille E Oltre</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/russian-cyrillic-sounds-a-practical-guide/"><u>Russian Cyrillic Sounds: A Practical Guide</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/smart-choices-best-vimeo-video-downloader-apps-for-2024/"><u>Smart Choices Best Vimeo Video Downloader Apps for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/start-in-german-numbers-erlernen-sie-1-100-schrittweise/"><u>Start in German Numbers: Erlernen Sie 1-100 Schrittweise</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-triad-of-language-schools-effortlessly-converse-in-new-languages/"><u>Top Triad of Language Schools: Effortlessly Converse in New Languages</u></a></li>
+<li><a href="https://fox-sure.techidaily.com/top-ranking-digital-marketing-webinars-and-e-learning-courses-by-massmail/"><u>Top-Ranking Digital Marketing Webinars & E-Learning Courses by Massmail</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-complexity-overcoming-the-most-challenging-languages/"><u>Unlocking Complexity: Overcoming the Most Challenging Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-multilingual-magic-of-saint-nick/"><u>Unveiling The Multilingual Magic of Saint Nick</u></a></li>
+</ul></div>
 

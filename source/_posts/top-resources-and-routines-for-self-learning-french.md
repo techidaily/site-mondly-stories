@@ -1,7 +1,7 @@
 ---
 title: Top Resources & Routines for Self-Learning French
-date: 2024-08-27T22:54:41.087Z
-updated: 2024-08-28T22:54:41.087Z
+date: 2024-10-12T16:50:59.003Z
+updated: 2024-10-18T18:38:17.510Z
 tags:
   - speak
   - english
@@ -52,19 +52,12 @@ thumbnail: https://thmb.techidaily.com/bfb1d21dc7d722196c5d9970ee836e32f9c269de5
 
  “Jardin des Curiosités, Lyon, France” by Léonard Cotte©
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 3\. Use flashcards for those French words that don’t stick
 
  Some French words just – won’t – stick. It’s crazy how stubborn they are! Lucky for you, there are ways to literally glue these words into your brain and one of the handiest ideas is flashcards.
 
  Start by identifying the words or [phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) that won’t stick and write them down on sticky notes (ironic!). Then put them by the bed, in the kitchen, in the bathroom or wherever you spend the most time during a day. Next thing you know, the same French words you used to forget will now follow you everywhere.
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 4\. Train your ears with French movies, music or videos
 
  Has it ever happened to you to spend time in another country and then hear people at home speak the foreign language you got used to although they weren’t doing so? Strangely enough, that was your brain after it got used to the language you kept hearing. After it accommodates, your brain changes its expectations regarding the sounds that surround you. Isn’t that amazing?
@@ -74,8 +67,12 @@ thumbnail: https://thmb.techidaily.com/bfb1d21dc7d722196c5d9970ee836e32f9c269de5
  Need some French music ideas? Here’s one from [Mommy](https://www.imdb.com/title/tt3612616/) , a brilliant film partially spoken in French:
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 5\. Talk to yourself in French
 
  That’s exactly right. Not by yourself. To yourself. That may sound a little crazy, but expressing your thoughts in French can help you master the language faster. The idea is to be able to form a line of thought directly into the French language. Just like you would in a conversation in French.
@@ -83,8 +80,12 @@ thumbnail: https://thmb.techidaily.com/bfb1d21dc7d722196c5d9970ee836e32f9c269de5
  If you don’t have any fluent French friends to practice with, use your imagination! This will help you understand your limits and work more exactly where you need it.
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Bonus tip: Stay positive and book a trip to France ASAP
 
  These methods will work ten times better if you remain positive. Now you know what’s the best way to learn French. The rest is up to you and you can do it! Start by saying_Je peux le faire! Je peux commencer à parler le français couramment!_ (“I can do it! I can start speaking French fluently!”).
@@ -92,8 +93,12 @@ thumbnail: https://thmb.techidaily.com/bfb1d21dc7d722196c5d9970ee836e32f9c269de5
 ![best way to learn French online](https://edge.mondly.com/blog/wp-content/uploads/2019/10/best-way-to-learn-french-online-1024x554.jpg "The Best Way To Learn French At Home 4")
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  “Valloire, France” by Marc Guellerin
 
  And finally… book your trip to France already! What better ways to celebrate becoming conversational in French than traveling to a country where it is spoken? Oh, you’ve been to Paris? No problem. There’s even more to see. The beauty of the French lands is endless. Many people argue that traveling is expensive, but that’s not entirely true. If you plan ahead, you will definitely be able to find an affordable deal. Just keep your eyes on the offers!
@@ -106,8 +111,18 @@ thumbnail: https://thmb.techidaily.com/bfb1d21dc7d722196c5d9970ee836e32f9c269de5
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Ready to get your French to the next level?
 
 [Download Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-3480&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-3480?mother%5Flang=en%5Fus?target%5Flang=fr&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-3480?mother%5Flang=en%5Fus?target%5Flang=fr) , practice French daily and never give up.
@@ -122,8 +137,6 @@ _Bonne chance!_
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -131,4 +144,16 @@ _Bonne chance!_
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-tips.techidaily.com/updated-buy-smart-top-picks-for-high-definition-21-hdmi-screens/"><u>[Updated] Buy Smart Top Picks for High-Definition 2.1 HDMI Screens</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-navigating-through-video-editing-landscape-with-movies-maker-on-windows-8/"><u>In 2024, Navigating Through Video Editing Landscape with Movies Maker on Windows 8</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/los-fundamentos-del-sistema-de-colores/"><u>Los Fundamentos Del Sistema De Colores</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-gratis-ukrainian-lessons-galore/"><u>Mondly: Gratis Ukrainian Lessons Galore</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/solved-resolving-connection-problems-in-your-windows-e7-network-interface-controller/"><u>Solved: Resolving Connection Problems in Your Windows E7 Network Interface Controller</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solving-the-volume-is-dirty-issue-understanding-error-0x80071ac3/"><u>Solving the 'Volume Is Dirty' Issue - Understanding Error 0X80071AC3</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-language-of-thankfulness-common-chinese-phrases/"><u>The Language of Thankfulness: Common Chinese Phrases</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/top-rated-affordable-wireless-bluetooth-sound-systems-in-2e24/"><u>Top-Rated Affordable Wireless Bluetooth Sound Systems in 2E24</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/two-years-one-bold-dream-mondlylanguages-story/"><u>Two Years, One Bold Dream - MondlyLanguages Story</u></a></li>
+</ul></div>
 

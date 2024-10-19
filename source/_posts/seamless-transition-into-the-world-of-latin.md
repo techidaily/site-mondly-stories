@@ -1,7 +1,7 @@
 ---
 title: Seamless Transition Into the World of Latin
-date: 2024-08-27T22:58:43.187Z
-updated: 2024-08-28T22:58:43.187Z
+date: 2024-10-12T17:56:24.820Z
+updated: 2024-10-18T17:57:02.642Z
 tags:
   - speak
   - english
@@ -40,6 +40,13 @@ _Ergo_ (“therefore”), the easiest way to learn Latin online is now literally
 
 _Ergo_ , history makes Latin the backbone of many present-day languages and studying it could help you gain valuable insight into the infrastructure of many other languages.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Latin grammar and the Latin alphabet
 
  The Latin alphabet that many languages use today evolved from the visually similar Etruscan alphabet, which – in turn – evolved from the Cumaean Greek version of the Greek alphabet, which was itself descended from the Phoenician alphabet that derived from Egyptian hieroglyphics. As a result of Etruscans ruling early Rome, over time, their alphabet developed into the Latin alphabet that many centuries later became the writing system we all know today.
@@ -49,8 +56,12 @@ A fascinating origin story, isn’t it?
  With three distinct genders, up to seven noun cases, five declensions, four verb conjugations, six tenses, three persons, three moods, two voices, two or three aspects and two numbers, Latin grammar may seem complicated. But once you start your Latin classes with Mondly and learn to read Latin, you’ll be surprised how fast you can actually master this language due to the knowledge you already possess.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Common Latin phrases and expressions we still use today
 
  **Far from being a dead language, Latin is very much alive in our day-to-day conversations.** _Carpe diem_ ,_et cetera_ ,_et alii_ ,_habemus papam_ ,_in vitro_ ,_magna cum laude_ ,_curriculum vitae_ and_mea culpa_ are just a few of the [Latin phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) we still use today.
@@ -78,8 +89,12 @@ A fascinating origin story, isn’t it?
 * _amor vincit omnia_ – love conquers all (is also the name of a painting by the Italian Baroque artist Caravaggio)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Reasons to learn Latin
 
  Forget about the Latin dictionary and the countless hours of studying Latin grammar. **The best way to learn Latin is online,[for free with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4492&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4492?mother%5Flang=en%5Fus?target%5Flang=la&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4492?mother%5Flang=en%5Fus?target%5Flang=la) .**
@@ -98,8 +113,18 @@ A fascinating origin story, isn’t it?
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Start learning Latin today
 
  The Latin language is no longer is secret code meant only for scholars or the Catholic Church. Starting right now, you can learn Latin with Mondly using bite-sized lessons and practical topics to help you discover how Romans conversed in their day-to-day life.
@@ -114,8 +139,6 @@ A fascinating origin story, isn’t it?
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -123,4 +146,26 @@ A fascinating origin story, isn’t it?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tech-recovery.techidaily.com/fixed-snipping-tool-not-working-on-windows-1011/"><u>[Fixed] Snipping Tool Not Working on Windows 10/11</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-mastering-the-skill-how-to-securely-record-on-whatsapp/"><u>[Updated] In 2024, Mastering the Skill How to Securely Record on WhatsApp</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-best-free-youtube-comment-finder-you-should-try/"><u>2024 Approved Best Free YouTube Comment Finder You Should Try</u></a></li>
+<li><a href="https://win-answers.techidaily.com/dependence-on-security-infrastructure/"><u>Dependence on Security Infrastructure</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/exploring-chatgpt-transforming-ideas-into-ai-generated-reality/"><u>Exploring ChatGPT: Transforming Ideas Into AI-Generated Reality</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Realme 12 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-oppo-a18-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>How to Unlock Oppo A18 Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-special-features-virtual-location-on-infinix-note-30-5g-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Infinix Note 30 5G? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-love-jargon-for-a-special-day/"><u>International Love Jargon for a Special Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-bridge-salutations-across-nations/"><u>Language Bridge: Salutations Across Nations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-in-flux-popular-slang-words-and-their-meanings/"><u>Language in Flux: Popular Slang Words and Their Meanings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-the-art-of-croatian-conversation-travels-must-have-skillset/"><u>Mastering the Art of Croatian Conversation: Travel's Must-Have Skillset</u></a></li>
+<li><a href="https://review-topics.techidaily.com/motorola-moto-g73-5g-can-t-play-mp4-video-files-by-aiseesoft-video-converter-play-mp4-on-android/"><u>Motorola Moto G73 5G can't play MP4 video files</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/practica-controlada-como-decir-colores/"><u>Práctica Controlada: Cómo Decir Colores</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rhythmic-recall-enhancing-memory-with-musical-language-lessons/"><u>Rhythmic Recall: Enhancing Memory with Musical Language Lessons</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/streamlining-windows-photos-with-customized-audio-and-visual-settings/"><u>Streamlining Windows Photos with Customized Audio & Visual Settings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-dance-of-dialogues-across-dialectal-divides/"><u>The Dance of Dialogues Across Dialectal Divides</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/traveling-to-israel-tips-and-phrases-for-your-trip/"><u>Traveling To Israel? Tips And Phrases For Your Trip</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-future-of-user-assistance-with-mondlys-qanda-update/"><u>Unveiling the Future of User Assistance with Mondly’s Q&A Update</u></a></li>
+</ul></div>
 

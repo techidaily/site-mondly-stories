@@ -1,7 +1,7 @@
 ---
 title: "Launchpad: Arabic for New Learners"
-date: 2024-09-28T20:49:26.151Z
-updated: 2024-10-01T16:19:14.187Z
+date: 2024-10-16T23:46:15.335Z
+updated: 2024-10-19T00:07:48.616Z
 tags:
   - speak
   - english
@@ -30,28 +30,15 @@ thumbnail: https://thmb.techidaily.com/4af354c0c4f31e85da7815990d834961f2e7342ec
 
  So, since the elephant is out of the room, you’re ready to [learn Arabic online](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  ! By the way, according to the US Foreign Service Institute, you’ll need roughly 88 weeks or approximately 2200 hours in order to reach fluency. Follow the tips below and you might arrive at your destination a lot faster!
 
-<!-- affiliate ads begin -->
-<span id="1492813">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Step by step guide
 
 I’d really stick by these if I were you!
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
+  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Decision time
@@ -63,10 +50,10 @@ I’d really stick by these if I were you!
 ![arabic bead necklace](https://edge.mondly.com/blog/wp-content/uploads/2022/01/arabic-bead-necklace-960x640.jpg "Arabic For Beginners: A Step By Step Guide 2")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  ‘Arabic bead necklace’ by Carlos Eduardo de Meneses©
@@ -76,10 +63,10 @@ I’d really stick by these if I were you!
  So, when you encounter a written word there will be no way of knowing how to pronounce it unless you’ve heard it before. And this is where Mondly comes in handy! We provide you with real-life conversations, a speech recognition chatbot, and quality recordings. You’ll get used to Arabic words in no time. Ok, final note, you write from left to right, not the other way around.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Learn how to use an Arabic dictionary
@@ -91,6 +78,13 @@ I’d really stick by these if I were you!
 ### Start practicing and speaking
 
 ![coworkers talking](https://edge.mondly.com/blog/wp-content/uploads/2022/01/coworkers-talking-960x640.jpg "Arabic For Beginners: A Step By Step Guide 3")
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  ‘Coworkers’ by Mikhail Nilov©
 
@@ -132,18 +126,17 @@ I’d really stick by these if I were you!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/updated-ignite-conversations-top-10-creative-reaction-insights-for-videos/"><u>[Updated] Ignite Conversations Top 10 Creative Reaction Insights for Videos</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-crafting-professional-level-sessions-utilizing-mask-and-filter-techniques/"><u>[Updated] In 2024, Crafting Professional-Level Sessions Utilizing Mask & Filter Techniques</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-rising-stars-of-online-videos-top-subscription-hits/"><u>2024 Approved Rising Stars of Online Videos Top Subscription Hits</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-ways-to-transfer-music-from-tecno-spark-20-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Transfer Music from Tecno Spark 20 to Other Android Devices Easily | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/8-workable-fixes-to-the-sim-not-provisioned-mm2-error-on-samsung-galaxy-a15-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Workable Fixes to the SIM not provisioned MM#2 Error on Samsung Galaxy A15 4G | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/core-ideas-behind-online-story-crafting/"><u>Core Ideas Behind Online Story Crafting</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-bypass-android-lock-screen-using-emergency-call-on-samsung-galaxy-f04-by-drfone-android/"><u>How to Bypass Android Lock Screen Using Emergency Call On Samsung Galaxy F04?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/master-the-art-of-expression-with-essential-grammar-guidelines-esl-style/"><u>Master the Art of Expression with Essential Grammar Guidelines, ESL-Style</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/oracular-odyssey-the-evolution-of-ancient-greek/"><u>Oracular Odyssey: The Evolution of Ancient Greek</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/top-unexpected-features-revealed-in-the-new-apple-vision-pro/"><u>Top Unexpected Features Revealed in the New Apple Vision Pro</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/triumph-through-translation-top-9-struggle-filled-languages/"><u>Triumph Through Translation: Top 9 Struggle-Filled Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/uncovering-prime-online-routines-for-fluency-in-new-languages/"><u>Uncovering Prime Online Routines for Fluency in New Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-multilingual-advantages-top-6-perks/"><u>Unlocking Multilingual Advantages: Top 6 Perks</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-camerahunt-finding-superior-substitutes-for-2024/"><u>[New] CameraHunt Finding Superior Substitutes for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/onquering-the-labyrinth-of-lesser-known-youtube-content/"><u>[New] Conquering the Labyrinth of Lesser-Known YouTube Content</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-what-makes-virtual-reality-headsets-unique-in-2024/"><u>[New] What Makes Virtual Reality Headsets Unique, In 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-live-your-dreams-insights-into-the-panasonic-hx-a1-cam/"><u>2024 Approved Live Your Dreams Insights Into the Panasonic HX-A1 Cam</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/25-key-german-expressions-for-fluent-speakers/"><u>25 Key German Expressions for Fluent Speakers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/50-timeless-latin-sayings-for-unforgettable-impressions/"><u>50 Timeless Latin Sayings for Unforgettable Impressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-urdu-easily-every-day/"><u>Learn Urdu Easily, Every Day</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/mastering-the-microscopic-views-in-microsoft-teams-chat-for-2024/"><u>Mastering the Microscopic Views in Microsoft Teams Chat for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/overcoming-polyglot-hurdles-winning-with-toughest-languages/"><u>Overcoming Polyglot Hurdles: Winning with Toughest Languages</u></a></li>
+<li><a href="https://win-tips.techidaily.com/rescue-captured-moments-a-guide-to-retrieving-accidentally-erased-content-from-gopro-cameras/"><u>Rescue Captured Moments: A Guide to Retrieving Accidentally Erased Content From GoPro Cameras</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/supercharge-your-pc-top-5-windows-speed-solutions/"><u>Supercharge Your PC: Top 5 Windows Speed Solutions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577616582-the-easiest-way-to-study-czech-online/"><u>The Easiest Way to Study Czech Online</u></a></li>
 </ul></div>
 

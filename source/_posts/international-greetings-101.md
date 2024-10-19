@@ -1,7 +1,7 @@
 ---
 title: International Greetings 101
-date: 2024-09-19T20:29:20.247Z
-updated: 2024-09-26T19:23:26.860Z
+date: 2024-10-16T20:54:50.369Z
+updated: 2024-10-18T20:15:53.481Z
 tags:
   - speak
   - english
@@ -54,21 +54,7 @@ _안녕하세요 (Annyeonghaseyo)_ is the most popular semi-formal Korean hello.
 
 ![hello in japanese](https://edge.mondly.com/blog/wp-content/uploads/2021/06/hello-in-japanese-960x640.jpg "How To Say &Quot;Hello&Quot; In Different Languages 3")
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
-  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “Mount Fuji, Japan” by David Edelstein©
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Hello in French — Bonjour
 
@@ -77,6 +63,13 @@ _안녕하세요 (Annyeonghaseyo)_ is the most popular semi-formal Korean hello.
  And France makes no exception. **The most common way to say ‘hello’ in French is definitely_Bonjour_ ,** but if you need something a little more informal, you can safely go with S_alut_ . Furthermore, if it’s getting dark, don’t forget to switch to_Bonsoir,_ which is ‘good evening’ in French.
 
  Wanna find out more? Here are [12 French greetings beyond Bonjour](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Hello in German — Hallo
 
@@ -96,7 +89,21 @@ _안녕하세요 (Annyeonghaseyo)_ is the most popular semi-formal Korean hello.
 
 ![hello in french](https://edge.mondly.com/blog/wp-content/uploads/2021/06/hello-in-french-960x640.jpg "How To Say &Quot;Hello&Quot; In Different Languages 4")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  “Antibes, France” by Reuben Mcfeeters©
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Hello in Italian — Ciao
 
@@ -104,15 +111,22 @@ _안녕하세요 (Annyeonghaseyo)_ is the most popular semi-formal Korean hello.
 
 ![hello in different languages](https://media.giphy.com/media/DqZKCC1rRht8FmnKbv/giphy.gif "How To Say &Quot;Hello&Quot; In Different Languages 5")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Back to seriousness, Italians are all about respecting their elders, so if you need a more formal**‘hello’ in Italian** , you can safely use **_Salve_ .**
 
  If you want to learn more about how to say**‘hi’ in Italian,** you can check out this in-depth **[guide on Italian greetings](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .**
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Hello in Chinese — 你好 (Nǐ hǎo)
@@ -120,13 +134,6 @@ _안녕하세요 (Annyeonghaseyo)_ is the most popular semi-formal Korean hello.
  The Chinese language is just as rich in greetings as any other language, but the most popular way to say**‘hello’ in Chinese** is definitely**你好 (Nǐ hǎo).** And when we say ‘popular’, it’s 1 billion people popular because, as you probably already know, Chinese is the [most spoken language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) in the world by the total number of native speakers.
 
  Of course, like in many other languages, this is not the only way to say ‘hello’ in Chinese. To find out what are other ways to say ‘hi’ in Chinese, here’s an [in-depth guide on](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) **Chinese greetings.**
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Hello in Portuguese — Olá
 
@@ -141,19 +148,6 @@ _Olá_ , just like the Spanish_Hola_ , is suitable for any situation regardless 
  Now that we’ve properly covered some of the most spoken languages in the world let’s move on to the real gold mine of**‘hello’ in different languages.** From ‘hello’ in Arabic to ‘hello’ in Catalan and even Latin, you’ll find them all here. Besides, if you want to hear them in action in real conversations, spoken by fluent speakers, you can always get Mondly. Just choose the language you always wanted to speak, and you can be conversational from day 1.
 
 ![hello in spanish](https://edge.mondly.com/blog/wp-content/uploads/2021/06/hello-in-spanish-960x640.jpg "How To Say &Quot;Hello&Quot; In Different Languages 6")
-
-<!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  “Hello” by Octavian Dan©
 
@@ -223,19 +217,18 @@ _Olá_ , just like the Spanish_Hola_ , is suitable for any situation regardless 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-elevate-your-storytelling-on-snapchat-top-15-ideas/"><u>[New] Elevate Your Storytelling on Snapchat (Top 15 Ideas)</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-audio-integration-your-youtube-playlist/"><u>[Updated] 2024 Approved Audio Integration Your YouTube Playlist</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-navigate-with-ease-best-7-android-browsers-without-pop-ups/"><u>[Updated] 2024 Approved Navigate With Ease Best 7 Android Browsers Without Pop-Ups</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/blueprint-for-achieving-new-year-goals/"><u>Blueprint For Achieving New Year Goals</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-nubia-red-magic-9-proplus-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Nubia Red Magic 9 Pro+ | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/engage-anytime-anywhere-mondly-and-huawei/"><u>Engage Anytime, Anywhere - Mondly and Huawei</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/expert-psd-text-framing/"><u>Expert PSD Text Framing</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-linguistics-for-enhanced-intelligence/"><u>Global Linguistics for Enhanced Intelligence</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-learning-lifelines-top-ten-ways-for-a-better-future/"><u>Language Learning Lifelines: Top Ten Ways for a Better Future</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-afrikaans-the-smart-way-mondlys-top-7-advantages-for-you/"><u>Learn Afrikaans the Smart Way: Mondly’s Top 7 Advantages for You</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/maximize-your-google-meet-experience-without-paying-a-penny/"><u>Maximize Your Google Meet Experience, Without Paying a Penny</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/metaverse-inspiration-enhanced-by-ar-and-vr-for-2024/"><u>Metaverse Inspiration Enhanced by AR & VR for 2024</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/new-in-2024-ranking-the-best-avchd-video-editing-software/"><u>New In 2024, Ranking the Best AVCHD Video Editing Software</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-motivational-force-behind-honterus/"><u>The Motivational Force Behind Honterus</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-essential-encoder-hardware-for-digital-media/"><u>[New] Essential Encoder Hardware for Digital Media</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-captioning-techniques-for-professional-youtube-content/"><u>[New] In 2024, Captioning Techniques for Professional YouTube Content</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-premium-podcast-utilities-for-windows-top-8-picks/"><u>[New] Premium Podcast Utilities for Windows (Top 8 Picks)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-climbing-the-youtube-search-rankings-key-seo-strategies-unveiled/"><u>[Updated] Climbing the YouTube Search Rankings Key SEO Strategies Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aussteigende-verabschiedungssprunge-im-deutschen/"><u>Aussteigende Verabschiedungssprünge Im Deutschen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprendre-les-vaisseaux-du-corps-anatomie-simplifiee-en-francais/"><u>Comprendre Les Vaisseaux Du Corps: Anatomie Simplifiée en Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-difficult-dialogues-pronunciation-techniques-unveiled/"><u>Decoding Difficult Dialogues: Pronunciation Techniques Unveiled</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-depth-examination-androids-photography-solution-lightroom-for-2024/"><u>In-Depth Examination Android's Photography Solution, Lightroom for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-proficiency-prowess-countdown-to-6-benefits/"><u>Language Proficiency Prowess: Countdown to #6 Benefits</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-liberation-unleashing-the-potential-in-your-forties-through-language-learning/"><u>Linguistic Liberation: Unleashing the Potential in Your Forties Through Language Learning</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/mastering-platformer-fun-top-6-super-mario-bros-titles-on-your-personal-computer/"><u>Mastering Platformer Fun: Top 6 Super Mario Bros Titles on Your Personal Computer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pearson-and-mondly-unite-for-superior-gsl-excellence/"><u>Pearson & Mondly Unite for Superior GSL Excellence</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-motorola-moto-g04-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Motorola Moto G04 | Dr.fone</u></a></li>
 </ul></div>
 

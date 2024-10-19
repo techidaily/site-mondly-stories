@@ -1,7 +1,7 @@
 ---
 title: "Unlocking Korea's Secrets: Squid Game Edition"
-date: 2024-08-27T22:58:01.951Z
-updated: 2024-08-28T22:58:01.951Z
+date: 2024-10-12T23:26:20.158Z
+updated: 2024-10-18T21:27:35.254Z
 tags:
   - speak
   - english
@@ -19,8 +19,6 @@ thumbnail: https://thmb.techidaily.com/87eef5cf587ac33a0581d68baadab4d33ca4c311a
  Obsessed with Squid Game? Let’s be serious. ‘Obsessed’ is a light word. If BTS made me think about learning Korean, Squid Game outright bought my subscription to [learn Korean](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6194&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko) .
 
  It’s Netflix’s biggest ever series launch and it’s bloody… splendid. The world loves it. In fact, people love it so much that more and more of them want to learn Korean. It’s not just me or just you. It’s the whole world. Squid Game literally took the world by storm.
-
-
 
  The only problem is that the meaning of some scenes in Squid Game seems to have been changed by subtitles. Ever since the show’s official release in September, Korean-speaking fans have been sharing Squid Game mistranslations all over Twitter and TikTok.
 
@@ -44,6 +42,13 @@ So what’s there to be done?
 
  Now, this global phenomenon even has its own name. **The cultural boom coming from South Korea since the 1990s is known today as the Korean wave or [hallyu](https://en.wikipedia.org/wiki/Korean%5Fwave) .** Basically, everything we love about Korean pop culture is embedded in hallyu.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why Squid Game got lost in translation
 
  Not everyone will get this, but can you imagine how sad it is to be lost in translation without Scarlett Johansson and Bill Murray?
@@ -65,18 +70,18 @@ So there’s only one conclusion we can draw from this…
 **Like Thanos, getting lost in translation is inevitable.**
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Learn Korean and overcome the one-inch-tall barrier of subtitles
 
  It’s amazing how people learn languages for love. There’s no greater drive than love. And I’m not talking just about romantic love. The fact that so many people are learning Korean after they watched Squid Game, it’s an act of love. All these people learn Korean out of love for this show. Others have been learning the language out of love for BTS. You could even go so far as to say that love makes us smarter. Or better.
 
 ![squid game love](https://media.giphy.com/media/USVF7ZnGqVuoABCBUr/giphy.gif "Obsessed With Squid Game, But Lost In Translation? Learn Korean 7")
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
  **Would you [learn Korean](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6194&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko) out of love for hallyu?** In 2020, in his Oscar acceptance speech, ‘Parasite’ director Bong Joon Ho said something the world will never forget:
 
  Once you overcome the 1-inch-tall barrier of subtitles, you will be introduced to so many more amazing films.
@@ -86,8 +91,12 @@ So there’s only one conclusion we can draw from this…
  And you know what’s the second-best thing about this? You’ll be in great company. Since the launch of Squid Game, Mondly has seen a massive increase in people starting to learn Korean. You can join them all **[here](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6194&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko)**  .
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Even the English language wants to learn Korean
 
  Do you need an extra reason to start learning? Here’s a good one: even the English language started to learn Korean.
@@ -100,8 +109,12 @@ So there’s only one conclusion we can draw from this…
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## From 0 to conversational in Korean
 
  Here’s the best way to up your Korean game fast. Get Mondly, the award-winning language learning app, put your enthusiasm to work and speak Korean like a pro in no time. It can be really tricky to master the Korean pronunciation if you don’t actively live in South Korea. But with Mondly, you’ll have access to a fast and highly efficient learning method that allows you to learn Korean naturally with:
@@ -121,8 +134,6 @@ So there’s only one conclusion we can draw from this…
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -130,4 +141,24 @@ So there’s only one conclusion we can draw from this…
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-how-to-see-what-you-just-watched-on-facebook/"><u>[New] How to See What You Just Watched on Facebook</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/a-guide-infinix-zero-5g-2023-turbo-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>A Guide Infinix Zero 5G 2023 Turbo Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/desktop-dots-best-notepad-alternatives-for-windows/"><u>Desktop Dots: Best Notepad Alternatives for Windows</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grammars-influence-on-ease-of-learning-new-languages/"><u>Grammar's Influence on Ease of Learning New Languages</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-infinix-zero-30-5g-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Infinix Zero 30 5G PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-samsung-galaxy-f14-5gfrp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Samsung Galaxy F14 5GFRP Lock</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-unveiled-with-googled-editors-choice-mondly/"><u>Language Learning Unveiled with Googled Editors' Choice - Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-lineage-deciphering-spanish-and-portuguese-roots/"><u>Language Lineage: Deciphering Spanish and Portuguese Roots</u></a></li>
+<li><a href="https://driver-download.techidaily.com/latest-microsoft-bluetooth-drivers-for-windows-111087-download-and-upgrade-instructions/"><u>Latest Microsoft Bluetooth Drivers for Windows 11/10/8/7: Download & Upgrade Instructions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-liberation-via-mondly-for-ukrainians/"><u>Linguistic Liberation via Mondly for Ukrainians</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/luscious-language-lessons-italian-cupids-tactics/"><u>Luscious Language Lessons: Italian Cupid’s Tactics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seamless-sojourns-the-most-important-93-spanish-phrases-for-travelers/"><u>Seamless Sojourns: The Most Important 93 Spanish Phrases for Travelers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-language-of-respectfulness-perfecting-excusez-moi-in-french/"><u>The Language of Respectfulness: Perfecting 'Excusez-Moi' In French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-new-language-explorers-guide-to-german-phonemes-and-glyphs/"><u>The New Language Explorer's Guide to German Phonemes & Glyphs</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/the-ultimate-handbook-for-optimal-youtube-banners-and-art-sizes-for-2024/"><u>The Ultimate Handbook for Optimal YouTube Banners & Art Sizes for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-mechanical-keyboards-the-ultimate-buyers-guide/"><u>Top-Rated Mechanical Keyboards : The Ultimate Buyer's Guide</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/updated-live-commerce-success-stories-lessons-learned-and-predictions-for-the-future/"><u>Updated Live Commerce Success Stories Lessons Learned & Predictions for the Future</u></a></li>
+</ul></div>
 

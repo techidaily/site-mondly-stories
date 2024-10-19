@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Compendium of Basic Russian Dialogues
-date: 2024-09-28T00:04:24.038Z
-updated: 2024-10-02T01:00:47.045Z
+date: 2024-10-11T18:30:40.250Z
+updated: 2024-10-18T20:41:46.145Z
 tags:
   - speak
   - english
@@ -134,13 +134,6 @@ thumbnail: https://thmb.techidaily.com/a6af875fb6cb15aafd717b61af0a7acb112fadf86
 * Very pleasant, thank you. –_Всё было замечательно, спасибо. – Vsyo bylo zamechatelno, spasibo._
 * Here is your bill, please look it over. – _Вот ваш счёт, проверьте пожалуйста. – Vot vash schot, proverte pozhaluysta._
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 5\. Learn Russian to experience the local cuisine
 
  Local cuisine is one of the best parts of a vacation. The experience is not whole if you don’t try at least one traditional meal. Something sweet or something salty? What is it going to be? No worries. Russian cuisine is diverse. You’ll have a great variety of dishes to choose from.
@@ -170,6 +163,19 @@ thumbnail: https://thmb.techidaily.com/a6af875fb6cb15aafd717b61af0a7acb112fadf86
 
 ![useful-russian-words](https://edge.mondly.com/blog/wp-content/uploads/2018/07/useful-russian-words-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 7")
 
+<!-- affiliate ads begin -->
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Photo by Henrique Félix
 
 * I would like a dessert. –_Я хотел бы десерт. Ya hotel by desert._
@@ -177,13 +183,6 @@ thumbnail: https://thmb.techidaily.com/a6af875fb6cb15aafd717b61af0a7acb112fadf86
 * We would like to have lunch. –_Мы хотели бы пообедать. – My hoteli by poobedat._
 * We would like to have dinner. –_Мы хотели бы поужинать. – My hoteli by pouzhynat._
 * What would you like for breakfast? –_Что бы вы хотели на завтрак? – Chto by vy hoteli na zavtrak?_
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 6\. Russian for travelers who want to have fun
 
@@ -199,10 +198,10 @@ Just joking. Still is an amazing drink, though!
 ![russian-travel-guide](https://edge.mondly.com/blog/wp-content/uploads/2018/07/russian-travel-guide-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 8")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Photo by Edwin Andrade
@@ -225,19 +224,19 @@ Just joking. Still is an amazing drink, though!
 
 ![basic-russian](https://edge.mondly.com/blog/wp-content/uploads/2018/07/bassic-russian-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 9")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Photo by Alina Grubnyak
 
 * How much are they? –_Сколько они стоят? – Skolko oni stoyat?_
 * Can I have a receipt? –_Дайте мне, пожалуйста, чек. – Dayte mne, pozhaluysta, chek._
 * What would you like? –_Что вы предпочитаете? – Chto vy predpochitayete?_
 * Can I have some ice cream? –_Можно мне мороженого? – Mozhno mne morozhenogo?_
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 8\. Russia Travel Guide – how to say that you have fallen in love?
 
@@ -254,6 +253,13 @@ Just joking. Still is an amazing drink, though!
 
 ![common-russian-phrases](https://edge.mondly.com/blog/wp-content/uploads/2018/07/common-russian-phrases-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 10")
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Photo by Greg Rakozy
 
 * May I hold your hand? –_Можно взять тебя за руку? – Mozhno vzyat tebya za ruku?_
@@ -266,16 +272,16 @@ Just joking. Still is an amazing drink, though!
 * I love you. – Я люблю тебя. –_Ya lyublyu tebya._
 
 <!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="320" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Bonus: Basic Russian phrases for football lovers
@@ -283,10 +289,10 @@ Just joking. Still is an amazing drink, though!
 ![russian-phrases-world-cup](https://edge.mondly.com/blog/wp-content/uploads/2018/07/russian-phrases-world-cup-1024x576.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 11")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Photo by Fauzan Saari
@@ -327,17 +333,20 @@ Just joking. Still is an amazing drink, though!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-top-mac-speech-to-text-apps-youre-not-aware-of-for-2024/"><u>[New] Top Mac Speech-to-Text Apps You're Not Aware Of for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-nokia-130-music-by-drfone-android/"><u>10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Nokia 130 Music</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-bridging-the-gap-understanding-and-using-slug-lines/"><u>2024 Approved Bridging the Gap Understanding & Using Slug Lines</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-motorola-moto-g04-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Motorola Moto G04? | Dr.fone</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/in-2024-advanced-capture-strategies-for-roblox-games-mac-edition/"><u>In 2024, Advanced Capture Strategies for Roblox Games (Mac Edition)</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-unlocking-the-power-of-smart-lock-a-beginners-guide-for-itel-a05s-users-by-drfone-android/"><u>In 2024, Unlocking the Power of Smart Lock A Beginners Guide for Itel A05s Users</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/interspecies-chatter-crafting-effective-intercultural-conversations/"><u>Interspecies Chatter: Crafting Effective Intercultural Conversations</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-leap-to-mastery-learn-slovak-quickly-one-session-at-a-time/"><u>Language Leap to Mastery: Learn Slovak Quickly, One Session at a Time!</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/mastering-vivacut-an-exhaustive-2024-review/"><u>Mastering VivaCut An Exhaustive 2024 Review</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/santas-multilingual-mastery-a-holiday-revelation/"><u>Santa's Multilingual Mastery: A Holiday Revelation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-your-potential-in-english-mastery-with-top-9-tips-by-a-dedicated-esl-educator/"><u>Unlock Your Potential in English Mastery with Top 9 Tips by a Dedicated ESL Educator</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/unlocking-successful-ad-campaigns-through-smart-technology-insights-into-cookiebot-solutions/"><u>Unlocking Successful Ad Campaigns Through Smart Technology: Insights Into Cookiebot Solutions</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-the-definitive-list-of-tools-for-computer-and-microphone-capture-for-2024/"><u>[New] The Definitive List of Tools for Computer & Microphone Capture for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-7-essential-gif-creation-techniques/"><u>2024 Approved 7 Essential GIF Creation Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/belgian-language-palette-a-breakdown/"><u>Belgian Language Palette: A Breakdown</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/can-i-bypass-a-forgotten-phone-password-of-samsung-galaxy-s23-ultra-by-drfone-android/"><u>Can I Bypass a Forgotten Phone Password Of Samsung Galaxy S23 Ultra?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/crack-code-deciphering-netflixs-best-show-in-ks/"><u>Crack Code: Deciphering Netflix's Best Show in KS</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/did-your-apple-iphone-11-pro-max-passcode-change-itself-unlock-it-now-drfone-by-drfone-ios/"><u>Did Your Apple iPhone 11 Pro Max Passcode Change Itself? Unlock It Now | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-honor-90-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Honor 90 to BlackBerry | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-any-lava-blaze-2-5g-phone-password-using-emergency-call-by-drfone-android/"><u>How To Unlock Any Lava Blaze 2 5G Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/santa-claus-a-polyglot-in-red-and-white/"><u>Santa Claus: A Polyglot in Red and White</u></a></li>
+<li><a href="https://fox-metric.techidaily.com/save-pages-without-paying-discover-the-ultimate-guide-to-free-pdf-conversion-1-techniques-revealed/"><u>Save Pages Without Paying: Discover the Ultimate Guide to Free PDF Conversion - #1 Techniques Revealed!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-spectrum-in-asia-boldest-three-dialects/"><u>Speaking Spectrum in Asia: Boldest Three Dialects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swashbuckler-speak-essential-words-for-the-high-seas/"><u>Swashbuckler Speak: Essential Words for the High Seas</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-fascinating-world-of-indo-european-and-other-languages-of-europe/"><u>The Fascinating World of Indo-European and Other Languages of Europe</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/treasure-island-talkbook-a-guide-to-20-pirate-terms/"><u>Treasure Island Talkbook: A Guide to 20 Pirate Terms</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-looking-beyond-sony-vegas-top-video-editors-for-windows-for-2024/"><u>Updated Looking Beyond Sony Vegas Top Video Editors for Windows for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Global Vernacular Infusion: English' Written and Spoken Forms"
-date: 2024-10-05T18:11:49.948Z
-updated: 2024-10-13T00:58:10.451Z
+date: 2024-10-16T16:04:51.677Z
+updated: 2024-10-19T00:40:28.227Z
 tags:
   - speak
   - english
@@ -81,22 +81,41 @@ thumbnail: https://thmb.techidaily.com/459b794516e41ca817af82c1c22066d193c455f48
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "100+ English Words Borrowed From Other Languages 5")
 
+<!-- affiliate ads begin -->
+<span id="1977023">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Improve your English fast 🚀
 
  With Mondly, English mastery is at your fingertips – and in your native tongue. Start today ![Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-9827&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-9827%26mt%3D8)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## French loanwords: English words that are actually French
@@ -127,19 +146,6 @@ thumbnail: https://thmb.techidaily.com/459b794516e41ca817af82c1c22066d193c455f48
 
  Did you know that approximately**30% of the English vocabulary** consists of words that have their origins in**French and Latin** ? Considering that French was the language of the English king and his court for over 300 years, it’s no surprise. During that time, as many as 10,000 French loanwords came into English.
 
-<!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Spanish loanwords: English words that are actually Spanish
 
 | Chinchilla |
@@ -161,13 +167,6 @@ thumbnail: https://thmb.techidaily.com/459b794516e41ca817af82c1c22066d193c455f48
 | Guacamole  |
 
  Unlike French loanwords which have been adapted into British English, most of the**Spanish loanwords entered English via the North American English route.** Cultural exchanges between [Spanish-speaking](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and English-speaking communities led to an influx of loanwords related to food and music in particular. For example, words like “guacamole”, “salsa” and “piñata” have been borrowed into English from Spanish due to the popularity of the Mexican culture in the United States.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
-  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Italian loanwords: English words that are actually Italian
 
@@ -220,6 +219,13 @@ thumbnail: https://thmb.techidaily.com/459b794516e41ca817af82c1c22066d193c455f48
 | Diesel       |
 
  Some of the first German words were borrowed into English during the interactions between Germanic-speaking tribes and English-speaking communities in early medieval Europe. Words related to everyday life, family, and community were among the earliest borrowings. Later, thanks to Germany’s influence in various fields, English borrowed German words related to science and technology, music, philosophy, literature and engineering.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Understanding the Size of the English Vocabulary
 
@@ -279,18 +285,18 @@ Coming Soon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-making-your-igtv-more-inclusive-with-subtitles/"><u>[New] 2024 Approved Making Your IGTV More Inclusive with Subtitles</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-tomorrows-insight-rethinking-choices/"><u>[New] Tomorrow's Insight Rethinking Choices</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-techniques-to-archivalize-chat-communication-in-whatsapp/"><u>[Updated] In 2024, Techniques to Archivalize Chat Communication in WhatsApp</u></a></li>
-<li><a href="https://windows11.techidaily.com/eradicate-the-current-password-needed-issue-on-windows-11/"><u>Eradicate the ‘Current Password Needed’ Issue on Windows 11</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/explore-french-literature-top-20-novels-for-new-learners/"><u>Explore French Literature: Top 20 Novels for New Learners</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exploring-the-genesis-of-our-worlds-words/"><u>Exploring the Genesis of Our World’s Words</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/find-your-latin-groove-with-online-tutoring-platforms/"><u>Find Your Latin Groove with Online Tutoring Platforms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-newbie-to-native-speaker-a-realistic-outlook/"><u>From Newbie To Native Speaker: A Realistic Outlook</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-xiaomi-redmi-note-13-proplus-5g-drfone-by-drfone-virtual-android/"><u>How to Change Netflix Location to Get More Country Version On Xiaomi Redmi Note 13 Pro+ 5G | Dr.fone</u></a></li>
-<li><a href="https://common-error.techidaily.com/how-to-restore-night-light-functionality-on-your-pc-running-windows-10-or-11/"><u>How to Restore Night Light Functionality on Your PC Running Windows 10 or 11</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-10-free-location-spoofers-to-fake-gps-location-on-your-oneplus-nord-3-5g-drfone-by-drfone-virtual/"><u>In 2024, 10 Free Location Spoofers to Fake GPS Location on your OnePlus Nord 3 5G | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-complete-guide-on-unlocking-apple-iphone-14-pro-max-with-a-broken-screen-by-drfone-ios/"><u>In 2024, Complete Guide on Unlocking Apple iPhone 14 Pro Max with a Broken Screen?</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/the-evolution-of-electric-cars-an-engaging-overview/"><u>The Evolution of Electric Cars: An Engaging Overview</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-step-by-written-by-a-language-model-ai-i-can-help-rewrite-the-paragraph-into-an-academic-style-but-please-note-that-my-responses-may-not-h/"><u>[New] 2024 Approved Step-By Written by a Language Model AI. I Can Help Rewrite the Paragraph Into an Academic Style, but Please Note that My Responses May Not Have the Same Depth as Those Written by Subject Matter Experts. Here Is a Revised Version </u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-enhancing-content-reach-keeping-creative-commons-engagement-high/"><u>[New] Enhancing Content Reach Keeping Creative Commons Engagement High</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-streamlining-video-production-mastering-the-use-of-obs-and-zoom/"><u>[New] In 2024, Streamlining Video Production Mastering the Use of OBS & Zoom</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-expert-tutorial-on-utilizing-googles-automatic-speech-transcription/"><u>2024 Approved Expert Tutorial on Utilizing Google's Automatic Speech Transcription</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/evaluating-effectiveness-of-german-and-french-in-communication/"><u>Evaluating Effectiveness of German & French in Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/improved-terms-and-conditions-declaration/"><u>Improved Terms & Conditions Declaration</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-combining-youtube-harmonies-in-moving-images/"><u>In 2024, Combining YouTube Harmonies in Moving Images</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-teams-up-with-pearson-schooling-corp/"><u>Mondly Teams Up with Pearson Schooling Corp</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/navigating-chatgpt-sign-in-hurdles-with-ease/"><u>Navigating ChatGPT Sign-In Hurdles with Ease</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pronunciacion-de-colores-hispanoamericana/"><u>Pronunciación De Colores Hispanoamericana</u></a></li>
+<li><a href="https://common-error.techidaily.com/speed-up-your-typing-experience-easy-fixes-for-a-slow-keyboard/"><u>Speed Up Your Typing Experience: Easy Fixes for a Slow Keyboard</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581476882-the-power-of-music-when-learning-a-new-language-sing-that-language/"><u>The Power Of Music When Learning A New Language – Sing That Language!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/which-is-more-beneficial-learning-german-or-french/"><u>Which Is More Beneficial? Learning German or French</u></a></li>
 </ul></div>
 

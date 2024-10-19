@@ -1,7 +1,7 @@
 ---
 title: Get to Grips with the Korean of Squid Game
-date: 2024-08-27T22:55:39.881Z
-updated: 2024-08-28T22:55:39.881Z
+date: 2024-10-16T20:31:12.173Z
+updated: 2024-10-18T18:58:31.054Z
 tags:
   - speak
   - english
@@ -19,8 +19,6 @@ thumbnail: https://thmb.techidaily.com/623365f2ffae0d2d8c9a44d31ae5f64f961d3fb3d
  Obsessed with Squid Game? Let’s be serious. ‘Obsessed’ is a light word. If BTS made me think about learning Korean, Squid Game outright bought my subscription to [learn Korean](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6194&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko) .
 
  It’s Netflix’s biggest ever series launch and it’s bloody… splendid. The world loves it. In fact, people love it so much that more and more of them want to learn Korean. It’s not just me or just you. It’s the whole world. Squid Game literally took the world by storm.
-
-
 
  The only problem is that the meaning of some scenes in Squid Game seems to have been changed by subtitles. Ever since the show’s official release in September, Korean-speaking fans have been sharing Squid Game mistranslations all over Twitter and TikTok.
 
@@ -56,6 +54,13 @@ So what’s there to be done?
 
 ![korean culture](https://edge.mondly.com/blog/wp-content/uploads/2021/10/learn-korean-960x640.jpg "Obsessed With Squid Game, But Lost In Translation? Learn Korean 6")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  ‘Korean women’ by zero take©
 
  To be completely honest, some things are culturally difficult to explain and understand when it comes to translation. The Squid Game situation became notorious due to the show’s popularity, but this is not an isolated case. You may not be aware, but many other foreign-language movies and series are facing the same problem. Because of length and cultural particularities, subtitles can never be 100% accurate.
@@ -64,9 +69,6 @@ So there’s only one conclusion we can draw from this…
 
 **Like Thanos, getting lost in translation is inevitable.**
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Learn Korean and overcome the one-inch-tall barrier of subtitles
 
  It’s amazing how people learn languages for love. There’s no greater drive than love. And I’m not talking just about romantic love. The fact that so many people are learning Korean after they watched Squid Game, it’s an act of love. All these people learn Korean out of love for this show. Others have been learning the language out of love for BTS. You could even go so far as to say that love makes us smarter. Or better.
@@ -74,8 +76,12 @@ So there’s only one conclusion we can draw from this…
 ![squid game love](https://media.giphy.com/media/USVF7ZnGqVuoABCBUr/giphy.gif "Obsessed With Squid Game, But Lost In Translation? Learn Korean 7")
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  **Would you [learn Korean](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6194&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko) out of love for hallyu?** In 2020, in his Oscar acceptance speech, ‘Parasite’ director Bong Joon Ho said something the world will never forget:
 
  Once you overcome the 1-inch-tall barrier of subtitles, you will be introduced to so many more amazing films.
@@ -85,9 +91,18 @@ So there’s only one conclusion we can draw from this…
  And you know what’s the second-best thing about this? You’ll be in great company. Since the launch of Squid Game, Mondly has seen a massive increase in people starting to learn Korean. You can join them all **[here](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6194&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko)**  .
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Even the English language wants to learn Korean
 
  Do you need an extra reason to start learning? Here’s a good one: even the English language started to learn Korean.
@@ -100,14 +115,12 @@ So there’s only one conclusion we can draw from this…
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## From 0 to conversational in Korean
 
  Here’s the best way to up your Korean game fast. Get Mondly, the award-winning language learning app, put your enthusiasm to work and speak Korean like a pro in no time. It can be really tricky to master the Korean pronunciation if you don’t actively live in South Korea. But with Mondly, you’ll have access to a fast and highly efficient learning method that allows you to learn Korean naturally with:
@@ -127,8 +140,6 @@ So there’s only one conclusion we can draw from this…
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -136,4 +147,19 @@ So there’s only one conclusion we can draw from this…
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-essential-tips-and-templates-for-impactful-ig-footage/"><u>[Updated] 2024 Approved Essential Tips & Templates for Impactful IG Footage</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-direct-from-device-to-digital-world-recording-your-apple-gadgets/"><u>[Updated] In 2024, Direct From Device to Digital World Recording Your Apple Gadgets</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-dji-drones-entry-plus-and-4k-visionaries/"><u>2024 Approved DJI Drones Entry, Plus, and 4K Visionaries</u></a></li>
+<li><a href="https://change-location.techidaily.com/additional-tips-about-sinnoh-stone-for-vivo-y02t-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Vivo Y02T | Dr.fone</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/get-quality-picture-fixing-solutions-buy-now/"><u>Get Quality Picture Fixing Solutions – Buy Now!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-etiquette-saying-thanks-in-30-languages-154/"><u>International Etiquette: Saying Thanks in 30 Languages (154)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leading-3-language-learning-tools-to-effortlessly-conquer-new-tongues/"><u>Leading 3 Language Learning Tools to Effortlessly Conquer New Tongues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mandarins-alphabetical-constructs/"><u>Mandarin's Alphabetical Constructs</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/precision-and-power-choosing-best-kung-fu-games-ranked/"><u>Precision & Power Choosing Best Kung Fu Games Ranked</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/unleash-your-creativity-macs-finest-screen-capture-programs-free-for-2024/"><u>Unleash Your Creativity Mac's Finest Screen Capture Programs (FREE) for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-mystery-of-english-language-contractions-and-their-usage/"><u>Unveiling the Mystery of English Language Contractions and Their Usage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-master-a-second-or-third-language-after-40-cognitive-social-and-cultural-benefits/"><u>Why Master a Second (or Third) Language After 40 – Cognitive, Social & Cultural Benefits</u></a></li>
+</ul></div>
 

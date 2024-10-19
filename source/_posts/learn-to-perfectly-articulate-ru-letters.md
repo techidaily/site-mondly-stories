@@ -1,7 +1,7 @@
 ---
 title: Learn to Perfectly Articulate RU Letters
-date: 2024-08-27T22:54:15.020Z
-updated: 2024-08-28T22:54:15.020Z
+date: 2024-10-11T21:48:31.193Z
+updated: 2024-10-18T19:35:55.283Z
 tags:
   - speak
   - english
@@ -41,12 +41,12 @@ thumbnail: https://thmb.techidaily.com/e1e3cd6b008cdab8aeee33309c0a15674cf83671f
  “Red Square, Moscow, Russia” by Aurelien Romain©
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Understand how to pronounce the Russian alphabet
 
  There are 33 letters in the Russian alphabet. 10 vowels (**а, э, ы, у, о, я, е, ё, ю, и)** , 21 consonants (**б, в, г, д, ж, з, к, л, м, н, п, р, с, т, ф, х, ц, ч, ш, щ,** and the consonant**й** which is sometimes a semivowel) and 2 pronunciation signs (the “soft sign” ь and the “hard sign” ъ).
@@ -55,9 +55,6 @@ No advertising on the website.
 
  If we were to compare the Russian alphabet to the English alphabet, we would have four groups of letters: letters that look and sound (almost) the same as in English, letters that sound the same but look different, letters that look the same but sound different and letters that have no English equivalent whatsoever.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Russian letters that are (almost) the same as in English
 
 * **А а** sounds like “a” in “father” or “after”,
@@ -68,8 +65,12 @@ No advertising on the website.
 * **Т т** sounds like “t” in “top” or “task”.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Russian letters that sound the same as in English (but look different)
 
 * **Б б** sounds like “b” in “bad” or “blue”,
@@ -101,9 +102,6 @@ No advertising on the website.
 * **Х х** sounds like “ch” in “loch”,
 * **Ы ы** sounds like “i” in “ill” but with a “rounder” pronunciation (said with your tongue slightly back in your mouth).
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
-<!-- affiliate ads end -->
 ### Russian letter with no English equivalent
 
 * Ь – this is called the “soft sign” and it is used to modify the pronunciation of the preceding consonant by making it soft (palatalized),
@@ -116,13 +114,14 @@ No advertising on the website.
 ![russian alphabet pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2020/03/russian-alphabet-pronunciation-1-431x600.jpg "Master The Russian Alphabet Pronunciation 3")
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Russian alphabet pronunciation
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ## Russian lesson no. 1: rules
 
  Russian is definitely not the [hardest language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) you can study. As you already saw, once you get to know it, the Russian alphabet seems quite friendly. Languages like Chinese, Japanese, Korean or [Arabic](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , on the other hand, are way harder to master. Besides, once you learn the alphabet, you will already be able to read in Russian – a great boost for your motivation!
@@ -143,6 +142,13 @@ No advertising on the website.
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Study Russian in just 10 minutes a day
 
  It can be really tricky to master Russian pronunciation if you don’t actively live in Russia. But with Mondly, the award-winning language learning app, you’ll teach yourself Russian using a unique, fast and highly efficient learning method.
@@ -159,8 +165,6 @@ No advertising on the website.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -168,4 +172,20 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://win-dash.techidaily.com/download-and-update-sata-drivers-easily-on-your-windows-pc-step-by-step-guide/"><u>Download and Update SATA Drivers Easily on Your Windows PC: Step-by-Step Guide</u></a></li>
+<li><a href="https://driver-download.techidaily.com/1722959924162-download-hp-deskjet-ink-advantage-2652-drivers-compatible-with-windows-11-10-8-and-7/"><u>Download HP Deskjet Ink Advantage 2652 Drivers: Compatible with Windows 11, 10, 8 & 7</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/hidden-insights-20-often-missed-techniques-for-the-ultimate-nintendo-switch-experience/"><u>Hidden Insights: 20 Often-Missed Techniques for the Ultimate Nintendo Switch Experience</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/improve-your-mics-performance-tips-for-successful-voice-recording-troubleshooting/"><u>Improve Your Mic’s Performance: Tips for Successful Voice Recording Troubleshooting</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-migrate-android-data-from-xiaomi-redmi-note-13-5g-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Migrate Android Data From Xiaomi Redmi Note 13 5G to New Android Phone? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/iniciar-tu-primer-viaje-a-la-hora-en-espanol/"><u>Iniciar Tu Primer Viaje a La Hora en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-rhythms-an-energetic-learning-approach/"><u>Latin Rhythms: An Energetic Learning Approach</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-latvian-fast-ten-minute-online-lessons-each-day/"><u>Master Latvian Fast: Ten-Minute Online Lessons Each Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-the-updated-tandu-with-ease/"><u>Navigating the Updated T&U with Ease</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/prepare-to-engage-with-the-ultimate-ai-friend/"><u>Prepare to Engage with the Ultimate AI Friend</u></a></li>
+<li><a href="https://app-tips.techidaily.com/tech-visionary-linus-torvalds-explores-ai-progress-rust-integration-and-linux-significance-with-zdnet/"><u>Tech Visionary Linus Torvalds Explores AI Progress, Rust Integration, and Linux Significance with ZDNET</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-9-linguistic-quandaries-and-strategies-for-success/"><u>Top 9 Linguistic Quandaries & Strategies for Success</u></a></li>
+<li><a href="https://fox-info.techidaily.com/ultimate-gimbal-picks-for-dslr-quality-videos/"><u>Ultimate Gimbal Picks for DSLR-Quality Videos</u></a></li>
+</ul></div>
 

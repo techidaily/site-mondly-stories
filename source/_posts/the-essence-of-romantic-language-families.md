@@ -1,7 +1,7 @@
 ---
 title: The Essence of Romantic Language Families
-date: 2024-08-27T22:55:42.240Z
-updated: 2024-08-28T22:55:42.240Z
+date: 2024-10-12T16:18:08.012Z
+updated: 2024-10-18T20:19:31.672Z
 tags:
   - speak
   - english
@@ -18,8 +18,6 @@ thumbnail: https://thmb.techidaily.com/7d4ac3d8c9076518086c796719296f1fe2886affc
 
  The Romance languages have grown to become one of the most prominent language families in the world. Despite being just a subgroup of the Indo-European language family, the Romance languages are still the most famous language family there is. Although having (almost) nothing to do with love, we all love them. In fact, they are some of the most popular foreign languages that English speakers want to learn. Still, one question remains: what are the Romance languages exactly?
 
-
-
 ## What are the Romance languages?
 
  **The Romance languages are a group of related languages that gradually evolved from Vulgar Latin in the first ten centuries CE. Bound together by the common ancestor, they form a subgroup of the Italic branch of the Indo-European language family.** The [most widely spoken](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) Romance languages are Spanish, Portuguese, French, Italian, Romanian, and Catalan.
@@ -35,8 +33,12 @@ thumbnail: https://thmb.techidaily.com/7d4ac3d8c9076518086c796719296f1fe2886affc
  However, you should know that categorizing languages is fairly difficult because of their existence on a continuum. Therefore, the exact number of languages in this family may vary depending on the source you are looking at.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Why are they called Romance languages?
 
  It’s true that their name has nothing to do with ‘romance’, but why are they called Romance languages?
@@ -52,17 +54,18 @@ thumbnail: https://thmb.techidaily.com/7d4ac3d8c9076518086c796719296f1fe2886affc
  “Mont Saint-Michel, France” by Fab Lentz©
 
 <!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Latin-based languages – where do they come from?
 
  The [origin story](https://www.britannica.com/topic/Romance-languages) of the Romance languages was (and in some cases still is) highly disputed between historians and linguists. Less commonly known as Latin-based languages or simply Latin languages, they share Latin as the common ancestor. That you already know. But how did this happen?
 
  As the Roman Empire spread throughout Europe, the local population in most of those areas adopted two forms of Latin. One of them was Classical Latin, which was the formal language used by the upper classes. The other one was Vulgar Latin.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 ### What does ‘Vulgar Latin’ mean?
 
  Like ‘romance’, the word ‘vulgar’ in ‘Vulgar Latin’ doesn’t mean what you think it means. People didn’t use a special kind of Latin to be rude to one another.
@@ -72,9 +75,12 @@ thumbnail: https://thmb.techidaily.com/7d4ac3d8c9076518086c796719296f1fe2886affc
 ![italian](https://edge.mondly.com/blog/wp-content/uploads/2021/07/italian-960x768.jpg "What Are The Romance Languages? 6")
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  “Manarola, Italy” by Robert Aniței©
 
  Back to our origin story, as you might have guessed, Vulgar Latin is the Latin that spread amongst the local populations of the Roman Empire. Then, over time, it evolved separately into different varieties of spoken Latin all over the empire.
@@ -94,8 +100,12 @@ thumbnail: https://thmb.techidaily.com/7d4ac3d8c9076518086c796719296f1fe2886affc
  Although all the modern Romance languages are definitely closer to each other than to Latin, if you really are passionate about languages, it might prove fun to learn Latin (which, by the way, you can do with [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6018&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6018&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6018) ). Discovering the origin of these languages will surely help you make connections and learn faster.
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Is English a Romance language?
 
  This is probably one of the most common language-related misconceptions. Although English has borrowed a lot of words from Latin, it is not a Romance language. Having developed from the mix between the dialects and vocabulary of Germanic peoples (Angles, Saxons, and Jutes) who settled in Britain in the 5th century CE, **[English](https://www.britannica.com/topic/English-language) is considered a West Germanic language.**
@@ -105,14 +115,6 @@ thumbnail: https://thmb.techidaily.com/7d4ac3d8c9076518086c796719296f1fe2886affc
 
 ---
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### From 0 to conversational in any Romance language
 
  Do you want to speak Spanish fluently fast? Or maybe French? Get Mondly, the award-winning language learning app that will help you speak any of the main Romance languages and even their ancestor, Latin, in just 10 minutes a day.
@@ -129,8 +131,6 @@ thumbnail: https://thmb.techidaily.com/7d4ac3d8c9076518086c796719296f1fe2886affc
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -138,4 +138,20 @@ thumbnail: https://thmb.techidaily.com/7d4ac3d8c9076518086c796719296f1fe2886affc
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-ideas-for-efficiently-using-gopro-power-supplies/"><u>[New] 2024 Approved Ideas for Efficiently Using GoPro Power Supplies</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-youtube-vision-navigating-video-degrees-with-ease-for-2024/"><u>[Updated] YouTube Vision Navigating Video Degrees with Ease for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/ai-lingo-explained-29-core-terminologies-unveiled/"><u>AI Lingo Explained: 29 Core Terminologies Unveiled</u></a></li>
+<li><a href="https://driver-download.techidaily.com/freshly-updated-mpow-bluetooth-driver-software-free-downloads-now-available/"><u>Freshly Updated MPOW Bluetooth Driver Software - Free Downloads Now Available</u></a></li>
+<li><a href="https://driver-install.techidaily.com/gtx-1650-driver-update-for-windows-os/"><u>GTX 1650 Driver Update for WIndows OS</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-unbrick-a-dead-xiaomi-14-ultra-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Unbrick a Dead Xiaomi 14 Ultra | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/imovie-cropping-mystery-unveiled/"><u>IMovie Cropping Mystery Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lanatomie-de-base-devoilee-composants-corporels-en-francais/"><u>L'anatomie De Base Dévoilée: Composants Corporels en Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-japans-alphabet-a-compreranary-handbook/"><u>Navigating Japan's Alphabet: A Compreranary Handbook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-through-japans-social-language-landscape/"><u>Navigating Through Japan's Social Language Landscape</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-beginners-essential-list-of-20-best-french-novels/"><u>The Beginner’s Essential List of 20 Best French Novels</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-learning-method-behind-mondly/"><u>The Learning Method Behind Mondly</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/vr-surgical-training-and-planning-systems/"><u>VR Surgical Training and Planning Systems</u></a></li>
+</ul></div>
 

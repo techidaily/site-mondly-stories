@@ -1,7 +1,7 @@
 ---
 title: Raccolta Di Numeri Italiani (Da 1 a 1000)
-date: 2024-10-08T19:38:32.036Z
-updated: 2024-10-12T22:39:47.380Z
+date: 2024-10-12T00:40:25.298Z
+updated: 2024-10-18T19:20:37.408Z
 tags:
   - speak
   - english
@@ -52,6 +52,13 @@ Here’s how to write and pronounce the Italian numbers 1-10:
 
 **Good to know:**Italian cardinal numbers don’t change suffixes according to the gender of the noun they determine. The only exception is 1_(uno)_. Thus, when you talk about a feminine noun, you’ll say_una_instead of_uno_:_Ho comprato una casa_(“I bought a house.”)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
+  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Italian numbers 11-20
 
  Imagine this: you are on the famous Amalfi Coast. The weather is perfect. And let’s say you want to buy 12 slices of the yummiest Italian pizza you’ve ever seen: two slices for you and each one of your friends. The problem is you only have 10 fingers to sign to the lady at the counter. Wouldn’t it be easier if you knew some [Italian expressions](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ?
@@ -88,13 +95,6 @@ Let’s see some examples:
 * to say “18 years”, you’ll say_diciotto anni_
 * to say “20 children”, you’ll say_venti bambini_
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Italian numbers to 30 and beyond
 
  Essentially, Italian numbers are very similar to English numbers. Once you get to 20, you just put together the tens with the single numbers (units). The best part is that Italian doesn’t even require spaces or hyphens. For example, if you want to say 22 (“twenty-two”), in Italian you say venti (20) + due (2) = _**venti** due_ (22).
@@ -108,10 +108,10 @@ Let’s see some examples:
  See how easy Italian numbers are? The only thing you have to remember is that the final vowel of the tens disappears when you add 1_(uno)_ or 8_(otto)_ . Thus, you’ll say _**vent** uno_ and not “ventiuno”. Additionally, number 3_(tre)_ gains an accent mark on the final vowel. For example, 33 will be_trentatré_ and 83 will be_ottantatré._
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Count tens in Italian
@@ -148,10 +148,16 @@ Let’s see some examples:
 * 98 – _novant**otto**_
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Italian numbers 100 to 1000 and beyond
@@ -183,10 +189,10 @@ Let’s see some examples:
 ![italian numbers pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2020/05/italian-numbers-pronunciation-960x640.jpg "Italian Numbers Made Easy - Count To 1000 And Beyond In Italian 3")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  “The Amalfi Coast” by Gregory Smirnov©
@@ -260,22 +266,21 @@ Let’s see some examples:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-hints.techidaily.com/updated-bridging-the-gap-between-dreams-and-reality-using-magix-vpx/"><u>[Updated] Bridging the Gap Between Dreams & Reality Using Magix VPX</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-livestreaming-sovereigns-clash/"><u>2024 Approved LiveStreaming Sovereigns Clash</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-overcoming-black-screens-in-youtube-content/"><u>2024 Approved Overcoming Black Screens in YouTube Content</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/anchoring-your-tongue-in-piracy-vocabulary/"><u>Anchoring Your Tongue in Piracy Vocabulary</u></a></li>
-<li><a href="https://win11.techidaily.com/black-friday-top-keys-fan-secrets-for-free-windows-11-at-612lifetime/"><u>Black Friday: Top Keys Fan Secrets for Free Windows 11 at $6.12/Lifetime</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/complete-guide-to-japanese-kanji-and-kana-systems/"><u>Complete Guide to Japanese Kanji & Kana Systems</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/does-studying-german-test-your-patience/"><u>Does Studying German Test Your Patience?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580308786-earn-96-off-get-lifetime-mondly-premium-access-for-free/"><u>Earn 96% Off, Get Lifetime Mondly Premium Access for Free!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/echoes-of-avon-words-from-a-bygone-era-remain/"><u>Echoes of Avon: Words From a Bygone Era Remain</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/effektive-deutsche-entschuldigungen/"><u>Effektive Deutsche Entschuldigungen</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embracing-new-words-anytime/"><u>Embracing New Words, Anytime!</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-repair-broken-video-files-of-vivo-v30-lite-5g-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair Broken video files of Vivo V30 Lite 5G on Windows??</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-vlog-versus-channels-choosing-between-obs-and-twitch/"><u>In 2024, Vlog Versus Channels Choosing Between OBS & Twitch</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-art-of-sound-design-for-captivating-canvas-clips-for-2024/"><u>The Art of Sound Design for Captivating Canvas Clips for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580863518-the-future-of-language-learning-how-to-do-it-in-the-21st-century/"><u>The Future Of Language Learning: How To Do It In The 21St Century</u></a></li>
-<li><a href="https://program-issues.techidaily.com/troubleshooting-pc-issues-resolving-constant-crashes-in-praey-for-the-gods-game/"><u>Troubleshooting PC Issues: Resolving Constant Crashes in Praey for the Gods Game</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/tweak-viewer-direction-on-windows-monitor/"><u>Tweak Viewer Direction on Windows Monitor</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-the-truth-about-magix-video-pro-xs-performance-for-2024/"><u>[New] The Truth About Magix Video Pro X's Performance for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-design-and-produce-your-fb-profile-vids/"><u>[Updated] Design and Produce Your FB Profile Vids</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/101plus-nifty-french-phrases-for-savvy-travelers-in-france/"><u>101+ Nifty French Phrases for Savvy Travelers in France</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-game-on-pioneer-top-choices-in-windows-10s-new-games-and-apps/"><u>2024 Approved Game On, Pioneer Top Choices in Windows 10’S New Games and Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aussie-jargon-uncovered-essential-phrases/"><u>Aussie Jargon Uncovered: Essential Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-the-swedes-alphabet-and-sounds-guide/"><u>Decoding the Swedes: Alphabet & Sounds Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enlightenment-without-cost-marking-the-milestone-of-1500-free-sessions/"><u>Enlightenment Without Cost: Marking the Milestone of 1500 Free Sessions</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlock-nokia-c22-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>In 2024, Unlock Nokia C22 Phone Password Without Factory Reset Full Guide Here</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/resolving-msvcrt10dll-file-missing-a-step-by-step-guide/"><u>Resolving MSVCRT10.DLL File Missing: A Step-by-Step Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seniors-cognitive-renaissance-via-language-study/"><u>Seniors' Cognitive Renaissance via Language Study</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-ultimate-guide-to-filming-in-full-view-9-tips-for-2024/"><u>The Ultimate Guide to Filming in Full View (9 Tips) for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/ultimate-fixes-for-overcoming-the-0x80072efd-glitch-in-windows-11-systems/"><u>Ultimate Fixes for Overcoming the 0X80072EFD Glitch in Windows 11 Systems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/united-nations-of-joy-4th-of-july/"><u>United Nations of Joy: 4Th of July</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-verbal-skills-premium-communication-courses/"><u>Unveiling Verbal Skills: Premium Communication Courses</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-itel-a70-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Itel A70? | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/windows-prime-video-communication-tools-1-8-for-2024/"><u>Windows' Prime Video Communication Tools, #1-8 for 2024</u></a></li>
 </ul></div>
 

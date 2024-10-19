@@ -1,7 +1,7 @@
 ---
 title: Hello In Japanese - All The Japanese Greetings You Need To KnowBack ButtonFilter Button
-date: 2024-09-26T21:24:41.055Z
-updated: 2024-10-01T16:20:45.038Z
+date: 2024-10-18T00:59:41.677Z
+updated: 2024-10-18T17:49:22.643Z
 tags:
   - speak
   - english
@@ -46,10 +46,10 @@ thumbnail: https://thmb.techidaily.com/aca28fbc907b3b2134a063785955f99d7ee87845f
  Curious about why there are multiple types of characters in Japanese? Here’s everything there is to know about the [Japanese writing system](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **How to say “hello” on the phone in Japanese: moshi moshi (もしもし)**
@@ -72,21 +72,7 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![hi in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-japanese-960x639.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 3")
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “Meguro River, Matsuno, Japan” by Sora Sagano©
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 3.“Goodbye” in Japanese
 
@@ -105,7 +91,21 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![goodbye in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/goodbye-in-japanese-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 4")
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  “See you soon, human” by Alain Pham©
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 4\. “Thank you” in Japanese and other polite phrases that you should know
 
@@ -133,6 +133,13 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
  “Kyoto, Japan” by Andre Benz©
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Don’t forget about the Japanese bow
 
  Every**“hello” in Japanese** is usually accompanied by a bow, the Western world equivalent of a handshake. Our advice would be to not skip the bow if you really want to feel like you belong.
@@ -148,13 +155,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
  – 30-degree bows are for people you just met or are of a higher social status than you;
 
  – 45-degree bows are used for greetings only if you meet a very important person like the Emperor or the Prime Minister.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Bonus: basic conversation in Japanese
 
@@ -209,20 +209,19 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-achieving-maximum-comfort-in-vr-landscape/"><u>2024 Approved Achieving Maximum Comfort in VR Landscape</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-fix-oem-unlock-missing-on-vivo-s17-pro-by-drfone-android/"><u>How To Fix OEM Unlock Missing on Vivo S17 Pro?</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/1722978002537-improve-click-response-time-download-the-new-steelseries-mouse-driver-now/"><u>Improve Click Response Time - Download the New SteelSeries Mouse Driver Now</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-lock-apps-on-samsung-galaxy-a14-5g-to-protect-your-individual-information-by-drfone-android/"><u>In 2024, How to Lock Apps on Samsung Galaxy A14 5G to Protect Your Individual Information</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/keywords-made-simple-oxford-and-mondlys-way/"><u>Keywords Made Simple: Oxford & Mondly's Way</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-learning-as-an-aging-advantage/"><u>Language Learning as an Aging Advantage</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-mastery-top-50-classics-from-the-romance-language/"><u>Language Mastery - Top 50 Classics From the Romance Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastery-in-motion-102plus-expressions-to-ease-your-france-journey/"><u>Mastery in Motion: 102+ Expressions to Ease Your France Journey</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/pros-choice-review-the-ultimate-4k-dslr-rigs/"><u>Pro's Choice Review The Ultimate 4K DSLR Rigs</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/the-ultimate-list-26-free-computer-maintenance-software-for-optimal-system-health-in-202-cups/"><u>The Ultimate List: 26 FREE Computer Maintenance Software for Optimal System Health in 202 Cups</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/uk-slang-decoded-unveiling-the-local-language/"><u>UK Slang Decoded: Unveiling the Local Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-understanding-turkey-and-korea/"><u>Unlocking Understanding: Turkey & Korea</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-s-best-mobile-video-editors-with-audio-tracks/"><u>Updated S Best Mobile Video Editors with Audio Tracks</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/voices-from-valhalla-languages-of-ancient-scandinavians/"><u>Voices From Valhalla: Languages of Ancient Scandinavians</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-nubia-z50s-pro-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Nubia Z50S Pro? | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-precision-in-volume-decrease-lumafusions-methodology/"><u>2024 Approved Precision in Volume Decrease Lumafusion's Methodology</u></a></li>
+<li><a href="https://win-trending.techidaily.com/1728469045971-usb/"><u>簡單四道筋路：将文件快速传送到USB设备</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/easter-greetings-in-different-languages-around-the-world/"><u>Easter Greetings In Different Languages Around The World</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/educational-evolution-with-every-learner-worldwide-mondly/"><u>Educational Evolution with Every Learner, Worldwide - Mondly</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-full-review-of-razers-high-definition-webcam/"><u>In 2024, Full Review of Razer's High Definition Webcam</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-6-plus-without-swiping-up-6-ways-drfone-by-drfone-ios/"><u>In 2024, How To Unlock iPhone 6 Plus Without Swiping Up? 6 Ways | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/iphoneandroid-5-tactics-for-downloading-igtv/"><u>IPhone/Android 5 Tactics for Downloading IGTV</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-horizons-in-gaming-mondly-for-oculus-quest/"><u>New Horizons in Gaming: 'Mondly' For Oculus Quest</u></a></li>
+<li><a href="https://win-blog.techidaily.com/no-more-pauses-overcoming-the-troublesome-crashing-problem-of-persona-3-reload-on-your-desktop/"><u>No More Pauses: Overcoming the Troublesome Crashing Problem of Persona 3 Reload on Your Desktop</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-volumes-the-top-ten-advantages-of-foreign-languages/"><u>Speak Volumes: The Top Ten Advantages of Foreign Languages</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-essentials-of-telegram-understanding-this-revolutionary-messaging-service/"><u>The Essentials of Telegram: Understanding This Revolutionary Messaging Service</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/toddlers-to-tweens-embark-on-spanish-exploration/"><u>Toddlers to Tweens: Embark on Spanish Exploration</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-vivo-y78plus-drfone-by-drfone-virtual-android/"><u>Will iSpoofer update On Vivo Y78+ | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ye-olde-seafaring-slang-a-pirates-vocabulary-list/"><u>Ye Olde Seafaring Slang: A Pirate’s Vocabulary List</u></a></li>
 </ul></div>
 

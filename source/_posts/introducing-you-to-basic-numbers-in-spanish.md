@@ -1,7 +1,7 @@
 ---
 title: Introducing You to Basic Numbers in Spanish
-date: 2024-08-27T22:55:38.684Z
-updated: 2024-08-28T22:55:38.684Z
+date: 2024-10-13T23:08:39.507Z
+updated: 2024-10-18T16:06:20.800Z
 tags:
   - speak
   - english
@@ -35,6 +35,13 @@ thumbnail: https://thmb.techidaily.com/8a48baa92cdc76a86f454f4bf37afbb0816527695
  Until then, here’s cool audio of a fluent speaker pronouncing the Spanish numbers 1 to 10:
 
 **Good to know:** _uno_becomes an article and changes to_un_if it’s in front of a noun. For example,_un cerdo_translates to “a pig” in English.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Spanish numbers to 40
 
@@ -71,8 +78,12 @@ thumbnail: https://thmb.techidaily.com/8a48baa92cdc76a86f454f4bf37afbb0816527695
  As you can see, up to 30 (“thirty”), the numbers are bound together, but from there on they part ways to make counting in Spanish even easier for you. Basically, you won’t say “thirty-one”, but “thirty**and** one”:_treinta y uno_ .
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Count to 100 in Spanish
 
  As we already settled, counting in Spanish is all about mastering the basics. Now that you know how to count to 40, counting to 100 in Spanish is a piece of cake. Just learn the tens and you are ready to go.
@@ -103,8 +114,18 @@ thumbnail: https://thmb.techidaily.com/8a48baa92cdc76a86f454f4bf37afbb0816527695
 * 98 –_noventa y ocho_
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Spanish numbers to 1000 and beyond
 
  Hundreds shouldn’t scare you either. They are just as simple. Once you know how the hundreds are, you’ll also know the numbers in between.
@@ -143,8 +164,12 @@ Here are some more examples:
 ![count in Spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/07/count-in-spanish-960x663.jpg "Spanish Numbers: How To Count Numbers In Spanish 4")
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Barcelona, Spain
 
  If you want to go even further, thousands and millions work exactly like in English: number +_mil_ (“thousand”) or_millón_ (“million”). Here are some examples:
@@ -185,8 +210,6 @@ Here are some more examples:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -194,4 +217,24 @@ Here are some more examples:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/aughters-playground-top-15-youtube-hits-for-fun-for-2024/"><u>[New] Laughter's Playground Top 15 YouTube Hits for Fun for 2024</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/solved-multipleirpcompleterequests-bsod-error/"><u>[SOLVED] MULTIPLE_IRP_COMPLETE_REQUESTS BSOD Error</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-dark-domain-vs-radiant-realm-the-final-face-off/"><u>[Updated] Dark Domain vs Radiant Realm The Final Face-Off</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-a-step-by-step-guide-to-using-youtubes-creative-commons-license/"><u>2024 Approved A Step-by-Step Guide to Using YouTube's Creative Commons License</u></a></li>
+<li><a href="https://article-tips.techidaily.com/crafting-chronological-displacement-effects/"><u>Crafting Chronological Displacement Effects</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-xiaomi-redmi-13c-5gwithwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Xiaomi Redmi 13C 5Gwith/without a PC</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-a-honor-magic-5-pro-phone-that-is-locked-by-drfone-android/"><u>In 2024, How to Reset a Honor Magic 5 Pro Phone that is Locked?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-star-app-by-apple-today/"><u>International Star App by Apple Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introduccion-al-medir-tiempo-en-espanol/"><u>Introducción Al Medir Tiempo en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jour-de-fois-francais/"><u>Jour De Fois Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-delights-selecting-top-film-selections/"><u>Multilingual Delights: Selecting Top Film Selections</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seamless-hangul-acquisition-the-korean-alphabet-in-a-nutshell/"><u>Seamless Hangul Acquisition: The Korean Alphabet in a Nutshell</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seamless-transition-into-the-world-of-latin/"><u>Seamless Transition Into the World of Latin</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/step-by-step-hp-notebook-refresh-comprehensive-windows-11-os-reinstallation-tutorial-both-techniques-covered/"><u>Step-by-Step HP Notebook Refresh: Comprehensive Windows 11 OS Reinstallation Tutorial (Both Techniques Covered)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-turkish-alphabet-decoded-an-inclusive-language-learning-tool/"><u>The Turkish Alphabet Decoded: An Inclusive Language Learning Tool</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshoot-and-revive-a-dead-laptop-battery-with-these-proven-fixes/"><u>Troubleshoot and Revive a Dead Laptop Battery with These Proven Fixes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/your-travelers-handbook-the-top-105-croatian-language-tools-you-need/"><u>Your Traveler’s Handbook: The Top 105 Croatian Language Tools You Need</u></a></li>
+</ul></div>
 

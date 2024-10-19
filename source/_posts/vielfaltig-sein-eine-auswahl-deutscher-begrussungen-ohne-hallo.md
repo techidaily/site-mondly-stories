@@ -1,7 +1,7 @@
 ---
 title: "Vielfältig Sein: Eine Auswahl Deutscher Begrüßungen Ohne Hallo"
-date: 2024-09-23T19:01:19.581Z
-updated: 2024-09-26T18:49:40.001Z
+date: 2024-10-15T19:57:15.766Z
+updated: 2024-10-18T18:20:31.852Z
 tags:
   - speak
   - english
@@ -28,13 +28,6 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 
  First, some good news! As it turns out, Germans use_hi_ too. Careful though: as you already know,_hi_ is more informal than_hallo_ so you should keep this one between friends.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2\. Hallöchen – ‘Hello’ (lit. ‘little hello’)
 
  If you want to avoid repetition and diversify your vocabulary, you can also say_hallöchen,_ which is literally a ‘little hello’. It’s best to use_hallöchen_ to greet… whoever says German is a harsh language 🤭.
@@ -59,6 +52,13 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 * _Tag!_
 * _Abend!_
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4\. Wie geht es dir? – “How’s it going?”
 
  Don’t we all sometimes throw in a “how are you” instead of “hello” just to mix things up? Well, Germans do the same.
@@ -81,21 +81,29 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 
 !['German greetings' by Angelo Abear©](https://edge.mondly.com/blog/wp-content/uploads/2022/05/german-greetings-960x640.jpg "Hello In German: 10+ German Greetings Beyond Hallo 2")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Regional German greetings
 
  Now that you have enough greetings to get by in the entire German-speaking world, it’s time to get into specifics. These next greetings are generally used in just a few regions.
 
 <!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Na – “Hey, how are you?”
@@ -115,13 +123,6 @@ _– Na._ (“Fine. Thanks!”)
 
 **Localization:** mostly northern Germany.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Moin moin – “Hi”
 
  The ‘harsh’ German language strikes again. Imagine you’re in Hamburg and people are cheerfully saying_moin_ or_moin moin_ or even_moinsten_ to you. What do you do? You say_moin_ back, of course!
@@ -135,13 +136,6 @@ _– Na._ (“Fine. Thanks!”)
 _Grüezi_ is a greeting you can use in formal situations, such as speaking with people you don’t know.
 
 **Localization:** Switzerland.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\. Grüß Gott – “God bless you”
 
@@ -199,16 +193,18 @@ _Tschüss!_ (‘Goodbye!’)
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://mondly-stories.techidaily.com/como-articular-colores-en-espanol/"><u>Cómo Articular Colores en Español</u></a></li>
-<li><a href="https://extra-information.techidaily.com/elevating-zoom-quality-best-practices-for-google-meet/"><u>Elevating Zoom Quality Best Practices for Google Meet</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fluency-in-english-for-non-native-speakers/"><u>Fluency in English for Non-Native Speakers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-good-to-great-elevating-english-with-mondly/"><u>From Good to Great: Elevating English with Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-lexicon-leaders-fifteen-fifteen/"><u>Global Lexicon Leaders Fifteen-Fifteen</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-oppo-reno-10-5g-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from Oppo Reno 10 5G to iPad | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-how-can-we-bypass-samsung-galaxy-f15-5g-frp-by-drfone-android/"><u>In 2024, How Can We Bypass Samsung Galaxy F15 5G FRP?</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-innovations-in-captivating-fb-ad-creation/"><u>In 2024, Innovations in Captivating FB Ad Creation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-adventurers-guide-to-understanding-vietnamese/"><u>The Adventurer's Guide to Understanding Vietnamese</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/top-10-sci-fi-vr-adventures-new-realms-unveiled/"><u>Top 10 Sci-Fi VR Adventures New Realms Unveiled</u></a></li>
-<li><a href="https://windows11.techidaily.com/windows-watchlist-7-tasks-to-inspect-for-hidden-viruses/"><u>Windows Watchlist: 7 Tasks to Inspect for Hidden Viruses</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/et-started-with-youtube-video-ad-building-without-spending-for-2024/"><u>[New] Get Started with YouTube Video Ad Building Without Spending for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-ensure-lasting-tiktok-videos-proper-saving-on-phones/"><u>[Updated] 2024 Approved Ensure Lasting TikTok Videos Proper Saving on Phones</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-pro-shooters-guide-the-best-4k-camcorders-ranked/"><u>[Updated] 2024 Approved Pro Shooters' Guide The Best 4K Camcorders Ranked</u></a></li>
+<li><a href="https://change-location.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-vivo-y100a-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Vivo Y100A | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/bypass-huion-pen-problems-instantly-the-ultimate-5-step-guide-to-restoration/"><u>Bypass Huion Pen Problems Instantly: The Ultimate 5-Step Guide to Restoration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deconstructing-mondlys-instructional-strategy/"><u>Deconstructing Mondly’s Instructional Strategy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/harness-multilingual-abilities-power/"><u>Harness Multilingual Abilities' Power</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-many-attempts-to-unlock-apple-iphone-6-plus-drfone-by-drfone-ios/"><u>How Many Attempts To Unlock Apple iPhone 6 Plus | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-forgot-pattern-lock-heres-how-you-can-unlock-sony-pattern-lock-screen-by-drfone-android/"><u>In 2024, Forgot Pattern Lock? Heres How You Can Unlock Sony Pattern Lock Screen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-english-spelling-the-top-100-mistakes-to-avoid/"><u>Mastering English Spelling: The Top 100 Mistakes to Avoid</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/primary-communication-medium-croatia/"><u>Primary Communication Medium: Croatia</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-15-most-spoken-languages-in-the-world/"><u>Top 15 Most Spoken Languages In The World</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-the-benefits-of-language-training/"><u>Unlock The Benefits Of Language Training</u></a></li>
 </ul></div>
 

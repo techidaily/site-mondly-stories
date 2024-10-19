@@ -1,7 +1,7 @@
 ---
 title: "Navigate Conversation Easily: 17 Basic Spanish Sayings"
-date: 2024-08-27T22:56:34.329Z
-updated: 2024-08-28T22:56:34.329Z
+date: 2024-10-16T23:50:32.144Z
+updated: 2024-10-18T20:00:20.534Z
 tags:
   - speak
   - english
@@ -32,10 +32,6 @@ thumbnail: https://thmb.techidaily.com/5e51a6387f9a892e242df734bd7d8aebcab09cf33
 
 **English equivalent:** Although in English we often use the literal translation too, we are more familiar with the ‘official’ version of this saying:**“tell me who your friends are and I’ll tell you who you are”.** In addition,**“birds of a feather flock together”** has a similar meaning and can be used as an alternative.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ### 2\. No hay mal que por bien no venga
 
 **Literal translation:** There’s no bad from which something good doesn’t come.
@@ -43,6 +39,13 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 **English equivalent:** “Every cloud has a silver lining.”
 
  Absolutely the best Spanish saying you can use to encourage someone to be hopeful even when things are not great.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Más vale tarde que nunca
 
@@ -52,10 +55,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
 ![spanish expressions](https://edge.mondly.com/blog/wp-content/uploads/2021/05/spanish-expressions-960x638.jpg "17 Spanish Sayings That Will Make You Sound Like A Native 2")
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
  “Valldemossa, Spain” by Patrick Baum©
 
 ### 4\. Cuando el río suena, agua lleva
@@ -66,16 +65,19 @@ The ultimate burning program for all your needs!</a>
 
  Did you know this one? It means that if there are unpleasant rumors about someone or something, there is probably a good reason for it. Meaning that the rumors are almost always partly true.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 5\. Del tal palo, tal astilla
 
 **Literal translation:** Such is the stick, such is the chip.
 
 **English equivalent:** “Like father, like son.” / “The apple doesn’t fall far from the tree.”
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ### 6\. A falta de pan, buenas son tortas
 
 **Literal translation:** If there’s no bread, cakes will do.
@@ -84,9 +86,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
 Who wouldn’t prefer cakes over bread though?
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 7\. El hábito no hace al monje
 
 **Literal translation:** The habit doesn’t make the monk.
@@ -95,10 +94,6 @@ Who wouldn’t prefer cakes over bread though?
 
  Don’t ever judge a person solely by appearances because this is not a reliable indication of the true character of that person. No matter if it’s a positive or a negative bias. You might be surprised.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ### 8\. Mucho ruido y pocas nueces
 
 **Literal translation:** Lots of noise and few nuts.
@@ -108,6 +103,13 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
  That’s… interesting, Spanish. We bet [Shakespeare](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) would find this funny.
 
  But it’s not entirely absurd though. Think about the moment you break in a nutshell. If it’s empty, it made a loud noise for literally nothing.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 9\. El que no arriesga, no gana
 
@@ -120,6 +122,13 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
 ![spanish saying](https://edge.mondly.com/blog/wp-content/uploads/2021/05/spanish-saying-960x640.jpg "17 Spanish Sayings That Will Make You Sound Like A Native 3")
 
  “Barcelona, Spain” by Toa Heftiba©
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 10\. En casa del herrero, cuchillo de palo
 
@@ -135,9 +144,6 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
 
  Oh, and don’t tell anyone you know it from us, but learning sayings to sound like a native it’s kind of a gimmick. Or a shortcut – to put it more elegantly. Lucky for you,[Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5924&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5924?mother%5Flang=en%5Fus?target%5Flang=es&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5924?mother%5Flang=en%5Fus?target%5Flang=es) is all about language learning gimmicks, so don’t hesitate to check out [the app](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5924&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5924?mother%5Flang=en%5Fus?target%5Flang=es&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5924?mother%5Flang=en%5Fus?target%5Flang=es) and speak Spanish with ease in just 10 minutes a day.
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 1\. Al mal tiempo, buena cara
 
 **Literal translation:** To bad weather, good face.
@@ -149,6 +155,13 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
 _–_   _Estoy pasando por una mala racha. Tengo que terminar un informe para el lunes y aún no he llegado a la mitad._ (“I’m going through a rough patch. I have to finish a report by Monday and I’m not even halfway through yet.”)
 
 _–_ _Oye, no te desesperes. Al mal tiempo, buena cara._ (“Hey, don’t despair. It’s important to remain positive even in difficult situations.”)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. El que tiene boca se equivoca
 
@@ -164,9 +177,6 @@ _–_   _Me preocupa no haberlo hecho bien en el examen de ayer. Estaba realment
 
 ![spanish phrases](https://edge.mondly.com/blog/wp-content/uploads/2021/05/spanish-phrases-1-960x640.jpg "17 Spanish Sayings That Will Make You Sound Like A Native 4")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  “Torrevieja, Spain” by Ralph (Ravi) Kayden©
 
 ### 3\. A quien madruga, Dios le ayuda
@@ -184,8 +194,12 @@ _–_   _Me preocupa no haberlo hecho bien en el examen de ayer. Estaba realment
 _– ¡Buena suerte! No olvides que a quien madruga, Dios le ayuda._ (“Good luck! Don’t forget that God helps those who are determined to get the work done.”)
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 4\. Como Pedro por su casa
 
 **Literal translation:** Like Pedro in his house.
@@ -202,9 +216,6 @@ _– Tu suegra lleva aquí un tiempo. Supongo que se siente cómoda aquí._ (“
 
 _– Si, como Pedro por su casa._ (“Yes, like Peter in his house.”)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
-<!-- affiliate ads end -->
 ## Spanish sayings about animals
 
  Sayings about [animals are common in any language and Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) makes no exception. Here are some of the most common Spanish sayings about animals.
@@ -222,8 +233,12 @@ _– Si, como Pedro por su casa._ (“Yes, like Peter in his house.”)
  “A man and his dog in San Sebastián, Spain” by Lucian Alexe©
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 2\. Más vale pájaro en mano que ciento volando
 
 **Literal translation:** A bird in the hand is worth more than one hundred flying.
@@ -232,9 +247,6 @@ _– Si, como Pedro por su casa._ (“Yes, like Peter in his house.”)
 
 In other words, don’t risk losing everything by seeking to get more.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
 ### 3\. En boca cerrada no entran moscas
 
 **Literal translation:** Flies do not enter the closed mouth.
@@ -252,6 +264,19 @@ _– No es asunto tuyo. En boca cerrada no entran moscas._ (“It’s none of yo
 
 ---
 
+<!-- affiliate ads begin -->
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Speak Spanish fluently in just 10 minutes a day
 
  Do you want to see the Spanish sayings in action in real conversations? Get Mondly, the award-winning language learning app that will help you [speak Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) as if you were born in Madrid.
@@ -268,8 +293,6 @@ _– No es asunto tuyo. En boca cerrada no entran moscas._ (“It’s none of yo
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -277,4 +300,18 @@ _– No es asunto tuyo. En boca cerrada no entran moscas._ (“It’s none of yo
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-skills.techidaily.com/new-pros-list-17-leading-apps-for-easy-image-transformation/"><u>[New] Pro's List 17 Leading Apps for Easy Image Transformation</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unlisted-youtube-explained-beyond-the-main-channels/"><u>[New] Unlisted YouTube Explained Beyond the Main Channels</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-rapid-releases-review-best-quick-gaming-selections/"><u>[Updated] 2024 Approved Rapid Releases Review Best Quick Gaming Selections</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-step-by-step-approach-to-capturing-and-editing-in-adobe-connect/"><u>[Updated] 2024 Approved Step-by-Step Approach to Capturing and Editing in Adobe Connect</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-chrome-os-best-free-video-capture-tools-compilation/"><u>2024 Approved Chrome OS Best Free Video Capture Tools Compilation</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/effective-prompting-methods-to-upgrade-chatgpt-replies-discover-the-seven-secrets/"><u>Effective Prompting Methods to Upgrade ChatGPT Replies: Discover the Seven Secrets</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-growth-beyond-grammar-constraints/"><u>Linguistic Growth Beyond Grammar Constraints</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-kids-the-ultimate-guide-to-kid-friendly-snacks-2017s-best-app/"><u>Mondly Kids: The Ultimate Guide to Kid-Friendly Snacks, 2017'S Best App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revel-in-advanced-usage-techniques-for-mondly/"><u>Revel in Advanced Usage Techniques for Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revolutionize-your-language-skills-using-mondlys-10-innovative-techniques/"><u>Revolutionize Your Language Skills Using Mondly's 10 Innovative Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-french-romance-banter/"><u>The Art of French Romance Banter</u></a></li>
+</ul></div>
 

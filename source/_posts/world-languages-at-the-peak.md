@@ -1,7 +1,7 @@
 ---
 title: World Languages at the Peak
-date: 2024-09-29T22:57:37.253Z
-updated: 2024-10-01T18:04:22.693Z
+date: 2024-10-15T19:56:46.129Z
+updated: 2024-10-18T16:50:32.001Z
 tags:
   - speak
   - english
@@ -40,23 +40,9 @@ thumbnail: https://thmb.techidaily.com/9778d11b1aebf28352d7990f8df2285fbb44be756
 
 ![most spoken languages](https://edge.mondly.com/blog/wp-content/uploads/2018/12/most-spoken-languages-2-960x960.jpg "Top 15 Most Spoken Languages In The World 3")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “Mutianyu Great Wall, China” by Robert Nyman©
 
  _**Do you want to learn Chinese?[Get Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-2471&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=zh&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=zh) and start speaking today.**_
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **2\. Spanish** **—** **471 million native speakers**
 
@@ -66,13 +52,6 @@ thumbnail: https://thmb.techidaily.com/9778d11b1aebf28352d7990f8df2285fbb44be756
 
  _**Do you want to [learn Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ?[Get Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-2471&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=es&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=es) and start speaking today.**_
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **3\. English — 369 million native speakers**
 
  With around 369 million native speakers, English is widely considered the official language of business, travel, and opportunity. The same as Greek and Latin in Antiquity, English is today a_lingua franca_ (a bridge language, a common language, a trade language, a vehicular language, or a link language).
@@ -80,13 +59,6 @@ thumbnail: https://thmb.techidaily.com/9778d11b1aebf28352d7990f8df2285fbb44be756
  You are reading this article in English right now, so you are probably either an English native speaker or you learned English as a [second or third language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) in school.
 
  _**Do you want to [learn English](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ?[Get Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-2471&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471) and start today.**_
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **4\. Hindi — 342** **million native speakers**
 
@@ -101,6 +73,13 @@ thumbnail: https://thmb.techidaily.com/9778d11b1aebf28352d7990f8df2285fbb44be756
  “Taj Mahal at sunrise” by Julian Yu©
 
  _**Do you want to learn Hindi?[Get Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-2471&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=hi&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=hi) and start speaking today.**_
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **5\. Arabic — 315 million native speakers**
 
@@ -120,6 +99,13 @@ thumbnail: https://thmb.techidaily.com/9778d11b1aebf28352d7990f8df2285fbb44be756
 
  _**Do you want to [learn Portuguese](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ?[Get Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-2471&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=br&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=br) and start speaking today.**_
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **7\. Bengali —228 million native speakers**
 
  The Bengali language is an Indo-Aryan language primarily spoken by the Bengalis in the Indian subcontinent. It is the official and most commonly spoken language in Bangladesh.
@@ -128,6 +114,13 @@ thumbnail: https://thmb.techidaily.com/9778d11b1aebf28352d7990f8df2285fbb44be756
 
  _**Do you want to learn Bengali?[Get Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-2471&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=bn&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=bn) and start speaking today.**_
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **8\. Russian — 153 million native speakers**
 
  The language of tsars and tsarinas, of Tchaikovsky, Dostoevsky, and magical fairy tales occupies eighth place with 153 million native speakers. Russian is one of the six official UN languages and the official language of Russia, Belarus, Tajikistan, Kyrgyzstan, and Kazakhstan. It is also widely spoken as a second language and_lingua franca_ in some parts of Asia and Eastern Europe. If you want to learn Russian, you’ll have to get acquainted with the [Cyrillic alphabet](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) which consists of 33 letters – just 7 more than the Latin alphabet.
@@ -135,22 +128,21 @@ thumbnail: https://thmb.techidaily.com/9778d11b1aebf28352d7990f8df2285fbb44be756
 ![most common languages](https://edge.mondly.com/blog/wp-content/uploads/2018/12/most-common-languages-960x757.jpg "Top 15 Most Spoken Languages In The World 5")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  “St. Basil’s Cathedral, Russia” by Anastasiya Romanova©
 
  _**Do you want to [learn Russian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ?[Get Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-2471&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=ru&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=ru) and start speaking today.**_
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **9\. Japanese — 126 million native speakers**
 
@@ -162,11 +154,25 @@ thumbnail: https://thmb.techidaily.com/9778d11b1aebf28352d7990f8df2285fbb44be756
 
  _**Do you want to [learn Japanese](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ?[Get Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-2471&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=ja&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=ja) and start speaking today.**_
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **10\. Yue Chinese — 84 million native speakers**
 
  The name Cantonese is often used instead of [Yue Chinese](https://en.wikipedia.org/wiki/Yue%5FChinese) , but linguists prefer to reserve that name for a specific variety used in Guangzhou (Canton), Wuzhou (Ngchow), Hong Kong, and Macau.
 
  Yue Chinese is regarded as a separated language group because it is not mutually intelligible with other varieties of Chinese.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **11\. Marathi — 83 million native speakers**
 
@@ -177,16 +183,10 @@ thumbnail: https://thmb.techidaily.com/9778d11b1aebf28352d7990f8df2285fbb44be756
  Spoken by Telugu people living in the Indian states of Andhra Pradesh and Telangana (where it is also the official language), the [Telugu language](https://en.wikipedia.org/wiki/Telugu%5Flanguage) is a Dravidian language (family of languages spoken mainly in southern India and northern Sri Lanka). Telugu is one of six languages designated a classical language of India by the country’s government and ranks fourth among the languages with the highest number of native speakers in India.
 
 <!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **13\. Turkish — 82.2** **million native speakers**
@@ -273,16 +273,16 @@ thumbnail: https://thmb.techidaily.com/9778d11b1aebf28352d7990f8df2285fbb44be756
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-building-a-broad-spectrum-audience-with-multichannel-strategy-for-2024/"><u>[New] Building a Broad-Spectrum Audience with Multichannel Strategy for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-expert-techniques-for-smooth-screen-casting/"><u>[Updated] 2024 Approved Expert Techniques for Smooth Screen Casting</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/1722166008078-are-these-8-money-making-gigs-using-chatgpt-for-real-discover-the-truth-inside/"><u>Are These 8 Money-Making Gigs Using ChatGPT for Real? Discover the Truth Inside!</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-social-media-platforms-can-stop-the-spread-of-covid-19-misinformation/"><u>How Social Media Platforms Can Stop the Spread of COVID-19 Misinformation</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/how-to-delete-all-photos-from-iphone-6-beyond-scope-of-recovery-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Delete All Photos from iPhone 6 Beyond Scope of Recovery? | Stellar</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/how-to-design-a-post-that-sparks-wide-scale-interest-in-fb-giving-for-2024/"><u>How to Design a Post That Sparks Wide-Scale Interest in FB Giving for 2024</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/in-2024-top-5-mts-video-editing-software-recommended/"><u>In 2024, Top 5 MTS Video Editing Software Recommended</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-lovers-guide-key-ways-to-embrace-a-new-tongue/"><u>Language Lovers' Guide: Key Ways to Embrace a New Tongue</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/quick-daily-master-urdu-in-10-mins/"><u>Quick Daily: Master Urdu in 10 Mins!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/what-are-the-romance-languages/"><u>What Are The Romance Languages?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/zahlenreimlernen-sprachlehre-zu-1-100-in-deutsch/"><u>Zahlenreimlernen: Sprachlehre Zu 1-100 in Deutsch</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-inside-the-world-of-facetune-a-comprehensive-photography-tool/"><u>[Updated] 2024 Approved Inside the World of Facetune A Comprehensive Photography Tool</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-launching-a-youtube-series-focused-on-product-quality-insights-for-2024/"><u>[Updated] Launching a YouTube Series Focused on Product Quality Insights for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressing-appreciation-learning-key-chinese-thank-you-phrases/"><u>Expressing Appreciation: Learning Key Chinese Thank You Phrases</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-youtube-shorts-earnings-guide-must-knows-and-future-potential/"><u>In 2024, Youtube Shorts Earnings Guide Must-Knows & Future Potential</u></a></li>
+<li><a href="https://fox-http.techidaily.com/inshot-alternatives-for-laptop-editors-for-2024/"><u>Inshot Alternatives for Laptop Editors for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-limits-whats-the-ultimate-word/"><u>Linguistic Limits: What’s The Ultimate Word?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-your-ultimate-companion-for-learning-a-new-tongue/"><u>Mondly: Your Ultimate Companion for Learning a New Tongue</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/navigating-the-dragon-ball-universe-ordered-watching-guide/"><u>Navigating the Dragon Ball Universe: Ordered Watching Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-anywhere-easily-top-multilingual-applications-for-mastery/"><u>Speak Anywhere, Easily: Top Multilingual Applications for Mastery</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/the-ultimate-guide-to-bypassing-icloud-activation-lock-from-iphone-11-by-drfone-ios/"><u>The Ultimate Guide to Bypassing iCloud Activation Lock from iPhone 11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unearthing-millennia-old-linguistic-foundations/"><u>Unearthing Millennia-Old Linguistic Foundations</u></a></li>
 </ul></div>
 

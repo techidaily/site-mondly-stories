@@ -1,7 +1,7 @@
 ---
 title: Linguagem Verde - Saudações a Toda Hora No Brasil
-date: 2024-09-27T23:01:01.697Z
-updated: 2024-10-01T22:19:53.630Z
+date: 2024-10-13T22:33:30.092Z
+updated: 2024-10-18T21:32:11.935Z
 tags:
   - speak
   - english
@@ -25,16 +25,10 @@ thumbnail: https://thmb.techidaily.com/5255f0c0ac11261d99ef752e1d8ce7d04128bb9f4
  “Hello” is a [powerful word](https://www.merriam-webster.com/words-at-play/the-origin-of-hello) . It opens doors. It makes people smile. And said the right way and at the right time, “hello” can impact someone’s day and you wouldn’t even know it. So here are the right ways to say “hello” in Portuguese and open doors everywhere you go.
 
 <!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### “Hello” in Portuguese – Olá
@@ -43,13 +37,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
  Be careful with your Portuguese pronunciation though! A lot of people accidentally mistake Portuguese for Spanish. You don’t want to do that. Just say “OH-lah” and everybody from Brazil to Mozambique will understand that you are saying “hello” in Portuguese.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### “Hi” in Portuguese – Oi
 
  Friendly and very informal,_Oi!_ is one of the most common ways to greet your friends in Brazil (people from Portugal use it as well, but not as much as_olá)_ . This is how you could greet your mates and close colleagues, but never the people you don’t really know. Don’t stress it tough! When the time comes, you will feel and just know what’s the required Portuguese greeting for that particular situation.
@@ -57,6 +44,13 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ![hi in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-portuguese-1024x658.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 2")
 
  “Lisbon, Portugal” by Diego García©
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### “How are you” in Portuguese – Tudo bem?
 
@@ -78,10 +72,10 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ![good morning in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/good-morning-in-portuguese-1024x642.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 3")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  “Rio de Janeiro, Brazil” by Raphael Nogueira©
@@ -108,14 +102,14 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ![portuguese greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/08/portuguese-greetings-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 4")
 
- “Ruínas da Fortaleza de Arrifana, Aljezur, Portugal” by Ferhat Deniz Fors©
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ “Ruínas da Fortaleza de Arrifana, Aljezur, Portugal” by Ferhat Deniz Fors©
 
 ## Bonus: other basic Portuguese phrases that you should know
 
@@ -179,17 +173,20 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-essential-8-backdrops-to-transform-your-mbp-screen/"><u>[New] Essential 8 Backdrops to Transform Your MBP Screen</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-five-superior-timelapse-filmmakers-for-2024/"><u>[New] Five Superior Timelapse Filmmakers for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-in-2024-continuous-media-gatherers/"><u>[New] In 2024, Continuous Media Gatherers</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-protect-and-enhance-images-with-top-tools/"><u>[Updated] Protect & Enhance Images with Top Tools</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-how-to-enhance-networked-stream-quality-with-vlc/"><u>2024 Approved How to Enhance Networked Stream Quality with VLC</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-decade-with-mondly-the-story-continues/"><u>A Decade with Mondly: The Story Continues</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/daily-dose-of-language-power-mastering-slovak-in-minutes/"><u>Daily Dose of Language Power: Mastering Slovak in Minutes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-educational-technologies-for-linguistic-success/"><u>Essential Educational Technologies for Linguistic Success</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-tecno-spark-20-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Tecno Spark 20 | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-vivo-y100i-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Vivo Y100i? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/kickstart-with-korean-to-navigate-the-world-of-squid-game/"><u>Kickstart with Korean to Navigate the World of Squid Game</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/swift-learners-polish-mastery-guide/"><u>Swift Learner's Polish Mastery Guide</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-best-free-video-editing-programs-you-should-know/"><u>[Updated] 2024 Approved Best Free Video Editing Programs You Should Know</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-from-backyard-blogs-to-billion-sub-youtube-channel/"><u>[Updated] From Backyard Blogs to Billion-Sub YouTube Channel</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-how-to-burn-video-to-dvd-on-mac/"><u>2024 Approved How to Burn Video to DVD on Mac</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579055981-discovering-santas-language-proficiency/"><u>Discovering Santa's Language Proficiency!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-davy-jones-vocabulary-pool/"><u>Dive Into Davy Jones' Vocabulary Pool</u></a></li>
+<li><a href="https://win-blog.techidaily.com/expert-advice-for-fixing-football-manager-2021s-stuck-loading-screens-what-works-and-why/"><u>Expert Advice for Fixing Football Manager 2021'S Stuck Loading Screens – What Works and Why</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/fixing-the-issue-how-to-open-epic-games-launcher-instantly/"><u>Fixing the Issue: How to Open Epic Games Launcher Instantly</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-crafting-a-perfect-paradise-the-top-stardew-valley-mods-7-14/"><u>In 2024, Crafting a Perfect Paradise The Top Stardew Valley Mods (#7-14)</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-realme-v30-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Realme V30 to Outlook | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/join-the-international-english-community-at-pearson/"><u>Join the International English Community at Pearson</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-slovak-quickly-daily-lessons-for-rapid-fluency/"><u>Master Slovak Quickly: Daily Lessons for Rapid Fluency!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-framework-for-effective-learning/"><u>Mondly's Framework for Effective Learning</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/resolving-audio-interruptions-from-bluetooth-devices-on-your-pc-with-windows-1110/"><u>Resolving Audio Interruptions From Bluetooth Devices on Your PC with Windows 11/10</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/resolving-logitech-mouse-issues-on-windows-11-a-comprehensive-guide/"><u>Resolving Logitech Mouse Issues on Windows 11: A Comprehensive Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-key-phrases-a-beginners-journey-through-latin-american-vernaculars/"><u>Understanding Key Phrases: A Beginner's Journey Through Latin American Vernaculars</u></a></li>
 </ul></div>
 

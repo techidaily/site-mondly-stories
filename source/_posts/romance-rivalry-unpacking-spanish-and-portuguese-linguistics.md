@@ -1,7 +1,7 @@
 ---
 title: "Romance Rivalry: Unpacking Spanish & Portuguese Linguistics"
-date: 2024-08-27T22:51:49.488Z
-updated: 2024-08-28T22:51:49.488Z
+date: 2024-10-12T18:12:25.306Z
+updated: 2024-10-18T17:26:14.098Z
 tags:
   - speak
   - english
@@ -43,12 +43,16 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
 
 ### Portuguese to Spanish
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Spanish to Portuguese
 
  Do you see now why the spoken forms are less mutually intelligible than the written forms?
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Examples of Similarities and Differences Between Spanish and Portuguese
 
@@ -68,9 +72,6 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Spanish And Portuguese: A Comparative Analysis 2")
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 ##### Learn both Spanish and Portuguese with one app
 
  Build practical language skills for real life with Mondly.
@@ -103,6 +104,19 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
 
  “Ponta Negra, Natal, Brazil” by Pedro Menezes©
 
+<!-- affiliate ads begin -->
+<span id="1770526">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Spanish-Portuguese cognates
 
  Cognates are words that have a common etymological origin. Essentially, they are “linguistic cousins”. They often**look similar and have the same or similar meanings.** Since Portuguese and Spanish share nearly 90% of their vocabulary, there are a lot of such cognates between them. Here are a few examples:
@@ -132,8 +146,12 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
 | together  | juntos   | junto      |
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Other Notable Differences
 
  At this point, we already settled that although very similar, Portuguese and Spanish are also different in terms of pronunciation and false cognates. Besides, there are also differences given by the area in which the language is spoken.[Brazilian Portuguese is different from European Portuguese](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and Latin American Spanish is different from European Spanish. And as we already mentioned, behind that, there are entire centuries of rich history and different influences. It’s nothing but fascinating!
@@ -145,9 +163,6 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
 * while in Spanish you have to use_muy_ before adverbs and adjectives and_mucho_ before a noun or after a verb, in Portuguese you just use_muito_ ;
 * while Portuguese speakers tend to use_a casa dela_ to express possession, the Spanish speakers just say_su casa_ as you probably already know from the well-known expression_Mi casa es su casa_ ;
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion: Embrace the Similarities and Differences
 
  The bottom line is that **Spanish and Portuguese are indeed different but also quite similar.** So, if you already speak Portuguese, learning Spanish will certainly become way easier and vice-versa. You’ll soon discover that even a small resemblance between words like [“hello” in Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and [“hello” in Portuguese](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) will make a huge difference in your learning process.
@@ -158,9 +173,6 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
 
  If you still have questions regarding Spanish vs. Portuguese, let’s look at some frequently asked questions:
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
 ### How similar are Spanish and Portuguese?
 
  There’s an almost 90% lexical similarity between Spanish and Portuguese.
@@ -170,19 +182,34 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
  It’s often suggested that individuals who speak Portuguese typically have a better understanding of spoken Spanish than Spanish speakers have of spoken Portuguese.
 
 <!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### How do European Portuguese and Brazilian Portuguese differ?
 
  The main difference between European Portuguese and Brazilian Portuguese is the pronunciation. However, there are also vocabulary, syntax, grammar, and spelling differences that make the two languages differ.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### What are the key pronunciation differences between Spanish and Portuguese?
 
  Portuguese, sometimes likened to Russian in its sounds, is a stress-timed language with varied vowel sounds and atonic syllable reduction. In contrast, Spanish, characterized by its smooth and consistent pronunciation, is syllable-timed, providing a rhythmic flow where each syllable takes roughly the same amount of time. Additionally, Portuguese features numerous slurred sounds, contributing to its fluid nature, while Spanish, in contrast, has more pronounced and distinct word articulation.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Is it easier to learn Spanish if you already know Portuguese, and vice versa?
 
  Considering there’s almost a 90% lexical similarity between Spanish and Portuguese, yes. It’s definitely easier to learn Spanish if you already know Portuguese and the other way around.
@@ -214,8 +241,6 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -223,4 +248,23 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-a-step-by-step-path-to-authentic-selfie-verification-on-ig/"><u>[New] 2024 Approved A Step-by-Step Path to Authentic Selfie Verification on IG</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-the-ultimate-list-of-powerful-pc-screencasters/"><u>[New] 2024 Approved The Ultimate List of Powerful PC Screencasters</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-expert-advice-for-embedding-youtube-playlists-with-ease/"><u>[New] Expert Advice for Embedding YouTube Playlists with Ease</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-vlc-mastery-understanding-key-mac-settings-and-options/"><u>[New] In 2024, VLC Mastery Understanding Key Mac Settings and Options</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ideo-snippet-creator/"><u>[New] Video Snippet Creator</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-quick-guide-activatingdeactivating-picture-in-picture-pip-for-youtube/"><u>[Updated] Quick Guide Activating/Deactivating Picture In Picture (PIP) for YouTube</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/amped-arcs-and-zigzags-in-olympic-speed/"><u>Amped Arcs & Zigzags in Olympic Speed</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/full-tutorial-to-bypass-your-nokia-c12-pro-face-lock-by-drfone-android/"><u>Full Tutorial to Bypass Your Nokia C12 Pro Face Lock?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-vivo-y100-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use GPS Joystick to Fake GPS Location On Vivo Y100 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-journey-how-long-does-it-take-to-master-a-new-language/"><u>Language Learning Journey: How Long Does It Take To Master A New Language?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-innovative-way-to-master-foreign-languages-with-ar/"><u>Mondly's Innovative Way to Master Foreign Languages with AR</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/novel-journey-in-france-essential-reads-for-aspiring-francophones/"><u>Novel Journey in France: Essential Reads for Aspiring Francophones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/redefine-your-linguistic-skills-with-mondly-top-2022-app/"><u>Redefine Your Linguistic Skills with Mondly, Top 2022 App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tech-talk-the-21st-centurys-linguistic-playbook/"><u>Tech Talk: The 21St Century's Linguistic Playbook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-your-potential-with-mondlys-unmatched-app/"><u>Unlock Your Potential with Mondly's Unmatched App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/your-handbook-to-conversational-russian-for-travelers/"><u>Your Handbook to Conversational Russian for Travelers</u></a></li>
+</ul></div>
 

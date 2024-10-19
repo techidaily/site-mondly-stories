@@ -1,7 +1,7 @@
 ---
 title: The Fundamentals of Pronouncing French Words Rightly
-date: 2024-09-25T20:29:47.270Z
-updated: 2024-09-26T18:07:50.997Z
+date: 2024-10-11T23:13:55.503Z
+updated: 2024-10-18T17:36:21.434Z
 tags:
   - speak
   - english
@@ -30,6 +30,13 @@ thumbnail: https://thmb.techidaily.com/93fd3ecf6c0ec1cdbec9f4930fda0699ca8c61749
 
  There’s no need to worry, though. As you yourself find French difficult to pronounce, French people sometimes find English hard to pronounce. Luckily, with the right training, speaking French can be as simple as saying [_bonjour_](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) or _de rien_ (that’s [_you’re welcome_ in French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ).
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## An introduction to French sounds & French pronunciation
 
 The same as English, [French](https://en.wikipedia.org/wiki/French%5Flanguage)  uses the 26-letter basic Latin script, with four diacritics appearing on vowels – circumflex accent, acute accent, grave accent, diaeresis – and the cedilla in “ç”.
@@ -40,6 +47,13 @@ To help you get started with the _magique_  French sounds, we put together this 
 
 ![french pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2020/05/french-pronunciation-600x600.jpg "Quick Guide To French Pronunciation - How To Speak French Like A Native 2")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  French pronunciation in a nutshell
 
  It’s not a 100% faithful transliteration of French sounds, but neither can it be. As you already saw, there are many French sounds that don’t exist in English, so we’ll have to improvise. Don’t worry, though. Read on and you’ll discover how to correctly pronounce some of the most difficult of them. Remember, we’re only focusing on pronunciation, not [F rench grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) here. We’ll tackle that in the next [French lessons](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
@@ -49,10 +63,10 @@ To help you get started with the _magique_  French sounds, we put together this 
  There’s no denying that French pronunciation can be challenging. Depending on your ability (or inability) to mimic sounds, speaking French with a French accent can be a piece of cake or a hornet’s nest. Here are some of the most infamous French pronunciation challenges and how to overcome them. For practice, you may start with the [days of the week in French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) pronunciation.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### The French r
@@ -65,6 +79,13 @@ To help you get started with the _magique_  French sounds, we put together this 
 
 Repeat the phrase **_regardez mon frère_** and find out where right now.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### “u”, “eu” and “ue” in French
 
  If you think about it, they all sound almost the same. But French is a language of subtle differences. Differences you will manage to master practicing.
@@ -74,13 +95,6 @@ Repeat the phrase **_regardez mon frère_** and find out where right now.
  Aaaand you just said your first French “u” sound. Cool, isn’t it?
 
  To master the other variables, you just have to continue practicing.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### The nasal sounds
 
@@ -121,14 +135,14 @@ Well, not very different from each other, are they?
 
 ![french buildings](https://edge.mondly.com/blog/wp-content/uploads/2020/05/french-buildings-960x640.jpg "Quick Guide To French Pronunciation - How To Speak French Like A Native 3")
 
- “French buildings” by Orlova Maria©
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ “French buildings” by Orlova Maria©
 
 ## What are French liaisons and how to master them?
 
@@ -147,13 +161,6 @@ Now, some of these _liaisons_  are optional, others are required, and some are f
 * _les amis_  \[lay zah mee\] – the friends (article + noun)
 * _deux enfants_ \[deu za(n) fa(n)\] – two children (numeral + noun)
 * _vous avez_ \[voo zah vay\] – you have (pronoun + verb)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### “Dangereuses” French liaisons
 
@@ -178,14 +185,14 @@ Now, some of these _liaisons_  are optional, others are required, and some are f
 
 ![interior versailles palace](https://edge.mondly.com/blog/wp-content/uploads/2020/05/interior-versailles-palace-1-960x640.jpg "Quick Guide To French Pronunciation - How To Speak French Like A Native 4")
 
- “Versailles Palace, France” by Louis Paulin©
-
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ “Versailles Palace, France” by Louis Paulin©
 
 ## How to perfect your French pronunciation
 
@@ -205,13 +212,6 @@ _Bonne chance!_
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Speak French fluently in just 10 minutes a day
 
@@ -238,18 +238,22 @@ _Bonne chance!_
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-balancing-dimensions-the-ultimate-guide-to-social-media-video-sizes-on-fb/"><u>[New] In 2024, Balancing Dimensions The Ultimate Guide to Social Media Video Sizes on FB</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-discover-9-affordable-online-editors-for-youtube/"><u>[Updated] 2024 Approved Discover 9 Affordable Online Editors for YouTube</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/10-easy-to-learn-italian-gestures-for-beginners/"><u>10 Easy-to-Learn Italian Gestures for Beginners</u></a></li>
-<li><a href="https://windows11.techidaily.com/command-prompt-oddities-learn-5-amusing-anomalies/"><u>Command Prompt Oddities: Learn 5 Amusing Anomalies</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/explore-the-power-of-voice-and-text-on-huawei/"><u>Explore the Power of Voice & Text on Huawei</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exploring-the-most-suitable-new-language-option/"><u>Exploring the Most Suitable New-Language Option</u></a></li>
-<li><a href="https://solve-news.techidaily.com/how-can-you-watch-av1-encoded-movies-and-shows-on-your-plex-media-server/"><u>How Can You Watch AV1 Encoded Movies and Shows on Your Plex Media Server?</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-ispoofer-on-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Tecno Phantom V Fold? | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-fast-guide-transforming-images-into-youtube-desktop-thumbnails/"><u>In 2024, Fast Guide Transforming Images Into YouTube Desktop Thumbnails</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-do-sony-xperia-5-v-screen-sharing-drfone-by-drfone-android/"><u>In 2024, How To Do Sony Xperia 5 V Screen Sharing | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-essential-repertoire-of-italian-gesture-language/"><u>The Essential Repertoire of Italian Gesture Language</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/utilizing-royalty-free-beats-in-your-youtube-clips-for-2024/"><u>Utilizing Royalty-Free Beats in Your YouTube Clips for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/your-first-encounter-with-german-linguistics-phonetics-and-alphabet-guide/"><u>Your First Encounter with German Linguistics: Phonetics & Alphabet Guide</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-unleash-potential-the-ultimate-guide-to-spectacous-tiktok-openers-mac-for-2024/"><u>[New] Unleash Potential The Ultimate Guide to Spectacous TikTok Openers (Mac) for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-capture-the-moment-no-cost-cross-platform-screen-recorders-for-pcmac/"><u>[Updated] 2024 Approved Capture the Moment - No-Cost, Cross-Platform Screen Recorders for PC/Mac</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-seo-savvy-boosting-your-podcasts-discoverability-and-rankings/"><u>[Updated] SEO Savvy Boosting Your Podcast's Discoverability and Rankings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-beginners-guide-to-the-german-pronunciation-and-alphabet/"><u>A Beginner’s Guide To The German Pronunciation & Alphabet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/battling-the-walls-of-german-study-challenges/"><u>Battling the Walls of German Study Challenges</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/capturing-tv-screen-scenes-with-ease-your-ultimate-guide/"><u>Capturing TV Screen Scenes with Ease - Your Ultimate Guide</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/commanding-the-screen-top-10-women-gamers-yt-for-2024/"><u>Commanding the Screen Top 10 Women Gamers YT for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/convertir-con-facilidad-y-gratuito-tutorial-paso-a-paso-para-cambiar-tus-archivos-de-audio-mp3-a-formatos-de-video-mov/"><u>Convertir Con Facilidad Y Gratuito: Tutorial Paso a Paso Para Cambiar Tus Archivos De Audio MP3 a Formatos De Video MOV</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/educational-excellence-unveiled-mondlys-german-achievement/"><u>Educational Excellence Unveiled: Mondly's German Achievement</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580999287-heres-how-to-say-chocolate-in-34-different-languages/"><u>Here’s How to Say Chocolate in 34 Different Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-languages-essential-tips-for-deep-immersion/"><u>Mastering Languages: Essential Tips for Deep Immersion</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/merge-skype-and-zoom-easy-techniques-for-effective-communication-for-2024/"><u>Merge Skype and Zoom Easy Techniques for Effective Communication for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/navigating-unexpected-errors-in-windows-security-fixes/"><u>Navigating Unexpected Errors in Windows Security Fixes</u></a></li>
+<li><a href="https://windows11.techidaily.com/rapidly-access-apps-on-windows-11/"><u>Rapidly Access Apps on Windows 11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-a-local-in-italy-essential-italian-greeting-guide/"><u>Speak Like a Local in Italy: Essential Italian Greeting Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-rise-of-multilingualism-learn-arabic-and-why-mondlys-online-is-key/"><u>The Rise of Multilingualism? Learn Arabic & Why Mondly's Online Is Key</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-global-opportunities-through-language-training/"><u>Unlock Global Opportunities Through Language Training</u></a></li>
 </ul></div>
 

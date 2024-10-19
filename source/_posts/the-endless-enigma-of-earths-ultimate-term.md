@@ -1,7 +1,7 @@
 ---
 title: The Endless Enigma of Earth's Ultimate Term
-date: 2024-08-27T22:57:18.783Z
-updated: 2024-08-28T22:57:18.783Z
+date: 2024-10-11T19:51:48.848Z
+updated: 2024-10-18T16:17:36.766Z
 tags:
   - speak
   - english
@@ -82,6 +82,13 @@ Anyway, here’s a glimpse of the little titan’s name:
 
 Good luck posting it on Twitter!
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The longest word in English – fake version turned official
 
  This is getting more and more interesting. This next word wasn’t originally mentioned in any major dictionaries. In fact, it was originally invented by the president of the National Puzzlers’ League as a synonym for the disease known as silicosis with the sole purpose of becoming a candidate for the longest word in English.
@@ -92,11 +99,15 @@ Good luck posting it on Twitter!
 
 ![surprised lemur](https://edge.mondly.com/blog/wp-content/uploads/2018/10/surprised-lemur-960x639.jpg "What Is The Longest Word In The World? 3")
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  “I don’t believe you!” by Maik Stahnke©
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ## The longest word in the dictionary – really official version
 
 Enough with the jokes already! This one is for real. Promise.
@@ -132,8 +143,12 @@ Enough with the jokes already! This one is for real. Promise.
  Now that you know all the arguments of this complicated debate, feel free to be the judge and decide which one is the longest word in the dictionary,**the longest word in the English language** or even the longest word in the galaxy!
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Bonus: supercalifragilisticexpialidocious (34 letters)
 
  This is your absolute favorite. You thought this was the longest word, haven’t you? But**supercalifragilisticexpialidocious** is, in fact, a coined word made popular by Marry Poppins. Because you tried to pronounce it countless times, here’s a little help:
@@ -156,16 +171,10 @@ Enough with the jokes already! This one is for real. Promise.
 
  So here it is:**the longest word in Spanish is** **esternocleidomastoideitis (30 letters)** – this is a medical term which translates to “inflammation of the sternocleidomastoid muscle”. Surprisingly short, don’t you think?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
-<!-- affiliate ads end -->
 ### The longest word in Afrikaans
 
  **Tweedehandsemotorverkoopsmannevakbondstakingsvergaderingsameroeperstoespraakskrywerspersverklaringuitreikingsmediakonferensieaankondiging (136 letters)** – translates to “issuable media conference’s announcement at a press release regarding the convener’s speech at a secondhand car dealership union’s strike meeting”.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### The longest word in Danish
 
  Mother tongue of the talented actor Mads Mikkelsen, Danish is a language that allows its speakers to put nouns together always forming new and extremely long words.
@@ -173,20 +182,24 @@ Enough with the jokes already! This one is for real. Promise.
 ![danish](https://media.giphy.com/media/xNBLz5z3ndgAw/giphy.gif "What Is The Longest Word In The World? 7")
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  For example, Danish author Hans Christian Andersen, King of Dreamy Fairy Tales and children’s favorite author, named one of his characters (from “The Shepherdess and the Chimney Sweep”) **Gedebukkebensoverogundergeneralkrigskommandersergenten (54 letters)** . That translates to “General-clothes-press-inspector-head-superintendent-Goat-legs” and in literal translation sounds even funnier than that: “the goaty-legged-above-and-under-general-war-commanding-sergeant”. The author’s intention was to make fun of the Danish military titles.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ### The longest word in Dutch
 
  Like many Germanic languages, Dutch is capable of forming compounds of potentially limitless length. However, **meervoudigepersoonlijkheidsstoornissen (38 letters)** is the longest word that was included in the Van Dale Dutch dictionary. The giant word means “multiple personality disorders”.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### The longest word in Finnish
 
 **Peruspalveluliikelaitoskuntayhtymä (34 letters)** — it’s present in the everyday use of the Finnish language (can you even imagine that?) and “translates to “a public utility of a municipal federation for the provision of basic services”.
@@ -197,30 +210,29 @@ Enough with the jokes already! This one is for real. Promise.
 
 **Anticonstitutionnellement (25 letters)** — translates to “contrary to the constitution”. Pretty straightforward, I’d say.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 ### The longest word in Icelandic
 
  **Vaðlaheiðarvegavinnuverkfærageymsluskúraútidyralyklakippuhringur (64 letters)** — whoa there, Icelandic. Take it easy. This absolute giant means “a keychain ring for the outdoor key of road workers shed in a moor called Vaðlaheið” in English.
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### The longest word in Italian
 
 **Precipitevolissimevolmente (26 letters)** — the superlative form of_precipitevolmente_ (“hastily, precipitously”). The word is used more in jokes than in everyday language. Nevertheless, it is now an official word in the Italian language although it was originally coined by poet Francesco Moneti.
 
 ![italian](https://media.giphy.com/media/135E47VKw6TM6A/giphy.gif "What Is The Longest Word In The World? 8")
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### The longest word in Greek
 
@@ -228,11 +240,25 @@ Enough with the jokes already! This one is for real. Promise.
 
  Modern Greek words, on the other hand, are much shorter: **ηλεκτροεγκεφαλογράφημα (ilektroenkefalográfima), is a 22-letter word** that means “electroencephalogram”. Yes, you remember that correctly! It really is connected to the word we mentioned for English (electroencephalographically).
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### The longest word in**Polish**
 
  Polish allows the creation of gigantic adjectives from numerals and nouns. For example, **dziewięćsetdziewięćdziesiątdziewięćmiliardówdziewięćsetdziewięćdziesiątdziewięćmilionówdziewięćsetdziewięćdziesiątdziewięćtysięcydziewięćsetdziewięćdziesięciodziewięcioletniego**  is**176 letters long** and it means “of 999,999,999,999 years old”.
 
  But one of the longest common Polish words is**dziewięćdziesięciokilkuletniemu (31 letters)** — the dative singular form of “ninety-and-some years old one”.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### The longest word in**Turkish**
 
@@ -247,10 +273,6 @@ Enough with the jokes already! This one is for real. Promise.
 
 Suddenly “supercalifragilisticexpialidocious” seems waaay shorter and easier to pronounce, doesn’t it?
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 ## The longest words with one syllable, no vowels and all vowels
 
 **The longest one-syllable word**
@@ -287,8 +309,6 @@ Suddenly “supercalifragilisticexpialidocious” seems waaay shorter and easier
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -296,4 +316,22 @@ Suddenly “supercalifragilisticexpialidocious” seems waaay shorter and easier
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-the-path-to-youtube-stardom-utilizing-sony-vegas-for-professional-cuts/"><u>[New] 2024 Approved The Path to YouTube Stardom Utilizing Sony Vegas for Professional Cuts</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-premium-8-streamlining-tools-to-elevate-your-streams/"><u>[Updated] 2024 Approved Premium 8 Streamlining Tools to Elevate Your Streams</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-structuring-tutorials-for-clarity-on-youtube/"><u>[Updated] 2024 Approved Structuring Tutorials for Clarity on YouTube</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-snapshot-elite-windows-vista2008-for-2024/"><u>[Updated] SnapShot Elite Windows Vista/2008 for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-unlock-the-secrets-of-instagrams-latest-filters/"><u>2024 Approved Unlock the Secrets of Instagram's Latest Filters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/germany-loves-mondly-the-online-language-kingpin/"><u>Germany Loves Mondly: The Online Language Kingpin</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-4-things-you-must-know-about-apple-iphone-xs-activation-lock-by-drfone-ios/"><u>In 2024, 4 Things You Must Know About Apple iPhone XS Activation Lock</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-new-guide-how-to-check-icloud-activation-lock-status-on-your-apple-iphone-14-plus-by-drfone-ios/"><u>In 2024, New Guide How To Check iCloud Activation Lock Status On Your Apple iPhone 14 Plus</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lifetime-access-to-new-languages-zero-price-endless-potential/"><u>Lifetime Access to New Languages: Zero Price, Endless Potential</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-japanese-social-interactions/"><u>Navigating Japanese Social Interactions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polyglot-realm-multilingual-education-in-3d/"><u>Polyglot Realm: Multilingual Education in 3D</u></a></li>
+<li><a href="https://discover-bytes.techidaily.com/solution-melatonin-helps-regulate-the-bodys-internal-clock-signaling-when-it-is-time-to-sleep-disruptions-in-its-production-can-lead-to-circadian-rhythm-dis53/"><u>Solution: Melatonin Helps Regulate the Body's Internal Clock, Signaling when It Is Time to Sleep. Disruptions in Its Production Can Lead to Circadian Rhythm Disorders Like Insomnia or Delayed Sleep Phase Syndrome.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-complexity-navigating-9-struggle-filled-languages/"><u>Unveiling Complexity: Navigating 9 Struggle-Filled Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/voices-from-the-heart-of-africa-language-diversity-unveiled/"><u>Voices From the Heart of Africa: Language Diversity Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/whispering-desires-italys-sultry-sayings/"><u>Whispering Desires: Italy's Sultry Sayings</u></a></li>
+</ul></div>
 

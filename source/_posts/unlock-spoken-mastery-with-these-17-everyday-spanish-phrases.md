@@ -1,7 +1,7 @@
 ---
 title: Unlock Spoken Mastery with These 17 Everyday Spanish Phrases
-date: 2024-08-27T22:54:48.859Z
-updated: 2024-08-28T22:54:48.859Z
+date: 2024-10-17T20:04:59.399Z
+updated: 2024-10-18T16:37:12.714Z
 tags:
   - speak
   - english
@@ -40,6 +40,13 @@ thumbnail: https://thmb.techidaily.com/d72c9b0ad235ae2e33438a2833486adc17771826c
 
  Absolutely the best Spanish saying you can use to encourage someone to be hopeful even when things are not great.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Más vale tarde que nunca
 
 **English equivalent:** “Better late than never.”
@@ -48,11 +55,21 @@ thumbnail: https://thmb.techidaily.com/d72c9b0ad235ae2e33438a2833486adc17771826c
 
 ![spanish expressions](https://edge.mondly.com/blog/wp-content/uploads/2021/05/spanish-expressions-960x638.jpg "17 Spanish Sayings That Will Make You Sound Like A Native 2")
 
+<!-- affiliate ads begin -->
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  “Valldemossa, Spain” by Patrick Baum©
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 4\. Cuando el río suena, agua lleva
 
 **Literal translation:** When the river makes noise, it’s carrying water.
@@ -61,9 +78,6 @@ thumbnail: https://thmb.techidaily.com/d72c9b0ad235ae2e33438a2833486adc17771826c
 
  Did you know this one? It means that if there are unpleasant rumors about someone or something, there is probably a good reason for it. Meaning that the rumors are almost always partly true.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 5\. Del tal palo, tal astilla
 
 **Literal translation:** Such is the stick, such is the chip.
@@ -87,8 +101,18 @@ Who wouldn’t prefer cakes over bread though?
  Don’t ever judge a person solely by appearances because this is not a reliable indication of the true character of that person. No matter if it’s a positive or a negative bias. You might be surprised.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 8\. Mucho ruido y pocas nueces
 
 **Literal translation:** Lots of noise and few nuts.
@@ -100,8 +124,12 @@ Who wouldn’t prefer cakes over bread though?
  But it’s not entirely absurd though. Think about the moment you break in a nutshell. If it’s empty, it made a loud noise for literally nothing.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 9\. El que no arriesga, no gana
 
 **Literal translation:** The person who does not risk cannot win.
@@ -112,10 +140,14 @@ Who wouldn’t prefer cakes over bread though?
 
 ![spanish saying](https://edge.mondly.com/blog/wp-content/uploads/2021/05/spanish-saying-960x640.jpg "17 Spanish Sayings That Will Make You Sound Like A Native 3")
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  “Barcelona, Spain” by Toa Heftiba©
+
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 10\. En casa del herrero, cuchillo de palo
 
@@ -124,6 +156,13 @@ Who wouldn’t prefer cakes over bread though?
 **English equivalent:** “The shoemaker’s son always goes barefoot.”
 
  This saying illustrates the ironic absence of an object or virtue in a place where it should not be lacking.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## General Spanish sayings with no direct English equivalent
 
@@ -143,9 +182,6 @@ _–_   _Estoy pasando por una mala racha. Tengo que terminar un informe para el
 
 _–_ _Oye, no te desesperes. Al mal tiempo, buena cara._ (“Hey, don’t despair. It’s important to remain positive even in difficult situations.”)
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 2\. El que tiene boca se equivoca
 
 **Literal translation:** Whoever has a mouth makes mistakes.
@@ -159,6 +195,13 @@ _–_   _Me preocupa no haberlo hecho bien en el examen de ayer. Estaba realment
  _– No te preocupes. El que tiene boca se equivoca. La celebraremos si apruebas._ (“Don’t worry. Nobody’s perfect. We’ll celebrate if you pass.”)
 
 ![spanish phrases](https://edge.mondly.com/blog/wp-content/uploads/2021/05/spanish-phrases-1-960x640.jpg "17 Spanish Sayings That Will Make You Sound Like A Native 4")
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  “Torrevieja, Spain” by Ralph (Ravi) Kayden©
 
@@ -176,9 +219,6 @@ _–_   _Me preocupa no haberlo hecho bien en el examen de ayer. Estaba realment
 
 _– ¡Buena suerte! No olvides que a quien madruga, Dios le ayuda._ (“Good luck! Don’t forget that God helps those who are determined to get the work done.”)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
 ### 4\. Como Pedro por su casa
 
 **Literal translation:** Like Pedro in his house.
@@ -195,17 +235,17 @@ _– Tu suegra lleva aquí un tiempo. Supongo que se siente cómoda aquí._ (“
 
 _– Si, como Pedro por su casa._ (“Yes, like Peter in his house.”)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## Spanish sayings about animals
 
  Sayings about [animals are common in any language and Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) makes no exception. Here are some of the most common Spanish sayings about animals.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 1\. A caballo regalado no se le mira el diente
 
 **Literal translation:** A gift horse does not look at the tooth.
@@ -216,10 +256,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
 ![spanish idioms](https://edge.mondly.com/blog/wp-content/uploads/2021/05/spanish-idioms-960x720.jpg "17 Spanish Sayings That Will Make You Sound Like A Native 5")
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
  “A man and his dog in San Sebastián, Spain” by Lucian Alexe©
 
 ### 2\. Más vale pájaro en mano que ciento volando
@@ -230,9 +266,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
 In other words, don’t risk losing everything by seeking to get more.
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3\. En boca cerrada no entran moscas
 
 **Literal translation:** Flies do not enter the closed mouth.
@@ -266,8 +299,6 @@ _– No es asunto tuyo. En boca cerrada no entran moscas._ (“It’s none of yo
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -275,4 +306,18 @@ _– No es asunto tuyo. En boca cerrada no entran moscas._ (“It’s none of yo
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-direct-data-delivery-master-5-techniques-for-uploading-files/"><u>[New] In 2024, Direct Data Delivery Master 5 Techniques for Uploading Files</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-unleash-creativity-premier-vimeo-editors-deliver-for-2024/"><u>[New] Unleash Creativity Premier Vimeo Editors Deliver for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-amplify-volume-for-twitters-silent-videos-for-2024/"><u>[Updated] Amplify Volume for Twitter's Silent Videos for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/1-official-macx-hd-unlock-ultimate-convenience-with-free-mac-software-transferring-rip-protected-content-from-dvds-to-iphone-xs-xs-max-and-xr-devices/"><u>1. Official MacX HD: Unlock Ultimate Convenience with Free Mac Software Transferring Rip-Protected Content From DVDs to iPhone XS, XS Max, and XR Devices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/guia-inicial-a-la-comprehension-del-tiempo-en-espanol/"><u>Guía Inicial a La Comprehensión Del Tiempo en Español</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-deleted-photos-on-vivo-s17t-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Retrieve deleted photos on Vivo S17t</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-a-critical-look-at-sns-hdrs-potential-and-alternatives/"><u>In 2024, A Critical Look at SNS HDR's Potential & Alternatives</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-shade-savvy-mastering-the-art-of-color-adjustment-with-ease/"><u>In 2024, Shade Savvy Mastering the Art of Color Adjustment with Ease</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/johannes-honterus-inspiration-and-leadership-icon/"><u>Johannes Honterus: Inspiration & Leadership Icon</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/when-do-other-countries-commemorate-thanksgiving/"><u>When Do Other Countries Commemorate Thanksgiving?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/yearly-commitments-successful-realization-techniques/"><u>Yearly Commitments: Successful Realization Techniques</u></a></li>
+</ul></div>
 

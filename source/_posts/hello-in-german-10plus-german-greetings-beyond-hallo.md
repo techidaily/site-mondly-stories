@@ -1,7 +1,7 @@
 ---
 title: "Hello in German: 10+ German Greetings Beyond Hallo"
-date: 2024-08-27T22:52:10.709Z
-updated: 2024-08-28T22:52:10.709Z
+date: 2024-10-12T22:30:20.034Z
+updated: 2024-10-18T16:30:20.887Z
 tags:
   - speak
   - english
@@ -53,8 +53,12 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 * _Abend!_
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 4\. Wie geht es dir? – “How’s it going?”
 
  Don’t we all sometimes throw in a “how are you” instead of “hello” just to mix things up? Well, Germans do the same.
@@ -69,9 +73,6 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 
  The simplest way to answer to_alles klar?_ is by saying_ya, danke_ meaning “yes, thanks”. As one would expect, this German greeting is mostly used by youngsters.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
-<!-- affiliate ads end -->
 ## 6\. Was ist los? – “What’s up?”
 
  Very similar to_alles klar?_ ,_was ist los?_ is appropriate for very casual conversations.
@@ -81,8 +82,12 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 !['German greetings' by Angelo Abear©](https://edge.mondly.com/blog/wp-content/uploads/2022/05/german-greetings-960x640.jpg "Hello In German: 10+ German Greetings Beyond Hallo 2")
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Regional German greetings
 
  Now that you have enough greetings to get by in the entire German-speaking world, it’s time to get into specifics. These next greetings are generally used in just a few regions.
@@ -104,9 +109,6 @@ _– Na._ (“Fine. Thanks!”)
 
 **Localization:** mostly northern Germany.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. Moin moin – “Hi”
 
  The ‘harsh’ German language strikes again. Imagine you’re in Hamburg and people are cheerfully saying_moin_ or_moin moin_ or even_moinsten_ to you. What do you do? You say_moin_ back, of course!
@@ -122,9 +124,12 @@ _Grüezi_ is a greeting you can use in formal situations, such as speaking with 
 **Localization:** Switzerland.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 4\. Grüß Gott – “God bless you”
 
  Mainly used by the older generations,_Grüß Gott_ is a very formal greeting that literally means “greetings (from) God” or “God greets you”.
@@ -134,8 +139,12 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 **Localization:** Bavaria (south-eastern Germany) and Austria.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 5\. Servus – “At your service”
 
 _Servus_ was originally a shortened version of a [Latin phrase](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) meaning “at your service”. However, the original meaning was lost through time and the greeting we use nowadays is not as formal as you’d think.
@@ -175,8 +184,6 @@ _Tschüss!_ (‘Goodbye!’)
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -184,4 +191,26 @@ _Tschüss!_ (‘Goodbye!’)
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-standout-80s-aesthetics-for-video-editing-pros/"><u>[Updated] 2024 Approved Standout '80S Aesthetics for Video Editing Pros</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-apex-10-royale-showdowns-for-2024/"><u>[Updated] Apex 10 Royale Showdowns for 2024</u></a></li>
+<li><a href="https://win-premium.techidaily.com/easy-strategies-capturing-and-saving-telegram-video-calls-successfully/"><u>Easy Strategies: Capturing and Saving Telegram Video Calls Successfully</u></a></li>
+<li><a href="https://win-answers.techidaily.com/how-to-address-and-solve-discords-packet-disruption-issues-fixed-solution/"><u>How To Address & Solve Discord's Packet Disruption Issues - Fixed Solution!</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-fix-it-realme-v30-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix It Realme V30 Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://program-issues.techidaily.com/how-to-troubleshoot-and-fix-finals-failure-to-launch-a-comprehensive-guide/"><u>How to Troubleshoot and Fix Finals Failure to Launch : A Comprehensive Guide</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-easy-ways-to-manage-your-honor-70-lite-5g-location-settings-drfone-by-drfone-virtual/"><u>In 2024, Easy Ways to Manage Your Honor 70 Lite 5G Location Settings | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-engaging-audiences-with-jujutsu-kaisen-tiktok-content/"><u>In 2024, Engaging Audiences with Jujutsu Kaisen TikTok Content</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-send-and-fake-live-location-on-facebook-messenger-of-your-vivo-y100-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Send and Fake Live Location on Facebook Messenger Of your Vivo Y100 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lifelong-learners-never-too-late-to-expand-horizons/"><u>Lifelong Learners: Never Too Late to Expand Horizons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-labyrinths-exploring-australian-and-us-rhythmic-variations/"><u>Linguistic Labyrinths: Exploring Australian & U.S. Rhythmic Variations</u></a></li>
+<li><a href="https://win11.techidaily.com/mastering-windows-top-8-troubleshooting-steps/"><u>Mastering Windows: Top 8 Troubleshooting Steps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-redefines-language-acquisition-through-ar-technology/"><u>Mondly Redefines Language Acquisition Through AR Technology</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/semaine-francaise-une-symphonie-en-langue/"><u>Semaine Française : Une Symphonie en Langue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/start-conversing-like-a-pro-your-language-lesson-at-5-off/"><u>Start Conversing Like a Pro – Your Language Lesson at 5% Off!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-three-asian-communication-methods-filter-and-preserve/"><u>Top Three Asian Communication Methods: Filter & Preserve</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukrainian-and-russian-how-similar-are-these-two-slavic-languages/"><u>Ukrainian And Russian: How Similar Are These Two Slavic Languages?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-language-skills-buy-now-save-big/"><u>Unlock Language Skills - Buy Now, Save Big!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-the-power-of-polite-expressions-in-japan/"><u>Unlock the Power of Polite Expressions in Japan</u></a></li>
+</ul></div>
 

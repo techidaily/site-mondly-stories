@@ -1,7 +1,7 @@
 ---
 title: Vermeidung Von Falschen Deutschen Entschuldigungen
-date: 2024-10-05T19:31:22.753Z
-updated: 2024-10-12T18:04:52.368Z
+date: 2024-10-12T18:52:59.288Z
+updated: 2024-10-18T18:03:14.402Z
 tags:
   - speak
   - english
@@ -27,10 +27,10 @@ thumbnail: https://thmb.techidaily.com/3119c4d644ca38982b7a0f68d251b6e048a299751
  However, this is not strictly a German thing. It’s true Germans say sorry once in a blue moon, but there are some other countries like France or Russia where over-apologizing can be regarded as insincere as well.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to apologize in German
@@ -46,10 +46,10 @@ Here are some practical examples of apologies in German:
 * _Tut mir leid, ich mag die Suppe nicht._ – Sorry, I don’t like the soup.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to say sorry in German – the “Excuse me” sorry
@@ -61,10 +61,10 @@ Here are some practical examples of apologies in German:
  Hear the formal_Entschuldigen Sie_ in action in this basic conversation in German:
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Other ways to say sorry in German
@@ -110,10 +110,16 @@ Here are some practical examples of apologies in German:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### From 0 to conversational in German
@@ -147,20 +153,17 @@ Here are some practical examples of apologies in German:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-ensuring-copyright-compliance-in-youtube-to-mp4-for-2024/"><u>[New] Ensuring Copyright Compliance in Youtube-to-MP4 for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-superior-sonic-collectors-for-seminars/"><u>[Updated] In 2024, Superior Sonic Collectors for Seminars</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-prime-methods-transforming-pin-videos-to-mp3-format-for-2024/"><u>[Updated] Prime Methods Transforming Pin Videos To MP3 Format for 2024</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/updated-quick-guide-to-boost-your-tiktok-production-speed-for-2024/"><u>[Updated] Quick Guide to Boost Your TikTok Production Speed for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/10-multilingual-films-for-better-communication-skills/"><u>10 Multilingual Films for Better Communication Skills</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/affectionate-aphorisms-top-french-film-pick/"><u>Affectionate Aphorisms: Top French Film Pick</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/benefits-of-multilingualism-post-40-a-cultural-and-cognitive-boost/"><u>Benefits of Multilingualism Post-40: A Cultural & Cognitive Boost</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/conquer-language-barriers-with-mondlys-advanced-usage/"><u>Conquer Language Barriers with Mondly's Advanced Usage</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cross-border-connections-the-top-languages-to-study/"><u>Cross-Border Connections: The Top Languages to Study</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/deciphering-japans-characters-and-script/"><u>Deciphering Japan's Characters and Script</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/discover-the-hottest-and-most-popular-series-available-on-max/"><u>Discover the Hottest and Most Popular Series Available on Max</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581051309-embrace-the-future-with-a-lifetime-subscription-to-mondly-pro-at-discounted-prices/"><u>Embrace the Future with a Lifetime Subscription to Mondly Pro at Discounted Prices</u></a></li>
-<li><a href="https://fox-http.techidaily.com/faithful-melodies-how-to-install-christian-chimes/"><u>Faithful Melodies How to Install Christian Chimes</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-syncing-images-android-iphone-file-transfer-guide/"><u>In 2024, Syncing Images Android-iPhone File Transfer Guide</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/master-the-troubleshooting-techniques-for-bootmgr-is-absent-mishaps/"><u>Master the Troubleshooting Techniques for 'BOOTMGR Is Absent' Mishaps</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-stunning-appraisal-and-alternative-suggestions-for-2024/"><u>[New] Stunning Appraisal & Alternative Suggestions for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-complete-overview-of-full-scene-in-ppro/"><u>2024 Approved Complete Overview of Full Scene in PPro</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-compelling-stories-for-smm-through-ripl/"><u>Crafting Compelling Stories for SMM Through Ripl</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/gebruikerechtlos-flv-naar-gratis-mp4-konvertor-web-online-movavi/"><u>Gebruikerechtlos FLV Naar Gratis MP4 Konvertor Web Online - Movavi</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/harmonic-windows-tunes-hub-for-2024/"><u>Harmonic Windows Tunes Hub for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-reveals-a-revolutionized-question-and-answer-mechanism/"><u>Mondly Reveals a Revolutionized Question & Answer Mechanism</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oration-ovations-for-worlds-pedagogues/"><u>Oration Ovations for World's Pedagogues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/orchestrate-your-own-interpretation-harmonized-language-learning/"><u>Orchestrate Your Own Interpretation: Harmonized Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pearsons-precision-innovation-integrating-gsl-and-mondly/"><u>Pearson's Precision Innovation: Integrating GSL & Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-abcs-an-examination-of-us-uk-language/"><u>The ABC's: An Examination of US-UK Language</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-non-functional-volume-buttons-in-windows-11-solved/"><u>Troubleshooting Non-Functional Volume Buttons in Windows 11 – Solved!</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-in-2024-the-top-10-most-impressive-4k-video-examples/"><u>Updated In 2024, The Top 10 Most Impressive 4K Video Examples</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Linguistic Love Letters for Life's Milestones
-date: 2024-08-27T22:52:36.301Z
-updated: 2024-08-28T22:52:36.301Z
+date: 2024-10-17T21:38:05.176Z
+updated: 2024-10-18T23:18:07.719Z
 tags:
   - speak
   - english
@@ -26,17 +26,34 @@ Have you ever thought about how people from other cultures sing birthday songs? 
 
 **Feliz Cumpleaños** are the [Spanish words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) for **“Happy Completed Years”** or simply **“Happy Birthday”** since birthdays are considered a big day of celebration in most Spanish countries. “Feliz Cumpleaños amigo” is a commonly used phrase for wishing a happy birthday to your friends. The same as in Mexico, their popular unique birthday song is “Las Mañanitas“ meaning “Little Mornings“. The best and funniest part is that the birthday boy or girl must eat the first bite of the cake without using any utensils or hands. They have no custom of blowing out candles or making a wish. Yet, the party cannot ever finish without the famous piñata!
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Happy Birthday in French: Bon Anniversaire**
 
 ![Happy Birthday in French Bon Anniversaire](https://edge.mondly.com/blog/wp-content/uploads/2018/12/Happy-Birthday-in-French-Bon-Anniversaire.png "How To Say &Quot;Happy Birthday&Quot; In Different Languages 2")
+
+<!-- affiliate ads begin -->
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Image source: <http://www.manutention-dauphine.fr>
 
 Joyeux Anniversaire or Bon Anniversaire are the standard ways to wish someone a happy birthday in French. But if you are speaking Canadian French or Quebec, you should say Bonne fête, meaning “Good party/Birthday”. French and English birthdays are often alike. Celebrations include party time, cake, gifts and songs like ‘Joyeux Anniversaire’. Most birthday parties are thrown on Wednesdays as French have their Wednesdays off.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Happy Birthday in Chinese:** **生日快** **乐** **(Shēngrì Kuàilè)**
 
 Chinese culture has an interesting concept of birthday celebrations. Depending on a person’s gender, certain birthdays pass without acknowledgment or require special handling. Women, for example, do not celebrate turning 30, 33 or 66\. Another interesting custom are the longevity noodles that are considered a sign of good fortune and long life. So these noodles are a must eat without breaking (it’s a sign of good luck).
@@ -44,36 +61,41 @@ Chinese culture has an interesting concept of birthday celebrations. Depending o
 If you’ll check the literal meaning of Shēngrì Kuàilè, you’ll see that it translates to “Birthday is Happy.”
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Happy Birthday in Russian: С днем рождения (S Dnem Rozhdeniya)**
 
 ![happy birthday in russian](https://edge.mondly.com/blog/wp-content/uploads/2018/12/happy-birthday-in-russian.jpg "How To Say &Quot;Happy Birthday&Quot; In Different Languages 3")
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Image source: <https://tops.ua>
 
 If you want to say “happy birthday” in Russian, you say “S Dnem Rozhdeniya”. And if you feel like memorizing a longer phrase, add “pozdravlyayu” in the start and it will transform to “I congratulate you on your birthday”. Russians have a funny tradition of celebrating. The guests pull the celebrated’s ears for a number of times equal to his or her age. The phrase “Grow up – don’t be noodles,” is considered as a sign of good omen for the growth of children. It means the child will grow up strong and healthy. Birthday songs are not common am0ng them, but if the person has survived after a severe accident, that day is celebrated as another birthday.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
-<!-- affiliate ads end -->
 ## **Happy Birthday in Dutch: Gefeliciteerd Met Je Verjaardag**
 
 “Gefeliciteerd Met Je Verjaardag” means “Congratulations on your birthday!” in the Netherlands. An interesting custom here is that they mark their calendars for everyone’s birthday and keep that calendar by their toilet. It acts as a reminder for birthdays since forgetting one’s birthday is a major offense to your loved ones. The 50th birthday is celebrated with full bliss and cheer because it is thought that at the age of 50, men see Abraham and women see Sarah – the biblical couple who gave birth to a child at a very old age.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Happy Birthday in Swedish: Grattis På Födelsedagen**
 
 ![happy birthday in swedish](https://edge.mondly.com/blog/wp-content/uploads/2018/12/happy-birthday-in-swedish.jpg "How To Say &Quot;Happy Birthday&Quot; In Different Languages 4")
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
+<span id="1983446">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Image source: <https://trivselkort.com>
 
 “Grattis På Födelsedagen” is translated to “Birthday congratulations!” in Swedish. The Swedish culture has a lot of love for celebrating birthdays. They often surprise the celebrated with birthday gifts and breakfast in bed while singing “Ja, ma du leva” meaning “Yes, may you live”. Their traditional party has a cake coated in green marzipan with gifts wrapped in blue and gold sheets – the colors of the Swedish flag.
@@ -110,8 +132,6 @@ Start using Mondly for free on your computer or tablet or, better yet, download 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -119,4 +139,23 @@ Start using Mondly for free on your computer or tablet or, better yet, download 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-unlock-snapchat-potential-with-these-ideas/"><u>[New] 2024 Approved Unlock Snapchat Potential with These Ideas</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-breaking-into-the-top-1m-youtube-view-hacks-revealed/"><u>[Updated] 2024 Approved Breaking Into the Top 1M YouTube View Hacks Revealed</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-detailed-instructions-for-embedding-and-displaying-youtube-playlists-online-for-2024/"><u>[Updated] Detailed Instructions for Embedding and Displaying YouTube Playlists Online for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/asus-proart-pa-329q-professional-4k-monitor-review/"><u>Asus ProArt PA 329Q Professional 4K Monitor Review</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-dialect-dashboard-simplest-languages-overview/"><u>Global Dialect Dashboard: Simplest Languages Overview</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/i-numeri-italiani-da-1-al-prolungamento-a-mille/"><u>I Numeri Italiani: Da 1 Al Prolungamento a Mille</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ingenious-methods-for-quick-linguistic-growth/"><u>Ingenious Methods for Quick Linguistic Growth</u></a></li>
+<li><a href="https://win11.techidaily.com/modify-homescreen-without-altering-windows-11-start-menu/"><u>Modify Homescreen without Altering Windows 11 Start Menu</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-co-op-with-pearson-education-network/"><u>Mondly Co-Op with Pearson Education Network</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-marvels-turkish-korean-nexus/"><u>Multilingual Marvels: Turkish-Korean Nexus</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-2024-approved-pawprint-echoes-a-collection-of-dognoise-tracks/"><u>New 2024 Approved Pawprint Echoes A Collection of Dognoise Tracks</u></a></li>
+<li><a href="https://win11.techidaily.com/turn-off-windows-mobility-settings-quick-guide-win-11/"><u>Turn Off Windows Mobility Settings Quick Guide (Win 11)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-fluency-top-3-app-based-linguistic-advancement-platforms/"><u>Unlock Fluency: Top 3 App-Based Linguistic Advancement Platforms</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/unveiling-the-m4-boosted-mac-mini-a-small-device-with-a-big-bang-like-apples-set-top-box-zdnet/"><u>Unveiling the M4-Boosted Mac Mini: A Small Device with a Big Bang Like Apple's Set-Top Box | ZDNet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/zap-up-your-skills-speed-up-slovak-learning-with-micro-lessons/"><u>Zap Up Your Skills: Speed up Slovak Learning with Micro Lessons</u></a></li>
+<li><a href="https://fox-useful.techidaily.com/mara-hae-iphone-bkaapa-savatatara-data-panaraparapata-ka-jararata-ka-thara/"><u>मरे हुए iPhone: बैकअप स्वतंत्र, डेटा पुनर्प्राप्ति की जरूरतों को दूर</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Holidays of Thankfulness in Different Nations
-date: 2024-08-27T22:59:20.141Z
-updated: 2024-08-28T22:59:20.141Z
+date: 2024-10-16T23:03:02.545Z
+updated: 2024-10-18T18:27:18.718Z
 tags:
   - speak
   - english
@@ -26,8 +26,6 @@ thumbnail: https://thmb.techidaily.com/8bb1efcd08c2d3c3707b37b1d9ac64c15c4d68acd
 
  Due to popular culture, Thanksgiving may seem profoundly American. If you are living in a country that doesn’t celebrate Thanksgiving, you probably have the wrong idea that this is an all-American holiday. And that’s perfectly understandable. Every year, you see at least one movie scene that features a happy family enjoying a bountiful dinner made of stuffed turkey and mashed potatoes. Nevertheless, celebrating gratitude is more universal than you think.
 
-
-
  Even some European countries celebrate Thanksgiving. The best example is Germany, which celebrates Erntedankfest (’harvest thanks festival’) on the first Sunday of October. So no, Thanksgiving is not just an American holiday. Similar celebrations take place all around the world – from Canada to Japan and even Liberia.
 
  Let’s learn more about these celebrations and discover seven of the most surprising countries that celebrate Thanksgiving (besides the US).
@@ -40,6 +38,13 @@ thumbnail: https://thmb.techidaily.com/8bb1efcd08c2d3c3707b37b1d9ac64c15c4d68acd
 
  Other sources trace the Canadian Thanksgiving to the French settlers who came to North America in the 17th century and held feasts to celebrate their successful harvests.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Germany, Austria, and Switzerland
 
  In Europe, the idea of Thanksgiving generally involves the celebration of the autumn harvests. Largely religious in nature, the celebration occurs around the time of the main harvest – early October in this situation. In German-speaking countries, the event is called Erntedankfest.
@@ -47,17 +52,18 @@ thumbnail: https://thmb.techidaily.com/8bb1efcd08c2d3c3707b37b1d9ac64c15c4d68acd
  Unlike the North American festivities, in rural Germany, Austria, and Switzerland, Erntedankfest is a more public celebration with musical performances, dancing, fireworks, and – you guessed it: food. In some places, churches are decored with autumn crops and during the day, people participate in religious processions or parades.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 3\. The Netherlands
 
  Ok, this is not entirely true. Not all Dutch people celebrate Thanksgiving, just this city called Leiden.
 
  The interesting thing is that the Thanksgiving celebration in Leiden has everything to do with the United States celebration. According to the [Smithsonian Magazine](https://www.smithsonianmag.com/smart-news/they-celebrate-american-thanksgiving-in-the-netherlands-140671441/) , the well-known Pilgrims that feasted with the Wampanoags in 1621, started as a group of English religious separatists that fled England following king James’ persecution. Before heading to the New World, many of these Pilgrims lived in Leiden for about 11 years, until 1620\. The rest is history.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
 ## 4\. Grenada
 
  Although it rhymes with Canada, you should know that Grenada is actually a Caribbean country and its Thanksgiving celebration is one of the youngest in the world. Every year, on the 25th of October, Grenadians commemorate the events that took place in 1983, when Grenada’s deputy prime minister executed the prime minister and seized the power. Only nine days later, the United States military came to the rescue and restored order in a matter of weeks.
@@ -66,33 +72,37 @@ thumbnail: https://thmb.techidaily.com/8bb1efcd08c2d3c3707b37b1d9ac64c15c4d68acd
 
 ![thanksgiving turkey](https://edge.mondly.com/blog/wp-content/uploads/2021/11/canadian-thanksgiving-960x641.jpg "What Countries Celebrate Thanksgiving? 3")
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  “Thanksgiving turkey” by Claudio Schwarz©
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. Japan
 
  勤労感謝の日 (’Kinrō Kansha no Hi’) has roots in 新嘗祭 (Niiname-sai), the ancient Shinto rice harvest ceremony and it’s celebrated annually on the 23rd of November. Known today as ‘Labor Thanksgiving Day’, the celebration has lost some of its original meaning and is regarded now as an occasion for commemorating labor and reflecting on issues that impact the community, such as the environment and human rights.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
-<!-- affiliate ads end -->
 ## 6\. Liberia
 
  Formerly a colony of the American Colonization Society, Liberia declared [its independence](https://www.history.com/this-day-in-history/liberian-independence-proclaimed) in 1947 and became the first democratic republic in African history.
 
  However, the freed slaves from the United States who returned to the country around 1820, brought something back from the US: the Thanksgiving celebration. By the 1880s, it was declared a national holiday and nowadays, Liberia is probably the only other country in the world that celebrates the American Thanksgiving.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 7\. the United Kingdom
 
  Yes, Thanksgiving is celebrated in the United Kingdom. Similar to the Erntedankfest celebration in German-speaking countries, Thanksgiving in the UK is actually a [Harvest Festival](https://en.wikipedia.org/wiki/Harvest%5Ffestival) held in late September or early October.
 
  During pre-Christian times in Britain, the Saxons would offer the first sheaf of cereals to fertility gods then come together and celebrate the harvest with a supper. Many traditions remained even though Christianity arrived in Britain so the present-day Harvest Festival is celebrated even by churches.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 8\. Brazil
 
@@ -105,10 +115,6 @@ thumbnail: https://thmb.techidaily.com/8bb1efcd08c2d3c3707b37b1d9ac64c15c4d68acd
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## Learn to give thanks in over 40 languages
 
  Do you want to broaden your horizons and learn to give thanks in over 40 languages? Get [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6274&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6274&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6274) , the award-winning language learning app that will help you speak up to 41 languages.
@@ -130,8 +136,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -139,4 +143,23 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-navigating-google-meet-discussions-tips-and-tricks/"><u>[New] Navigating Google Meet Discussions Tips & Tricks</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/op-10-gaming-pc-graphics-for-ultimate-youtube-viewing-experience/"><u>[New] Top 10 Gaming PC Graphics For Ultimate YouTube Viewing Experience</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/effortless-drm-extraction-from-apples-itunes-on-macos-for-music-video-and-ebooks/"><u>Effortless DRM Extraction From Apple's iTunes on MacOS for Music, Video & Ebooks</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/expert-advice-mastering-secure-deletion-with-stellars-best-practices/"><u>Expert Advice: Mastering Secure Deletion with Stellar's Best Practices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/groundbreaking-guide-to-arabic-rookies/"><u>Groundbreaking Guide to Arabic Rookies</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-motorola-edge-2023-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Motorola Edge 2023 PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-cheers-to-independence-day/"><u>International Cheers to Independence Day</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/iphone-camera-mastery-x8-series-essential-tools-for-2024/"><u>IPhone Camera Mastery X/8 Series Essential Tools for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jumpstart-your-croatian-experience-heres-the-7-reason-guide/"><u>Jumpstart Your Croatian Experience - Here's the 7-Reason Guide</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/latest-compatible-nvidia-quadro-graphics-drivers-for-windows-11-with-direct-clipboard-handling-dch-free-download/"><u>Latest Compatible NVIDIA Quadro Graphics Drivers for Windows 11 with Direct Clipboard Handling (DCH) - Free Download</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-czech-fast-top-rated-online-language-apps/"><u>Learn Czech Fast: Top-Rated Online Language Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-launches-virtual-reality-for-learning-languages-powered-by-chatbots/"><u>Mondly Launches Virtual Reality for Learning Languages, Powered by Chatbots</u></a></li>
+<li><a href="https://program-issues.techidaily.com/overcome-utorrent-not-working-problems-using-these-7-fixes/"><u>Overcome Utorrent Not Working Problems Using These ☑️7 Fixes</u></a></li>
+<li><a href="https://windows11.techidaily.com/quick-fix-for-blue-screen-on-windows-11/"><u>Quick Fix for Blue Screen on Windows 11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-speaking-scale-of-asia-preeminent-trimodal/"><u>The Speaking Scale of Asia: Preeminent Trimodal</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-speech-patterns-a-guide-to-french-idioms/"><u>Transform Speech Patterns: A Guide to French Idioms</u></a></li>
+</ul></div>
 

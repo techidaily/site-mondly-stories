@@ -1,7 +1,7 @@
 ---
 title: Top 16 German Phrases Perfect for Showing Appreciation
-date: 2024-08-27T22:52:00.200Z
-updated: 2024-08-28T22:52:00.200Z
+date: 2024-10-16T00:17:29.492Z
+updated: 2024-10-18T22:26:12.124Z
 tags:
   - speak
   - english
@@ -34,17 +34,28 @@ _**Danke**_ translates to “thank you” or “thanks” and it is probably the
 
  Moving on and adding a little more formality to our “Danke!”, we discover_**Danke schön!**_ which is just as short and sweet, but maybe a little bit more formal. Although it is often used in the business environment, **_Danke schön!_ seems suitable for all kinds of formal and informal situations.** My advice would be to trust your gut.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **3._Danke Sehr!_ – Thank you very much!**
 
  This is a more formal variation of_Danke schön_ , but both expressions can be used interchangeably. Like I said: trust your gut. It’s very important to take into consideration your way to talk to other people and your personality.
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **4._Vielen Dank!_ — Many thanks!**
 
  Do you know that moment when you are really grateful to someone because they helped you a lot? Well, that’s the perfect moment to thank them in German using “Vielen Dank!”.
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **5._Tausend Dank!_ — Thousand thanks!**
 
 _Tausend Dank!_ is**the** **German equivalent of our** **“Thanks a million!”** and it is generally used in informal situations like talking to friends or relatives.
@@ -54,17 +65,12 @@ _Tausend Dank!_ is**the** **German equivalent of our** **“Thanks a million!”
  This is a variation of_**Vielen Dank!**_ and it can also translate to “thanks very much!”. While “Danke” means “thanks”, “vielmals” translates to “very much.”
 
 <!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **7._Vergelt’s Gott!_ – God will reward you!**
 
  As I said, there are multiple and different ways to say thank you in German._**Vergelt’s Gott**_ is a regional expression used mainly in the southern region of Germany.
@@ -77,9 +83,6 @@ _Tausend Dank!_ is**the** **German equivalent of our** **“Thanks a million!”
 
  Good to know, but very rarely used. Depending on whom you are talking to, use “dir” and “euch” for friends and colleagues or “Ihnen” for those who you don’t know too well. The key is to use the right pronoun.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ## **10._Ich sage dir vielen Dank._ – I say many thanks to you.**
 
  Rarely used, but still useful if you want the complete list of ways to say thank you in German.
@@ -93,33 +96,48 @@ _Tausend Dank!_ is**the** **German equivalent of our** **“Thanks a million!”
  Like we said in the beginning, this is one of the most formal ways of thanking someone in German.
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **13._Ich danke dir!_ – I thank you!**
 
  Although it does not seems so,_**Ich danke dir!**_ is rather informal, but more elegant than just Danke.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **14._Ich möchte mich recht herzlich bedanken._ — I would like to thank you sincerely.**
 
  This is the best “thanks” you can use when you want to thank someone that has helped you a lot in a formal context. Use it with confidence the same way you would use it in English.
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **15._Vielen Dank im Voraus!_ – Thank you in advance!**
 
  Well, you’ll probably need this one at some point, won’t you? This is especially useful when you make a request.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2052062/7443" target="_top" id="2052062">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052062" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052062/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **16._Ich bin Ihnen sehr dankbar für…_ – I am very grateful to you for…**
 
  Last but not least, use this standard expression by adding what are you thankful for at the end of it. But use it only with intangible things like**“I’m grateful for your help”** and not objects. Here’s an example:**“I’m thankful that you take care of me”** in German will be **“Ich bin Ihnen sehr dankbar dafür, dass du dich um mich kümmerst”** .
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **17\. Bonus: How to say you’re welcome in German**
 
@@ -127,9 +145,6 @@ _Tausend Dank!_ is**the** **German equivalent of our** **“Thanks a million!”
 
 ![you're welcome in German](https://edge.mondly.com/blog/wp-content/uploads/2019/05/youre-welcome-in-german.png "The 16 Best Ways To Say Thank You In German 3")
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 * **_Bitte_ — You’re welcome**
 * **_Bitte schön / Bitte sehr_ — You’re very welcome**
 * **_Kein Problem_ — No problem**
@@ -156,16 +171,11 @@ _Tausend Dank!_ is**the** **German equivalent of our** **“Thanks a million!”
 
 Get Mondly now and speak German like you never dreamed you would ![Learn German now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-2929&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-2929%26utm%5Fsource%3Dblog-post-id-2929&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-2929%26utm%5Fsource%3Dblog-post-id-2929&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-2929%26utm%5Fsource%3Dblog-post-id-2929&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-2929%26mt%3D8 "Learn German now")
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -174,4 +184,24 @@ Get Mondly now and speak German like you never dreamed you would ![Learn German 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-crafting-your-sound-story-utilizing-auditions-fade-in/"><u>[New] 2024 Approved Crafting Your Sound Story Utilizing Audition's Fade In</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-youtubes-prime-moments-celebrations-beyond-vidcon/"><u>[New] In 2024, Youtube's Prime Moments Celebrations Beyond VidCon</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-masterclass-on-blending-sound-and-sight-for-media-professionals/"><u>[Updated] Masterclass on Blending Sound & Sight for Media Professionals</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-the-podcasters-playbook-writing-and-editing-for-engaging-audio-for-2024/"><u>[Updated] The Podcaster's Playbook Writing & Editing for Engaging Audio for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-the-complete-guide-to-edit-your-video-with-youtube-studio-editor/"><u>2024 Approved The Complete Guide to Edit Your Video with YouTube Studio Editor</u></a></li>
+<li><a href="https://fox-that.techidaily.com/cant-use-ring-or-silent-button-learn-alternative-methods-for-mutingunmuting-your-iphone/"><u>Can't Use Ring or Silent Button? Learn Alternative Methods for Muting/Unmuting Your iPhone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/germany-embraces-mondly-the-ultimate-language-portal/"><u>Germany Embraces Mondly - The Ultimate Language Portal</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/how-to-detect-and-remove-spyware-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>How to Detect and Remove Spyware on Apple iPhone 7 Plus? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jingle-bells-around-the-world-santas-tongue/"><u>Jingle Bells Around the World - Santa's Tongue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-mastery-made-easy-netflix-series-dark/"><u>Language Mastery Made Easy: Netflix Series 'Dark'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/practice-your-spanish-and-socialize-in-mondly-vr-multiplayer/"><u>Practice Your Spanish And Socialize In Mondly VR Multiplayer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revolutionize-your-language-journey-with-mondlys-immersive-vr-solutions/"><u>Revolutionize Your Language Journey with Mondly's Immersive VR Solutions</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/s-hottest-android-video-editing-apps-free-and-paid-picks-for-2024/"><u>S Hottest Android Video Editing Apps Free and Paid Picks for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/streamlining-corporate-conversations-for-success/"><u>Streamlining Corporate Conversations for Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-untapped-tongues-learn-abroad-at-home/"><u>Unlocking Untapped Tongues: Learn Abroad, at Home</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/what-is-ai-background-generator-for-2024/"><u>What Is AI Background Generator for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-easter-greetings-across-languages/"><u>Worldwide Easter Greetings Across Languages</u></a></li>
+</ul></div>
 

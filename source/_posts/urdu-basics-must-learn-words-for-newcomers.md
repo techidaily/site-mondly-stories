@@ -1,7 +1,7 @@
 ---
 title: "Urdu Basics: Must-Learn Words for Newcomers"
-date: 2024-08-27T22:54:05.540Z
-updated: 2024-08-28T22:54:05.540Z
+date: 2024-10-15T20:07:54.614Z
+updated: 2024-10-18T23:50:45.755Z
 tags:
   - speak
   - english
@@ -17,8 +17,6 @@ thumbnail: https://thmb.techidaily.com/aca7466ead46101c525a65c4ba2c61065f452c93c
 ## Urdu Basics: Must-Learn Words for Newcomers
 
  Improving your Urdu vocabulary is one of the key aspects of [learning Urdu](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6589&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6589?mother%5Flang=en%5Fus?target%5Flang=ur&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6589?mother%5Flang=en%5Fus?target%5Flang=ur) . The more Urdu words you’ll know, the closer you’ll be to fluency. But keep in mind that not all words are equally important. In the beginning, you have to focus on basic, high-frequency words – words that make up the majority of everything we say on a daily basis.
-
-
 
 [Studies](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) have shown that knowing as little as 100 words will help you understand 50% of any text in Urdu. Surprising as it may seem, it’s true. The most common 1,000 words in Urdu will give you a high coverage of 75% of any Urdu text. Isn’t that amazing?
 
@@ -110,8 +108,12 @@ thumbnail: https://thmb.techidaily.com/aca7466ead46101c525a65c4ba2c61065f452c93c
 * hope — _امید (umeed)_
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Urdu words related to food and drink
 
  Did you know that the [Urdu language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) was one of the premier languages of poetry in South Asia for centuries? And rightly so. Just listen to the music of its words and you’ll understand.
@@ -119,8 +121,12 @@ thumbnail: https://thmb.techidaily.com/aca7466ead46101c525a65c4ba2c61065f452c93c
 ![words in urdu by Sumeet B©](https://edge.mondly.com/blog/wp-content/uploads/2022/03/words-in-urdu-960x735.jpg "100+ Core Urdu Words – Learn The Most Common Words In Urdu 3")
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Meanwhile, let’s add some flavor to your Urdu vocabulary. What are the best words to learn if not the words related to food and drink?
 
 * water — _پانی (pani)_
@@ -146,9 +152,6 @@ thumbnail: https://thmb.techidaily.com/aca7466ead46101c525a65c4ba2c61065f452c93c
 * sugar — _شکر (shakar)_
 * pepper — _مرچ (mirch)_
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Urdu words related to body and health
 
  The names of the body parts in Urdu are some of the most basic and useful words you can learn. Whether you are in a clothing store, or at the doctor’s office, various parts of the body can come up in conversation more often than you think.
@@ -175,8 +178,12 @@ thumbnail: https://thmb.techidaily.com/aca7466ead46101c525a65c4ba2c61065f452c93c
 * pharmacy — _دواخانہ (dawakhana)_
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Urdu words related to transportation and places
 
  While this crash course in Urdu words will get you from zero to beginner in as little as 15 minutes, these words will get you to the other hemisphere if you need it so.
@@ -196,9 +203,6 @@ thumbnail: https://thmb.techidaily.com/aca7466ead46101c525a65c4ba2c61065f452c93c
 
  Now that you’ve mastered some of the most basic Urdu vocabulary words, you can dive into the practical phrases that’ll help you ease into real-world conversations.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
-<!-- affiliate ads end -->
 ## The most common Urdu phrases
 
  The following phrases in Urdu are a great place to start learning. Simple phrases like ‘good morning’, ‘how are you’ or ‘you’re welcome’ are the most effective way to get from 0 to conversational fast. Learn these phrases today and make Urdu-speaking friends tomorrow!
@@ -232,8 +236,12 @@ thumbnail: https://thmb.techidaily.com/aca7466ead46101c525a65c4ba2c61065f452c93c
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Learn Urdu in just 10 minutes a day
 
  Do you want to see the Urdu words in action? Get Mondly, the award-winning language learning app that will help you speak Urdu from day 1.
@@ -254,8 +262,6 @@ thumbnail: https://thmb.techidaily.com/aca7466ead46101c525a65c4ba2c61065f452c93c
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -263,4 +269,22 @@ thumbnail: https://thmb.techidaily.com/aca7466ead46101c525a65c4ba2c61065f452c93c
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-comparing-apowersoft-to-alternatives/"><u>[Updated] Comparing Apowersoft to Alternatives</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-secrets-of-creating-a-bespoke-tiktok-hashtag/"><u>[Updated] In 2024, Secrets of Creating a Bespoke TikTok Hashtag</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-link-length-limit-check-out-these-5-youtube-minisizers/"><u>[Updated] Link Length Limit? Check Out These 5 YouTube Minisizers</u></a></li>
+<li><a href="https://win-community.techidaily.com/comprehensive-step-by-step-tutorial-upgrading-your-dell-inspiron-15s-hard-drive-to-a-solid-state-drive/"><u>Comprehensive Step-by-Step Tutorial: Upgrading Your Dell Inspiron 15'S Hard Drive to a Solid State Drive</u></a></li>
+<li><a href="https://location-social.techidaily.com/does-find-my-friends-work-on-samsung-galaxy-xcover-7-drfone-by-drfone-virtual-android/"><u>Does find my friends work on Samsung Galaxy XCover 7 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-motorola-moto-g34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Motorola Moto G34 5G? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/italian-journey-speak-mastering-local-dialects/"><u>Italian Journey Speak: Mastering Local Dialects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-new-immersion-language-learning-experience-with-vr-technology/"><u>Mondly's New Immersion Language-Learning Experience with VR Technology</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-minds-cognitive-upsides/"><u>Multilingual Minds: Cognitive Upsides</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-france-in-fluent-french-key-vocabulary-compilation/"><u>Navigating France in Fluent French: Key Vocabulary Compilation</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/revolutionize-editing-the-secret-techniques-for-background-obliteration-in-affinity-for-2024/"><u>Revolutionize Editing The Secret Techniques for Background Obliteration in Affinity for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/rhythm-revivers-10-androidios-audio-challengers/"><u>Rhythm Revivers 10 Android/iOS Audio Challengers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-portuguese-voice-vowels-variation-study/"><u>The Portuguese Voice Vowels Variation Study</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/troubleshooting-the-snip-and-sketch-issue-solutions-for-snipping-tool-malfunction-on-windows-10-and-11/"><u>Troubleshooting the Snip & Sketch Issue: Solutions for Snipping Tool Malfunction on Windows 10 and 11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-the-secret-to-fluent-french-speech/"><u>Unlocking the Secret to Fluent French Speech</u></a></li>
+</ul></div>
 

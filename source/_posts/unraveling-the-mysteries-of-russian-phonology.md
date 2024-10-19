@@ -1,7 +1,7 @@
 ---
 title: Unraveling the Mysteries of Russian Phonology
-date: 2024-08-27T22:51:56.693Z
-updated: 2024-08-28T22:51:56.693Z
+date: 2024-10-13T00:13:21.845Z
+updated: 2024-10-18T16:32:33.907Z
 tags:
   - speak
   - english
@@ -28,6 +28,13 @@ thumbnail: https://thmb.techidaily.com/33028f93fa14d69bbcfce2acf14136a66954cb281
 
  Russian has been greatly influenced by Old Church Slavonic and – since the westernizing policies of Tsar Peter I the Great in the 18 century – by the [languages of western Europe](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Then, the 19th-century poet Aleksandr Pushkin determined the further development of the [Russian language we know](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) today. His writings, in which he combined the colloquial and Church Slavonic styles, were decisive in establishing the best style for literary use.
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### The Cyrillic script
 
 [The Cyrillic script](https://en.wikipedia.org/wiki/Cyrillic%5Fscript) is the national script in various Slavic-, Turkic- and Iranic-speaking countries in Eastern Europe, the Caucasus, Central Asia, and Northern Asia.
@@ -40,9 +47,6 @@ thumbnail: https://thmb.techidaily.com/33028f93fa14d69bbcfce2acf14136a66954cb281
 
  “Red Square, Moscow, Russia” by Aurelien Romain©
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->
 ## Understand how to pronounce the Russian alphabet
 
  There are 33 letters in the Russian alphabet. 10 vowels (**а, э, ы, у, о, я, е, ё, ю, и)** , 21 consonants (**б, в, г, д, ж, з, к, л, м, н, п, р, с, т, ф, х, ц, ч, ш, щ,** and the consonant**й** which is sometimes a semivowel) and 2 pronunciation signs (the “soft sign” ь and the “hard sign” ъ).
@@ -51,9 +55,6 @@ thumbnail: https://thmb.techidaily.com/33028f93fa14d69bbcfce2acf14136a66954cb281
 
  If we were to compare the Russian alphabet to the English alphabet, we would have four groups of letters: letters that look and sound (almost) the same as in English, letters that sound the same but look different, letters that look the same but sound different and letters that have no English equivalent whatsoever.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Russian letters that are (almost) the same as in English
 
 * **А а** sounds like “a” in “father” or “after”,
@@ -63,9 +64,6 @@ thumbnail: https://thmb.techidaily.com/33028f93fa14d69bbcfce2acf14136a66954cb281
 * **О о** sounds like “o” in “bore” or “more” (without the ‘r’ sound),
 * **Т т** sounds like “t” in “top” or “task”.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ### Russian letters that sound the same as in English (but look different)
 
 * **Б б** sounds like “b” in “bad” or “blue”,
@@ -86,8 +84,12 @@ thumbnail: https://thmb.techidaily.com/33028f93fa14d69bbcfce2acf14136a66954cb281
 * **Я я** sounds like “yu” in yummy or “ya” in “yard”.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Russian letters that look the same as in English (but sound different)
 
 * **В в** sounds like “v” in “van” or “voice”,
@@ -101,8 +103,12 @@ thumbnail: https://thmb.techidaily.com/33028f93fa14d69bbcfce2acf14136a66954cb281
 * **Ы ы** sounds like “i” in “ill” but with a “rounder” pronunciation (said with your tongue slightly back in your mouth).
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Russian letter with no English equivalent
 
 * Ь – this is called the “soft sign” and it is used to modify the pronunciation of the preceding consonant by making it soft (palatalized),
@@ -114,11 +120,15 @@ thumbnail: https://thmb.techidaily.com/33028f93fa14d69bbcfce2acf14136a66954cb281
 
 ![russian alphabet pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2020/03/russian-alphabet-pronunciation-1-431x600.jpg "Master The Russian Alphabet Pronunciation 3")
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Russian alphabet pronunciation
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
-<!-- affiliate ads end -->
 ## Russian lesson no. 1: rules
 
  Russian is definitely not the [hardest language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) you can study. As you already saw, once you get to know it, the Russian alphabet seems quite friendly. Languages like Chinese, Japanese, Korean or [Arabic](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , on the other hand, are way harder to master. Besides, once you learn the alphabet, you will already be able to read in Russian – a great boost for your motivation!
@@ -155,8 +165,6 @@ thumbnail: https://thmb.techidaily.com/33028f93fa14d69bbcfce2acf14136a66954cb281
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -164,4 +172,21 @@ thumbnail: https://thmb.techidaily.com/33028f93fa14d69bbcfce2acf14136a66954cb281
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-digital-media-mapper/"><u>[New] Digital Media Mapper</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-streamline-filming-borders-on-instagram-videos/"><u>[Updated] 2024 Approved Streamline Filming Borders on Instagram Videos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-the-pinnacle-of-participation-chronicling-the-most-upvoted-posts-on-reddit/"><u>[Updated] The Pinnacle of Participation Chronicling the Most Upvoted Posts on Reddit</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-top-10-games-like-ghost-of-tsushima-you-must-try-for-2024/"><u>[Updated] Top 10 Games Like Ghost of Tsushima You Must Try for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-zero-to-hero-navigating-youtubes-growth-journey/"><u>2024 Approved From Zero to Hero Navigating Youtube's Growth Journey</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-poco-c51-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Poco C51 | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-nokia-105-classic-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Nokia 105 Classic to Any iOS Devices | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leap-into-latin-top-online-educational-platforms/"><u>Leap Into Latin: Top Online Educational Platforms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-french-social-dynamics-a-guide-to-intricate-greetings/"><u>Mastering French Social Dynamics: A Guide to Intricate Greetings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/santas-verbal-virtuosity-global-dialects/"><u>Santa’s Verbal Virtuosity - Global Dialects</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/step-by-step-approach-to-address-black-screen-problem-even-when-pc-is-powered-on/"><u>Step-by-Step Approach to Address Black Screen Problem Even When PC Is Powered ON</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/syncing-symphony-with-images-a-facebook-media-guide/"><u>Syncing Symphony with Images - A Facebook Media Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-fundamentals-of-fluent-russian-communication/"><u>The Fundamentals of Fluent Russian Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-worldwide-hispanic-voice-network/"><u>The Worldwide Hispanic Voice Network</u></a></li>
+</ul></div>
 

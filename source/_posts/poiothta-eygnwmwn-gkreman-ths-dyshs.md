@@ -1,7 +1,7 @@
 ---
 title: Ποιότητα Ευγνωμών Γκρεμάν Της Δύσης
-date: 2024-10-05T16:35:20.114Z
-updated: 2024-10-12T20:10:54.810Z
+date: 2024-10-15T18:17:11.087Z
+updated: 2024-10-18T17:53:05.860Z
 tags:
   - speak
   - english
@@ -31,10 +31,10 @@ thumbnail: https://thmb.techidaily.com/dccea8e74312ef3978115e47791b42d8d3af59dde
  A funny but very good mnemonic for remembering how to say_efcharistó_ is to think of it as ‘ef-harry’s-toe’.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The informal ‘thank you’ in Greek
@@ -56,26 +56,13 @@ thumbnail: https://thmb.techidaily.com/dccea8e74312ef3978115e47791b42d8d3af59dde
 ![taverna in Greece](https://edge.mondly.com/blog/wp-content/uploads/2021/10/thanks-in-greek-960x720.jpg "All The Best Ways To Say Thank You In Greek 3")
 
 <!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  “Mýkonos, Greece” by Johnny Chen©
-
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
-  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Examples of Greek thanks
 
@@ -88,6 +75,13 @@ thumbnail: https://thmb.techidaily.com/dccea8e74312ef3978115e47791b42d8d3af59dde
 * Είμαι ευγνώμων. _(Eímai evgnómon.)_ – I am grateful/thankful.
 * Το εκτιμώ. _(To ektimó.)_ – I appreciate it.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to say ‘please’ and ‘you’re welcome’ in Greek
 
  Are you familiar with the German ‘_Bitte’_ or the Italian ‘_prego’_ that seem to mean everything from ‘please’ to ‘go ahead’ and ‘you’re welcome’?
@@ -95,6 +89,13 @@ thumbnail: https://thmb.techidaily.com/dccea8e74312ef3978115e47791b42d8d3af59dde
  Well, the Greek παρακαλώ_(parakaló)_ works the same. If you want to say ‘please’ in Greek, you say παρακαλώ_(parakaló)._ If you want to say ‘you’re welcome’, παρακαλώ_(parakaló)_ works just fine again. If only everything would be so easy when learning Greek!
 
  But let’s not get ahead of ourselves and forget about the formal variation. To address someone older or a group of people, you should use the formal σας παρακαλούμε_(sas parakaloúme)_ . Did you recognize the_σας (sas)_ particle? If yes, then congratulations! That means you’re on the right track.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## When should you say ‘thank you’ in Greek?
 
@@ -104,13 +105,6 @@ thumbnail: https://thmb.techidaily.com/dccea8e74312ef3978115e47791b42d8d3af59dde
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## From 0 to conversational in Greek
 
@@ -142,20 +136,19 @@ thumbnail: https://thmb.techidaily.com/dccea8e74312ef3978115e47791b42d8d3af59dde
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/53499823-new-2024-approved-youtube-subscriber-awards-the-play-button-awards-for-creators/"><u>[New] 2024 Approved YouTube Subscriber Awards! The Play Button Awards for Creators</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-compreranly-insightful-study-on-vtubers-and-beyond/"><u>[New] In 2024, Compreranly Insightful Study on VTubers and Beyond</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-from-play-to-replay-capturing-switch-games-for-2024/"><u>[Updated] From Play to Replay Capturing Switch Games for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-compendium-of-popular-german-expressions-top-25/"><u>A Compendium of Popular German Expressions (Top 25)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-decade-of-digital-harmony-mondly/"><u>A Decade of Digital Harmony - Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/boost-your-speaking-credentials-with-these-9-strategies/"><u>Boost Your Speaking Credentials with These 9 Strategies</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/conquer-languages-with-mondly-the-leading-app-of-2022/"><u>Conquer Languages with Mondly - The Leading App of 2022</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cultural-insights-basic-social-interactions-for-south-american-travelers/"><u>Cultural Insights: Basic Social Interactions for South American Travelers</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/cutting-edge-video-editing-with-movavis-pro-2024-edition/"><u>Cutting Edge Video Editing with Movavi's Pro 2024 Edition</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/education-unplugged-mondlys-acclaim-in-2017-apps-guide/"><u>Education Unplugged: Mondly's Acclaim in 2017 Apps Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embarking-on-language-learning-post-forty-four-motivating-reasons-for-seniors/"><u>Embarking on Language Learning Post-Forty: Four Motivating Reasons for Seniors</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-factory-unlock-your-telstra-apple-iphone-12-by-drfone-ios/"><u>How To Factory Unlock Your Telstra Apple iPhone 12</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-vivo-t2-5g-phones-by-drfone-android/"><u>In 2024, Top 11 Free Apps to Check IMEI on Vivo T2 5G Phones</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/instant-gratification-boosting-fb-video-times-for-2024/"><u>Instant Gratification Boosting FB Video Times for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/the-essential-guide-to-decluttering-your-online-presence-discover-the-importance/"><u>The Essential Guide to Decluttering Your Online Presence – Discover the Importance</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-clear-facebook-broadcast-laptops-and-phones-included/"><u>[New] In 2024, Clear Facebook Broadcast Laptops and Phones Included</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-pro-editor-picks-craft-the-perfect-instagram-reel-masterpiece/"><u>[New] In 2024, Pro Editor Picks - Craft the Perfect Instagram Reel Masterpiece</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-ultimate-windows-videography-toolkit-editors-and-software-review/"><u>[Updated] In 2024, Ultimate Windows Videography Toolkit Editors & Software Review</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/chronology-of-achieving-linguistic-mastery/"><u>Chronology of Achieving Linguistic Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-expressions-to-master-in-russian-socializing/"><u>Essential Expressions to Master in Russian Socializing</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-and-retrieve-picturesvideos-from-a-water-damaged-iphone-se-2020-that-wont-turn-on-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Fix & Retrieve Pictures/Videos From a Water Damaged iPhone SE (2020) That Wont Turn on | Stellar</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/initially-released-voice-controlled-ar-experience/"><u>Initially Released Voice-Controlled AR Experience</u></a></li>
+<li><a href="https://windows11.techidaily.com/1719382274392-is-your-hardware-upgraded-for-win11-find-out/"><u>Is Your Hardware Upgraded For Win11? Find Out</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-bonds-among-worlds-teachers/"><u>Linguistic Bonds Among World's Teachers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719575174482-mastering-finnish-language-from-anywhere-better-way/"><u>Mastering Finnish Language From Anywhere, Better Way</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-german-proverbs-top-25-list/"><u>Mastering German Proverbs: Top 25 List</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-story-of-facebook-how-it-came-to-be-why-users-love-it-and-what-sets-it-apart/"><u>The Story of Facebook: How It Came To Be, Why Users Love It, and What Sets It Apart</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/ultimate-unboxing-logitechs-professional-4k-pro-webcam/"><u>Ultimate Unboxing Logitech's Professional 4K Pro Webcam</u></a></li>
+<li><a href="https://win-able.techidaily.com/1723006556559-zoom-blackout-blues-heres-your-ultimate-guide-to-clear-the-screen/"><u>Zoom Blackout Blues? Here’s Your Ultimate Guide to Clear the Screen !</u></a></li>
 </ul></div>
 

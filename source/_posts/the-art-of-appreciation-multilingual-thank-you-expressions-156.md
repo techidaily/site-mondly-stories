@@ -1,7 +1,7 @@
 ---
 title: "The Art of Appreciation: Multilingual Thank You Expressions (156)"
-date: 2024-08-27T22:52:49.403Z
-updated: 2024-08-28T22:52:49.403Z
+date: 2024-10-12T23:17:28.643Z
+updated: 2024-10-18T23:21:29.977Z
 tags:
   - speak
   - english
@@ -58,6 +58,13 @@ thumbnail: https://thmb.techidaily.com/4d8389239c924325f747de29a6fa5fd56f085170d
 
  “Thanks” by Hanny Naibaho©
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The origin of saying “thank you”
 
  The mere act of expressing gratitude sits at the core of human interaction, so it should be interesting to analyze it a bit more. As the [Oxford Dictionaries](https://en.oxforddictionaries.com/definition/thank%5Fyou) explain, “thank you” is “a polite expression used when acknowledging a gift, service, or compliment, or accepting or refusing an offer”. “Thank you” is basically the general expression of gratitude or politeness to someone for an act of kindness that he or she has done.
@@ -82,8 +89,12 @@ thumbnail: https://thmb.techidaily.com/4d8389239c924325f747de29a6fa5fd56f085170d
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
+  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## From 0 to conversational in over 40 languages
 
  Do you want to speak Spanish fluently fast? Or maybe French? Get [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6274&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6274&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6274) , the award-winning language learning app that will help you speak up to 41 languages.
@@ -105,8 +116,6 @@ thumbnail: https://thmb.techidaily.com/4d8389239c924325f747de29a6fa5fd56f085170d
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -114,4 +123,26 @@ thumbnail: https://thmb.techidaily.com/4d8389239c924325f747de29a6fa5fd56f085170d
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/new-vimeo-tribute-spotlight/"><u>[New] Vimeo Tribute Spotlight</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/your-perfect-vlog-title-best-free-name-generators/"><u>Find Your Perfect Vlog Title - Best Free Name Generators</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-weekdays-eine-sprachubung/"><u>German Weekdays: Eine Sprachübung</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/go-beyond-ciao-bella-20plus-italian-slang-words-and-expressions/"><u>Go Beyond “Ciao Bella”: 20+ Italian Slang Words & Expressions</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-the-two-factor-authentication-on-iphone-xs-by-drfone-ios/"><u>In 2024, How To Remove the Two Factor Authentication On iPhone XS</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/inside-the-bose-qc35-ii-mastering-sound-serenity/"><u>Inside the Bose QC35 II - Mastering Sound Serenity</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/ios-screen-capture-a-comparative-analysis/"><u>IOS Screen Capture A Comparative Analysis</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/israelian-journey-essentials-must-know-guide-and-dialogue-tools/"><u>Israelian Journey Essentials: Must-Know Guide & Dialogue Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/korean-days-unveiled-a-language-journey/"><u>Korean Days Unveiled: A Language Journey</u></a></li>
+<li><a href="https://driver-download.techidaily.com/1722973436985-latest-version-of-logitech-k350-drivers-download-now/"><u>Latest Version of Logitech K350 Drivers - Download Now</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/launching-revolutionary-mondlys-faq-collection/"><u>Launching Revolutionary Mondly's FAQ Collection</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-get-started-with-vn-video-editor-on-mac-or-find-alternative-solutions/"><u>New In 2024, Get Started with VN Video Editor on Mac or Find Alternative Solutions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/propelled-progress-the-role-of-ai-in-scholarly-pursuits/"><u>Propelled Progress: The Role of AI in Scholarly Pursuits</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamless-imagery-assembly-personalized-posts-with-pictures/"><u>Seamless Imagery Assembly: Personalized Posts with Pictures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-alluring-saga-and-advantages-of-persian-study/"><u>The Alluring Saga and Advantages of Persian Study</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-best-way-to-learn-french-at-home/"><u>The Best Way to Learn French at Home</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-sweet-speech-guide-to-chocolate-in-many-languages/"><u>The Sweet Speech Guide to Chocolate in Many Languages</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-ultimate-breakdown-of-lg-channels-what-you-must-know/"><u>The Ultimate Breakdown of LG Channels - What You Must Know</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/witnessing-high-crash-rates-in-warframe-on-intels-i9-and-i7-chips-developer-report-analysis/"><u>Witnessing High Crash Rates in Warframe on Intel's I9 and I7 Chips: Developer Report Analysis</u></a></li>
+</ul></div>
 

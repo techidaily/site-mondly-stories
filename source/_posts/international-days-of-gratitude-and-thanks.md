@@ -1,7 +1,7 @@
 ---
 title: International Days of Gratitude and Thanks
-date: 2024-08-27T22:53:38.997Z
-updated: 2024-08-28T22:53:38.997Z
+date: 2024-10-12T19:28:08.971Z
+updated: 2024-10-18T17:39:04.711Z
 tags:
   - speak
   - english
@@ -26,8 +26,6 @@ thumbnail: https://thmb.techidaily.com/06768f0764e3fd16593ec6ab66fe93ff9404677c0
 
  Due to popular culture, Thanksgiving may seem profoundly American. If you are living in a country that doesn’t celebrate Thanksgiving, you probably have the wrong idea that this is an all-American holiday. And that’s perfectly understandable. Every year, you see at least one movie scene that features a happy family enjoying a bountiful dinner made of stuffed turkey and mashed potatoes. Nevertheless, celebrating gratitude is more universal than you think.
 
-
-
  Even some European countries celebrate Thanksgiving. The best example is Germany, which celebrates Erntedankfest (’harvest thanks festival’) on the first Sunday of October. So no, Thanksgiving is not just an American holiday. Similar celebrations take place all around the world – from Canada to Japan and even Liberia.
 
  Let’s learn more about these celebrations and discover seven of the most surprising countries that celebrate Thanksgiving (besides the US).
@@ -39,6 +37,13 @@ thumbnail: https://thmb.techidaily.com/06768f0764e3fd16593ec6ab66fe93ff9404677c0
  Yet Canadians and Americans don’t celebrate the same event. While the US celebrates the ‘feast’ shared by Pilgrims and Wampanoags in 1621, Canadian Thanksgiving goes back to 1578 (earlier than the first US celebration), when British explorer Arthur Frobisher and his crew returned from their search of the Northwest Passage. To [give thanks](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) for their safe return, they organized a feast.
 
  Other sources trace the Canadian Thanksgiving to the French settlers who came to North America in the 17th century and held feasts to celebrate their successful harvests.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 2\. Germany, Austria, and Switzerland
 
@@ -52,9 +57,6 @@ thumbnail: https://thmb.techidaily.com/06768f0764e3fd16593ec6ab66fe93ff9404677c0
 
  The interesting thing is that the Thanksgiving celebration in Leiden has everything to do with the United States celebration. According to the [Smithsonian Magazine](https://www.smithsonianmag.com/smart-news/they-celebrate-american-thanksgiving-in-the-netherlands-140671441/) , the well-known Pilgrims that feasted with the Wampanoags in 1621, started as a group of English religious separatists that fled England following king James’ persecution. Before heading to the New World, many of these Pilgrims lived in Leiden for about 11 years, until 1620\. The rest is history.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 4\. Grenada
 
  Although it rhymes with Canada, you should know that Grenada is actually a Caribbean country and its Thanksgiving celebration is one of the youngest in the world. Every year, on the 25th of October, Grenadians commemorate the events that took place in 1983, when Grenada’s deputy prime minister executed the prime minister and seized the power. Only nine days later, the United States military came to the rescue and restored order in a matter of weeks.
@@ -63,21 +65,19 @@ thumbnail: https://thmb.techidaily.com/06768f0764e3fd16593ec6ab66fe93ff9404677c0
 
 ![thanksgiving turkey](https://edge.mondly.com/blog/wp-content/uploads/2021/11/canadian-thanksgiving-960x641.jpg "What Countries Celebrate Thanksgiving? 3")
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  “Thanksgiving turkey” by Claudio Schwarz©
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ## 5\. Japan
 
  勤労感謝の日 (’Kinrō Kansha no Hi’) has roots in 新嘗祭 (Niiname-sai), the ancient Shinto rice harvest ceremony and it’s celebrated annually on the 23rd of November. Known today as ‘Labor Thanksgiving Day’, the celebration has lost some of its original meaning and is regarded now as an occasion for commemorating labor and reflecting on issues that impact the community, such as the environment and human rights.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 6\. Liberia
 
  Formerly a colony of the American Colonization Society, Liberia declared [its independence](https://www.history.com/this-day-in-history/liberian-independence-proclaimed) in 1947 and became the first democratic republic in African history.
@@ -91,8 +91,12 @@ thumbnail: https://thmb.techidaily.com/06768f0764e3fd16593ec6ab66fe93ff9404677c0
  During pre-Christian times in Britain, the Saxons would offer the first sheaf of cereals to fertility gods then come together and celebrate the harvest with a supper. Many traditions remained even though Christianity arrived in Britain so the present-day Harvest Festival is celebrated even by churches.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 8\. Brazil
 
  This is kind of a funny one. Apparently, sometime in the 1940s, Brazilian ambassador Joaquim Nabuco returned home from a trip to the US very enthusiastic about the commemorations he saw in St. Patrick’s Cathedral on Thanksgiving Day. So he suggested to President Gaspar Dutra to institute the celebration in Brazil as well.
@@ -105,8 +109,12 @@ thumbnail: https://thmb.techidaily.com/06768f0764e3fd16593ec6ab66fe93ff9404677c0
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Learn to give thanks in over 40 languages
 
  Do you want to broaden your horizons and learn to give thanks in over 40 languages? Get [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6274&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6274&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6274) , the award-winning language learning app that will help you speak up to 41 languages.
@@ -128,8 +136,6 @@ thumbnail: https://thmb.techidaily.com/06768f0764e3fd16593ec6ab66fe93ff9404677c0
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -137,4 +143,22 @@ thumbnail: https://thmb.techidaily.com/06768f0764e3fd16593ec6ab66fe93ff9404677c0
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-dynamic-discussion-drivers-in-instagram-social-media-surveys-for-2024/"><u>[New] Dynamic Discussion Drivers in Instagram Social Media Surveys for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/2024s-top-performers-the-best-large-screen-laptops-you-shouldnt-miss/"><u>2024'S Top Performers: The Best Large Screen Laptops You Shouldn’t Miss</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/comprehensive-guide-to-resolving-ntldr-related-boot-problems-in-windows/"><u>Comprehensive Guide to Resolving NTLDR-Related Boot Problems in Windows</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/easy-installation-tips-for-getting-windows-10-running-on-a-new-disk-unit/"><u>Easy Installation Tips for Getting Windows 10 Running on a New Disk Unit</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/japanese-phrases-to-make-a-good-first-impression/"><u>Japanese Phrases to Make a Good First Impression</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-lessons-in-long-term-relationships/"><u>Language Lessons in Long-Term Relationships</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-the-turkish-script-your-fast-track-guide-to-reading-and-speaking/"><u>Mastering the Turkish Script: Your Fast-Track Guide to Reading and Speaking</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-brings-the-future-of-language-learning-at-expo-2020-dubai/"><u>Mondly Brings the Future of Language Learning at Expo 2020 Dubai</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pearsons-digital-eslefl-experience/"><u>Pearson's Digital ESL/EFL Experience</u></a></li>
+<li><a href="https://games-able.techidaily.com/premium-high-pixels-hdp-gaming-ergonomics/"><u>Premium High Pixels (HDP) Gaming Ergonomics</u></a></li>
+<li><a href="https://win-rankings.techidaily.com/simple-steps-for-savingbacking-up-your-outlook-emails-to-a-computer/"><u>Simple Steps for Saving/Backing Up Your Outlook Emails to a Computer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/stepwise-arabic-the-laymans-roadmap/"><u>Stepwise Arabic: The Layman's Roadmap</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshoot-and-fix-laptop-audio-issues-a-comprehensive-guide/"><u>Troubleshoot and Fix Laptop Audio Issues: A Comprehensive Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tv-and-films-as-language-tools-effective-techniques/"><u>TV and Films as Language Tools: Effective Techniques</u></a></li>
+<li><a href="https://techidaily.com/update-your-hardware-drivers-with-device-manager-on-windows-11107-by-drivereasy-guide/"><u>Update your hardware drivers with Device Manager on Windows 11/10/7</u></a></li>
+</ul></div>
 

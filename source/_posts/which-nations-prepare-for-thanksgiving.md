@@ -1,7 +1,7 @@
 ---
 title: Which Nations Prepare for Thanksgiving?
-date: 2024-08-27T22:52:26.832Z
-updated: 2024-08-28T22:52:26.832Z
+date: 2024-10-16T23:36:15.403Z
+updated: 2024-10-18T19:37:38.449Z
 tags:
   - speak
   - english
@@ -26,8 +26,6 @@ thumbnail: https://thmb.techidaily.com/f93e229fc5f13225e3ec37018bd561a2847508d52
 
  Due to popular culture, Thanksgiving may seem profoundly American. If you are living in a country that doesn’t celebrate Thanksgiving, you probably have the wrong idea that this is an all-American holiday. And that’s perfectly understandable. Every year, you see at least one movie scene that features a happy family enjoying a bountiful dinner made of stuffed turkey and mashed potatoes. Nevertheless, celebrating gratitude is more universal than you think.
 
-
-
  Even some European countries celebrate Thanksgiving. The best example is Germany, which celebrates Erntedankfest (’harvest thanks festival’) on the first Sunday of October. So no, Thanksgiving is not just an American holiday. Similar celebrations take place all around the world – from Canada to Japan and even Liberia.
 
  Let’s learn more about these celebrations and discover seven of the most surprising countries that celebrate Thanksgiving (besides the US).
@@ -39,6 +37,13 @@ thumbnail: https://thmb.techidaily.com/f93e229fc5f13225e3ec37018bd561a2847508d52
  Yet Canadians and Americans don’t celebrate the same event. While the US celebrates the ‘feast’ shared by Pilgrims and Wampanoags in 1621, Canadian Thanksgiving goes back to 1578 (earlier than the first US celebration), when British explorer Arthur Frobisher and his crew returned from their search of the Northwest Passage. To [give thanks](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) for their safe return, they organized a feast.
 
  Other sources trace the Canadian Thanksgiving to the French settlers who came to North America in the 17th century and held feasts to celebrate their successful harvests.
+
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 2\. Germany, Austria, and Switzerland
 
@@ -53,8 +58,12 @@ thumbnail: https://thmb.techidaily.com/f93e229fc5f13225e3ec37018bd561a2847508d52
  The interesting thing is that the Thanksgiving celebration in Leiden has everything to do with the United States celebration. According to the [Smithsonian Magazine](https://www.smithsonianmag.com/smart-news/they-celebrate-american-thanksgiving-in-the-netherlands-140671441/) , the well-known Pilgrims that feasted with the Wampanoags in 1621, started as a group of English religious separatists that fled England following king James’ persecution. Before heading to the New World, many of these Pilgrims lived in Leiden for about 11 years, until 1620\. The rest is history.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 4\. Grenada
 
  Although it rhymes with Canada, you should know that Grenada is actually a Caribbean country and its Thanksgiving celebration is one of the youngest in the world. Every year, on the 25th of October, Grenadians commemorate the events that took place in 1983, when Grenada’s deputy prime minister executed the prime minister and seized the power. Only nine days later, the United States military came to the rescue and restored order in a matter of weeks.
@@ -63,18 +72,19 @@ thumbnail: https://thmb.techidaily.com/f93e229fc5f13225e3ec37018bd561a2847508d52
 
 ![thanksgiving turkey](https://edge.mondly.com/blog/wp-content/uploads/2021/11/canadian-thanksgiving-960x641.jpg "What Countries Celebrate Thanksgiving? 3")
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  “Thanksgiving turkey” by Claudio Schwarz©
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 5\. Japan
 
  勤労感謝の日 (’Kinrō Kansha no Hi’) has roots in 新嘗祭 (Niiname-sai), the ancient Shinto rice harvest ceremony and it’s celebrated annually on the 23rd of November. Known today as ‘Labor Thanksgiving Day’, the celebration has lost some of its original meaning and is regarded now as an occasion for commemorating labor and reflecting on issues that impact the community, such as the environment and human rights.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 6\. Liberia
 
  Formerly a colony of the American Colonization Society, Liberia declared [its independence](https://www.history.com/this-day-in-history/liberian-independence-proclaimed) in 1947 and became the first democratic republic in African history.
@@ -82,17 +92,18 @@ thumbnail: https://thmb.techidaily.com/f93e229fc5f13225e3ec37018bd561a2847508d52
  However, the freed slaves from the United States who returned to the country around 1820, brought something back from the US: the Thanksgiving celebration. By the 1880s, it was declared a national holiday and nowadays, Liberia is probably the only other country in the world that celebrates the American Thanksgiving.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 7\. the United Kingdom
 
  Yes, Thanksgiving is celebrated in the United Kingdom. Similar to the Erntedankfest celebration in German-speaking countries, Thanksgiving in the UK is actually a [Harvest Festival](https://en.wikipedia.org/wiki/Harvest%5Ffestival) held in late September or early October.
 
  During pre-Christian times in Britain, the Saxons would offer the first sheaf of cereals to fertility gods then come together and celebrate the harvest with a supper. Many traditions remained even though Christianity arrived in Britain so the present-day Harvest Festival is celebrated even by churches.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 8\. Brazil
 
  This is kind of a funny one. Apparently, sometime in the 1940s, Brazilian ambassador Joaquim Nabuco returned home from a trip to the US very enthusiastic about the commemorations he saw in St. Patrick’s Cathedral on Thanksgiving Day. So he suggested to President Gaspar Dutra to institute the celebration in Brazil as well.
@@ -104,9 +115,6 @@ thumbnail: https://thmb.techidaily.com/f93e229fc5f13225e3ec37018bd561a2847508d52
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ## Learn to give thanks in over 40 languages
 
  Do you want to broaden your horizons and learn to give thanks in over 40 languages? Get [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6274&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6274&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6274) , the award-winning language learning app that will help you speak up to 41 languages.
@@ -128,8 +136,6 @@ thumbnail: https://thmb.techidaily.com/f93e229fc5f13225e3ec37018bd561a2847508d52
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -137,4 +143,18 @@ thumbnail: https://thmb.techidaily.com/f93e229fc5f13225e3ec37018bd561a2847508d52
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-tips.techidaily.com/new-a-guide-to-discovering-virtual-augmentations/"><u>[New] A Guide to Discovering Virtual Augmentations</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-the-ultimate-10-accessory-collection-for-sj4000/"><u>[New] In 2024, The Ultimate 10 Accessory Collection for SJ4000</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/remier-transcriber-platform-video-to-writing-for-2024/"><u>[New] Premier Transcriber Platform Video to Writing for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-making-youtube-audio-mp3s-easily-for-your-mac/"><u>[Updated] Making YouTube Audio MP3s Easily for Your Mac</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-honor-x7b-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Honor X7b Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/in-2024-unraveling-discords-features-for-aspiring-broadc-writers-streaming/"><u>In 2024, Unraveling Discord's Features for Aspiring Broadc Writers (Streaming)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-puzzle-dissecting-por-que-and-por-que/"><u>Language Puzzle: Dissecting Por Que and Por Qué</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-fundamentals-of-pronouncing-french-words-rightly/"><u>The Fundamentals of Pronouncing French Words Rightly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-sweetest-syntax-how-to-say-chocolate-everywhere/"><u>The Sweetest Syntax: How To Say 'Chocolate' Everywhere</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/um-compendio-do-portugues-saudacoes-a-todas-as-hora/"><u>Um Compêndio Do Português: Saudações a Todas as Hora</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-choice-todays-top-ios-app/"><u>Worldwide Choice: Today's Top iOS App</u></a></li>
+</ul></div>
 

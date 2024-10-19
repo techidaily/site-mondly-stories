@@ -1,7 +1,7 @@
 ---
 title: Multilingual Salutation Strategies
-date: 2024-08-27T22:54:49.892Z
-updated: 2024-08-28T22:54:49.892Z
+date: 2024-10-16T22:37:21.988Z
+updated: 2024-10-19T00:32:06.567Z
 tags:
   - speak
   - english
@@ -40,11 +40,25 @@ thumbnail: https://thmb.techidaily.com/55ff105adfb563907b6c1c05420f78a6c5ab084d0
 
  Wanna dig deeper into Russian greetings? Here are five different ways to say [**‘hello’ in Russian**](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Hello in Japanese — こんにちは (Kon’nichiwa)
 
  The same as the Spanish_hola_ ,**_Kon’nichiwa_** is a kind of universal Japanese greeting that can be used safely in all sorts of social contexts. There are two exceptions, though. Early in the morning and late at night, you should use the specific greetings dedicated to certain moments of the day. To learn more about them, check out this in-depth guide on how to say **[‘hello’ in Japanese](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .**
 
  Moreover, don’t forget that the Japanese culture is a culture of respect. If you want to go all-in and immerse yourself entirely in the Japanese culture, it’s best to [study Japanese](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) etiquette before your trip.
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Hello in Korean — 안녕하세요 (Annyeonghaseyo)
 
@@ -54,11 +68,14 @@ _안녕하세요 (Annyeonghaseyo)_ is the most popular semi-formal Korean hello.
 
 ![hello in japanese](https://edge.mondly.com/blog/wp-content/uploads/2021/06/hello-in-japanese-960x640.jpg "How To Say &Quot;Hello&Quot; In Different Languages 3")
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
  “Mount Fuji, Japan” by David Edelstein©
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Hello in French — Bonjour
 
@@ -68,9 +85,6 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
  Wanna find out more? Here are [12 French greetings beyond Bonjour](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Hello in German — Hallo
 
  **The universal German hello is_Hallo_ .** Short, sweet and simple. In other words, nothing like the rest of the German language. (Sorry, German, but that’s true.)
@@ -90,13 +104,14 @@ DbSchema database designer for all databases, schema design in the team, schema 
 ![hello in french](https://edge.mondly.com/blog/wp-content/uploads/2021/06/hello-in-french-960x640.jpg "How To Say &Quot;Hello&Quot; In Different Languages 4")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  “Antibes, France” by Reuben Mcfeeters©
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Hello in Italian — Ciao
 
  The Italian_Ciao_ is so popular that it has also been borrowed by other countries to be used between friends as a joke or even seriously. Together with_Capisce_ and_Grazie_ ,_Ciao_ forms the Holy Trinity of the Italian language. Anyone who wants to summon his or her inner Italian just uses these three words and automatically becomes Italian. Oh, let’s not forget about the famous [Italian hand gesture](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ! (Admit it. You tried that, too, at some point.)
@@ -107,9 +122,6 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
  If you want to learn more about how to say**‘hi’ in Italian,** you can check out this in-depth **[guide on Italian greetings](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .**
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ## Hello in Chinese — 你好 (Nǐ hǎo)
 
  The Chinese language is just as rich in greetings as any other language, but the most popular way to say**‘hello’ in Chinese** is definitely**你好 (Nǐ hǎo).** And when we say ‘popular’, it’s 1 billion people popular because, as you probably already know, Chinese is the [most spoken language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) in the world by the total number of native speakers.
@@ -117,9 +129,12 @@ DbSchema database designer for all databases, schema design in the team, schema 
  Of course, like in many other languages, this is not the only way to say ‘hello’ in Chinese. To find out what are other ways to say ‘hi’ in Chinese, here’s an [in-depth guide on](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) **Chinese greetings.**
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Hello in Portuguese — Olá
 
 **_Olá_ or_Oi_ ?** What’s your Portuguese hello of choice?
@@ -193,8 +208,6 @@ _Olá_ , just like the Spanish_Hola_ , is suitable for any situation regardless 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -202,4 +215,22 @@ _Olá_ , just like the Spanish_Hola_ , is suitable for any situation regardless 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-integrating-your-day-job-with-passionate-online-content/"><u>[New] In 2024, Integrating Your Day Job with Passionate Online Content</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-comparing-the-leading-tunefab-screen-recorders/"><u>[Updated] Comparing the Leading Tunefab Screen Recorders</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/easy-conversion-tutorial-how-to-change-m4a-audio-to-mp3-via-google-search-engine-ffmpeg-cmd-line-instructions-included/"><u>Easy Conversion Tutorial: How to Change M4A Audio to MP3 via Google Search Engine - FFmpeg Cmd Line Instructions Included!</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/essential-review-of-mp4-capture-tools/"><u>Essential Review of MP4 Capture Tools</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-itel-p40-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Itel P40 | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/1723015920321-insta360-x2-perfect-for-swimmers-and-surfers-on-the-go/"><u>Insta360 X2: Perfect for Swimmers and Surfers on the Go!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/phrase-perfection-a-complete-guide-to-uk-speech/"><u>Phrase Perfection: A Complete Guide to UK Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rapid-immersion-learn-a-new-language-fast/"><u>Rapid Immersion: Learn a New Language Fast</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/selective-movie-tease-treasury-for-2024/"><u>Selective Movie Tease Treasury for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-intersection-of-language-and-technology-in-pt-button-usage/"><u>The Intersection of Language and Technology in PT Button Usage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-francophone-countries-and-their-concentrated-language-user-base/"><u>Top Francophone Countries & Their Concentrated Language User Base</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-snap-share-repeat-the-ultimate-ps4-screenshot-sharing-guide/"><u>Updated In 2024, Snap, Share, Repeat The Ultimate PS4 Screenshot Sharing Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/what-languages-does-santa-claus-speak-christmas-around-the-world/"><u>What Languages Does Santa Claus Speak? Christmas Around the World</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/whimsical-words-bilingual-romantic-expressions/"><u>Whimsical Words: Bilingual Romantic Expressions</u></a></li>
+<li><a href="https://discover-help.techidaily.com/reshenie-problem-s-razdelom-vosstanovleniya-windows-udalenie-ili-vosstanovlenie/"><u>Решение Проблем С Разделом Восстановления Windows: Удаление Или Восстановление</u></a></li>
+</ul></div>
 

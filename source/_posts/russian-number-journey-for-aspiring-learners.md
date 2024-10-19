@@ -1,7 +1,7 @@
 ---
 title: Russian Number Journey for Aspiring Learners
-date: 2024-08-27T22:58:50.996Z
-updated: 2024-08-28T22:58:50.996Z
+date: 2024-10-16T21:05:05.308Z
+updated: 2024-10-18T17:37:24.715Z
 tags:
   - speak
   - english
@@ -46,24 +46,30 @@ If you did manage, good job! You must be a natural.
 
 ![numbers in russian](https://edge.mondly.com/blog/wp-content/uploads/2020/04/numbers-in-russian-600x424.jpg "Russian Numbers - Learn How To Count In Russian 3")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Russian numbers 11-20
 
 **Good to know:** If you want to bring a flower bouquet when you are invited to someone’s house in Russia, choose an odd number of flowers – so три, пять, семь or девять flowers. One Russian superstition says that bouquets with an even number of flowers are adequate only for funerals.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Russian numbers: 21 and onwards
 
  From here on, Russian numbers are formed similarly to the English numbers (minus the word “and”). If 20 is двадцать_(dvadtsat)_ , then 21 is двадцать**один** _(_ _dvadtsat odin)_ and 22 is двадцать**два** _(dvadtsat dva)_ . Basically, you just**add the numbers from 1 to 9 to the tens.**
 
 ![russian numbers](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-numbers-600x424.jpg "Russian Numbers - Learn How To Count In Russian 4")
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
  Russian tens
 
 Here are some examples:
@@ -81,8 +87,12 @@ And guess what! It works the same with the hundreds.
 ![russian hundreds](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-hundreds-600x424.jpg "Russian Numbers - Learn How To Count In Russian 5")
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Russian hundreds
 
  For example, if you want to say 146, you say сто сорок шесть_(sto sorok shest)_ .
@@ -90,8 +100,12 @@ And guess what! It works the same with the hundreds.
 Not as hard as you’d expect, is it?
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Russian ordinal numbers
 
  Now that you’ve learned the Russian cardinal numbers, let’s end this short lesson with some ordinal numbers. You never know when they may come in handy.
@@ -128,8 +142,6 @@ Not as hard as you’d expect, is it?
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -137,4 +149,24 @@ Not as hard as you’d expect, is it?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-how-to-measure-the-performance-of-igtv-videos-for-2024/"><u>[New] How to Measure the Performance of IGTV Videos for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-perfect-your-tiktok-bio-how-to-add-an-effective-link/"><u>[Updated] Perfect Your TikTok Bio How to Add an Effective Link</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-revolutionary-ios-gaming-apples-best-vr-apps/"><u>2024 Approved Revolutionary iOS Gaming Apple's Best VR Apps</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/easy-fixes-how-to-recover-forgotten-icloud-password-on-your-apple-iphone-15-plus-by-drfone-ios/"><u>Easy Fixes How To Recover Forgotten iCloud Password On your Apple iPhone 15 Plus</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grasping-the-basics-of-spanish-verb-conjugation/"><u>Grasping the Basics of Spanish Verb Conjugation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/happy-birthdays-a-global-linguistic-journey/"><u>Happy Birthdays: A Global Linguistic Journey</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-spy-on-text-messages-from-computer-and-zte-nubia-z60-ultra-drfone-by-drfone-virtual-android/"><u>How to Spy on Text Messages from Computer & ZTE Nubia Z60 Ultra | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/navigating-multiple-perspectives-with-fb-lives-split-view-functionality-for-2024/"><u>Navigating Multiple Perspectives with FB Live's Split View Functionality for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/obs-mic-troubles-discover-the-best-fixes-and-solutions/"><u>OBS Mic Troubles? Discover the Best Fixes & Solutions !</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polite-pleasers-how-to-show-thankfulness-in-30-different-tongues-157-trimmed-to-fit/"><u>Polite Pleasers: How to Show Thankfulness in 30 Different Tongues (157) [Trimmed to Fit]</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/premier-5-language-pedagogy-applications/"><u>Premier 5 Language Pedagogy Applications</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-slovak-flawlessly-in-10-min-doses-online/"><u>Speak Slovak Flawlessly in 10-Min Doses Online!</u></a></li>
+<li><a href="https://article-tips.techidaily.com/tales-of-timeless-togetherness-this-seasons-top-10-for-2024/"><u>Tales of Timeless Togetherness This Season's Top 10 for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-british-american-linguistic-divide/"><u>The British-American Linguistic Divide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/triple-threat-training-3-brain-drills-for-language-gurus/"><u>Triple Threat Training: 3 Brain Drills for Language Gurus</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-the-role-of-artificial-intelligence-in-education-and-language-learning/"><u>Understanding the Role of Artificial Intelligence in Education & Language Learning</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/youtubes-golden-age-of-video-gamers-for-2024/"><u>YouTube's Golden Age of Video Gamers for 2024</u></a></li>
+</ul></div>
 

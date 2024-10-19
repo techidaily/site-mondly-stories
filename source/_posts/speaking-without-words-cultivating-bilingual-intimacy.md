@@ -1,7 +1,7 @@
 ---
 title: "Speaking Without Words: Cultivating Bilingual Intimacy"
-date: 2024-10-10T20:51:01.968Z
-updated: 2024-10-12T16:44:46.295Z
+date: 2024-10-15T20:25:27.812Z
+updated: 2024-10-18T18:42:43.887Z
 tags:
   - speak
   - english
@@ -32,6 +32,13 @@ thumbnail: https://thmb.techidaily.com/bedf5c8b53d1004ac14c8188bc2b10e8fa9f12bca
 
  And it’s all fun and games until someone asks, “what are you thinking about?”. If answering this mythical question was hard before, imagine how challenging it becomes now that you are dating someone with bad English or no English at all. So take it from me and don’t go there! Abort mission! Practice some more and only then you’ll be ready for this quest. But you knew that already, didn’t you?
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. You never run out of things to say to each other
 
  On the other hand, you never ever run out of things to say to each other in a multilingual relationship. That’s because both of you are constantly trying to teach the other your native tongue.
@@ -39,13 +46,6 @@ thumbnail: https://thmb.techidaily.com/bedf5c8b53d1004ac14c8188bc2b10e8fa9f12bca
 “Spoon! This is a spoon! Repeat after me! Spoon!” – sounds familiar?
 
 ![multilingual relantionship](https://media.giphy.com/media/AelF2ps5xLKo/giphy.gif "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 4")
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  You either go through the entire dictionary or use the brilliance of Mondly to learn the language before one can say Jack Robinson.
 
@@ -58,10 +58,10 @@ thumbnail: https://thmb.techidaily.com/bedf5c8b53d1004ac14c8188bc2b10e8fa9f12bca
 ![dating language barrier](https://media.giphy.com/media/xUA7aYMO79CzQNMfJe/giphy.gif "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 5")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. You eventually become bilingual
@@ -69,13 +69,6 @@ thumbnail: https://thmb.techidaily.com/bedf5c8b53d1004ac14c8188bc2b10e8fa9f12bca
  And that’s not a bad thing at all! If love is strong, so is your desire to [learn a new language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . You know it. You probably did it already.
 
  But if that’s not the case,[Mondly – the amazing language learning app](https://play.google.com/store/apps/details?id=com.atistudios.mondly.languages&hl=ro) – has an entire Romance category dedicated to your love. Just take it from there and see where you can get in just a few months.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 5\. Your fights are… sooo fun to watch
 
@@ -89,13 +82,6 @@ thumbnail: https://thmb.techidaily.com/bedf5c8b53d1004ac14c8188bc2b10e8fa9f12bca
 
 ![overcoming language barriers](https://media.giphy.com/media/12nfFCZA0vyrSw/giphy.gif "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 6")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 7\. You come up with a sign language of your own
 
  If there’s no language bridge between you two, you have to come up with creative ideas. That’s how your secret communication code got created.
@@ -103,10 +89,16 @@ thumbnail: https://thmb.techidaily.com/bedf5c8b53d1004ac14c8188bc2b10e8fa9f12bca
 ![dating bad english](https://media.giphy.com/media/6tNOhcNvvynPa/giphy.gif "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 7")
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 8\. You focus less on words and more on action
@@ -114,6 +106,13 @@ thumbnail: https://thmb.techidaily.com/bedf5c8b53d1004ac14c8188bc2b10e8fa9f12bca
  Language barriers are not actually barriers. You know that, don’t you? They are actually the absolute and ultimate cure for overthinking. “What did he or she mean by that?” becomes “well, I can’t put up with all that thinking now. Let’s make up… or out?”
 
 ![flirting language barrier](https://media.giphy.com/media/LoJjkPAVF8UH6/giphy.gif "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 8")
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 9\. You absolutely love hearing him or her speak
 
@@ -124,6 +123,13 @@ thumbnail: https://thmb.techidaily.com/bedf5c8b53d1004ac14c8188bc2b10e8fa9f12bca
  And since we are here, here’s a group of charismatic foreigners trying to say “I love you” in more than 30 languages.
 
 Watch at your own risk! They might steal your heart!
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 10\. You constantly get the reassurance of being truly and honestly loved
 
@@ -167,22 +173,24 @@ Watch at your own risk! They might steal your heart!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-gently-unveiled-scene/"><u>[New] Gently Unveiled Scene</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-master-your-fb-video-archive-with-1-5-choices/"><u>2024 Approved Master Your FB Video Archive with #1-5 Choices</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/2024-approved-mjolnir-strikes-back-release-day/"><u>2024 Approved Mjölnir Strikes Back! Release Day</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/8-dynamic-reasons-for-embracing-new-dialects/"><u>8 Dynamic Reasons for Embracing New Dialects</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ace-japanese-greeting-etiquette/"><u>Ace Japanese Greeting Etiquette</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/attraction-tactics-romantic-german-phrases/"><u>Attraction Tactics: Romantic German Phrases</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/brainy-bonuses-six-key-benefits-in-multilinguals/"><u>Brainy Bonuses: Six Key Benefits in Multilinguals</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/bypass-activation-lock-from-apple-iphone-12-pro-max-4-easy-ways-by-drfone-ios/"><u>Bypass Activation Lock From Apple iPhone 12 Pro Max - 4 Easy Ways</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/clarity-commands-best-practices-for-clear-dialogue/"><u>Clarity Commands: Best Practices for Clear Dialogue</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/decoding-german-idioms-a-curated-list-of-top-25/"><u>Decoding German Idioms - A Curated List of Top 25</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/diverse-tongues-common-purpose-in-classrooms/"><u>Diverse Tongues, Common Purpose in Classrooms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/elevating-your-business-talk-one-phrase-at-a-time/"><u>Elevating Your Business Talk, One Phrase at a Time</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/free-web-based-conversion-change-avi-files-into-mpeg-format-with-ease-using-movavi/"><u>Free Web-Based Conversion: Change AVI Files Into MPEG Format with Ease Using Movavi</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-mastering-lock-screen-settings-how-to-enable-and-disable-on-xiaomi-redmi-a2-by-drfone-android/"><u>In 2024, Mastering Lock Screen Settings How to Enable and Disable on Xiaomi Redmi A2</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-unlocking-apple-iphone-14-passcode-without-a-computer-drfone-by-drfone-ios/"><u>In 2024, Unlocking Apple iPhone 14 Passcode without a Computer | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/step-by-step-instructions-on-how-to-disable-cortanas-copilot-feature-in-windows-11/"><u>Step-by-Step Instructions on How to Disable Cortana's Copilot Feature in Windows 11</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/troubleshooting-steps-what-to-do-when-your-pc-wont-turn-on/"><u>Troubleshooting Steps: What to Do When Your PC Won't Turn On</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-apex-legends-crossplay-how-to-turn-it-off-and-platform-choosing-guide-for-2024/"><u>[New] Apex Legends Crossplay How to Turn It Off & Platform Choosing Guide for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-joke-generation-made-simple-kapwing-app-guide/"><u>[New] Joke Generation Made Simple – Kapwing App Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-the-complete-blueprint-for-exceptional-asmr-production-value/"><u>[Updated] 2024 Approved The Complete Blueprint for Exceptional ASMR Production Value</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/adapting-classroom-practices-to-non-native-speakers/"><u>Adapting Classroom Practices to Non-Native Speakers</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/advanced-ai-systems-mastering-internet-information-retrieval/"><u>Advanced AI Systems Mastering Internet Information Retrieval</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1723964472002-build-your-dream-desktop-on-console-no-toolkit-needed/"><u>Build Your Dream Desktop on Console: No Toolkit Needed!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cataloging-the-iberian-linguistic-kinship/"><u>Cataloging the Iberian Linguistic Kinship</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grasping-the-essentials-of-english-grammar-a-focus-on-contractions/"><u>Grasping the Essentials of English Grammar: A Focus on Contractions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/immersive-spanish-lessons-that-enthrall/"><u>Immersive Spanish Lessons That Enthrall</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-vivo-x-fold-2-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Vivo X Fold 2? | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/iphone-zoom-videography/"><u>IPhone Zoom Videography</u></a></li>
+<li><a href="https://games-able.techidaily.com/java-game-selection-what-made-us-choose-them/"><u>Java Game Selection: What Made Us Choose Them</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-and-apple-a-topping-team-at-global-educational-summit/"><u>Mondly and Apple: A Topping Team at Global Educational Summit</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-enters-alliance-with-pearson-institute/"><u>Mondly Enters Alliance with Pearson Institute</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-launched-the-first-ever-language-app-on-oculus-quest/"><u>Mondly Launched the First-Ever Language App on Oculus Quest</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-greetings-compendium/"><u>Multilingual Greetings Compendium</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-20-tips-for-effortless-online-lithuanian-learning/"><u>Top 20 Tips for Effortless Online Lithuanian Learning</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/top-5-audio-experiences-on-iphones-for-2024/"><u>Top 5 Audio Experiences on iPhones for 2024</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-recording-and-incorporating-narration-a-step-by-step-approach-for-todays-videos-for-2024/"><u>Updated Recording & Incorporating Narration A Step-by-Step Approach for Todays Videos for 2024</u></a></li>
 </ul></div>
 

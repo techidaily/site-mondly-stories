@@ -1,7 +1,7 @@
 ---
 title: "Global Morning Greetings: Saying Hello to the Day in 10 Languages"
-date: 2024-08-23T00:35:32.170Z
-updated: 2024-08-24T00:35:32.170Z
+date: 2024-10-12T16:33:16.504Z
+updated: 2024-10-18T17:08:18.576Z
 tags:
   - speak
   - english
@@ -45,9 +45,6 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 
  Both “bonjour” and “bon matin” are appropriate in both formal and informal settings and can be used with friends and strangers alike.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
-<!-- affiliate ads end -->
 ## 3\. Good morning in German:_Guten Morgen!_
 
  To say “good morning” in German, you can use the phrase “Guten Morgen”. This is a common and polite way to greet someone until noon. It can be used with both friends and strangers which makes it appropriate in both formal and informal social contexts.
@@ -55,17 +52,18 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
  As you probably know, Germans like to be efficient, so sometimes greetings tend to be kept short. Therefore, in informal situations, you can simply say “Morgen!”.
 
 <!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 4\. Good morning in Italian:_Buongiorno!_
 
  Everyone is familiar with the Italian “ciao” which means “hi”. It has become so popular, that it is often used between friends in countries all around the world. However, if you want to say “good morning” in Italian, the word you are looking for is “buongiorno”.
 
  Literally meaning “good day”, “buongiorno” can safely be used in all kinds of social contexts from morning until after lunch.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 5\. Good morning in Portuguese:_Bom dia!_
 
  In Portuguese, “bom dia” is how you say “good morning”. Literally translated as “good day”, this greeting is commonly used between the hours of 5:30 a.m. and 12:00 – 1:00 p.m.
@@ -85,17 +83,24 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
  Additionally, if you want to go the extra mile, it is considered polite to ask about the person’s well-being after greeting them. For example, “как дела?”_(kak dela?)_ which means “how are you?” is often used in conjunction with “доброе утро”_(dobraye utro)_ . This makes the greeting more friendly and personal.
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<span id="1982499">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 7\. Good morning in Chinese:_早上好！_
 
  早上好_(Zǎoshang hǎo)_ is how you normally say “good morning” in Chinese. However, if you want to keep it short and sound more like a native, you can just simply say 早_(zǎo)_ .
 
  The same as the English “good morning”, 早 (zǎo) can be used in most social settings provided it’s morning, of course.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 8\. Good morning in Japanese:_おはようございます！_
 
  When greeting someone in the morning hours before 10:00 a.m. in Japanese, おはようございます_(Ohayōgozaimasu)_ is the most appropriate choice. It is considered more formal than こんにちは_(Konnichiwa)_ or “hello” and is safe to use with people you are not familiar with or in formal settings such as with your boss or teacher.
@@ -104,6 +109,13 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 
 !["Good morning in Spanish" by Dawid Zawiła©](https://edge.mondly.com/blog/wp-content/uploads/2023/01/good-morning-in-spanish-960x640.jpg "How To Say Good Morning In 10 Different Languages 2")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 9\. Good morning in Arabic:_صباح الخير!_
 
  The most common way to say “good morning” in Arabic is_صباح الخير (_ _Sabah alkhayr)_ . The usual response to this is صباح النور_(Sabah an-noor)_ which means “morning of light”. Isn’t that just beautiful?
@@ -111,6 +123,13 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
  Other morning greetings in Arabic include يسعد صباحكم_(_ _Yaseed sabahkom)_ which translates to “may you have a nice morning”, صباح الياسمين_(_ _Sabah al Yasmine)_ meaning “a morning full of jasmine”, and صباح أل عشت_(_ _Sabah al ishta)_ which is “a morning full of cream”.
 
  Careful though! As beautiful as they sound, these last examples can only be used with friends or people who are very close to your heart.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 10\. Good morning in Hindi:_सुप्रभात!_
 
@@ -129,9 +148,6 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
 ## From “good morning” to conversational fast
 
  Do you want to learn languages fast? Try Mondly, the award-winning language app that can help you master languages in record time.
@@ -154,8 +170,6 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -163,4 +177,19 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-mac-professionals-recommendations-the-best-of-screenflow/"><u>[New] Mac Professionals Recommendations – The Best of ScreenFlow</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-free-online-compilation-of-copyright-free-charts/"><u>[Updated] 2024 Approved Free Online Compilation of Copyright-Free Charts</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-the-blueprint-of-tomorrow-eco-friendly-urban-strategies/"><u>[Updated] 2024 Approved The Blueprint of Tomorrow Eco-Friendly Urban Strategies</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-structuring-videos-for-maximum-impact-on-youtube/"><u>[Updated] In 2024, Structuring Videos for Maximum Impact on YouTube</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/9-best-phone-monitoring-apps-for-vivo-y200e-5g-drfone-by-drfone-virtual-android/"><u>9 Best Phone Monitoring Apps for Vivo Y200e 5G | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-face-to-face-conferencing-woes-9-fixes-for-clear-video-chats/"><u>In 2024, Face-to-Face Conferencing Woes? 9 Fixes for Clear Video Chats</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-to-a-new-world-start-learning-croatian-today-for-these-7-reasons/"><u>Journey to a New World – Start Learning Croatian Today for These 7 Reasons!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-unparalleled-contribution-to-my-language-learning-progress-top-10-insights/"><u>Mondly’s Unparalleled Contribution to My Language Learning Progress – Top 10 Insights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polyglot-proficiency-program/"><u>Polyglot Proficiency Program</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-pathway-to-linguistic-proficiency-mondlys-top-10-innovations-for-learning/"><u>The Pathway to Linguistic Proficiency – Mondly's Top 10 Innovations for Learning</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-ultimate-fix-how-to-retract-a-repost-on-tiktok-easily/"><u>The Ultimate Fix: How To Retract A Repost On TikTok Easily</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/veritable-verses-of-vintage-verite/"><u>Veritable Verses of Vintage Vérité</u></a></li>
+</ul></div>
 

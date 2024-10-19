@@ -1,7 +1,7 @@
 ---
 title: "The Art of Sunrise Salutations: Good Mornings in 10 Languages"
-date: 2024-08-27T22:57:36.828Z
-updated: 2024-08-28T22:57:36.828Z
+date: 2024-10-16T22:02:29.306Z
+updated: 2024-10-18T20:28:37.047Z
 tags:
   - speak
   - english
@@ -45,23 +45,24 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 
  Both “bonjour” and “bon matin” are appropriate in both formal and informal settings and can be used with friends and strangers alike.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ## 3\. Good morning in German:_Guten Morgen!_
 
  To say “good morning” in German, you can use the phrase “Guten Morgen”. This is a common and polite way to greet someone until noon. It can be used with both friends and strangers which makes it appropriate in both formal and informal social contexts.
 
  As you probably know, Germans like to be efficient, so sometimes greetings tend to be kept short. Therefore, in informal situations, you can simply say “Morgen!”.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 4\. Good morning in Italian:_Buongiorno!_
 
  Everyone is familiar with the Italian “ciao” which means “hi”. It has become so popular, that it is often used between friends in countries all around the world. However, if you want to say “good morning” in Italian, the word you are looking for is “buongiorno”.
 
  Literally meaning “good day”, “buongiorno” can safely be used in all kinds of social contexts from morning until after lunch.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. Good morning in Portuguese:_Bom dia!_
 
@@ -73,9 +74,6 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 
 [Learn with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-7421&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-7421&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-7421)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 6\. Good morning in Russian:_Доброе утро!_
 
  To say [“good morning” in Russian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , you can use the phrase “доброе утро” which is pronounced “Dobroye utro”. This is the most popular way to greet people in the morning.
@@ -85,8 +83,12 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
  Additionally, if you want to go the extra mile, it is considered polite to ask about the person’s well-being after greeting them. For example, “как дела?”_(kak dela?)_ which means “how are you?” is often used in conjunction with “доброе утро”_(dobraye utro)_ . This makes the greeting more friendly and personal.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 7\. Good morning in Chinese:_早上好！_
 
  早上好_(Zǎoshang hǎo)_ is how you normally say “good morning” in Chinese. However, if you want to keep it short and sound more like a native, you can just simply say 早_(zǎo)_ .
@@ -102,12 +104,12 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 !["Good morning in Spanish" by Dawid Zawiła©](https://edge.mondly.com/blog/wp-content/uploads/2023/01/good-morning-in-spanish-960x640.jpg "How To Say Good Morning In 10 Different Languages 2")
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 9\. Good morning in Arabic:_صباح الخير!_
 
  The most common way to say “good morning” in Arabic is_صباح الخير (_ _Sabah alkhayr)_ . The usual response to this is صباح النور_(Sabah an-noor)_ which means “morning of light”. Isn’t that just beautiful?
@@ -116,9 +118,6 @@ No advertising on the website.
 
  Careful though! As beautiful as they sound, these last examples can only be used with friends or people who are very close to your heart.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 10\. Good morning in Hindi:_सुप्रभात!_
 
  To say “good morning” in [Hindi](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , you can use the phrase सुप्रभात_(Suprabhaat) _ . This is a common and polite way to greet someone in the morning and it is appropriate for both formal and informal settings.
@@ -135,6 +134,19 @@ No advertising on the website.
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="864" height="1296" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## From “good morning” to conversational fast
 
@@ -158,8 +170,6 @@ No advertising on the website.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -167,4 +177,16 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-how-to-efficiently-delete-unwanted-video-feedback/"><u>[Updated] 2024 Approved How to Efficiently Delete Unwanted Video Feedback</u></a></li>
+<li><a href="https://win-info.techidaily.com/fortify-system-defenses-with-tpm-20-upgrades-on-vanguard-systems/"><u>Fortify System Defenses with TPM 2.0 Upgrades on Vanguard Systems</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/guide-step-by-step-enhance-and-replace-your-images-with-editphoto-a-users-handbook/"><u>Guide Step-by-Step: Enhance and Replace Your Images with EditPhoto - A User's Handbook</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-your-apple-iphone-8-passcode-4-easy-methods-with-or-without-itunes-by-drfone-ios/"><u>How to Unlock Your Apple iPhone 8 Passcode 4 Easy Methods (With or Without iTunes)</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/resolving-criticalprocessdied-blue-screen-of-death-on-windows-10-systems/"><u>Resolving 'CRITICAL_PROCESS_DIED' Blue Screen of Death on Windows 10 Systems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-pirates-dictionary-swashbuckling-words/"><u>The Pirate's Dictionary: Swashbuckling Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/translate-tension-and-thrills-learning-korean-for-squid-game-enthusiasts/"><u>Translate Tension and Thrills: Learning Korean for Squid Game Enthusiasts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-new-horizons-6-reasons-to-learn-arabic-via-mondly-online-platform/"><u>Unlock New Horizons: 6 Reasons to Learn Arabic via Mondly Online Platform</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vivacious-verbal-touches-italian-preening-art/"><u>Vivacious Verbal Touches: Italian Preening Art</u></a></li>
+</ul></div>
 

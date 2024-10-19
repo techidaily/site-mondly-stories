@@ -1,7 +1,7 @@
 ---
 title: "International Eloquence: Expressing Thanks Worldwide (152) [Trimmed to Fit]"
-date: 2024-10-11T21:05:03.233Z
-updated: 2024-10-13T00:08:33.191Z
+date: 2024-10-14T20:24:23.620Z
+updated: 2024-10-19T00:09:40.031Z
 tags:
   - speak
   - english
@@ -59,10 +59,10 @@ thumbnail: https://thmb.techidaily.com/ebdad2a840dec3c1268566b70a55752afebf36210
  “Thanks” by Hanny Naibaho©
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The origin of saying “thank you”
@@ -89,10 +89,16 @@ thumbnail: https://thmb.techidaily.com/ebdad2a840dec3c1268566b70a55752afebf36210
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983446">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## From 0 to conversational in over 40 languages
@@ -125,16 +131,24 @@ thumbnail: https://thmb.techidaily.com/ebdad2a840dec3c1268566b70a55752afebf36210
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-directsnaprecorder-straightforward-windows-11-capture/"><u>[New] DirectSnapRecorder Straightforward Windows 11 Capture</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-beyondonecam-testing-are-there-better-options/"><u>[Updated] BeyondOneCam Testing Are There Better Options?</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-pro-level-phone-and-camera-gimbal-tracking-systems/"><u>[Updated] Pro-Level Phone & Camera Gimbal Tracking Systems</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/effective-solutions-to-correct-zlibdll-errors-on-your-pc/"><u>Effective Solutions to Correct zlib.dll Errors on Your PC</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enhanced-creativity-and-expression-with-second-language-skills/"><u>Enhanced Creativity and Expression with Second Language Skills</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enter-new-era-of-language-learning-with-mondlyar/"><u>Enter New Era of Language Learning with MondlyAR</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-flavor-to-verse-chocolate-speeches-across-nations/"><u>From Flavor to Verse: Chocolate Speeches Across Nations</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-stranger-to-friend-key-japanese-phrases/"><u>From Stranger to Friend: Key Japanese Phrases</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/german-fehlender-respekt-erkennen-und-bedingen-sagen/"><u>German: Fehlender Respekt Erkennen Und Bedingen Sagen</u></a></li>
-<li><a href="https://video-capture.techidaily.com/step-by-step-tutorial-on-mass-transformation-of-wav-to-lossless-flac-codec/"><u>Step-by-Step Tutorial on Mass Transformation of WAV to Lossless FLAC Codec</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/top-10-fingerprint-lock-apps-to-lock-your-realme-phone-by-drfone-android/"><u>Top 10 Fingerprint Lock Apps to Lock Your Realme Phone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-how-to-design-a-post-that-sparks-wide-scale-interest-in-fb-giving-for-2024/"><u>[New] How to Design a Post That Sparks Wide-Scale Interest in FB Giving for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-exploring-the-prime-linux-screenshot-applications/"><u>[New] In 2024, Exploring the Prime Linux Screenshot Applications</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-immediate-actions-reactivating-obs-audio-track/"><u>[Updated] 2024 Approved Immediate Actions Reactivating OBS Audio Track</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-5-proven-principles-to-skyrocket-your-online-presence-novice-style/"><u>[Updated] 5 Proven Principles to Skyrocket Your Online Presence, Novice Style</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-how-intova-x-changes-action-camera-game/"><u>2024 Approved How Intova X Changes Action Camera Game</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/boost-biz-impact-with-skilled-communication-learning/"><u>Boost Biz Impact with Skilled Communication Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breathing-life-into-voice-enhanced-ar-apps/"><u>Breathing Life Into Voice-Enhanced AR Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-insights-into-french-greetings-for-travelers-and-residents-alike/"><u>Cultural Insights Into French Greetings for Travelers & Residents Alike</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-the-ultimate-path-to-learn-lithuanian-digitally/"><u>Discover the Ultimate Path to Learn Lithuanian Digitally</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/effective-techniques-for-applying-the-year-functionality-in-ms-excel-tutorials/"><u>Effective Techniques for Applying the Year Functionality in MS Excel Tutorials</u></a></li>
+<li><a href="https://win11.techidaily.com/erase-unnecessary-highlighted-icon-on-win11/"><u>Erase Unnecessary Highlighted Icon on Win11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-and-master-russian-alphabet-speech/"><u>Explore & Master Russian Alphabet Speech</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-restore-a-bricked-honor-x7b-back-to-operation-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Restore a Bricked Honor X7b Back to Operation | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-infinix-hot-30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Infinix Hot 30 5G | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-life360-on-windows-pc-for-tecno-spark-10c-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Life360 on Windows PC For Tecno Spark 10C? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-vocabulary-the-heart-of-english/"><u>International Vocabulary, The Heart of English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leichte-einfuhrung-in-deutsche-zahlenreim-1-100/"><u>Leichte Einführung in Deutsche Zahlenreim 1-100</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-is-it-easier-for-a-child-to-learn-a-second-language/"><u>Why Is It Easier For A Child To Learn A Second Language?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/words-of-thanks-a-language-guide-for-global-communication-156/"><u>Words of Thanks: A Language Guide for Global Communication (156)</u></a></li>
 </ul></div>
 

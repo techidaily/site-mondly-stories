@@ -1,7 +1,7 @@
 ---
 title: How Many People Speak French? A Look At The Top French-Speaking Countries
-date: 2024-08-27T22:54:54.366Z
-updated: 2024-08-28T22:54:54.366Z
+date: 2024-10-15T23:41:56.517Z
+updated: 2024-10-18T23:42:17.530Z
 tags:
   - speak
   - english
@@ -17,8 +17,6 @@ thumbnail: https://thmb.techidaily.com/d594c9f97f5c7acf04e5131f6f5a4cdb7d19c04f5
 ## How Many People Speak French? A Look At The Top French-Speaking Countries
 
  French is one of the most spoken and widespread languages in the world. As a result of the French colonization from the 16th century onward, we have a**long list of French-speaking countries** today. In fact, along with English, French is the only language spoken on five continents: Europe, Africa, Asia, America and Oceania (or Australia). Naturally, we can’t help but ask ourselves: **how many people [speak French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ?** Let’s find out.
-
-
 
  Meanwhile, if you’re not sure whether you should [learn French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) or not, our advice would be to go for it. **French has been adopted as the official language of the largest number of countries after English.** For this reason alone, speaking French will help you make friends and easily communicate all over the world.
 
@@ -47,8 +45,12 @@ thumbnail: https://thmb.techidaily.com/d594c9f97f5c7acf04e5131f6f5a4cdb7d19c04f5
 ![how many people speak french](https://edge.mondly.com/blog/wp-content/uploads/2022/10/how-many-people-speak-french-960x600.jpg "Top French-Speaking Countries | How Many People Speak French? 4")
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### French-speaking countries in Europe
 
  Since France is the parental home of the French language, we figured it’s best to start with Europe. Boasting a rough total of 80 million French speakers, Europe counts for around 40% of the total number of worldwide francophones. This makes French the 3rd most spoken native language in Europe.
@@ -62,9 +64,6 @@ thumbnail: https://thmb.techidaily.com/d594c9f97f5c7acf04e5131f6f5a4cdb7d19c04f5
 * Switzerland — 67%
 * Italy — 20% (French is the official language of the autonomous region of the Aosta Valley)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 ### French-speaking countries in Africa
 
  How many people in Africa speak French? Well, some of you will be surprised to find out that Africa has more French speakers than any other continent. Even though many speak it as a second language, there are regions where French even replaced the local languages. As a result, French is the fastest-growing language here.
@@ -105,9 +104,6 @@ Needless to say, the only French-speaking country in North America is:
 
 * Canada — 29% (percentage of the entire population speaking French).
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<!-- affiliate ads end -->
 ### French-speaking countries in the Caribbean
 
 We told you that French speakers could be found everywhere in the world!
@@ -119,12 +115,19 @@ We told you that French speakers could be found everywhere in the world!
 !['French speakers' by Claudia Altamimi©](https://edge.mondly.com/blog/wp-content/uploads/2022/10/french-speakers-960x720.jpg "Top French-Speaking Countries | How Many People Speak French? 5")
 
 <!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### French-speaking countries in Oceania
 
  Literally… everywhere. Yes, if you learn French, you’ll have a friend to talk to even in Australia. The only country here that adopted French as an official language is:
@@ -135,6 +138,13 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  Later, in the 1880s, France and the United Kingdom claimed parts of the archipelago and they agreed to manage it jointly. However, an independence movement arose in the 1970s, and the Republic of Vanuatu was founded in 1980\. And that’s the story of how the French language made it all the way to Australia.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Countries where French is spoken although it’s not an official language
 
  Despite not being their official language, French is spoken in other countries as well. Just like previously mentioned, the French language enjoys growing notoriety all over the world.
@@ -143,9 +153,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  Now we finally have the full picture and we can understand why French is spoken on five continents.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## A short history of the French language
 
  So how did the [French language](https://www.britannica.com/topic/French-language) become so widespread? Let’s see what history says.
@@ -185,8 +192,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -194,4 +199,21 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-explore-unrestricted-stock-content-in-key-4-video-channels/"><u>[New] 2024 Approved Explore Unrestricted Stock Content in Key 4 Video Channels</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-vimeo-chapter-how-to-add-chapters-to-vimeo-video/"><u>[New] 2024 Approved Vimeo Chapter How to Add Chapters to Vimeo Video?</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-unlock-high-res-video-leading-4k-conversion-tools/"><u>[Updated] 2024 Approved Unlock High-Res Video Leading 4K Conversion Tools</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-optimizing-engagement-in-the-new-facebook-algorithms-era/"><u>[Updated] Optimizing Engagement in the New Facebook Algorithms Era</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-photos-to-pizzazz-android-and-iphones-prime-montage-software-for-2024/"><u>[Updated] Photos to Pizzazz Android & iPhone's Prime Montage Software for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-creative-techniques-for-incorporating-alternate-shots/"><u>2024 Approved Creative Techniques for Incorporating Alternate Shots</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-the-photographers-list-of-top-10-lenses/"><u>2024 Approved The Photographer's List of Top 10 Lenses</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ignite-cultural-curiosity-with-hindi-experience-7-exciting-mondly-benefits/"><u>Ignite Cultural Curiosity with Hindi - Experience 7 Exciting Mondly Benefits!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-lineage-the-genesis-of-the-dutch-language/"><u>Linguistic Lineage: The Genesis of the Dutch Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-rogues-repertoire-diving-into-sea-slang-lexicon/"><u>The Rogue's Repertoire: Diving Into Sea Slang Lexicon</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukrainian-fluency-mastering-phrases-in-minutes-92-chars/"><u>Ukrainian Fluency: Mastering Phrases in Minutes (92 Chars)</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/unlocking-the-potential-of-discord-for-2024/"><u>Unlocking the Potential of Discord for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiled-dialogues-the-complete-guide-to-african-linguistics/"><u>Unveiled Dialogues: The Complete Guide to African Linguistics</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/winning-strategies-eradicate-wow-error-132-in-1011/"><u>Winning Strategies: Eradicate WoW Error 132 in 10/11</u></a></li>
+</ul></div>
 

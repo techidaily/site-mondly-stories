@@ -1,7 +1,7 @@
 ---
 title: Unlocking Essential Expressions for Daily Conversations in China
-date: 2024-10-07T21:26:43.454Z
-updated: 2024-10-12T21:18:54.557Z
+date: 2024-10-13T23:38:18.479Z
+updated: 2024-10-18T19:45:48.932Z
 tags:
   - speak
   - english
@@ -34,19 +34,6 @@ thumbnail: https://thmb.techidaily.com/bcbc51157c352644194c600920e499191baf99c44
 
  Now that you know the easiest and most popular way to say “hello” in Chinese, let’s move on to more advanced Mandarin Chinese greetings that are guaranteed to make you sound fluent.
 
-<!-- affiliate ads begin -->
-<span id="1977023">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 1\. 早！(zǎo) – “Morning!” in Chinese
 
  早 (zǎo) is short for 早上好 (zǎo shang hǎo), which means “good morning” in Chinese. The same as our English “good morning”, 早 (zǎo) can be used safely in all kinds of social interactions as long as it is… you’ve guessed it: morning.
@@ -67,18 +54,18 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
  To answer to this greeting, you can say “chī le, nǐ ne?” which means “I’ve eaten, how about you?”.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 5\. 久仰 (jiǔyǎng) – a very formal Chinese greeting
 
  On your way to a business meeting where you’ll meet someone for the first time? Well, that’s the perfect moment to use this very formal Mandarin greeting.
 
  If you want something even MORE‌ formal than that, go with 久闻大名 (jiǔwéndàmíng) literally meaning “your name is famous” – a phrase which could translate to something like “I have heard much about you”. But only use this on very special occasions like meeting the president or a person you hold in very high regard.
-
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
-  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 6\. 最近好吗？(zuì jìn hào mǎ) – “How are you these days?”
 
@@ -86,29 +73,36 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
 ![hi in chinese](https://edge.mondly.com/blog/wp-content/uploads/2019/12/hi-in-chinese-1024x682.jpg "How To Say Hello In Chinese: A Quick Guide To Chinese Greetings 3")
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  “Hello there!” by Theodor Lundqvist©
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 7\. 大家好 (dàjiā hǎo) – say “hello” to a crowd in Chinese
 
  As mentioned earlier, 你好 nǐ hǎo is used to greet only one person at a time. So, if you need to say “hello” to a group of people in Mandarin Chinese, simply go with 大家好 (dàjiā hǎo).
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 8\. 下午好 (xiàwǔ hǎo) – “Good afternoon” in Chinese
 
  Want to diversify the way you greet people in Chinese? Then you can go with 下午好 (xiàwǔ hǎo) when it’s the right time of the day.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 9\. 晚上好 (wǎnshàng hǎo) – “Good evening” in Chinese
 
@@ -150,18 +144,16 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-information.techidaily.com/new-can-image-smoothing-simplify-photo-editing/"><u>[New] Can Image Smoothing Simplify Photo Editing?</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-ultimate-tutorial-how-to-add-a-countdown-timer-in-obs/"><u>[Updated] In 2024, Ultimate Tutorial How To Add a Countdown Timer in OBS</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bilingual-brain-boost/"><u>Bilingual Brain Boost</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/breaking-down-10-effective-ways-to-say-hello-in-spanish/"><u>Breaking Down 10 Effective Ways to Say 'Hello' In Spanish</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/brisk-approaches-to-gaining-linguistic-skills/"><u>Brisk Approaches to Gaining Linguistic Skills</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/carnal-communication-eloquence-in-spanish-conversation/"><u>Carnal Communication: Eloquence in Spanish Conversation</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-oppo-f25-pro-5g-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Oppo F25 Pro 5G to iPhone (13/14/15) | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-oppo-a2-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on Oppo A2</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-looking-for-a-location-changer-on-realme-c55-look-no-further-drfone-by-drfone-virtual-android/"><u>In 2024, Looking For A Location Changer On Realme C55? Look No Further | Dr.fone</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-mastering-the-visual-storyteller-youtube-cinematic-training/"><u>In 2024, Mastering the Visual Storyteller YouTube Cinematic Training</u></a></li>
-<li><a href="https://discover-docs.techidaily.com/top-7-effektive-strategien-zur-reduktion-oder-umwandlung-von-4k-videos-auf-full-hd/"><u>Top 7 Effektive Strategien Zur Reduktion Oder Umwandlung Von 4K Videos Auf Full HD</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-from-capture-to-cut-a-comprehensive-guide-to-editing-sony-camcorder-footage-for-2024/"><u>Updated From Capture to Cut A Comprehensive Guide to Editing Sony Camcorder Footage for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/windows-users-ultimate-tutorial-transforming-prores-footage-into-high-quality-mp4-videos/"><u>Windows User's Ultimate Tutorial: Transforming ProRes Footage Into High-Quality MP4 Videos</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-techniques-for-smooth-audio-amplification-in-lumafusion/"><u>[New] Techniques for Smooth Audio Amplification in Lumafusion</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-complete-scrutiny-of-cutmatic-editor/"><u>[Updated] Complete Scrutiny of CutMatic Editor</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-enhance-snaps-with-cultural-pop-culture-learn-anime-on-snapchat-for-2024/"><u>[Updated] Enhance Snaps with Cultural Pop-Culture Learn Anime On Snapchat for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/5-crucial-criteria-to-assess-when-selecting-your-ideal-stereo-speaker-system/"><u>5 Crucial Criteria to Assess When Selecting Your Ideal Stereo Speaker System</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/eduvirtua-transforming-linguistics-through-virtual-reality/"><u>EduVirtua: Transforming Linguistics Through Virtual Reality</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-face-motion-blur-magic-a-step-by-step-picsart-approach/"><u>In 2024, Face Motion Blur Magic A Step-by-Step Picsart Approach</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-life360-shows-wrong-location-on-xiaomi-redmi-note-12-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Life360 Shows Wrong Location On Xiaomi Redmi Note 12 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-international-communication-on-oculus-quest-through-mondly/"><u>Introducing International Communication on Oculus Quest Through Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-wisdom-the-most-influential-50-phrases-to-use/"><u>Latin Wisdom: The Most Influential 50 Phrases to Use</u></a></li>
+<li><a href="https://win-blog.techidaily.com/overcoming-helldivers-2s-initialization-blackout-essential-fixes-and-tips/"><u>Overcoming Helldivers 2'S Initialization Blackout: Essential Fixes and Tips</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/romanias-language-companion-an-app/"><u>Romania's Language Companion: An App</u></a></li>
 </ul></div>
 

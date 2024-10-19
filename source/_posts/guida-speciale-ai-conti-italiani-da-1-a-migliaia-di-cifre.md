@@ -1,7 +1,7 @@
 ---
 title: Guida Speciale Ai Conti Italiani - Da 1 a Migliaia Di Cifre
-date: 2024-08-27T22:53:21.146Z
-updated: 2024-08-28T22:53:21.146Z
+date: 2024-10-11T23:10:26.561Z
+updated: 2024-10-18T19:32:51.561Z
 tags:
   - speak
   - english
@@ -52,6 +52,13 @@ Here’s how to write and pronounce the Italian numbers 1-10:
 
 **Good to know:**Italian cardinal numbers don’t change suffixes according to the gender of the noun they determine. The only exception is 1_(uno)_. Thus, when you talk about a feminine noun, you’ll say_una_instead of_uno_:_Ho comprato una casa_(“I bought a house.”)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Italian numbers 11-20
 
  Imagine this: you are on the famous Amalfi Coast. The weather is perfect. And let’s say you want to buy 12 slices of the yummiest Italian pizza you’ve ever seen: two slices for you and each one of your friends. The problem is you only have 10 fingers to sign to the lady at the counter. Wouldn’t it be easier if you knew some [Italian expressions](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ?
@@ -89,8 +96,12 @@ Let’s see some examples:
 * to say “20 children”, you’ll say_venti bambini_
 
 <!-- affiliate ads begin -->
-
+<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Italian numbers to 30 and beyond
 
  Essentially, Italian numbers are very similar to English numbers. Once you get to 20, you just put together the tens with the single numbers (units). The best part is that Italian doesn’t even require spaces or hyphens. For example, if you want to say 22 (“twenty-two”), in Italian you say venti (20) + due (2) = _**venti** due_ (22).
@@ -104,8 +115,12 @@ Let’s see some examples:
  See how easy Italian numbers are? The only thing you have to remember is that the final vowel of the tens disappears when you add 1_(uno)_ or 8_(otto)_ . Thus, you’ll say _**vent** uno_ and not “ventiuno”. Additionally, number 3_(tre)_ gains an accent mark on the final vowel. For example, 33 will be_trentatré_ and 83 will be_ottantatré._
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Count tens in Italian
 
  Except for 10_(dieci)_ and 20_(venti)_ , all tens digits in Italian are based on their roots. Once you know all of them, you’ll know how to count to 100 – which is_cento_ – in Italian.
@@ -139,9 +154,6 @@ Let’s see some examples:
 * 84 – _ottanta**quattro**_
 * 98 – _novant**otto**_
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Italian numbers 100 to 1000 and beyond
 
  The same rules apply to bigger numbers as well. Add the suffix_cento_ to the multiplier digit and here are your hundreds:
@@ -171,8 +183,12 @@ Let’s see some examples:
 ![italian numbers pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2020/05/italian-numbers-pronunciation-960x640.jpg "Italian Numbers Made Easy - Count To 1000 And Beyond In Italian 3")
 
 <!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  “The Amalfi Coast” by Gregory Smirnov©
 
  Back to counting, from 100 and beyond, the bigger the number is, the longer its written form. Italian doesn’t isolate hundreds, tens and ones. They become one long word with no hyphens or spaces. For example:
@@ -235,8 +251,6 @@ Let’s see some examples:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -244,4 +258,22 @@ Let’s see some examples:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-clips.techidaily.com/new-discovering-the-true-significance-of-pfp-in-tiktok-world/"><u>[New] Discovering the True Significance of PFP in TikTok World</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-top-10-youtube-video-to-mp3-converter-withwithout-editor/"><u>[New] In 2024, Top 10 YouTube Video to Mp3 Converter With/Without Editor</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-behind-the-lens-wisdom-the-best-cinemagraph-tips/"><u>[Updated] 2024 Approved Behind-the-Lens Wisdom The Best Cinemagraph Tips</u></a></li>
+<li><a href="https://solve-luxury.techidaily.com/1728466416099-windows-10/"><u>解決 Windows 10 系統起動階段長時間顯示輪廓問題 - 來自專家的最佳修復方法</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-take-portrait-photo-with-your-old-iphone-x8-plus7-plus/"><u>In 2024, Take Portrait Photo with Your Old iPhone X/8 Plus/7 Plus</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-mondlys-new-faq-section/"><u>Introducing Mondly’s New FAQ Section</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-swedish-sounds-a-quick-guide/"><u>Mastering Swedish Sounds: A Quick Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/popular-english-slang-words-and-phrases-how-to-talk-like-gen-z/"><u>Popular English Slang Words and Phrases – How to Talk Like Gen Z</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/porque-vs-por-que-whats-the-difference/"><u>Porque Vs Por Que: What's The Difference?</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/simple-steps-to-solve-sluggish-keyboard-reaction-a-guide/"><u>Simple Steps to Solve Sluggish Keyboard Reaction: A Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-6-best-danish-films-to-learn-danish/"><u>The 6 Best Danish Films To Learn Danish</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/thwarting-vr-discomfort-tips-for-a-smooth-experience-for-2024/"><u>Thwarting VR Discomfort Tips for a Smooth Experience for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transforming-language-education-through-mondlys-ar-platform/"><u>Transforming Language Education Through Mondly's AR Platform</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/troubleshooting-and-resolving-the-500-internal-server-mistake/"><u>Troubleshooting and Resolving the 500 Internal Server Mistake</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-techniques-for-unlocking-stuck-screens-on-desktops-and-laptops/"><u>Troubleshooting Techniques for Unlocking Stuck Screens on Desktops & Laptops</u></a></li>
+</ul></div>
 

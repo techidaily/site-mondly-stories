@@ -1,7 +1,7 @@
 ---
 title: "Latin Lingo for Leaders: Best 50 Expressions to Impress All"
-date: 2024-10-09T20:47:24.385Z
-updated: 2024-10-12T22:26:36.530Z
+date: 2024-10-12T19:14:22.357Z
+updated: 2024-10-18T20:15:33.272Z
 tags:
   - speak
   - english
@@ -26,6 +26,13 @@ These are nearly as famous as Julius Caesar himself.
 
  Famously attributed to Julius Caesar in a message he supposedly sent to the Roman Senate to describe his swift, conclusive victory against King Pharnaces II of Pontus near Zela in 47 BC.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **Alea iacta est. —** _The die has been cast._
 
  Another Latin phrase said by Julius Caesar upon crossing the Rubicon to enter Italy and begin the long civil war against Pompey and the Optimates. The meaning of this phrase refers to the point of no return.
@@ -40,13 +47,6 @@ These are nearly as famous as Julius Caesar himself.
 
  What Descartes doesn’t know is that nowadays people prefer the_bibo, ergo sum_ version which literally means “I drink, therefore I am”.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **In vino veritas. —_In wine, there is truth._**
 
  Be careful if you_carpe vinum_ on that Friday night out we talked about. This Latin saying suggests that you’ll probably spill all your secrets if you drink too much alcohol.
@@ -58,10 +58,10 @@ These are nearly as famous as Julius Caesar himself.
  That scene is very tragic indeed, but nowadays, the phrase can be used jokingly to condemn a friend’s change of heart.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **Acta, non verba. —** _Deeds, not words._
@@ -74,14 +74,14 @@ These are nearly as famous as Julius Caesar himself.
 
 ![latin phrases](https://edge.mondly.com/blog/wp-content/uploads/2021/07/latin-phrases.jpg "50 Popular Latin Phrases To Impress Your Friends 6")
 
- Using some Latin phrases here and there will automatically make you look smarter.
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Using some Latin phrases here and there will automatically make you look smarter.
 
 ## Common Latin Words & Sayings
 
@@ -149,6 +149,13 @@ Every student’s favorite. We all know what this one means, don’t we?
 
  “In vino veritas” by Daniel Vogel©
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Cool Latin that are still used today
 
  Do you know what’s the coolest thing about these following cool [Latin phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ? They’re evergreen. If time travel gets invented in a few years,[these phrases](https://en.wikipedia.org/wiki/List%5Fof%5FLatin%5Fphrases%5F%28full%29) are gonna come in handy regardless of the century you choose to travel to. Besides, this selection includes only the most relevant expressions so you don’t have to worry about redundancy.
@@ -178,10 +185,10 @@ Get ready to bring your Roman alter ego to life in 3… 2… 1\. Go!
 ![common latin phrases](https://edge.mondly.com/blog/wp-content/uploads/2021/07/common-latin-phrases-960x720.jpg "50 Popular Latin Phrases To Impress Your Friends 8")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  “Laughing” by Peter Lloyd©
@@ -284,6 +291,13 @@ Different phrase, same story. You’re welcome.
 
  “Roman statue” by engin akyurt©
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Latin Words and Phrases for Love
 
  To conclude our exploration of the Latin phrases in a positive tone, let’s see what the Romans had to say about love. It’s true they talked more about wars, but you don’t need that kind of negativity in your life, do you? Why [learn Latin phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) about war, when love wins no matter what?
@@ -308,19 +322,6 @@ Different phrase, same story. You’re welcome.
 
 From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 
-<!-- affiliate ads begin -->
-<span id="1160850">
-					<video width="576" height="324" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Why should you learn these cool Latin phrases?
 
  In all seriousness, Latin phrases, words and sayings are a fun way to boost your vocabulary and learn more about the origin of the words we use every day. While Latin is the common ancestor of the Romance languages, it has also influenced the Germanic languages (of which English is a part). So it might prove most illuminating to take inspiration from the master orators and use Latin words and phrases in your day-to-day conversations.
@@ -329,22 +330,15 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 
  Furthermore, the Latin language is rich in life lessons, mottos and words to live by. By learning these sayings, you’ll not only improve your vocabulary but also your life experience.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Why are Latin words used in law?
 
  Latin words are used in law because of the historical influence Roman law has on the legal system of many countries. As the lingua franca of the Roman Empire, Latin not only shaped the empire's legal constructs but also left a lasting imprint on the evolution of legal systems, especially within Europe. As Roman law became the foundation for many modern legal codes, Latin legal words were passed on throughout history until the present day. This incorporation of Latin words in law ensures a degree of precision and continuity, bridging legal concepts across different eras and jurisdictions.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Why are Latin words powerful?
@@ -383,18 +377,22 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tech-hub.techidaily.com/2020-tips-insert-a-pdf-into-word-quick-and-easy/"><u>[2020 Tips] Insert a PDF Into Word | Quick & Easy</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-frame-your-images-right-best-tools-and-sites-of-2023/"><u>[New] In 2024, Frame Your Images Right Best Tools & Sites of 2023</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-unraveling-free-filter-treasures-through-instagrams-advanced-searches/"><u>[New] In 2024, Unraveling Free Filter Treasures Through Instagram’s Advanced Searches</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-hit-the-bottom-finding-your-best-free-youtube-downloader-app-on-android/"><u>[Updated] 2024 Approved Hit the Bottom - Finding Your Best Free YouTube Downloader App on Android</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-elite-tripods-the-best-8-for-4k-video-capture/"><u>2024 Approved Elite Tripods The Best 8 for 4K Video Capture</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enrich-your-dialogue-essential-french-sayings-and-idioms/"><u>Enrich Your Dialogue: Essential French Sayings & Idioms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-93-spanish-expressions-perfect-voyage-companion/"><u>Essential 93 Spanish Expressions: Perfect Voyage Companion</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expertise-in-english-grammar-essential-tips-from-an-esteemed-esl-voice/"><u>Expertise in English Grammar: Essential Tips From an Esteemed ESL Voice</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/explore-world-languages-effortlessly-with-googles-pick-mondly/"><u>Explore World Languages Effortlessly with Google's Pick - Mondly</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-quickly-fix-bluetooth-not-working-on-honor-90-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Quickly Fix Bluetooth Not Working on Honor 90 Pro | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-starting-from-scratch-on-youtube-channel-creation-and-monetization-basics/"><u>In 2024, Starting From Scratch on Youtube Channel Creation and Monetization Basics</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/install-updated-graphics-card-drivers-from-sapphire-for-windows-users/"><u>Install Updated Graphics Card Drivers From Sapphire for Windows Users</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/revolutionizing-task-management-with-chatgpt-a-step-by-step-guide/"><u>Revolutionizing Task Management with ChatGPT - A Step-by-Step Guide</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-journeys-best-tools-top-10-vr-peripherals-guide/"><u>[New] Journey's Best Tools Top 10 VR Peripherals Guide</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-link-zoom-calls-to-iphoneandroid-events-seamlessly/"><u>[New] Link Zoom Calls to iPhone/Android Events Seamlessly</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-step-by-step-guide-to-editing-and-optimizing-instagram-footage-for-2024/"><u>[New] Step-by-Step Guide to Editing and Optimizing Instagram Footage for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-unleashing-your-device-writers-step-by-step-tutorial-for-custom-ringtones-and-sounds-on-android/"><u>[New] Unleashing Your Device' Writers Step-by-Step Tutorial for Custom Ringtones and Sounds on Android</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-a-tweet-a-day-your-2023-video-journey-begins-here/"><u>[Updated] In 2024, A Tweet a Day - Your 2023 Video Journey Begins Here</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-guide-to-heartfelt-hungarian-sentiments/"><u>A Guide to Heartfelt Hungarian Sentiments</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/best-free-3gp-video-rotation-software-top-picks-for-2024/"><u>Best Free 3GP Video Rotation Software Top Picks for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580238430-daily-dose-of-language-power-mastering-slovak-in-minutes/"><u>Daily Dose of Language Power: Mastering Slovak in Minutes!</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/decoding-electronics-evolution-with-authoritative-toms-reviews/"><u>Decoding Electronics Evolution with Authoritative Tom’s Reviews</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhanced-communication-skills-top-6-in-two-languages/"><u>Enhanced Communication Skills: Top 6 in Two Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-one-to-seven-mondlys-global-learning-journey/"><u>From One to Seven: Mondly’s Global Learning Journey</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/how-to-seamlessly-add-vimeo-videos-to-insta-feed/"><u>How to Seamlessly Add Vimeo Videos to Insta Feed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-and-identity-brazil-vs-europe-in-portuguese/"><u>Language and Identity: Brazil Vs. Europe in Portuguese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-labyrinas-explore-worlds-through-new-languages/"><u>Linguistic Labyrinas: Explore Worlds Through New Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saber-lenguaje-animal-listado-hispano/"><u>Saber Lenguaje Animal: Listado Hispano</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/skyrocket-your-communication-mondly-powered-techniques/"><u>Skyrocket Your Communication: Mondly-Powered Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-edge-in-social-marketing-why-your-brand-prefers-a-facebook-page/"><u>The Edge in Social Marketing: Why Your Brand Prefers a Facebook Page</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Spelling and Grammar in American & British Contexts
-date: 2024-08-23T00:35:46.512Z
-updated: 2024-08-24T00:35:46.512Z
+date: 2024-10-12T18:00:08.943Z
+updated: 2024-10-18T20:15:50.065Z
 tags:
   - speak
   - english
@@ -33,6 +33,13 @@ thumbnail: https://thmb.techidaily.com/c6f10629601f5b476cf7e0e1354be1f2002280993
  Differences between American English and British English may be observed in pronunciation (Brits soften the pronunciation of the “R” sound while Americans [pronounce](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) it completely), vocabulary, grammar, spelling, punctuation, and even idioms. Additionally, Americans also chose to use different formatting for dates and numbers.
 
  Let’s dive into a little more detail and analyze each point of differentiation.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## British vs American: most common vocabulary differences
 
@@ -92,8 +99,12 @@ thumbnail: https://thmb.techidaily.com/c6f10629601f5b476cf7e0e1354be1f2002280993
  If you speak English as a second language and you are not sure which is the correct spelling for the type of English you use, install a spell checker and let it do the job for you. In time, you’ll get used to the fitting spelling and learn to write correctly on your own.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Grammar differences
 
  Although spelling, accent, and vocabulary differences are the most notorious distinctions, American English and British English are divergent in some [grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) matters as well.
@@ -104,29 +115,19 @@ thumbnail: https://thmb.techidaily.com/c6f10629601f5b476cf7e0e1354be1f2002280993
 
  Thus, while**“The band is playing”** in the US, in the UK**“The band are playing”** . Likewise, if I’m in the US,**“My team is winning”** . But if I’m in the UK,**“My team are winning”** .
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Learned or learnt?
 
 **Learned** and**learnt** are both the correct past participle and past tense forms of the verb “to learn”. Easily overlooked in speech, but much more obvious in writing, this subtle difference addresses verbs.
 
  Many verbs that are irregular in the past tense in British English (_dreamt, burnt, learnt_), have been made regular in American English (_dreamed, burned, learned_).
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
-<!-- affiliate ads end -->
 ### Got or gotten?
 
  In the UK, the past participle of “get” – “gotten” – is considered archaic and was replaced with “got” some time ago. Americans, on the other hand, still use “gotten” as the past participle of “get”.
@@ -135,9 +136,6 @@ Key features:
 
 **American English:** get – got – gotten
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 ### Tenses
 
  While Brits tend to use the present perfect tense to describe something that has recently occurred, Americans usually go with the past simple tense.
@@ -150,6 +148,13 @@ Key features:
 
 ![british american english](https://edge.mondly.com/blog/wp-content/uploads/2020/06/british-american-english-600x600.jpg "British English Vs American English Differences: Spelling, Pronunciation And More 3")
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  British English vs American English
 
 ### Other grammar differences
@@ -158,10 +163,6 @@ Key features:
 
  Additionally, in Britain, you are likely to hear “needn’t” a lot and in the US not at all. In its place, Americans use “don’t need to”.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## British accent vs American accent
 
  The biggest difference between British English and American English is, undoubtedly, the accent. The reason why these two variations sound so different is known as rhotacism, the change of a particular consonant into a rhotic consonant. In this case, the consonant is “r”.
@@ -169,8 +170,12 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  American accent is rhotic and Americans pronounce their “R’s” loud and clear. On the other hand, the British accent is non-rhotic and Brits usually replace their “R’s” with “H’s”. Thus, words like “water” or “card” will be pronounced_wa-tuh_ or_caahd_ .
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## British vs American: which one should you learn and use?
 
  It doesn’t matter whether you learn British English or American English. There is no such thing as “the best English”. Learn whichever you feel and like. Of course, if you intend to move to the United States, it is best to study and get used to the American accent.
@@ -186,9 +191,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Brush up your English in just 10 minutes a day
 
  Do you want to speak English like a true American? Or maybe you dream of acquiring the classy British accent? With [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5309&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5309&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5309) you can train for both.
@@ -205,8 +207,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -214,4 +214,20 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/0-masterpieces-in-job-market-insight/"><u>[New] 10 Masterpieces in Job Market Insight</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-elevate-your-work-with-6-pinnacle-nft-maker-tools/"><u>[New] In 2024, Elevate Your Work with 6 Pinnacle NFT Maker Tools</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-navigating-tiktok-lives-your-step-by-step-guide/"><u>[Updated] 2024 Approved Navigating TikTok Lives Your Step-by-Step Guide</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/5-quick-methods-to-bypass-xiaomi-redmi-note-13-5g-frp-by-drfone-android/"><u>5 Quick Methods to Bypass Xiaomi Redmi Note 13 5G FRP</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/get-down-under-with-aussie-slang-definitions/"><u>Get Down Under With Aussie Slang Definitions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-speaking-sovereigns-ranked-1-15/"><u>Global Speaking Sovereigns: Ranked 1-15</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/interaktionstexte-10-deutsche-grussformeln-ausserhalb-des-hallo/"><u>Interaktionstexte: 10 Deutsche Grußformeln Außerhalb Des 'Hallo'</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/mastering-the-art-of-face-anonymity-how-to-seamlessly-blur-faces-in-your-videos-with-ease/"><u>Mastering the Art of Face Anonymity: How to Seamlessly Blur Faces in Your Videos with Ease</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/milestone-achievements-mondlyback-buttonfilters/"><u>Milestone Achievements: MondlyBack ButtonFilters</u></a></li>
+<li><a href="https://common-error.techidaily.com/overcome-pubgs-building-error-update-and-tips-for-seamless-loading/"><u>Overcome PUBG's Building Error - Update and Tips for Seamless Loading</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pantheons-progeny-ancestral-greek-influence-today/"><u>Pantheon's Progeny: Ancestral Greek Influence Today</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/reviving-game-sounds-a-guide-to-overcoming-silent-valheim-experiences-on-pc/"><u>Reviving Game Sounds: A Guide to Overcoming Silent Valheim Experiences on PC</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/tailoring-trailers-to-amplify-your-youtube-channels-earnings-for-2024/"><u>Tailoring Trailers to Amplify Your YouTube Channel's Earnings for 2024</u></a></li>
+</ul></div>
 
