@@ -1,7 +1,7 @@
 ---
 title: "Unlocking the Power of English Contractions: A Practical Manual"
-date: 2024-08-23T00:34:40.996Z
-updated: 2024-08-24T00:34:40.996Z
+date: 2024-10-18T18:10:51.431Z
+updated: 2024-10-24T18:14:05.303Z
 tags:
   - speak
   - english
@@ -28,8 +28,6 @@ thumbnail: https://thmb.techidaily.com/922f3c41ec2a1fbc3c661b8fc51d0028e0ed70c9a
 
  Contraction words are generally easy enough to sort out, but there are situations where they can get tricky. For all those situations, it’s necessary to keep an eye out for rules. That’s why**we are** – or let’s say_**we’re**_ – going to explain everything you need to know about the rules of contractions in English. And while we’re at it, we will also add a contraction word list to go perfectly with the explanations.
 
-
-
 ## What is a contraction?
 
 **A contraction is** a type of abbreviation formed by combining two or more words and dropping one or more letters. In writing, the missing letters are replaced by an apostrophe. Sometimes called ‘short forms’, English contractions usually join a subject pronoun and a verb, an interrogative adverb and a verb, or a verb and the word_not_ .
@@ -45,8 +43,12 @@ thumbnail: https://thmb.techidaily.com/922f3c41ec2a1fbc3c661b8fc51d0028e0ed70c9a
  Contractions are an essential part of the English language. For this reason, it’s important to understand and use them correctly. Let’s look at a couple of examples so you can better understand what we’re talking about.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Types of English contractions
 
 * **Subject pronoun + verb:** This is the most common type of contraction in English. For example:_I am_ becomes_I’m_ ,_you are_ becomes_you’re_ ,_he is_ becomes_he’s_ , and so on.
@@ -77,20 +79,12 @@ Coming Soon
 ![contractions in English](https://edge.mondly.com/blog/wp-content/uploads/2023/11/contractions-in-english-960x960.png "The Ultimate Guide To English Contractions 3")
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
 ## Grammar rules for English contractions
 
  Before you go thinking you know everything about contractions, we must look over some rules for contractions grammar.
@@ -101,10 +95,6 @@ Coming Soon
 4. **Some contractions are regional:** Like [slang words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , some English contractions are used only in certain regions or cultures. For example,_y’all_ and_ain’t_ are only used in some parts of the United States. So, technically, not everyone is familiar with them, which means you shouldn’t use them extensively.
 5. **Negative contractions and tag questions go together like English speakers and [misspelled words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) :** A tag question is a short question added at the end of a sentence to turn it into a question. They are used to confirm information or engage the listener in the conversation. For example: “You’re coming to the party, aren’t you?”. When the declarative part of the sentence is affirmative, the question part is formulated as negative and conversely. If the tag question is negative, it’s your cue to use a contraction.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
 ## Common contractions in English
 
  Contraction word list
@@ -238,8 +228,12 @@ The ultimate burning program for all your needs!</a>
 | you will; you shall          | you’ll      |
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Contractions in writing and their importance
 
  If you write in English on a daily basis, you probably use contractions quite a lot. And that’s perfectly fine if you talk to your family or friends. English contractions save time and space and make your daily communications sound friendlier.
@@ -249,6 +243,13 @@ The ultimate burning program for all your needs!</a>
  Therefore, the rule of thumb for anything formal is to**limit the use of contractions in writing.** An ideal situation would involve you knowing the other person’s expectations. But if you do not, it is best to shy away from using contractions, just like I did with this sentence.
 
  However, if what you’re writing is semi-formal, you can use a couple of very popular contractions. The only condition is to not forget about the apostrophe, as the entire text will look unprofessional.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Examples of contractions in everyday language
 
@@ -283,9 +284,6 @@ The ultimate burning program for all your needs!</a>
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Improve your English fast
 
  Do you want to get better at speaking English? Try Mondly, the award-winning language app that is serious about making learning English fun.
@@ -308,8 +306,6 @@ The ultimate burning program for all your needs!</a>
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -317,4 +313,24 @@ The ultimate burning program for all your needs!</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://mondly-stories.techidaily.com/briskly-bridge-to-slovak-skills-with-daily-digital-sessions/"><u>Briskly Bridge to Slovak Skills with Daily Digital Sessions</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/effortless-retrieval-of-wacom-tablet-drivers-for-immediate-use/"><u>Effortless Retrieval of Wacom Tablet Drivers for Immediate Use</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expo-polyglot-power-the-linguistic-evolution-awaits/"><u>Expo Polyglot Power: The Linguistic Evolution Awaits</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-scholar-top-language-examination-guides/"><u>From Novice to Scholar: Top Language Examination Guides</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-observer-to-expert-learn-korean-for-squid-game-fans/"><u>From Observer to Expert - Learn Korean for Squid Game Fans</u></a></li>
+<li><a href="https://program-issues.techidaily.com/god-of-war-action-packed-first-person-shooter-launches-for-pc-gamers/"><u>God of War Action-Packed First-Person Shooter Launches for PC Gamers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-chucklechisel-app/"><u>In 2024, ChuckleChisel App</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-poco-f5-5g-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on Poco F5 5G</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/integrating-ai-assistants-into-slides-with-s2t-for-2024/"><u>Integrating AI Assistants Into Slides with S2T for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580301933-join-the-new-years-club-dive-into-mondly-pro-at-a-low-cost/"><u>Join the New Year's Club - Dive Into Mondly Pro at a Low Cost</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/recommended-best-applications-for-mirroring-your-nokia-g42-5g-screen-drfone-by-drfone-android/"><u>Recommended Best Applications for Mirroring Your Nokia G42 5G Screen | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-clearstreams-eclipse-antenna-outstanding-performance-meets-simple-usability/"><u>Review of ClearStream's Eclipse Antenna: Outstanding Performance Meets Simple Usability</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-art-of-iphone-photography-in-the-dark/"><u>The Art of iPhone Photography in the Dark</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-key-to-pristine-ru-letter-speech/"><u>The Key to Pristine RU Letter Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-trio-of-languages-cantonese-portuguese-and-others-in-macau/"><u>The Trio of Languages: Cantonese, Portuguese & Others in Macau</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ultimate-guide-essential-french-expressions-for-exploring-france/"><u>Ultimate Guide: Essential French Expressions for Exploring France</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-when-realme-11-5g-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Realme 11 5G Has Black Screen of Death? | Dr.fone</u></a></li>
+</ul></div>
 

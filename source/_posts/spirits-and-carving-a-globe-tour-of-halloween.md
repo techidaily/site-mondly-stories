@@ -1,7 +1,7 @@
 ---
 title: "Spirits and Carving: A Globe Tour of Halloween"
-date: 2024-10-12T17:37:31.312Z
-updated: 2024-10-18T16:00:02.908Z
+date: 2024-10-20T17:47:29.569Z
+updated: 2024-10-24T17:22:45.526Z
 tags:
   - speak
   - english
@@ -25,20 +25,13 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
  Nevertheless, there are many countries around the world that have their own Halloween-like traditions celebrating the afterlife. For example, in some parts of the world, on All Hallows’ Eve, people visit the graveyards of their loved ones to pray and place flowers. But let’s dive in already and look at **four of the most fascinating Halloween-like traditions from different corners of the world.**
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Halloween-like Traditions Worldwide
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Mexico: Día de Muertos (Day of the Dead)
 
@@ -48,16 +41,16 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
 
 ![Colorful ofrendas and calaveras during Día de Muertos in Mexico](https://edge.mondly.com/blog/wp-content/uploads/2019/09/dia-de-muertos-960x639.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 6")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  “Calaveras” by Valeria Almaraz©
 
  As you probably already know, the main symbols of [_Día de Muertos_](https://ich.unesco.org/en/RL/indigenous-festivity-dedicated-to-the-dead-00054) are [_ofrendas_](https://en.wikipedia.org/wiki/Ofrenda) (altars),[_calaveras_](https://en.wikipedia.org/wiki/Calavera) (representations of a human skull often applied to edible or decorative skulls) and people wearing the colorful_calaveras_ makeup known all over the world. During the Day of the Dead, families will visit the graves of their loved ones and bring gifts and the favorite foods and beverages of the departed.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### China: The Hungry Ghost Festival
 
@@ -77,13 +70,6 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
 
  Fourteen days after the festival, to make sure spirits will find their way back to hell, people set lotus flower-shaped lanterns on paper boats outside their homes. When these lanterns go out, it means the ghosts have found their way back.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087262/19272" target="_top" id="2087262">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087262" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087262/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Italy: Tutti i Morti / Giorno dei Morti (All Souls’ Day)
 
  Moving to Europe, we discover that although American Halloween is even more notorious here than in other parts of the world, people still have their own traditional ways of celebrating the afterlife. For example, Italy has_Tutti i Morti,_ a public day celebrated on the 1st and 2nd of November by remembering and praying for the deceased.
@@ -91,6 +77,13 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
  A few days before the celebration, people visit the cemeteries so their loved ones will have fresh flowers on the grave on the day of the actual ceremonies. Then, they continue with all the other preparations involving different rituals depending on the region. For [example](https://www.italyheritage.com/traditions/calendar/november/ognissanti.htm) , in Puglia, Orsara, it is believed that the souls return from Purgatory, so the Orsaresi decorate the town with_cocce priatorje_ (pumpkins) that symbolize the spirits and lit bonfires to console them. In Sicily, children wake up on the morning of_Giorno dei Morti_ and find small gifts from their deceased relatives, in Abruzzo, children go door to door to ask for gifts for the souls of the dead and in Veneto, the carved pumpkins are called lumère (lanterns) or_suche dei morti_ (deads’ pumpkins) and represent the resurrection.
 
 ![halloween in different countries](https://edge.mondly.com/blog/wp-content/uploads/2019/09/neonbrand-A59lWOrZVnw-unsplash-1024x682.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 8")
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  “Halloween party” by NeONBRAND©
 
@@ -101,6 +94,13 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
  Thanks to Dracula, Romania is now one of the most well-known Halloween destinations. Everyone dreams of partying at Dracula’s Castle. In reality, both Catholic and Orthodox churches in Romania discourage Halloween celebrations. Instead, they advocate for the celebrations of the Day of the Dead on 1 November, when special religious ceremonies are held for the souls of the deceased.
 
 ![dracula's castle](https://edge.mondly.com/blog/wp-content/uploads/2019/09/draculas-castle-1024x682.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 9")
+
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
+  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  “Dracula’s Castle in Romania” by Nomadic Julien©
 
@@ -144,17 +144,24 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-essential-audio-techniques-capturing-clear-sound/"><u>[New] 2024 Approved Essential Audio Techniques Capturing Clear Sound</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-achieving-high-quality-fb-video-1080p-streaming-guide/"><u>[New] Achieving High-Quality FB Video 1080P Streaming Guide</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/mulating-old-hollywood-style-in-modern-videos/"><u>[New] Emulating Old Hollywood Style in Modern Videos</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-seamlessly-backup-your-camera-roll-exporting-to-snapchat-made-easy/"><u>[New] In 2024, Seamlessly Backup Your Camera Roll Exporting to Snapchat Made Easy</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-most-popular-tweets-top-ten-hits-list/"><u>[Updated] In 2024, Most Popular Tweets Top Ten Hits List</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-sound-engineering-tips-to-elevate-your-video-content/"><u>[Updated] In 2024, Sound Engineering Tips to Elevate Your Video Content</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/arabic-mastery-top-6-reasons-with-mondlys-virtual-classes/"><u>Arabic Mastery: Top 6 Reasons with Mondly's Virtual Classes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/aussie-speak-the-100plus-essential-expressions/"><u>Aussie Speak: The 100+ Essential Expressions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/google-plays-treat-of-the-year-mondly-kids-educational-guide-of-2017/"><u>Google Play’s Treat of the Year - Mondly Kids Educational Guide of 2017</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-exploring-previous-images-3-inverse-search-methods-on-social-media/"><u>In 2024, Exploring Previous Images 3 Inverse Search Methods on Social Media</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-enriches-huawei-applineup/"><u>Mondly Enriches Huawei AppLineup</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/worldwide-wishes-on-american-independence-day/"><u>Worldwide Wishes on American Independence Day</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-acquiring-free-music-youtube-video-edition/"><u>[New] 2024 Approved Acquiring Free Music YouTube Video Edition</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-refining-video-aesthetics-for-impeccable-instagram-presence/"><u>[New] 2024 Approved Refining Video Aesthetics for Impeccable Instagram Presence</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-next-level-game-capture-strategies-for-high-definition-quality/"><u>[New] Next-Level Game Capture Strategies for High Definition Quality</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-maximizing-insights-with-twitter-archive-analysis/"><u>[Updated] 2024 Approved Maximizing Insights with Twitter Archive Analysis</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-step-by-step-initiating-instagram-live-shows/"><u>2024 Approved Step-by-Step Initiating Instagram Live Shows</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-strategic-boxes-opened-marketing-excellence/"><u>2024 Approved Strategic Boxes Opened Marketing Excellence</u></a></li>
+<li><a href="https://article-files.techidaily.com/a-comprehensive-list-top-rated-srt-translation-services/"><u>A Comprehensive List Top-Rated SRT Translation Services</u></a></li>
+<li><a href="https://techtrends.techidaily.com/combining-the-power-of-google-duo-and-gmail-a-complete-tutorial/"><u>Combining the Power of Google Duo and Gmail: A Complete Tutorial</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/fix-the-too-many-different-cell-formats-error-in-excel-2019-by-stellar-guide/"><u>Fix the Too many different cell formats Error in Excel 2019?</u></a></li>
+<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-honor-magic-6-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Honor Magic 6 Pro | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hello-in-portuguese-and-other-basic-portuguese-greetings-you-need-to-know/"><u>Hello in Portuguese and Other Basic Portuguese Greetings You Need to Know</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/interacting-with-global-teachers-at-bett-2022/"><u>Interacting with Global Teachers at BETT 2022</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-spanish-tenses-and-verb-patterns/"><u>Mastering Spanish: Tenses & Verb Patterns</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-named-googles-new-editors-choice-for-language-learning/"><u>Mondly Named Google's New Editors' Choice For Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-the-digital-bridge-to-learning-and-growth-for-70-millionplus-users/"><u>Mondly: The Digital Bridge to Learning & Growth for 70 Million+ Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-toward-my-ideal-next-learning-lingual-journey/"><u>Navigating Toward My Ideal Next-Learning Lingual Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/refined-user-policies-for-modern-times/"><u>Refined User Policies for Modern Times</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-adventure-continues-mondly-languages-2-year-dreamscape/"><u>The Adventure Continues - Mondly Languages' 2 Year Dreamscape</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/update-privacy-policy-and-terms-of-useback-buttonfilter-button/"><u>Update: Privacy Policy & Terms Of UseBack ButtonFilter Button</u></a></li>
 </ul></div>
 

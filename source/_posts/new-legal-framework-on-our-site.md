@@ -1,7 +1,7 @@
 ---
 title: New Legal Framework on Our Site
-date: 2024-08-23T00:31:50.891Z
-updated: 2024-08-24T00:31:50.891Z
+date: 2024-10-19T18:11:55.819Z
+updated: 2024-10-24T16:06:42.698Z
 tags:
   - speak
   - english
@@ -175,6 +175,13 @@ We use Google, Facebook, TikTok and LinkedIn cookies.
 
 **How does our site handle Do Not Track signals?** Currently, we don’t honor “Do Not Track” signals.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Terms of use – Mondly App
 
 **1\. Scope**
@@ -267,8 +274,6 @@ We use Google, Facebook, TikTok and LinkedIn cookies.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -276,8 +281,26 @@ We use Google, Facebook, TikTok and LinkedIn cookies.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-navigating-tiktok-to-twitter/"><u>[New] In 2024, Navigating TikTok to Twitter</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-what-to-expect-from-your-instagram-experience-now-for-2024/"><u>[New] What to Expect From Your Instagram Experience Now for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-8-trending-videos-on-facebook/"><u>[Updated] In 2024, 8 Trending Videos on Facebook</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-undead-uprising-your-guide-to-engrossing-zombie-playtime-for-2024/"><u>[Updated] Undead Uprising Your Guide to Engrossing Zombie Playtime for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-virtual-realms-explored-the-best-sci-fi-movies-for-immersion-enthusiasts-for-2024/"><u>[Updated] Virtual Realms Explored The Best Sci-Fi Movies for Immersion Enthusiasts for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/6-exciting-reasons-to-learn-arabic-online-with-mondly/"><u>6 Exciting Reasons To Learn Arabic Online With Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-dedicated-decade-mondlybacks-filter-success/"><u>A Dedicated Decade: MondlyBack's Filter Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577475324-accelerated-tagalog-learning-a-simple-daily-routine/"><u>Accelerated Tagalog Learning - A Simple Daily Routine!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brazilians-vs-europeans-the-subtleties-of-pt-shortcuts/"><u>Brazilians vs Europeans: The Subtleties of PT Shortcuts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bring-international-communication-within-your-home-mondly-vr-language-program/"><u>Bring International Communication Within Your Home: Mondly VR Language Program</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-nubia-z50-ultra-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Nubia Z50 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/contare-in-italiano-vol-1-dalle-cifre-alle-saghe/"><u>Contare in Italiano Vol. 1: Dalle Cifre Alle Saghe</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/converse-with-australians-mastering-local-idioms/"><u>Converse with Australians: Mastering Local Idioms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-the-german-language-phonetics-and-script-basics/"><u>Decoding the German Language: Phonetics and Script Basics</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-14-plus-to-others-ios-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 14 Plus To Others ios devices? | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-shambling-successes-the-cutthroat-list-of-best-zombies-gaming/"><u>In 2024, Shambling Successes The Cutthroat List of Best Zombies Gaming</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581279462-make-it-a-memorable-year-enjoy-unbeatable-savings-with-free-mondly-pro/"><u>Make It a Memorable Year: Enjoy Unbeatable Savings with Free Mondly Pro!</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-in-2024-are-you-looking-to-create-some-impressive-slow-motion-video-content-get-this-done-with-some-impressive-android-slow-motion-video-apps/"><u>New In 2024, Are You Looking to Create some Impressive Slow-Motion Video Content? Get This Done with some Impressive Android Slow Motion Video Apps</u></a></li>
+<li><a href="https://techidaily.com/understanding-ethereums-transaction-costs-a-guide-to-eth-gas-fees/"><u>Understanding Ethereum's Transaction Costs: A Guide to ETH Gas Fees</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->

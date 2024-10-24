@@ -1,7 +1,7 @@
 ---
 title: "Language-Driven Joy: Global Birthday Phrases"
-date: 2024-08-23T00:33:59.389Z
-updated: 2024-08-24T00:33:59.389Z
+date: 2024-10-18T18:44:30.925Z
+updated: 2024-10-24T17:24:10.752Z
 tags:
   - speak
   - english
@@ -34,9 +34,6 @@ Image source: <http://www.manutention-dauphine.fr>
 
 Joyeux Anniversaire or Bon Anniversaire are the standard ways to wish someone a happy birthday in French. But if you are speaking Canadian French or Quebec, you should say Bonne fête, meaning “Good party/Birthday”. French and English birthdays are often alike. Celebrations include party time, cake, gifts and songs like ‘Joyeux Anniversaire’. Most birthday parties are thrown on Wednesdays as French have their Wednesdays off.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
 ## **Happy Birthday in Chinese:** **生日快** **乐** **(Shēngrì Kuàilè)**
 
 Chinese culture has an interesting concept of birthday celebrations. Depending on a person’s gender, certain birthdays pass without acknowledgment or require special handling. Women, for example, do not celebrate turning 30, 33 or 66\. Another interesting custom are the longevity noodles that are considered a sign of good fortune and long life. So these noodles are a must eat without breaking (it’s a sign of good luck).
@@ -44,40 +41,52 @@ Chinese culture has an interesting concept of birthday celebrations. Depending o
 If you’ll check the literal meaning of Shēngrì Kuàilè, you’ll see that it translates to “Birthday is Happy.”
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
+  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Happy Birthday in Russian: С днем рождения (S Dnem Rozhdeniya)**
 
 ![happy birthday in russian](https://edge.mondly.com/blog/wp-content/uploads/2018/12/happy-birthday-in-russian.jpg "How To Say &Quot;Happy Birthday&Quot; In Different Languages 3")
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Image source: <https://tops.ua>
 
 If you want to say “happy birthday” in Russian, you say “S Dnem Rozhdeniya”. And if you feel like memorizing a longer phrase, add “pozdravlyayu” in the start and it will transform to “I congratulate you on your birthday”. Russians have a funny tradition of celebrating. The guests pull the celebrated’s ears for a number of times equal to his or her age. The phrase “Grow up – don’t be noodles,” is considered as a sign of good omen for the growth of children. It means the child will grow up strong and healthy. Birthday songs are not common am0ng them, but if the person has survived after a severe accident, that day is celebrated as another birthday.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ## **Happy Birthday in Dutch: Gefeliciteerd Met Je Verjaardag**
 
 “Gefeliciteerd Met Je Verjaardag” means “Congratulations on your birthday!” in the Netherlands. An interesting custom here is that they mark their calendars for everyone’s birthday and keep that calendar by their toilet. It acts as a reminder for birthdays since forgetting one’s birthday is a major offense to your loved ones. The 50th birthday is celebrated with full bliss and cheer because it is thought that at the age of 50, men see Abraham and women see Sarah – the biblical couple who gave birth to a child at a very old age.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Happy Birthday in Swedish: Grattis På Födelsedagen**
 
 ![happy birthday in swedish](https://edge.mondly.com/blog/wp-content/uploads/2018/12/happy-birthday-in-swedish.jpg "How To Say &Quot;Happy Birthday&Quot; In Different Languages 4")
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Image source: <https://trivselkort.com>
 
 “Grattis På Födelsedagen” is translated to “Birthday congratulations!” in Swedish. The Swedish culture has a lot of love for celebrating birthdays. They often surprise the celebrated with birthday gifts and breakfast in bed while singing “Ja, ma du leva” meaning “Yes, may you live”. Their traditional party has a cake coated in green marzipan with gifts wrapped in blue and gold sheets – the colors of the Swedish flag.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Happy Birthday in Hindi: जन्मदिन की शुभकामनाएं (Janmadin Kee Shubhakaamanaen)
 
@@ -111,8 +120,6 @@ Start using Mondly for free on your computer or tablet or, better yet, download 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -120,4 +127,26 @@ Start using Mondly for free on your computer or tablet or, better yet, download 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-capturing-the-webs-essence-top-browsers-for-screen-recorders/"><u>[New] Capturing the Web’s Essence Top Browsers for Screen Recorders</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accelerated-mastery-of-french-colorful-terms/"><u>Accelerated Mastery of French Colorful Terms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accueils-feminins-francais-la-grace-de-repondre/"><u>Accueils Féminins Français: La Grâce De Répondre</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/affectionate-articulations-venetian-verbal-flirtations/"><u>Affectionate Articulations: Venetian Verbal Flirtations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aging-gracefully-with-multilingual-skills/"><u>Aging Gracefully With Multilingual Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ascending-asian-vernaculars-trio-spoken-first/"><u>Ascending Asian Vernaculars: Trio Spoken First</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/belgian-multilingualism-which-tongues-prevail/"><u>Belgian Multilingualism: Which Tongues Prevail?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/casual-conversations-made-easy-a-guide-to-slang-definitions/"><u>Casual Conversations Made Easy: A Guide to Slang Definitions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-santas-linguistic-abilities/"><u>Decoding Santa's Linguistic Abilities</u></a></li>
+<li><a href="https://techtrends.techidaily.com/effortless-video-splitting-techniques-how-to-divide-mp4mkvavimov-files-with-simple-methods/"><u>Effortless Video Splitting Techniques - How to Divide MP4/MKV/AVI/MOV Files with Simple Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-cultural-sensitivity-with-japanese-phrasing/"><u>Embrace Cultural Sensitivity with Japanese Phrasing</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/enhancing-video-performance-in-instagram-reels-mobile/"><u>Enhancing Video Performance in Instagram Reels (Mobile)</u></a></li>
+<li><a href="https://win-exclusive.techidaily.com/eradicate-the-chromium-threat-comprehensive-guide-to-cleaning-your-pc-with-malwarefox/"><u>Eradicate the Chromium Threat: Comprehensive Guide to Cleaning Your PC with MalwareFox</u></a></li>
+<li><a href="https://discover-deluxe.techidaily.com/erfolgreich-wiedergewinnen-sie-ihre-daten-mit-zwei-effizienten-ansatzen-zur-rekonstruktion-nach-der-umstellung-auf-windows/"><u>Erfolgreich Wiedergewinnen Sie Ihre Daten Mit Zwei Effizienten Ansätzen Zur Rekonstruktion Nach Der Umstellung Auf Windows</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-evening-bliss-an-in-depth-look-into-barnes-and-nobles-nook-glowlight-3-e-reader-for-dark-environments/"><u>Experience Evening Bliss: An In-Depth Look Into Barnes & Noble's Nook GlowLight 3 E-Reader for Dark Environments</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/expert-insights-into-using-tracert-to-trace-network-routes-on-your-windows-pc/"><u>Expert Insights Into Using Tracert to Trace Network Routes on Your Windows PC</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/solved-warning-camera-failed-on-samsung-galaxy-z-fold-5-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Solved Warning Camera Failed on Samsung Galaxy Z Fold 5 | Dr.fone</u></a></li>
+<li><a href="https://os-tips.techidaily.com/the-ultimate-guide-to-sharing-your-iphoneipad-display-with-a-projector-for-2eplust-year/"><u>The Ultimate Guide to Sharing Your iPhone/iPad Display with a Projector for 2E+t Year</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-bluetooth-tracking-devices-your-ultimate-guide/"><u>Top-Rated Bluetooth Tracking Devices : Your Ultimate Guide</u></a></li>
+</ul></div>
 

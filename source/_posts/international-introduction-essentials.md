@@ -1,7 +1,7 @@
 ---
 title: International Introduction Essentials
-date: 2024-08-23T00:34:16.527Z
-updated: 2024-08-24T00:34:16.527Z
+date: 2024-10-19T16:28:48.144Z
+updated: 2024-10-24T16:08:00.893Z
 tags:
   - speak
   - english
@@ -55,13 +55,21 @@ _안녕하세요 (Annyeonghaseyo)_ is the most popular semi-formal Korean hello.
 ![hello in japanese](https://edge.mondly.com/blog/wp-content/uploads/2021/06/hello-in-japanese-960x640.jpg "How To Say &Quot;Hello&Quot; In Different Languages 3")
 
 <!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  “Mount Fuji, Japan” by David Edelstein©
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Hello in French — Bonjour
 
  When talking about traveling to another country, greetings should always be number 1 on your to-do list. The locals regard your attempt to speak their language as a sign of respect and respond accordingly. Why not take advantage of this interaction? Every place looks different and more like home through the eyes of someone who already lives there.
@@ -70,9 +78,6 @@ _안녕하세요 (Annyeonghaseyo)_ is the most popular semi-formal Korean hello.
 
  Wanna find out more? Here are [12 French greetings beyond Bonjour](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ## Hello in German — Hallo
 
  **The universal German hello is_Hallo_ .** Short, sweet and simple. In other words, nothing like the rest of the German language. (Sorry, German, but that’s true.)
@@ -94,17 +99,35 @@ _안녕하세요 (Annyeonghaseyo)_ is the most popular semi-formal Korean hello.
  “Antibes, France” by Reuben Mcfeeters©
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Hello in Italian — Ciao
 
  The Italian_Ciao_ is so popular that it has also been borrowed by other countries to be used between friends as a joke or even seriously. Together with_Capisce_ and_Grazie_ ,_Ciao_ forms the Holy Trinity of the Italian language. Anyone who wants to summon his or her inner Italian just uses these three words and automatically becomes Italian. Oh, let’s not forget about the famous [Italian hand gesture](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ! (Admit it. You tried that, too, at some point.)
 
 ![hello in different languages](https://media.giphy.com/media/DqZKCC1rRht8FmnKbv/giphy.gif "How To Say &Quot;Hello&Quot; In Different Languages 5")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Back to seriousness, Italians are all about respecting their elders, so if you need a more formal**‘hello’ in Italian** , you can safely use **_Salve_ .**
 
  If you want to learn more about how to say**‘hi’ in Italian,** you can check out this in-depth **[guide on Italian greetings](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .**
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Hello in Chinese — 你好 (Nǐ hǎo)
 
@@ -120,18 +143,12 @@ _Olá_ , just like the Spanish_Hola_ , is suitable for any situation regardless 
 
  To learn more about Portuguese greetings, check out our guide on how to say [**‘** **hello’ in Portuguese**](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ## Hello in different languages
 
  Now that we’ve properly covered some of the most spoken languages in the world let’s move on to the real gold mine of**‘hello’ in different languages.** From ‘hello’ in Arabic to ‘hello’ in Catalan and even Latin, you’ll find them all here. Besides, if you want to hear them in action in real conversations, spoken by fluent speakers, you can always get Mondly. Just choose the language you always wanted to speak, and you can be conversational from day 1.
 
 ![hello in spanish](https://edge.mondly.com/blog/wp-content/uploads/2021/06/hello-in-spanish-960x640.jpg "How To Say &Quot;Hello&Quot; In Different Languages 6")
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
  “Hello” by Octavian Dan©
 
  These next greetings are a mixture of formal and informal. Don’t worry, though! This kind of ‘hello’ is the best choice for most social interactions regardless of the person you are addressing because it is somehow formal but also friendly. Just what you need when traveling abroad!
@@ -191,8 +208,6 @@ _Olá_ , just like the Spanish_Hola_ , is suitable for any situation regardless 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -200,4 +215,21 @@ _Olá_ , just like the Spanish_Hola_ , is suitable for any situation regardless 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://mondly-stories.techidaily.com/a-tribute-to-lifelong-daily-learning/"><u>A Tribute to Lifelong Daily Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/assessing-the-practicality-between-german-and-french/"><u>Assessing the Practicality Between German & French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/best-practices-in-language-education-software/"><u>Best Practices in Language Education Software</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cut-through-red-tape-easy-to-access-latino-schools/"><u>Cut Through Red Tape: Easy-to-Access Latino Schools</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/exploring-toms-hardware-the-ultimate-resource-by-toms-computing-team/"><u>Exploring Tom's Hardware: The Ultimate Resource by Tom's Computing Team</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hearken-hearth-tracing-viking-speech-patterns/"><u>Hearken, Hearth: Tracing Viking Speech Patterns</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-identify-some-outdated-drivers-with-windows-device-manager-on-windows-11-and-10-by-drivereasy-guide/"><u>How to identify some outdated drivers with Windows Device Manager on Windows 11 & 10</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-after-switching-from-honor-x50-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data After Switching From Honor X50 to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-chromatic-symphony-the-filmmakers-toolkit/"><u>In 2024, Chromatic Symphony The Filmmaker's Toolkit</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/la-strategie-de-clonage-dordinateurs-sans-problemes-guide-complet-pour-un-reseau-identique/"><u>La Stratégie De Clonage D'Ordinateurs Sans Problèmes: Guide Complet Pour Un Réseau Identique</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-era-of-filters-mondly-and-pearson-unite/"><u>New Era of Filters: Mondly and Pearson Unite</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/the-best-virtualdub-replacements-for-video-editing/"><u>The Best Virtualdub Replacements for Video Editing</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/top-6-methods-for-scaling-photos-on-windows-11/"><u>Top 6 Methods for Scaling Photos on Windows 11</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unveiling-the-mysteries-an-introduction-to-shap-e-by-openai/"><u>Unveiling the Mysteries: An Introduction to Shap-E by OpenAI</u></a></li>
+</ul></div>
 

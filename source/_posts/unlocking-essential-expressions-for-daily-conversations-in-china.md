@@ -1,7 +1,7 @@
 ---
 title: Unlocking Essential Expressions for Daily Conversations in China
-date: 2024-10-13T23:38:18.479Z
-updated: 2024-10-18T19:45:48.932Z
+date: 2024-10-22T17:21:29.946Z
+updated: 2024-10-24T18:21:26.084Z
 tags:
   - speak
   - english
@@ -34,9 +34,23 @@ thumbnail: https://thmb.techidaily.com/bcbc51157c352644194c600920e499191baf99c44
 
  Now that you know the easiest and most popular way to say “hello” in Chinese, let’s move on to more advanced Mandarin Chinese greetings that are guaranteed to make you sound fluent.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 1\. 早！(zǎo) – “Morning!” in Chinese
 
  早 (zǎo) is short for 早上好 (zǎo shang hǎo), which means “good morning” in Chinese. The same as our English “good morning”, 早 (zǎo) can be used safely in all kinds of social interactions as long as it is… you’ve guessed it: morning.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 2\. 你好吗? (nǐ hǎo ma) – “How are you?” in Chinese
 
@@ -48,6 +62,19 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
  As you can probably already tell, this is an informal greeting you can use with your friends.
 
+<!-- affiliate ads begin -->
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4\. 你吃了吗？(nǐ chī le ma) – “Have you eaten?”
 
  Are you confused? Amused? Or maybe a little bit of both? I was, too, when I first heard this greeting. When someone says 你吃了吗？(nǐ chī le ma) to you, they don’t actually want to know if you have eaten. In Chinese culture, this greeting is used as a way of showing someone you care about their well-being.
@@ -55,10 +82,10 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
  To answer to this greeting, you can say “chī le, nǐ ne?” which means “I’ve eaten, how about you?”.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. 久仰 (jiǔyǎng) – a very formal Chinese greeting
@@ -73,32 +100,11 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
 ![hi in chinese](https://edge.mondly.com/blog/wp-content/uploads/2019/12/hi-in-chinese-1024x682.jpg "How To Say Hello In Chinese: A Quick Guide To Chinese Greetings 3")
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “Hello there!” by Theodor Lundqvist©
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 7\. 大家好 (dàjiā hǎo) – say “hello” to a crowd in Chinese
 
  As mentioned earlier, 你好 nǐ hǎo is used to greet only one person at a time. So, if you need to say “hello” to a group of people in Mandarin Chinese, simply go with 大家好 (dàjiā hǎo).
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 8\. 下午好 (xiàwǔ hǎo) – “Good afternoon” in Chinese
 
@@ -144,16 +150,16 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-approaches.techidaily.com/new-techniques-for-smooth-audio-amplification-in-lumafusion/"><u>[New] Techniques for Smooth Audio Amplification in Lumafusion</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-complete-scrutiny-of-cutmatic-editor/"><u>[Updated] Complete Scrutiny of CutMatic Editor</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-enhance-snaps-with-cultural-pop-culture-learn-anime-on-snapchat-for-2024/"><u>[Updated] Enhance Snaps with Cultural Pop-Culture Learn Anime On Snapchat for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/5-crucial-criteria-to-assess-when-selecting-your-ideal-stereo-speaker-system/"><u>5 Crucial Criteria to Assess When Selecting Your Ideal Stereo Speaker System</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/eduvirtua-transforming-linguistics-through-virtual-reality/"><u>EduVirtua: Transforming Linguistics Through Virtual Reality</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-face-motion-blur-magic-a-step-by-step-picsart-approach/"><u>In 2024, Face Motion Blur Magic A Step-by-Step Picsart Approach</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-life360-shows-wrong-location-on-xiaomi-redmi-note-12-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Life360 Shows Wrong Location On Xiaomi Redmi Note 12 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/introducing-international-communication-on-oculus-quest-through-mondly/"><u>Introducing International Communication on Oculus Quest Through Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/latin-wisdom-the-most-influential-50-phrases-to-use/"><u>Latin Wisdom: The Most Influential 50 Phrases to Use</u></a></li>
-<li><a href="https://win-blog.techidaily.com/overcoming-helldivers-2s-initialization-blackout-essential-fixes-and-tips/"><u>Overcoming Helldivers 2'S Initialization Blackout: Essential Fixes and Tips</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/romanias-language-companion-an-app/"><u>Romania's Language Companion: An App</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-laughlenslab-pixelpunchers/"><u>[New] LaughLensLab PixelPunchers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-navigating-the-chart-toppers-playbook/"><u>[Updated] In 2024, Navigating the Chart-Toppers' Playbook</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-transform-storytelling-crafting-ig-questions-for-impact/"><u>[Updated] In 2024, Transform Storytelling Crafting IG Questions for Impact</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-navigating-the-new-world-of-360-camera-shopping/"><u>[Updated] Navigating the New World of 360 Camera Shopping</u></a></li>
+<li><a href="https://win-lab.techidaily.com/come-collegare-e-sincronizzare-file-tra-diverse-macchine-usando-windows-guida-per-windows-111087/"><u>Come Collegare E Sincronizzare File Tra Diverse Macchine Usando Windows: Guida per Windows 11/10/8/7</u></a></li>
+<li><a href="https://os-tips.techidaily.com/exploring-mobile-might-the-surprising-reason-phones-excel-like-desktops-yet-dodge-heat-generating-fans/"><u>Exploring Mobile Might: The Surprising Reason Phones Excel Like Desktops Yet Dodge Heat-Generating Fans</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-global-speech-functionality-in-oculus-quest-via-mondly/"><u>Introducing Global Speech Functionality in Oculus Quest via Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/preparing-for-your-israeli-sojourn-5-tips-and-language-basics/"><u>Preparing for Your Israeli Sojourn: 5 Tips & Language Basics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-into-a-multilingual-universe-with-mondlys-cutting-edge-vr-app/"><u>Step Into a Multilingual Universe with Mondly's Cutting-Edge VR App</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/unveiling-the-magic-of-films-mood-with-colors/"><u>Unveiling the Magic of Film's Mood with Colors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vr-enabled-language-education-takes-off-with-mondlys-new-app/"><u>VR-Enabled Language Education Takes Off with Mondly's New App</u></a></li>
 </ul></div>
 

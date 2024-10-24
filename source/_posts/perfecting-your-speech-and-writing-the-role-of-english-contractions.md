@@ -1,7 +1,7 @@
 ---
 title: "Perfecting Your Speech & Writing: The Role of English Contractions"
-date: 2024-08-23T00:28:48.737Z
-updated: 2024-08-24T00:28:48.737Z
+date: 2024-10-23T16:25:18.710Z
+updated: 2024-10-24T16:10:55.282Z
 tags:
   - speak
   - english
@@ -28,8 +28,6 @@ thumbnail: https://thmb.techidaily.com/cdf4d7c5a6e11bc2ecb600573fb51d6d46dc48a05
 
  Contraction words are generally easy enough to sort out, but there are situations where they can get tricky. For all those situations, it’s necessary to keep an eye out for rules. That’s why**we are** – or let’s say_**we’re**_ – going to explain everything you need to know about the rules of contractions in English. And while we’re at it, we will also add a contraction word list to go perfectly with the explanations.
 
-
-
 ## What is a contraction?
 
 **A contraction is** a type of abbreviation formed by combining two or more words and dropping one or more letters. In writing, the missing letters are replaced by an apostrophe. Sometimes called ‘short forms’, English contractions usually join a subject pronoun and a verb, an interrogative adverb and a verb, or a verb and the word_not_ .
@@ -40,13 +38,17 @@ thumbnail: https://thmb.techidaily.com/cdf4d7c5a6e11bc2ecb600573fb51d6d46dc48a05
 
  Careful, though! It’s**best to avoid contractions in highly formal contexts,** like academic papers, grant proposals, formal speeches, or any materials requiring a professional appearance.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Understanding English contractions
 
  Contractions are an essential part of the English language. For this reason, it’s important to understand and use them correctly. Let’s look at a couple of examples so you can better understand what we’re talking about.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Types of English contractions
 
 * **Subject pronoun + verb:** This is the most common type of contraction in English. For example:_I am_ becomes_I’m_ ,_you are_ becomes_you’re_ ,_he is_ becomes_he’s_ , and so on.
@@ -76,9 +78,6 @@ Coming Soon
 
 ![contractions in English](https://edge.mondly.com/blog/wp-content/uploads/2023/11/contractions-in-english-960x960.png "The Ultimate Guide To English Contractions 3")
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
 ## Grammar rules for English contractions
 
  Before you go thinking you know everything about contractions, we must look over some rules for contractions grammar.
@@ -90,8 +89,12 @@ Coming Soon
 5. **Negative contractions and tag questions go together like English speakers and [misspelled words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) :** A tag question is a short question added at the end of a sentence to turn it into a question. They are used to confirm information or engage the listener in the conversation. For example: “You’re coming to the party, aren’t you?”. When the declarative part of the sentence is affirmative, the question part is formulated as negative and conversely. If the tag question is negative, it’s your cue to use a contraction.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Common contractions in English
 
  Contraction word list
@@ -224,9 +227,6 @@ Coming Soon
 | you will                     | you’ll      |
 | you will; you shall          | you’ll      |
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Contractions in writing and their importance
 
  If you write in English on a daily basis, you probably use contractions quite a lot. And that’s perfectly fine if you talk to your family or friends. English contractions save time and space and make your daily communications sound friendlier.
@@ -238,8 +238,12 @@ Coming Soon
  However, if what you’re writing is semi-formal, you can use a couple of very popular contractions. The only condition is to not forget about the apostrophe, as the entire text will look unprofessional.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Examples of contractions in everyday language
 
  Now that you know the rules and have a comprehensive word list of contractions, it’s time to look at some examples of contractions from everyday language.
@@ -274,8 +278,12 @@ Coming Soon
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
+  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Improve your English fast
 
  Do you want to get better at speaking English? Try Mondly, the award-winning language app that is serious about making learning English fun.
@@ -298,8 +306,6 @@ Coming Soon
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -307,4 +313,23 @@ Coming Soon
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-t5-unboxed-the-revolution-in-action-filming/"><u>[Updated] 2024 Approved T5 Unboxed - The Revolution in Action Filming</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-elite-gaming-spectacle-cut-to-best-7-shooters/"><u>2024 Approved Elite Gaming Spectacle Cut to Best 7 Shooters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultivating-language-proficiency-with-dark-on-netflix/"><u>Cultivating Language Proficiency with 'Dark' On Netflix</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/engaging-spanish-learning-for-kids-games-songs-and-activities/"><u>Engaging Spanish Learning for Kids: Games, Songs, and Activities</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhancing-functionality-mondly-and-pearson-buttonlinkage/"><u>Enhancing Functionality: Mondly & Pearson ButtonLinkage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-spanish-verb-learning-for-efficiency/"><u>Essential Spanish Verb Learning for Efficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-macaus-multilingual-tapestry/"><u>Exploring Macau's Multilingual Tapestry</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-unfortunately-settings-has-stopped-on-xiaomi-14-ultra-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Unfortunately Settings Has Stopped on Xiaomi 14 Ultra Quickly | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/freedom-to-learn-honoring-1500-fee-free-lessons-daily/"><u>Freedom to Learn: Honoring 1500 Fee-Free Lessons Daily</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-confusion-to-clarity-understanding-english-contraction-rules/"><u>From Confusion to Clarity: Understanding English Contraction Rules</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-lava-yuva-2-phone-with-broken-screen-by-drfone-android/"><u>How to Unlock Lava Yuva 2 Phone with Broken Screen</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-inshot-app-how-to-integrate-external-songs-easily/"><u>In 2024, InShot App How to Integrate External Songs Easily</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-key-platforms-optimizing-youtube-video-views/"><u>In 2024, Key Platforms Optimizing YouTube Video Views</u></a></li>
+<li><a href="https://network-issues.techidaily.com/kingdom-come-caught-in-queue/"><u>Kingdom Come Caught in Queue</u></a></li>
+<li><a href="https://win-blog.techidaily.com/movavis-free-web-based-tool-transform-mef-images-into-jpeg-format-instantly/"><u>Movavi's Free Web-Based Tool: Transform MEF Images Into JPEG Format Instantly</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/no-expense-required-remove-coffee-stains-from-iphone-photos/"><u>No Expense Required Remove Coffee Stains From iPhone Photos</u></a></li>
+</ul></div>
 

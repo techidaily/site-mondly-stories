@@ -1,7 +1,7 @@
 ---
 title: Time Optimization for Numerical Japanese
-date: 2024-10-13T22:22:20.128Z
-updated: 2024-10-18T19:28:14.694Z
+date: 2024-10-21T17:28:28.126Z
+updated: 2024-10-24T17:50:22.198Z
 tags:
   - speak
   - english
@@ -46,6 +46,13 @@ thumbnail: https://thmb.techidaily.com/7dc3242cad7286db6d769fcd34b1b78d40476e1df
 
  That wasn’t so hard, was it? Besides, if you learn to count to 10, the numbers in Japanese 1-100 will become a piece of cake! It’s easier than you’d expect.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Master Bigger Japanese Numbers 1-100
 
 | Number | Kanji | Hiragana | Romaji       |
@@ -77,13 +84,6 @@ thumbnail: https://thmb.techidaily.com/7dc3242cad7286db6d769fcd34b1b78d40476e1df
 
 ![Numbers in Japanese 1-100](https://edge.mondly.com/blog/wp-content/uploads/2019/11/numbers-in-japanese-1-100-scaled.jpg "Counting In Japanese From 1 To 10000 7")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Numbers in Japanese 1-100
 
  Aren’t the Japanese numbers fascinating? Once you learn how to count to 10, counting to 100 is just a game of repeatedly compounding and adding. Here are a few examples to help you better understand the process of counting to 100 in Japanese:
@@ -106,10 +106,10 @@ thumbnail: https://thmb.techidaily.com/7dc3242cad7286db6d769fcd34b1b78d40476e1df
 [Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-3643&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-3643&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-3643&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-3643&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-3643%26mt%3D8)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Count to 10,000 and beyond in Japanese
@@ -159,10 +159,10 @@ thumbnail: https://thmb.techidaily.com/7dc3242cad7286db6d769fcd34b1b78d40476e1df
 ![numbers in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/11/numbers-in-japanese-960x647.jpeg "Counting In Japanese From 1 To 10000 9")
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Japanese Lucky Numbers
@@ -173,21 +173,7 @@ thumbnail: https://thmb.techidaily.com/7dc3242cad7286db6d769fcd34b1b78d40476e1df
 
 ![hatchi](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExdDQ0cHlhYjkxb2QwaTd1MWh1aDYyc3U3am05dnAzcnAxaGxkZWJsaiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/bzoD9WOiU1wAg/giphy.gif "Counting In Japanese From 1 To 10000 10")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  On the other hand, you probably noticed that 4, 7, and 9 have two different readings each. As we, in the Western world, consider the number 13 to bring bad luck, the Japanese people consider the numbers 4 and 9 to be unlucky because し (_shi_ – 4_)_ ) and く (_ku_ – 9) sound the same as the words for “death” (死, shi) and “suffering, agony or torture” (苦, ku). Thus, Japanese people avoid using these unlucky numbers as much as possible. If you ever travel to Japan, pay close attention to the prices. Chances are you won’t see prices like 9.99 or 4.99 anywhere.
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Japanese Counters List
 
@@ -196,6 +182,13 @@ thumbnail: https://thmb.techidaily.com/7dc3242cad7286db6d769fcd34b1b78d40476e1df
  For instance, for flat and thin objects, the counter word you need to use is まい (_mai_). Therefore, to say “three shirts”, you would say シャツさんまい_(shatsu san mai)_ , where_shatsu_ means “shirts”,_san_ is “three” and_mai_ is the counter word.
 
  There are over 500 counters in the Japanese language; however, not all are commonly used. Read on to discover the most frequently used counters.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Japanese counters for time
 
@@ -212,10 +205,10 @@ thumbnail: https://thmb.techidaily.com/7dc3242cad7286db6d769fcd34b1b78d40476e1df
  To count small and round objects like apples or tennis balls, you must use the \~個_(ko)_ counter. Conversely, to count thin and flat objects (such as sheets of paper, plates, or articles of clothing), you should use the まい_(mai)_ counter.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Japanese counters for animals
@@ -229,16 +222,17 @@ thumbnail: https://thmb.techidaily.com/7dc3242cad7286db6d769fcd34b1b78d40476e1df
 ![Japanese numbers kanji](https://edge.mondly.com/blog/wp-content/uploads/2019/11/japanese-numbers-kanji-960x640.jpeg "Counting In Japanese From 1 To 10000 11")
 
 <!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Japanese counters for cars or bicycles
@@ -301,22 +295,22 @@ Before you go, make sure you check out these FAQs.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/updated-essential-guide-to-selecting-artistic-win-programs-for-2024/"><u>[Updated] Essential Guide to Selecting Artistic Win Programs for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-step-by-step-srt-manipulation-for-mac-enthusiasts/"><u>[Updated] Step-by-Step SRT Manipulation for Mac Enthusiasts</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-top-5-multimedia-sensation-apps-iphoneandroid-showdown/"><u>[Updated] Top 5 Multimedia Sensation Apps IPhone/Android Showdown</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-closer-look-at-five-false-beliefs-in-language-education/"><u>A Closer Look at Five False Beliefs in Language Education</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/comenzar-a-conocer-el-tiempo-en-espanol/"><u>Comenzar a Conocer El Tiempo en Español</u></a></li>
-<li><a href="https://fake-location.techidaily.com/full-guide-to-fix-itoolab-anygo-not-working-on-xiaomi-14-drfone-by-drfone-virtual-android/"><u>Full Guide to Fix iToolab AnyGO Not Working On Xiaomi 14 | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-text-messages-from-honor-90-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Text Messages from Honor 90 to New Phone | Dr.fone</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/hp-audio-drivers-free-download-quickly-and-easily/"><u>HP Audio Drivers | Free Download | Quickly & Easily</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/knowledge-for-all-honoring-the-1500th-of-costless-daily-lessons/"><u>Knowledge for All: Honoring the 1500Th of Costless Daily Lessons</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/master-the-tongue-proven-strategies-for-eloquence/"><u>Master the Tongue: Proven Strategies for Eloquence</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-family-edition-google-plays-best-kids-app-of-the-year/"><u>Mondly Family Edition: Google Play's Best Kids App of the Year</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-get-lumafusion-for-mac-os-explore-alternative-video-editors/"><u>New In 2024, Get Lumafusion for Mac OS Explore Alternative Video Editors</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ukrainian-and-russian-how-similar-are-these-two-languages/"><u>Ukrainian and Russian: How Similar Are These Two Languages?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-korean-mastery-the-top-6-online-linguistic-hubs/"><u>Unlocking Korean Mastery: The Top 6 Online Linguistic Hubs</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-team-efficiency-the-best-language-learning-apps/"><u>Unlocking Team Efficiency: The Best Language Learning Apps</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-download-vn-video-editor-for-mac-or-explore-alternative-options-for-2024/"><u>Updated Download VN Video Editor for Mac or Explore Alternative Options for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/your-next-portable-workhorse-an-in-depth-look-at-the-microsoft-surface-laptop-go/"><u>Your Next Portable Workhorse? An In-Depth Look at The Microsoft Surface Laptop Go</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-mastering-creativity-the-leading-chrome-drawing-apps/"><u>[New] 2024 Approved Mastering Creativity The Leading Chrome Drawing Apps</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-why-cant-i-see-videos-on-sony-a6400/"><u>[New] Why Can’t I See Videos on Sony A6400?</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-snappy-narratives-on-the-social-scene/"><u>[Updated] In 2024, Snappy Narratives on the Social Scene</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-vpna-to-fake-gps-location-on-motorola-moto-g14-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use VPNa to Fake GPS Location On Motorola Moto G14 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gute-auftaktsatze-im-deutschen-ausgewahlt/"><u>Gute-Auftaktsätze Im Deutschen Ausgewählt</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hello-in-portuguese-all-the-portuguese-greetings-you-need-to-knowback-buttonfilter-button/"><u>Hello In Portuguese - All The Portuguese Greetings You Need To KnowBack ButtonFilter Button</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-honor-70-lite-5g-frp-in-3-different-ways-by-drfone-android/"><u>In 2024, How To Bypass Honor 70 Lite 5G FRP In 3 Different Ways</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-iphonescreen-recording-a-straightforward-guide/"><u>In 2024, IPhonescreen Recording A Straightforward Guide</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-mastering-lock-screen-settings-how-to-enable-and-disable-on-motorola-edge-2023-by-drfone-android/"><u>In 2024, Mastering Lock Screen Settings How to Enable and Disable on Motorola Edge 2023</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/is-inshot-a-game-changer-in-video-editing-tools-for-2024/"><u>Is InShot a Game Changer in Video Editing Tools for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-link-turkish-korean-connections/"><u>Language Link: Turkish-Korean Connections</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/privacy-update-clearer-terms-better-usage/"><u>Privacy Update - Clearer Terms, Better Usage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speedy-syntax-mastery-with-these-mindful-mental-routines/"><u>Speedy Syntax Mastery with These Mindful Mental Routines</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/stop-obs-from-skipping-audio-for-2024/"><u>Stop OBS From Skipping Audio for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukraines-educational-revolution-mondly-provides-language-lessons-freely/"><u>Ukraine's Educational Revolution: Mondly Provides Language Lessons, Freely</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-choice-todays-apple-favorite/"><u>Worldwide Choice: Today's Apple Favorite</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-spring-celebration-dialogues/"><u>Worldwide Spring Celebration Dialogues</u></a></li>
 </ul></div>
 

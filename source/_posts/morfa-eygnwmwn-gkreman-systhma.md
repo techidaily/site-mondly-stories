@@ -1,7 +1,7 @@
 ---
 title: Μόρφα Ευγνώμων Γκρεμάν Συστήμα
-date: 2024-10-14T20:53:14.729Z
-updated: 2024-10-18T21:10:57.185Z
+date: 2024-10-18T17:18:37.316Z
+updated: 2024-10-24T18:32:32.248Z
 tags:
   - speak
   - english
@@ -31,10 +31,10 @@ thumbnail: https://thmb.techidaily.com/d386a416e48c7407fcb7aac43bcc48ab905a8aa1d
  A funny but very good mnemonic for remembering how to say_efcharistó_ is to think of it as ‘ef-harry’s-toe’.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The informal ‘thank you’ in Greek
@@ -44,6 +44,19 @@ thumbnail: https://thmb.techidaily.com/d386a416e48c7407fcb7aac43bcc48ab905a8aa1d
  However, if you want to say more than just ‘thanks’, **you can say σ’ ευχαριστώ_(s’ efcharistó)_ which is ‘thank you’ in Greek.** Although informal_, s’ efcharistó_ is more similar to ‘thank you’ and can be used safely when giving thanks to friends or colleagues.
 
  If you are especially thankful to them, you can also say ευχαριστώ πολύ_(efcharistó poli)_ which means ‘thanks a lot’. Or even ευχαριστώ πάρα πολύ_(efcharistó para poli)_ meaning ‘thank you very much’.
+
+<!-- affiliate ads begin -->
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The formal ‘thank you’ in Greek
 
@@ -55,14 +68,14 @@ thumbnail: https://thmb.techidaily.com/d386a416e48c7407fcb7aac43bcc48ab905a8aa1d
 
 ![taverna in Greece](https://edge.mondly.com/blog/wp-content/uploads/2021/10/thanks-in-greek-960x720.jpg "All The Best Ways To Say Thank You In Greek 3")
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “Mýkonos, Greece” by Johnny Chen©
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Examples of Greek thanks
 
@@ -76,16 +89,10 @@ thumbnail: https://thmb.techidaily.com/d386a416e48c7407fcb7aac43bcc48ab905a8aa1d
 * Το εκτιμώ. _(To ektimó.)_ – I appreciate it.
 
 <!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
+  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to say ‘please’ and ‘you’re welcome’ in Greek
@@ -95,19 +102,6 @@ thumbnail: https://thmb.techidaily.com/d386a416e48c7407fcb7aac43bcc48ab905a8aa1d
  Well, the Greek παρακαλώ_(parakaló)_ works the same. If you want to say ‘please’ in Greek, you say παρακαλώ_(parakaló)._ If you want to say ‘you’re welcome’, παρακαλώ_(parakaló)_ works just fine again. If only everything would be so easy when learning Greek!
 
  But let’s not get ahead of ourselves and forget about the formal variation. To address someone older or a group of people, you should use the formal σας παρακαλούμε_(sas parakaloúme)_ . Did you recognize the_σας (sas)_ particle? If yes, then congratulations! That means you’re on the right track.
-
-<!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## When should you say ‘thank you’ in Greek?
 
@@ -148,20 +142,18 @@ thumbnail: https://thmb.techidaily.com/d386a416e48c7407fcb7aac43bcc48ab905a8aa1d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-mastering-multi-platform-content-delivery-youtube-and-beyond/"><u>[New] 2024 Approved Mastering Multi-Platform Content Delivery YouTube & Beyond</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-prime-business-sky-storage-choice-for-2024/"><u>[New] Prime Business Sky-Storage Choice for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-choosing-between-two-titans-obs-and-bandicam-for-2024/"><u>[Updated] Choosing Between Two Titans OBS and Bandicam for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-flawless-endgame-in-vr-worlds/"><u>[Updated] Flawless Endgame in VR Worlds</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-the-ultimate-guide-to-mastering-multi-tasking-with-your-favorite-talk-shows-for-2024/"><u>[Updated] The Ultimate Guide to Mastering Multi-Tasking With Your Favorite Talk Shows for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cutting-edge-technology-for-enhanced-language-pedagogy/"><u>Cutting-Edge Technology for Enhanced Language Pedagogy</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/differences-between-british-and-american-english/"><u>Differences Between British And American English</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-easy-tutorial-for-activating-icloud-from-iphone-6-plus-safe-and-legal-by-drfone-ios/"><u>In 2024, Easy Tutorial for Activating iCloud from iPhone 6 Plus Safe and Legal</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-xiaomi-14-pro-device-by-drfone-android/"><u>In 2024, The Ultimate Guide How to Bypass Swipe Screen to Unlock on Xiaomi 14 Pro Device</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/intercultural-harmony-skills-for-successful-global-engagement/"><u>Intercultural Harmony: Skills for Successful Global Engagement</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/key-russian-sentences-to-enrich-your-journey/"><u>Key Russian Sentences to Enrich Your Journey</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-educational-growth-through-apple-innovations/"><u>Mondly's Educational Growth Through Apple Innovations</u></a></li>
-<li><a href="https://driver-download.techidaily.com/overcoming-intel-hd-graphics-630-driver-challenges-in-windows-a-step-by-step-solution-guide/"><u>Overcoming Intel HD Graphics 630 Driver Challenges in Windows: A Step-by-Step Solution Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-advantages-of-mastering-the-german-language/"><u>The Advantages of Mastering the German Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579807977-unlock-full-featured-mondly-pro-save-up-to-96/"><u>Unlock Full-Featured Mondly Pro, Save Up To 96%!</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-prime-pick-best-vr-devices-of-the-year/"><u>[New] In 2024, Prime Pick Best VR Devices of the Year</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-vivid-imagery-understanding-the-power-of-srgb/"><u>[Updated] Vivid Imagery Understanding the Power of Srgb</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/full-guide-to-unlock-your-samsung-galaxy-z-flip-5-by-drfone-android/"><u>Full Guide to Unlock Your Samsung Galaxy Z Flip 5</u></a></li>
+<li><a href="https://win11.techidaily.com/how-to-fix-the-the-requested-value-cannot-be-determined-error-on-windows/"><u>How to Fix the “The Requested Value Cannot Be Determined” Error on Windows</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introductory-spanish-numerical-conjugation/"><u>Introductory Spanish Numerical Conjugation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/japanese-formal-to-informal-salutations-guide/"><u>Japanese: Formal to Informal Salutations Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/er-up-strategies-optimal-selection-for-youtube-teams/"><u>Partner Up Strategies Optimal Selection for YouTube Teams</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/primary-vernacular-inhabiting-israeli-terrain/"><u>Primary Vernacular Inhabiting Israeli Terrain?</u></a></li>
+<li><a href="https://win-great.techidaily.com/save-big-with-professional-licenses-buy-microsoft-project-and-visio-pros-for-just-20-on-zdnet/"><u>Save Big with Professional Licenses: Buy Microsoft Project & Visio Pros for Just $20 on ZDNet!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/start-your-french-reading-journey-with-these-top-20-novels/"><u>Start Your French Reading Journey with These Top 20 Novels</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-italian-explorers-dictionary-key-travel-terms/"><u>The Italian Explorer’s Dictionary: Key Travel Terms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-richness-of-language-in-macau/"><u>The Richness of Language in Macau</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/updated-2024-approved-access-all-matches-free-world-cup-live-streaming-options/"><u>Updated 2024 Approved Access All Matches Free World Cup Live Streaming Options</u></a></li>
 </ul></div>
 

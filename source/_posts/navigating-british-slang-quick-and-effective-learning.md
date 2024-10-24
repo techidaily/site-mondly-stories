@@ -1,7 +1,7 @@
 ---
 title: "Navigating British Slang: Quick & Effective Learning"
-date: 2024-10-17T19:28:07.434Z
-updated: 2024-10-18T21:38:50.826Z
+date: 2024-10-19T18:05:18.898Z
+updated: 2024-10-24T18:14:46.878Z
 tags:
   - speak
   - english
@@ -34,13 +34,6 @@ thumbnail: https://thmb.techidaily.com/48eff568c35933b40401a65faa40dbe7bb6a58eb4
 
  Well, the chances of that happening are much slimmer after you get through our list. That, plus looking for online tutors can better prep you for your next British conversation.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Common British Phrases
 
  In this section, we will look at the phrases that will make you sound more British. Some of them might be those British phrases you always hear on TV shows or movies.
@@ -53,13 +46,6 @@ thumbnail: https://thmb.techidaily.com/48eff568c35933b40401a65faa40dbe7bb6a58eb4
 
 I’m tired.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### _Cheeky_
 
 Mischievous or playful.
@@ -68,53 +54,46 @@ Mischievous or playful.
 
 This is a very British thing to say meaning very.
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### _I’m pissed_
 
  Not meaning the regular “angry”, in British talk it actually means you’re very drunk and is used quite a lot when you are out drinking with friends.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### _Mate_
 
 A common one and quite cliché – mate means friend.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### _Rubbish_
 
  It could mean_garbage_ or_nonsense,_ depending on the context.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### _Cockney_
 
 A person native to East London.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### _Blimey_
 
  Similar to the American_wow_ ,_blimey_ is used to describe something that takes you by surprise.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### _Bloke_
 
@@ -123,6 +102,13 @@ A person native to East London.
 ### _Bollocks_
 
  One of the more well-known British terms, it actually has a multitude of meanings. It could be used to symbolize disbelief, or to talk about a man’s private parts.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Funny British Sayings
 
@@ -153,13 +139,6 @@ A person native to East London.
 
 [Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-4428&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4428&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4428&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4428&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-4428%26mt%3D8)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Fancy British Words
 
 * _Alas_ – used to express grief, sorrow, regret or concern
@@ -180,6 +159,13 @@ A person native to East London.
 * _Verily_ – truly or indeed
 * _Quotidian_ – ordinary or everyday
 * _Yonks_ – ages, a very long time
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **British Slang Words**
 
@@ -218,6 +204,19 @@ A person native to East London.
 * _Posh nosh_ – Refers to high-quality or fancy food.
 * _Take the Mickey_ – Making fun of or tease someone.
 
+<!-- affiliate ads begin -->
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **British Compliments**
 
  Think about the elegant British phrases you have heard and see if you recognize any in our list below.
@@ -238,10 +237,10 @@ A person native to East London.
  British phrases and expressions are extraordinarily interesting to those who aren’t familiar with their terms. The common British words we see already seem so fancy and sometimes even whimsical and learning them will surely give you a leg up next time you start writing your [5 paragraph essay](https://edubirdie.com/blog/five-paragraph-essay) , or have a chinwag with your British mates!
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Differences Between American and British English
@@ -255,6 +254,13 @@ A person native to East London.
 * **Past Tense Verbs** – The British tend to “-t” instead of –ed. Such examples are_learned_ and_learnt_ ,_dreamed_ and_dreamt_ .
 
  Having learned some of the most common British words and phrases, let’s move on to some frequently asked questions.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Why do the British say ‘cheers’?
 
@@ -300,21 +306,19 @@ Get Mondly now and speak any language like you never dreamed you would ![Learn w
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-ios-slide-show-tools-tailored-for-high-end-models-for-2024/"><u>[New] IOS Slide Show Tools Tailored for High-End Models for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-how-to-add-link-to-facebook-story-for-free/"><u>[Updated] In 2024, How to Add Link to Facebook Story for Free?</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-unveiling-the-10-best-free-os-agnostic-video-solutions/"><u>2024 Approved Unveiling the 10 Best Free OS-Agnostic Video Solutions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/catalog-of-linguistic-siblings-to-spain/"><u>Catalog of Linguistic Siblings to Spain</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-optimal-cost-free-image-refinement-toolkit/"><u>In 2024, Optimal, Cost-Free Image Refinement Toolkit</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-sleek-screenscape-top-wallpapers-for-your-device/"><u>In 2024, Sleek Screenscape Top Wallpapers for Your Device</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/japanese-on-calls-a-cultural-insight/"><u>Japanese On-Calls: A Cultural Insight</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-dilemma-opting-for-german-or-french/"><u>Language Dilemma: Opting for German or French</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-exploration-the-top-ten-rationales-for-multilingualism/"><u>Language Exploration: The Top Ten Rationales for Multilingualism</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-korean-from-home-cutting-edge-online-resource-list/"><u>Mastering Korean From Home: Cutting-Edge Online Resource List</u></a></li>
-<li><a href="https://win-able.techidaily.com/mastering-the-fix-stable-playthrough-of-yakuza-the-song-of-life-on-your-personal-computer/"><u>Mastering the Fix: Stable Playthrough of Yakuza The Song of Life on Your Personal Computer</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-kids-app-shines-in-google-plays-finest-selection/"><u>Mondly Kids App Shines in Google Play's Finest Selection</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-in-2024-10-best-meme-makers-online-free-to-use/"><u>New In 2024, 10 Best Meme Makers Online (Free to Use)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sprache-und-kultur-alternative-deutschen-begrussungen-ohne-hallo/"><u>Sprache Und Kultur: Alternative Deutschen Begrüßungen Ohne 'Hallo'</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/understanding-the-distinctions-a-deep-dive-into-4k-uhd-and-hdr-technology/"><u>Understanding the Distinctions: A Deep-Dive Into 4K UHD and HDR Technology</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/why-the-samsung-galaxy-s20-fe-5g-is-a-must-have-for-smartphone-aficionados/"><u>Why the Samsung Galaxy S20 FE 5G Is a Must-Have for Smartphone Aficionados</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-critically-acclaimed-top-8-oculus-rift-games/"><u>[New] 2024 Approved Critically Acclaimed Top 8 Oculus Rift Games</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-the-ultimate-guide-to-instagrams-magnifying-functions/"><u>2024 Approved The Ultimate Guide to Instagram's Magnifying Functions</u></a></li>
+<li><a href="https://blog-min.techidaily.com/android-to-apple-how-to-transfer-photos-from-oppo-a78-5g-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Android to Apple How To Transfer Photos From Oppo A78 5G to iPad Easily | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grecian-lexicon-historical-journey-and-modern-day-importance/"><u>Grecian Lexicon: Historical Journey & Modern Day Importance</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-roadmap-to-irresistible-podcast-intros-and-exits/"><u>In 2024, The Roadmap to Irresistible Podcast Intros and Exits</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-swedish-letters-and-accents-swiftly/"><u>Learn Swedish Letters & Accents Swiftly</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/macs-top-tier-gif-recorder-tools-reviewed/"><u>Mac's Top-Tier GIF Recorder Tools Reviewed</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/rful-visuals-in-motion-an-insiders-guide-to-creating-impressive-thumbnails-for-2024/"><u>Masterful Visuals in Motion An Insider's Guide to Creating Impressive Thumbnails for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-elite-unbeatable-ever-lasting-pricing/"><u>Mondly Elite: Unbeatable, Ever-Lasting Pricing!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-vision-realized-educating-the-next-70-million-learners/"><u>Mondly's Vision Realized – Educating the Next 70 Million Learners</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-premier-percussive-pace-collaboration-software-for-videos-2023-edition-for-2024/"><u>New Premier Percussive Pace Collaboration Software for Videos, 2023 Edition for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tender-tongues-the-lore-of-love-in-french/"><u>Tender Tongues: The Lore of Love in French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vocabulary-volleyball-international-words-serving-english/"><u>Vocabulary Volleyball: International Words Serving English</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/what-are-memes-unpacking-digital-cultures-favorite-joke-format/"><u>What Are Memes? Unpacking Digital Culture's Favorite Joke Format</u></a></li>
 </ul></div>
 

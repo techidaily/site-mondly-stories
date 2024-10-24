@@ -1,7 +1,7 @@
 ---
 title: Understanding and Using Spanish Verb Endings
-date: 2024-10-12T20:15:06.578Z
-updated: 2024-10-18T22:00:16.243Z
+date: 2024-10-18T16:15:03.999Z
+updated: 2024-10-24T17:04:03.253Z
 tags:
   - speak
   - english
@@ -65,10 +65,10 @@ Spanish verbs conjugations make sense now, don’t they?
  Before moving on to irregular Spanish verbs and more examples, let’s also explore**the past and future of regular Spanish verbs** . What do you think? Wouldn’t that be useful?
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Spanish Preterite Tense – Regular Preterite Verb Endings
@@ -115,10 +115,10 @@ And the conjugation of comer will look like this:
  Keep in mind the fact that the first person singular (_yo_), third person singular (_él, ella_), and second person formal singular (_usted_) forms use tildes on the final letters of the verb endings. And one little tilde can make all the difference in the world! If you don’t know yet how accents work, take a look at our article on **[Spanish accents and how to master them all](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .**
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Spanish Simple Future Tense – Regular Simple Future Verb Endings
@@ -153,18 +153,18 @@ And the conjugation of comer will look like this:
 * _Vosotros / Vosotras escrib**iréis**_
 * _Ellos / Ellas / Ustedes escrib**irán**_
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Spanish verbs: how to master irregular Spanish verbs
 
  Remember how you managed to learn**irregular English verbs** ? Well, there are tricks that you can use, but the truth is that, in time,**irregular Spanish verbs** will just… come to you. No joke. Once you get used to the language and use it all the time, your brain will start making connections.
 
  As you already know,**irregular verbs** are “rebel” verbs that follow no regular set of rules. Statistically, in Spanish, almost all verbs ending in_\-ar_ are regular, almost all verbs ending in_\-er_ are irregular and less than half of all verbs ending in_\-ir_ are irregular. So, let’s disentangle this complicated situation of**irregular Spanish verbs** and look for some patterns to help us learn faster.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. Stem-Changing Verbs in Spanish
 
@@ -342,14 +342,19 @@ Well… this is it! This is our full lesson on**Spanish verbs.**
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://mondly-stories.techidaily.com/bridge-cultures-master-more-languages/"><u>Bridge Cultures: Master More Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/decoding-daily-gesture-lingo-in-italy/"><u>Decoding Daily Gesture Lingo in Italy</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-oneplus-12-by-phone-number-drfone-by-drfone-virtual-android/"><u>How to Track OnePlus 12 by Phone Number | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-itel-p55plus-phone-without-password-by-drfone-android/"><u>In 2024, How To Unlock Itel P55+ Phone Without Password?</u></a></li>
-<li><a href="https://win-studio.techidaily.com/norton-ghost-substitute-revolutionnaire-aomei-backupper-standard-votre-guide-pour-la-sauvegarde-facile-et-gratuite/"><u>Norton Ghost Substitute Révolutionnaire - AOMEI Backupper Standard, Votre Guide Pour La Sauvegarde Facile Et Gratuite !</u></a></li>
-<li><a href="https://video-capture.techidaily.com/superior-screen-reporter-optimal-chromebook-choice/"><u>Superior Screen Reporter Optimal Chromebook Choice</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ultimate-spelling-blunder-index-for-english-proficiency/"><u>The Ultimate Spelling Blunder Index for English Proficiency</u></a></li>
-<li><a href="https://program-issues.techidaily.com/ultimate-guide-solve-your-rainbow-six-siege-stuttering-issues-with-these-techniques/"><u>Ultimate Guide: Solve Your Rainbow Six Siege Stuttering Issues with These Techniques</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/uncovering-the-realities-behind-effective-language-education/"><u>Uncovering the Realities Behind Effective Language Education</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-content-creator-acclaim-through-subscriber-recognition-for-2024/"><u>[Updated] Content Creator Acclaim Through Subscriber Recognition for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-best-mac-capture-software-excluding-traditional-bandicam/"><u>2024 Approved Best Mac Capture Software Excluding Traditional Bandicam</u></a></li>
+<li><a href="https://games-able.techidaily.com/extending-visual-scope-of-xbox-series-xs-with-secondary-screening/"><u>Extending Visual Scope of Xbox Series X|S with Secondary Screening</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gran-guia-del-cuerpo-humano-la-historia-desde-el-cabello-a-los-pies/"><u>Gran Guía Del Cuerpo Humano: La Historia Desde El Cabello A Los Pies</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-honor-x50i-without-the-home-button-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Honor X50i Without the Home Button | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-8-plus-to-other-iphone-11-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 8 Plus to other iPhone 11 devices? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-poco-c55-mirror-screen-to-pc-drfone-by-drfone-android/"><u>In 2024, How Poco C55 Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/loves-universal-language-beyond-verbal-expressions/"><u>Love's Universal Language: Beyond Verbal Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-dominates-2022-premier-language-learning-app/"><u>Mondly Dominates 2022: Premier Language Learning App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tales-of-arise-resolved-issues-and-bug-fixes/"><u>Tales of Arise: Resolved Issues and Bug Fixes</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/top-10-international-technology-experts-share-their-thoughts-on-artifice-intelligence/"><u>Top 10 International Technology Experts Share Their Thoughts on Artifice Intelligence</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-your-talking-ability-now-at-half-the-usual-rate/"><u>Transform Your Talking Ability - Now at Half the Usual Rate</u></a></li>
+<li><a href="https://win-remarkable.techidaily.com/trasforma-i-tuoi-file-3gp-in-animazioni-flash-swf-senza-costo-con-movavi/"><u>Trasforma I Tuoi File .3GP in Animazioni Flash SWF Senza Costo Con Movavi</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-japans-language-of-respect-and-friendship/"><u>Unlocking Japan's Language of Respect & Friendship</u></a></li>
 </ul></div>
 

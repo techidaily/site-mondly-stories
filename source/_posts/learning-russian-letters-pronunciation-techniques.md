@@ -1,7 +1,7 @@
 ---
 title: Learning Russian Letters Pronunciation Techniques
-date: 2024-08-23T00:31:23.258Z
-updated: 2024-08-24T00:31:23.258Z
+date: 2024-10-21T17:52:27.785Z
+updated: 2024-10-24T17:57:48.017Z
 tags:
   - speak
   - english
@@ -40,9 +40,6 @@ thumbnail: https://thmb.techidaily.com/d44c84cbf0699642eded061365e62aa884811112a
 
  “Red Square, Moscow, Russia” by Aurelien Romain©
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ## Understand how to pronounce the Russian alphabet
 
  There are 33 letters in the Russian alphabet. 10 vowels (**а, э, ы, у, о, я, е, ё, ю, и)** , 21 consonants (**б, в, г, д, ж, з, к, л, м, н, п, р, с, т, ф, х, ц, ч, ш, щ,** and the consonant**й** which is sometimes a semivowel) and 2 pronunciation signs (the “soft sign” ь and the “hard sign” ъ).
@@ -52,8 +49,12 @@ thumbnail: https://thmb.techidaily.com/d44c84cbf0699642eded061365e62aa884811112a
  If we were to compare the Russian alphabet to the English alphabet, we would have four groups of letters: letters that look and sound (almost) the same as in English, letters that sound the same but look different, letters that look the same but sound different and letters that have no English equivalent whatsoever.
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Russian letters that are (almost) the same as in English
 
 * **А а** sounds like “a” in “father” or “after”,
@@ -64,8 +65,18 @@ thumbnail: https://thmb.techidaily.com/d44c84cbf0699642eded061365e62aa884811112a
 * **Т т** sounds like “t” in “top” or “task”.
 
 <!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1155462">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Russian letters that sound the same as in English (but look different)
 
 * **Б б** sounds like “b” in “bad” or “blue”,
@@ -84,6 +95,13 @@ thumbnail: https://thmb.techidaily.com/d44c84cbf0699642eded061365e62aa884811112a
 * **Э э** sounds like “e” in “met” or “edit”,
 * **Ю ю** sounds like “you” or “use”,
 * **Я я** sounds like “yu” in yummy or “ya” in “yard”.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Russian letters that look the same as in English (but sound different)
 
@@ -108,23 +126,15 @@ thumbnail: https://thmb.techidaily.com/d44c84cbf0699642eded061365e62aa884811112a
 
 ![russian alphabet pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2020/03/russian-alphabet-pronunciation-1-431x600.jpg "Master The Russian Alphabet Pronunciation 3")
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
  Russian alphabet pronunciation
 
 <!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Russian lesson no. 1: rules
 
  Russian is definitely not the [hardest language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) you can study. As you already saw, once you get to know it, the Russian alphabet seems quite friendly. Languages like Chinese, Japanese, Korean or [Arabic](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , on the other hand, are way harder to master. Besides, once you learn the alphabet, you will already be able to read in Russian – a great boost for your motivation!
@@ -145,9 +155,6 @@ thumbnail: https://thmb.techidaily.com/d44c84cbf0699642eded061365e62aa884811112a
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Study Russian in just 10 minutes a day
 
  It can be really tricky to master Russian pronunciation if you don’t actively live in Russia. But with Mondly, the award-winning language learning app, you’ll teach yourself Russian using a unique, fast and highly efficient learning method.
@@ -164,8 +171,6 @@ thumbnail: https://thmb.techidaily.com/d44c84cbf0699642eded061365e62aa884811112a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -173,4 +178,21 @@ thumbnail: https://thmb.techidaily.com/d44c84cbf0699642eded061365e62aa884811112a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-clips.techidaily.com/new-how-to-stream-videos-on-twitter-using-your-smartphone-for-2024/"><u>[New] How To Stream Videos on Twitter Using Your Smartphone for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-the-least-expensive-skyvault-service-for-big-files/"><u>[New] The Least Expensive SkyVault Service for Big Files</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-sharpen-your-footage-with-videoleaps-zoom/"><u>[Updated] Sharpen Your Footage with Videoleap's ZOOM</u></a></li>
+<li><a href="https://win-able.techidaily.com/3d-gif-creation-techniques-how-to-rotate-images-for-stunning-visual-effects/"><u>3D GIF Creation Techniques – How to Rotate Images for Stunning Visual Effects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/amp-up-mastering-japanese-digits-with-minutes/"><u>Amp Up: Mastering Japanese Digits with Minutes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprendiendo-la-linea-del-tiempo-en-espanol-de-martes-al-domingo/"><u>Aprendiendo La Línea Del Tiempo en Español De Martes Al Domingo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/british-english-vs-american-english-differences-spelling-pronunciation-and-more/"><u>British English vs American English Differences: Spelling, Pronunciation and More</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-to-the-latest-in-smart-home-security-a-closer-look-at-google-nest-hellos-innovative-features/"><u>Comprehensive Guide to the Latest in Smart Home Security - A Closer Look at Google Nest Hello's Innovative Features</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/digital-pathways-to-master-a-foreign-language-today/"><u>Digital Pathways to Master a Foreign Language Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevate-commerce-through-powerful-language-programs/"><u>Elevate Commerce Through Powerful Language Programs</u></a></li>
+<li><a href="https://win-blog.techidaily.com/ghostwire-tokyo-stability-improvement-no-more-pc-crashes/"><u>Ghostwire: Tokyo Stability Improvement - No More PC Crashes!</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-vivo-s18e-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Vivo S18e | Dr.fone</u></a></li>
+<li><a href="https://windows11.techidaily.com/muting-windows-update-notifications/"><u>Muting Windows Update Notifications</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581198562-norges-language-leap-10-minute-magic/"><u>Norge's Language Leap - 10-Minute Magic</u></a></li>
+</ul></div>
 

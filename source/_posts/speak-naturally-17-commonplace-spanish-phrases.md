@@ -1,7 +1,7 @@
 ---
 title: "Speak Naturally: 17 Commonplace Spanish Phrases"
-date: 2024-08-23T00:31:17.333Z
-updated: 2024-08-24T00:31:17.333Z
+date: 2024-10-20T16:35:18.971Z
+updated: 2024-10-24T17:58:54.664Z
 tags:
   - speak
   - english
@@ -32,6 +32,13 @@ thumbnail: https://thmb.techidaily.com/d20682484ee39b27689e93ff94b9b7638592055fc
 
 **English equivalent:** Although in English we often use the literal translation too, we are more familiar with the ‘official’ version of this saying:**“tell me who your friends are and I’ll tell you who you are”.** In addition,**“birds of a feather flock together”** has a similar meaning and can be used as an alternative.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. No hay mal que por bien no venga
 
 **Literal translation:** There’s no bad from which something good doesn’t come.
@@ -48,6 +55,13 @@ thumbnail: https://thmb.techidaily.com/d20682484ee39b27689e93ff94b9b7638592055fc
 
 ![spanish expressions](https://edge.mondly.com/blog/wp-content/uploads/2021/05/spanish-expressions-960x638.jpg "17 Spanish Sayings That Will Make You Sound Like A Native 2")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  “Valldemossa, Spain” by Patrick Baum©
 
 ### 4\. Cuando el río suena, agua lleva
@@ -58,9 +72,6 @@ thumbnail: https://thmb.techidaily.com/d20682484ee39b27689e93ff94b9b7638592055fc
 
  Did you know this one? It means that if there are unpleasant rumors about someone or something, there is probably a good reason for it. Meaning that the rumors are almost always partly true.
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 5\. Del tal palo, tal astilla
 
 **Literal translation:** Such is the stick, such is the chip.
@@ -68,8 +79,12 @@ thumbnail: https://thmb.techidaily.com/d20682484ee39b27689e93ff94b9b7638592055fc
 **English equivalent:** “Like father, like son.” / “The apple doesn’t fall far from the tree.”
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 6\. A falta de pan, buenas son tortas
 
 **Literal translation:** If there’s no bread, cakes will do.
@@ -78,9 +93,6 @@ thumbnail: https://thmb.techidaily.com/d20682484ee39b27689e93ff94b9b7638592055fc
 
 Who wouldn’t prefer cakes over bread though?
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 7\. El hábito no hace al monje
 
 **Literal translation:** The habit doesn’t make the monk.
@@ -88,6 +100,13 @@ Who wouldn’t prefer cakes over bread though?
 **English equivalent:** “Clothes do not make the man.” / “You can’t judge a book by its cover.”
 
  Don’t ever judge a person solely by appearances because this is not a reliable indication of the true character of that person. No matter if it’s a positive or a negative bias. You might be surprised.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 8\. Mucho ruido y pocas nueces
 
@@ -111,6 +130,13 @@ Who wouldn’t prefer cakes over bread though?
 
  “Barcelona, Spain” by Toa Heftiba©
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 10\. En casa del herrero, cuchillo de palo
 
 **Literal translation:** In the blacksmith’s house, a wooden knife.
@@ -120,17 +146,18 @@ Who wouldn’t prefer cakes over bread though?
  This saying illustrates the ironic absence of an object or virtue in a place where it should not be lacking.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## General Spanish sayings with no direct English equivalent
 
  Now, let’s move on to a more tricky business: Spanish sayings with no direct English equivalents. To help you fully understand these, we’ll give you some examples.
 
  Oh, and don’t tell anyone you know it from us, but learning sayings to sound like a native it’s kind of a gimmick. Or a shortcut – to put it more elegantly. Lucky for you,[Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5924&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5924?mother%5Flang=en%5Fus?target%5Flang=es&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5924?mother%5Flang=en%5Fus?target%5Flang=es) is all about language learning gimmicks, so don’t hesitate to check out [the app](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5924&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5924?mother%5Flang=en%5Fus?target%5Flang=es&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5924?mother%5Flang=en%5Fus?target%5Flang=es) and speak Spanish with ease in just 10 minutes a day.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ### 1\. Al mal tiempo, buena cara
 
 **Literal translation:** To bad weather, good face.
@@ -143,9 +170,6 @@ _–_   _Estoy pasando por una mala racha. Tengo que terminar un informe para el
 
 _–_ _Oye, no te desesperes. Al mal tiempo, buena cara._ (“Hey, don’t despair. It’s important to remain positive even in difficult situations.”)
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. El que tiene boca se equivoca
 
 **Literal translation:** Whoever has a mouth makes mistakes.
@@ -160,14 +184,15 @@ _–_   _Me preocupa no haberlo hecho bien en el examen de ayer. Estaba realment
 
 ![spanish phrases](https://edge.mondly.com/blog/wp-content/uploads/2021/05/spanish-phrases-1-960x640.jpg "17 Spanish Sayings That Will Make You Sound Like A Native 4")
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
  “Torrevieja, Spain” by Ralph (Ravi) Kayden©
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 3\. A quien madruga, Dios le ayuda
 
 **Literal translation:** God helps those who get up early.
@@ -182,9 +207,6 @@ _–_   _Me preocupa no haberlo hecho bien en el examen de ayer. Estaba realment
 
 _– ¡Buena suerte! No olvides que a quien madruga, Dios le ayuda._ (“Good luck! Don’t forget that God helps those who are determined to get the work done.”)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 4\. Como Pedro por su casa
 
 **Literal translation:** Like Pedro in his house.
@@ -201,6 +223,13 @@ _– Tu suegra lleva aquí un tiempo. Supongo que se siente cómoda aquí._ (“
 
 _– Si, como Pedro por su casa._ (“Yes, like Peter in his house.”)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Spanish sayings about animals
 
  Sayings about [animals are common in any language and Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) makes no exception. Here are some of the most common Spanish sayings about animals.
@@ -215,9 +244,6 @@ _– Si, como Pedro por su casa._ (“Yes, like Peter in his house.”)
 
 ![spanish idioms](https://edge.mondly.com/blog/wp-content/uploads/2021/05/spanish-idioms-960x720.jpg "17 Spanish Sayings That Will Make You Sound Like A Native 5")
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  “A man and his dog in San Sebastián, Spain” by Lucian Alexe©
 
 ### 2\. Más vale pájaro en mano que ciento volando
@@ -245,9 +271,6 @@ _– No es asunto tuyo. En boca cerrada no entran moscas._ (“It’s none of yo
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Speak Spanish fluently in just 10 minutes a day
 
  Do you want to see the Spanish sayings in action in real conversations? Get Mondly, the award-winning language learning app that will help you [speak Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) as if you were born in Madrid.
@@ -264,8 +287,6 @@ _– No es asunto tuyo. En boca cerrada no entran moscas._ (“It’s none of yo
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -273,4 +294,24 @@ _– No es asunto tuyo. En boca cerrada no entran moscas._ (“It’s none of yo
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-enhancing-digital-realism-through-intense-zooming/"><u>[Updated] 2024 Approved Enhancing Digital Realism Through Intense Zooming</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-circle-construction-techniques-for-the-aspiring-minecraft-artist-for-2024/"><u>[Updated] Circle Construction Techniques for the Aspiring Minecraft Artist for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-how-to-check-tiktok-video-copyright-before-uploading-for-2024/"><u>[Updated] How to Check Tiktok Video Copyright Before Uploading for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-decade-of-innovation-mondlybacks-filter-prowess/"><u>A Decade of Innovation: MondlyBack’s Filter Prowess</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/acer-aspire-e-15-top-pick-in-affordable-laptops/"><u>Acer Aspire E 15 - Top Pick in Affordable Laptops!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/audiovisual-german-lessons-through-dark-the-show/"><u>Audiovisual German Lessons Through Dark, The Show</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/basics-of-chinese-characters/"><u>Basics of Chinese Characters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beat-based-bilingualism-musics-role-in-language-development/"><u>Beat-Based Bilingualism: Music's Role in Language Development</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/becoming-bilingual-learn-german-from-dark-series/"><u>Becoming Bilingual: Learn German From 'Dark' Series</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/best-free-video-merger-software-without-watermarks/"><u>Best Free Video Merger Software Without Watermarks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breaking-linguistic-records-the-longest-word-story/"><u>Breaking Linguistic Records: The Longest Word Story</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/celebrating-a-decade-in-seven-years-mondlys-impact/"><u>Celebrating a Decade-in-Seven Years: Mondly's Impact</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/celebrating-the-last-10-years-of-mondlybutton/"><u>Celebrating the Last 10 Years of MondlyButton</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/critical-review-of-best-screen-capture-tools-in-linux-for-2024/"><u>Critical Review of Best Screen Capture Tools in Linux for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-resolving-faulty-airdrop-functionality-on-apple-devices/"><u>In 2024, Resolving Faulty Airdrop Functionality on Apple Devices</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/ultimate-fix-for-quick-signature-bg-disposal-for-2024/"><u>Ultimate Fix for Quick Signature BG Disposal for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/unlock-iphone-7-with-forgotten-passcode-different-methods-you-can-try-by-drfone-ios/"><u>Unlock iPhone 7 With Forgotten Passcode Different Methods You Can Try</u></a></li>
+</ul></div>
 

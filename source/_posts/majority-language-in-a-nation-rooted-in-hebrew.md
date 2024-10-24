@@ -1,7 +1,7 @@
 ---
 title: Majority Language in a Nation Rooted in Hebrew
-date: 2024-10-13T00:40:28.266Z
-updated: 2024-10-18T20:03:13.049Z
+date: 2024-10-19T16:23:16.060Z
+updated: 2024-10-24T16:17:35.604Z
 tags:
   - speak
   - english
@@ -27,16 +27,10 @@ thumbnail: https://thmb.techidaily.com/2fbc3e6f44db715797c33edc684fdec869f92d47c
  Although Hebrew can be seen and heard everywhere, Israel’s laws are officially published in Arabic and English as well. The same is true for most road signs, food labels, medicine brochures, safety regulations and messages published by the government.
 
 <!-- affiliate ads begin -->
-<span id="1374819">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Hebrew
@@ -57,6 +51,13 @@ thumbnail: https://thmb.techidaily.com/2fbc3e6f44db715797c33edc684fdec869f92d47c
 
  “Dome of the Rock, Jerusalem, Israel” by Stacey Franco©
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Russian
 
  When you asked yourself “what language is spoken in Israel?”, probably Russian wasn’t your first choice. However, over one million [Russian-speaking Israelis](https://en.wikipedia.org/wiki/Languages%5Fof%5FIsrael) make Russian the most widely spoken non-official language in the State of Israel. Following a mass Jewish immigration from the USSR in the 1970s and later, Israel became home to many Soviet Jews who fled Russia to escape anti-Semitic discrimination.
@@ -65,22 +66,15 @@ thumbnail: https://thmb.techidaily.com/2fbc3e6f44db715797c33edc684fdec869f92d47c
 
 So, as you can see, Russian is surprisingly widespread in Israel.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Other languages
 
  Other languages you’re likely to hear in Israel are Yiddish, French (which was used as a diplomatic language in Israel until the 1990s when the Israeli-French alliance was undermined), German, Spanish and Romanian.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Can you speak English in Israel?
@@ -99,10 +93,10 @@ So, as you can see, Russian is surprisingly widespread in Israel.
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
-  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Speak Hebrew or Arabic fluently in just 10 minutes a day
@@ -130,14 +124,14 @@ So, as you can see, Russian is surprisingly widespread in Israel.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/updated-crafting-a-powerful-earnings-strategy-on-the-vimeo-platform-for-2024/"><u>[Updated] Crafting a Powerful Earnings Strategy on the Vimeo Platform for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/8-life-altering-reasons-for-being-bilingual/"><u>8 Life-Altering Reasons for Being Bilingual</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/building-a-french-foundation-at-home/"><u>Building a French Foundation at Home</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/capture-the-scene-right-basic-cinematography-for-new-directors/"><u>Capture the Scene Right Basic Cinematography for New Directors</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/early-risers-late-sleepers-good-morning-in-10-different-languages/"><u>Early Risers, Late Sleepers: Good Morning In 10 Different Languages</u></a></li>
-<li><a href="https://games-able.techidaily.com/how-edge-outperforms-other-gaming-browsers/"><u>How Edge Outperforms Other Gaming Browsers</u></a></li>
-<li><a href="https://driver-download.techidaily.com/seamless-connectivity-with-easy-to-download-wireless-adapter-software/"><u>Seamless Connectivity with Easy-to-Download Wireless Adapter Software</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unveiling-the-silent-conversation-of-italian-hands/"><u>Unveiling the Silent Conversation of Italian Hands</u></a></li>
-<li><a href="https://discover-exclusive.techidaily.com/windows-11-blue-screen-error-0xc000000e/"><u>Windows 11 で発生する Blue Screen Error 0xC000000E - 説明と回復方法</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-beginners-guide-to-choosing-lenses-and-cameras-for-youtube-vloggers/"><u>[New] In 2024, Beginner's Guide to Choosing Lenses and Cameras for YouTube Vloggers</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-instagram-reels-harnessing-tiktok-secrets-for-popularity-surge/"><u>[Updated] Instagram Reels Harnessing TikTok Secrets for Popularity Surge</u></a></li>
+<li><a href="https://fox-links.techidaily.com/enhancing-digital-realism-through-intense-zooming/"><u>Enhancing Digital Realism Through Intense Zooming</u></a></li>
+<li><a href="https://win11.techidaily.com/how-to-uncover-missing-ubisoft-launcher/"><u>How To Uncover Missing Ubisoft Launcher</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/la-sequence-du-lundi-au-dimanche/"><u>La Séquence Du Lundi Au Dimanche</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-mastery-boosting-brain-power-and-social-connectivity/"><u>Language Mastery: Boosting Brain Power and Social Connectivity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/nombres-de-fauna-en-espanol-para-empezar/"><u>Nombres De Fauna en Español Para Empezar</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-dangers-of-shadowbanning-steps-to-skirt-around-it/"><u>The Hidden Dangers of Shadowbanning: Steps to Skirt Around It</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-3-language-learning-platforms-master-new-languages-easilyback-buttonfilter-button/"><u>Top 3 Language Learning Platforms: Master New Languages EasilyBack ButtonFilter Button</u></a></li>
 </ul></div>
 

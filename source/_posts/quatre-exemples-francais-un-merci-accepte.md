@@ -1,7 +1,7 @@
 ---
 title: "Quatre Exemples Français: Un 'Merci' Accepté"
-date: 2024-08-23T00:31:04.835Z
-updated: 2024-08-24T00:31:04.835Z
+date: 2024-10-17T16:15:55.412Z
+updated: 2024-10-24T17:45:30.560Z
 tags:
   - speak
   - english
@@ -46,20 +46,21 @@ thumbnail: https://thmb.techidaily.com/4b1ffe0e9ed18703ac5b5f01f74dc018a2d149745
 
 ![de rien](https://edge.mondly.com/blog/wp-content/uploads/2021/05/de-rien-960x540.jpg "4 Popular Ways To Say You’re Welcome In French 2")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  “Strasbourg, France” by Patrick Robert Doyle©
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 2\. The informal “you’re welcome”:_je t’en prie_
 
  Like_‘de rien’_ , which is certainly the most casual way to say you’re welcome in French, ‘_je t’en prie’_ is another informal way to respond to someone who expressed their gratitude towards you.
 
  It is most common amongst very close friends and family members. This particular form is most appropriate when you want to express a higher level of gratitude than_‘de rien’_ , but with somebody close to you, with whom your relationship is casual.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### The literal translation of_‘je t’en prie’_
 
  Essentially, the literal translation of ‘je t’en prie’ is ‘I pray you it’. Don’t look too far into this – it certainly doesn’t translate as such to French speakers!
@@ -69,6 +70,13 @@ thumbnail: https://thmb.techidaily.com/4b1ffe0e9ed18703ac5b5f01f74dc018a2d149745
  A:_Manon, merci d’avoir payé mon loyer cette semaine !_ (“Manon, thank you for paying my rent this week!”)
 
  B:_Je t’en prie !_ (“You’re welcome!”)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. The formal “you’re welcome”:_je vous en prie_
 
@@ -94,16 +102,17 @@ thumbnail: https://thmb.techidaily.com/4b1ffe0e9ed18703ac5b5f01f74dc018a2d149745
 
  “Southern France, Toulouse” by DAT VO©
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 ## 4\. The easiest to remember:_pas de problème_
 
  When you’re in the early stages of [learning French](https://travel-lingual.com/how-long-take-to-learn-french/) , sometimes the most sensible thing to do is use what you can remember. The word_‘problème’_ in this particular French expression resembles the English word ‘problem’ and should not be too difficult for you to learn. Be cautious of the [French grave accent](https://travel-lingual.com/french-accent-marks/) on the_‘e’_ as this alters the pronunciation of the word.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### The literal translation of_‘pas de problème’_
 
  We’re cheating a little here. Whilst this version is not a direct translation of “you’re welcome” in French, it is still very common in France when responding to somebody who has expressed gratitude. The literal translation (as you may have guessed) is “no problem”.
@@ -124,9 +133,6 @@ Example:
 
  Furthermore,_‘avec plaisir’_ is what you should use if you travel to southern France and want to sound like a local. It literally translates to “with pleasure”, but it is the French correspondent of “my pleasure”.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Which version of you’re welcome in French should you use and when?
 
  As with any language, it’s important to understand which form of an expression to use in the right context in order to avoid embarrassment in certain situations.
@@ -151,8 +157,12 @@ _Th_ _is post is delivered to you by James A. Smith._
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Speak French fluently in just 10 minutes a day
 
  **Do you want to [speak French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) like a fluent speaker?** Get Mondly, the award-winning language learning app that will help you speak French as if you were Paris-born.
@@ -169,8 +179,6 @@ _Th_ _is post is delivered to you by James A. Smith._
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -178,4 +186,20 @@ _Th_ _is post is delivered to you by James A. Smith._
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-guidance.techidaily.com/new-lens-legends-battle-sj6-versus-xiaomis-yi-4k-visionary/"><u>[New] Lens Legends Battle SJ6 Versus Xiaomi's Yi 4K Visionary</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-youtube-editing-competitors-ranked-top-5-non-youtube-sites-list/"><u>[New] YouTube Editing Competitors Ranked Top 5 Non-YouTube Sites List</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-jovial-jingles-a-compilation-of-easy-download-links/"><u>[Updated] Jovial Jingles A Compilation of Easy Download Links</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/bing-transformed-with-microsofts-artificial-intelligence/"><u>Bing Transformed with Microsoft’s Artificial Intelligence</u></a></li>
+<li><a href="https://howto.techidaily.com/calls-on-huawei-nova-y91-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Huawei Nova Y91 Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/charting-the-course-to-fluency-a-comparative-analysis/"><u>Charting the Course to Fluency: A Comparative Analysis</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquering-vietnamese-a-beginners-phrasebook/"><u>Conquering Vietnamese: A Beginner's Phrasebook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deconstructing-jargon-a-slang-dictionary-for-the-informal-age/"><u>Deconstructing Jargon: A Slang Dictionary for the Informal Age</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-german-a-list-of-convincing-reasons/"><u>Embrace German: A List of Convincing Reasons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/emotive-epics-celebrating-french-romance/"><u>Emotive Epics: Celebrating French Romance</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/stop-matching-siri-with-chatgpt-their-uniqueness-spotlighted/"><u>Stop Matching Siri with ChatGPT: Their Uniqueness Spotlighted</u></a></li>
+<li><a href="https://discover-forum.techidaily.com/tipps-und-tricks-um-ihre-iphone-nachrichten-auch-unter-windows-betriebssystem-zu-erhalten/"><u>Tipps Und Tricks, Um Ihre iPhone-Nachrichten Auch Unter Windows Betriebssystem Zu Erhalten</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577021074-top-ranked-non-native-language-classes-us/"><u>Top Ranked Non-Native Language Classes U.S.</u></a></li>
+</ul></div>
 

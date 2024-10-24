@@ -1,7 +1,7 @@
 ---
 title: Linguistic Kinship Between Uk & Russ
-date: 2024-08-23T00:31:27.900Z
-updated: 2024-08-24T00:31:27.900Z
+date: 2024-10-21T17:59:06.150Z
+updated: 2024-10-24T17:10:51.262Z
 tags:
   - speak
   - english
@@ -26,8 +26,6 @@ thumbnail: https://thmb.techidaily.com/5281e477545e1cb0cb8dd38cd4e46abb0b9705463
 
  Contrary to what some people believe, Ukrainian and Russian are not the same language. Despite sharing a common ancestor and the Cyrillic script, Ukrainian and Russian are two distinct languages. They are somehow similar, yes, but not one and the same. To help you understand the relationship between the two, we are going to look at their shared history and both their differences and similarities.
 
-
-
 ## Was Ukrainian really called Little Russian?
 
  In short, yes. The Ukrainian language was formerly called Little Russian, but the term is now considered pejorative. Let’s see how all the events leading to this name unfolded.
@@ -35,6 +33,13 @@ thumbnail: https://thmb.techidaily.com/5281e477545e1cb0cb8dd38cd4e46abb0b9705463
  First, you should know that [Ukrainian](https://www.britannica.com/topic/Ukrainian-language) , the same as Russian, is an East Slavic language of the Indo-European language family. Its origins can be traced back to the Old East Slavic language used in Kievan Rus between the 10th and the 13th century. After the fall of the Kievan Rus, the language developed into what was called the Ruthenian language. Along with it, in the territory of modern Ukraine, the Kyiv version of Church Slavonic was also used in liturgical services.
 
  From here on, there are several theories regarding the development of the Ukrainian language and its divergence from Russian, but what’s most important is that their common ancestor, Old East Slavic, spanned a territory hundreds of kilometers wide. Considering how other languages came to be and how much migration influences the process, it’s obvious that the separation happened gradually.
+
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
+  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### The development of the Ukrainian language after the 13th century
 
@@ -49,11 +54,15 @@ thumbnail: https://thmb.techidaily.com/5281e477545e1cb0cb8dd38cd4e46abb0b9705463
 
 !['Ukrainian language' by Gleb Albovsky©](https://edge.mondly.com/blog/wp-content/uploads/2022/03/ukrainian-language-960x600.jpg "Ukrainian And Russian: How Similar Are These Two Languages? 4")
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  As a result of Ukraine’s centuries-long political subordination, Ukrainian had almost no literary expression until de 18th century when the modern literary Ukrainian language was born.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ## The Russian language – a short history
 
  Russian, known as Русский язык (romanized:_Russkiy yazyk_) to Russians, is the official language of Russia, Belarus, Kazakhstan, and Kyrgyzstan and it is also used as a second language in other former Soviet countries. Additionally, Russian is one of the six official United Nations languages and the 8th most spoken language in the world with a total of 260 million speakers.
@@ -67,8 +76,12 @@ thumbnail: https://thmb.techidaily.com/5281e477545e1cb0cb8dd38cd4e46abb0b9705463
  Later, the Soviet period brought Russian worldwide prestige which declined after the 1991 collapse. Despite each USSR constituent republic having its own official language, Russian had a unified role and superior status. This is why there are so many people speaking Russian outside Russia.
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How similar are Ukrainian and Russian?
 
  The misconception that Russian and Ukrainian are the same sometimes stems from the fact that Russian is widely spoken in Ukraine. The numbers can differ slightly according to various sources, but it’s generally agreed that 60% of Ukrainians consider Ukrainian their native language, while 15% consider Russian to be their native language. Moreover, 22% consider both to be their native languages.
@@ -87,21 +100,10 @@ thumbnail: https://thmb.techidaily.com/5281e477545e1cb0cb8dd38cd4e46abb0b9705463
 
  Now that we’ve explained the history behind Ukrainian and Russian, it’s time to look at some more practical examples. A 62% lexical similarity may sound like a lot, but these two languages are not as similar as many might think. Here are some of the most important differences between Russian and Ukrainian.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Alphabet
 
  Both Ukrainian and Russian use the 33-letter [Cyrillic alphabet](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , but there are four letters in Ukrainian missing from Russian (ґ, є, і, ї), and four letters in Russian missing from Ukrainian (ё, ъ, ы, э).
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Vocabulary
 
  Learning Russian thinking you will easily understand Ukrainian it’s not a great strategy. While they share a lot of words, some of them are ‘false friends’ and can mean completely different things:
@@ -122,9 +124,6 @@ thumbnail: https://thmb.techidaily.com/5281e477545e1cb0cb8dd38cd4e46abb0b9705463
 
  Showing 1 to 6 of 6 entries
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 ### Sounds and pronunciation
 
  While to a non-trained ear Russian and Ukrainian might sound the same, they actually have several differences when it comes to pronunciation. For example, Ukrainian has a specific sound for “Г г” (similar to \[h\] in ‘aha!’) which Russian doesn’t have. For this letter, Russian uses the \[g\] sound which is similar to the ‘g’ in ‘go’ or ‘guard’. As a consequence, it’s very easy to differentiate a Ukrainian speaker from a Russian speaker as Ukrainians sometimes overlook the usage of \[g\] instead of \[h\].
@@ -137,8 +136,12 @@ thumbnail: https://thmb.techidaily.com/5281e477545e1cb0cb8dd38cd4e46abb0b9705463
 * Russian \[ы\] is deeper than Ukrainian \[и\] and Russian \[э\] is more open than Ukrainian \[е\].
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Grammar
 
  When it comes to grammar, Russian and Ukrainian have similar principles and categories:
@@ -180,8 +183,6 @@ thumbnail: https://thmb.techidaily.com/5281e477545e1cb0cb8dd38cd4e46abb0b9705463
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -189,4 +190,21 @@ thumbnail: https://thmb.techidaily.com/5281e477545e1cb0cb8dd38cd4e46abb0b9705463
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-direct-access-to-streams-how-to-download-youtube-videos-to-your-ios-device/"><u>[New] In 2024, Direct Access to Streams How to Download YouTube Videos to Your iOS Device</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-understanding-and-applying-luts-to-ae-projects/"><u>[New] Understanding and Applying LUTs to AE Projects</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-initiating-voice-transformations-with-minimal-effort-in-pubg-for-2024/"><u>[Updated] Initiating Voice Transformations with Minimal Effort in PUBG for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/anatomie-fundamentale-composants-du-corps-en-francais/"><u>Anatomie Fundamentale : Composants Du Corps en Français</u></a></li>
+<li><a href="https://techtrends.techidaily.com/bringing-the-web-to-your-living-room-screen-tips-and-tricks/"><u>Bringing the Web to Your Living Room Screen – Tips & Tricks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/converse-confidently-high-impact-linguistic-courses/"><u>Converse Confidently: High-Impact Linguistic Courses</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dannys-colombian-efforts-for-disadvantaged-communities/"><u>Danny's Colombian Efforts for Disadvantaged Communities</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/die-15-besten-abschiedsbittelemente-in-deutsch/"><u>Die 15 Besten Abschiedsbittelemente in Deutsch</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581666036-embracing-multilingualism-second-chances/"><u>Embracing Multilingualism: Second Chances</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-do-i-play-mkv-movies-on-xiaomi-redmi-k70e-by-aiseesoft-video-converter-play-mkv-on-android/"><u>How do I play MKV movies on Xiaomi Redmi K70E?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-x-to-other-iphone-13-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone X To Other iPhone 13 devices? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-changefake-your-oppo-a1x-5g-location-on-viber-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Fake Your Oppo A1x 5G Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/spotify-keeps-crashing-a-complete-list-of-fixes-you-can-use-on-samsung-galaxy-a25-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Spotify Keeps Crashing A Complete List of Fixes You Can Use on Samsung Galaxy A25 5G | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-ultimate-tech-list-for-learners-9-key-gadgets-that-enhance-your-educational-journey/"><u>The Ultimate Tech List for Learners: 9 Key Gadgets That Enhance Your Educational Journey</u></a></li>
+</ul></div>
 

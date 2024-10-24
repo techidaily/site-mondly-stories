@@ -1,7 +1,7 @@
 ---
 title: "Global Impact on Eng: Linguistic Adoption and Lexicon Expansion"
-date: 2024-08-23T00:32:06.328Z
-updated: 2024-08-24T00:32:06.328Z
+date: 2024-10-18T16:52:34.699Z
+updated: 2024-10-24T17:42:19.010Z
 tags:
   - speak
   - english
@@ -28,8 +28,6 @@ thumbnail: https://thmb.techidaily.com/ceeb71131f67470128687850a84b0078790624844
 
  Of course, this story is far from true, but that doesn’t mean it won’t help you remember how the modern English vocabulary came to be. Unexpected connections are a good strategy for remembering new things. Anyway, enough storytelling for now. Let’s see what common words English “took” from other languages.
 
-
-
 ## Where did English Come From?
 
  The earliest forms of English, collectively known as Old English or Anglo-Saxon, developed from the North Sea Germanic languages that came to Britain between the mid-5th and 7th centuries AD. This linguistic influence made its way to Britain through the migration of the Anglo-Saxons from what is now northwest Germany, southern Denmark, and the Netherlands.
@@ -39,6 +37,13 @@ thumbnail: https://thmb.techidaily.com/ceeb71131f67470128687850a84b0078790624844
  Early Modern English began in the late 15th century with the Renaissance trend of borrowing Latin and Greek words and roots, which also coincided with the Great Vowel Shift. The era culminated in the King James Bible and the works of William Shakespeare.
 
  While the question may sound funny (“where did English come from?”), it is a popular inquiry among Google users for obvious reasons. After all, 1.3 billion people worldwide speak English either natively or as a second language. It’s only natural for them to be curious about the origin of the English language.
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## English Words from Foreign Languages
 
@@ -88,8 +93,12 @@ thumbnail: https://thmb.techidaily.com/ceeb71131f67470128687850a84b0078790624844
  With Mondly, English mastery is at your fingertips – and in your native tongue. Start today ![Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-9827&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-9827%26mt%3D8)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## French loanwords: English words that are actually French
 
 | Ballet       |
@@ -118,9 +127,6 @@ thumbnail: https://thmb.techidaily.com/ceeb71131f67470128687850a84b0078790624844
 
  Did you know that approximately**30% of the English vocabulary** consists of words that have their origins in**French and Latin** ? Considering that French was the language of the English king and his court for over 300 years, it’s no surprise. During that time, as many as 10,000 French loanwords came into English.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Spanish loanwords: English words that are actually Spanish
 
 | Chinchilla |
@@ -143,9 +149,6 @@ thumbnail: https://thmb.techidaily.com/ceeb71131f67470128687850a84b0078790624844
 
  Unlike French loanwords which have been adapted into British English, most of the**Spanish loanwords entered English via the North American English route.** Cultural exchanges between [Spanish-speaking](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and English-speaking communities led to an influx of loanwords related to food and music in particular. For example, words like “guacamole”, “salsa” and “piñata” have been borrowed into English from Spanish due to the popularity of the Mexican culture in the United States.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Italian loanwords: English words that are actually Italian
 
 | Zucchini  |
@@ -175,8 +178,12 @@ thumbnail: https://thmb.techidaily.com/ceeb71131f67470128687850a84b0078790624844
  Thanks to Italy’s cultural influence throughout history, especially during the Renaissance period, many languages borrowed its words. Italian words related to art, music, architecture and cuisine have an especially high predominance in the English vocabulary.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## German loanwords: English words that are actually German
 
 | Pretzel      |
@@ -202,8 +209,12 @@ thumbnail: https://thmb.techidaily.com/ceeb71131f67470128687850a84b0078790624844
  Some of the first German words were borrowed into English during the interactions between Germanic-speaking tribes and English-speaking communities in early medieval Europe. Words related to everyday life, family, and community were among the earliest borrowings. Later, thanks to Germany’s influence in various fields, English borrowed German words related to science and technology, music, philosophy, literature and engineering.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Understanding the Size of the English Vocabulary
 
  How many words are there in English? Many sources agree that**the English language consists of roughly 470,000 words.** However, most linguists advise to take that with a pinch of salt. While some words have become obsolete, new additions are always making their way into the English vocabulary, so it’s difficult to put our finger on an exact number. Then, there’s also the question of different variations of a single word like “go”, “went”, “gone”. Do we count that as a single word or as three separate ones?
@@ -253,8 +264,6 @@ Coming Soon
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -262,4 +271,22 @@ Coming Soon
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-affordable-path-to-4k-top-budget-cameras-(1k/"><u>[New] 2024 Approved Affordable Path to 4K Top Budget Cameras (<$1K)</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-advanced-computers-at-your-fingertips-for-2024/"><u>[Updated] Advanced Computers at Your Fingertips for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-ensuring-accurate-iphone-photo-archive-in-snapchat-for-2024/"><u>[Updated] Ensuring Accurate iPhone Photo Archive in Snapchat for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-initiate-your-journey-into-asmr-filming-essential-insights-revealed/"><u>[Updated] In 2024, Initiate Your Journey Into ASMR Filming – Essential Insights Revealed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580724314-age-defying-linguistic-ambitions-achieved/"><u>Age-Defying Linguistic Ambitions Achieved</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/best-techniques-for-acquiring-finnish-language-skills-virtually/"><u>Best Techniques for Acquiring Finnish Language Skills Virtually</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/echoes-from-olympus-the-lingual-journey-of-greeks/"><u>Echoes From Olympus: The Lingual Journey of Greeks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effortless-mastery-of-latin-via-internet-portal/"><u>Effortless Mastery of Latin via Internet Portal</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embark-on-the-path-of-mondly-expertise-today/"><u>Embark on the Path of Mondly Expertise Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580908859-exclusive-free-access-to-mondly-premium/"><u>Exclusive Free Access to Mondly Premium!</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/fast-facial-masking-on-piscart-a-convenient-guide-for-2024/"><u>Fast Facial Masking on PiscArt A Convenient Guide for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-exit-android-factory-mode-on-honor-x50-gt-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Exit Android Factory Mode On Honor X50 GT? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-whatsapp-messages-on-samsung-galaxy-a24-without-them-knowing-drfone-by-drfone-virtual-android/"><u>How to Track WhatsApp Messages on Samsung Galaxy A24 Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://media-tips.techidaily.com/play-anywhere-with-aceplayer-get-your-free-download-for-ultimate-streaming-fun/"><u>Play Anywhere with AcePlayer: Get Your Free Download for Ultimate Streaming Fun!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719575582823-unlock-slovak-speech-one-quick-session-at-a-time/"><u>Unlock Slovak Speech, One Quick Session at a Time</u></a></li>
+</ul></div>
 

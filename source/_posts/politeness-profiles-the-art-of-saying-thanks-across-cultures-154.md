@@ -1,7 +1,7 @@
 ---
 title: "Politeness Profiles: The Art of Saying Thanks Across Cultures (154)"
-date: 2024-10-11T16:14:47.217Z
-updated: 2024-10-18T22:46:45.255Z
+date: 2024-10-18T17:03:52.288Z
+updated: 2024-10-24T16:39:41.439Z
 tags:
   - speak
   - english
@@ -59,10 +59,10 @@ thumbnail: https://thmb.techidaily.com/fae766879cd08ae756a7af9db37ac778f5fbfa89e
  “Thanks” by Hanny Naibaho©
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
+  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The origin of saying “thank you”
@@ -89,10 +89,10 @@ thumbnail: https://thmb.techidaily.com/fae766879cd08ae756a7af9db37ac778f5fbfa89e
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## From 0 to conversational in over 40 languages
@@ -125,22 +125,20 @@ thumbnail: https://thmb.techidaily.com/fae766879cd08ae756a7af9db37ac778f5fbfa89e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/updated-compress-iphone-videos-how-to-shorten-without-quality-loss/"><u>[Updated] Compress iPhone Videos How to Shorten Without Quality Loss</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-social-snippets-showcase-twitters-trending-threads/"><u>[Updated] In 2024, Social Snippets Showcase Twitter’s Trending Threads</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-render-photos-add-inward-radiant-spread-in-photoshop/"><u>[Updated] Render Photos Add Inward Radiant Spread in Photoshop</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/amorates-anthology-flirtatious-italian-sayings/"><u>Amorate’s Anthology: Flirtatious Italian Sayings</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/breaking-through-chatgpts-token-ceiling-barrier/"><u>Breaking Through ChatGPT’s Token Ceiling Barrier</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/brief-cinematic-chronicle-for-2024/"><u>Brief Cinematic Chronicle for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/decoding-english-grammar-an-in-depth-look-at-contractions/"><u>Decoding English Grammar: An In-Depth Look at Contractions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581141446-experience-hindi-like-never-before-8-fantastic-mondly-reasons/"><u>Experience Hindi Like Never Before: 8 Fantastic Mondly Reasons</u></a></li>
-<li><a href="https://discover-extraordinary.techidaily.com/guerison-de-donnees-avec-des-lignes-de-commande-ou-scripts-batch/"><u>Guérison De Données Avec Des Lignes De Commande Ou Scripts Batch</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719577485164-learn-japanese-numbers-in-just-10-minutes/"><u>Learn Japanese Numbers In Just 10 Minutes!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-collaborates-with-pearson-study-network/"><u>Mondly Collaborates With Pearson Study Network</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-unveils-its-innovative-question-and-answer-space/"><u>Mondly Unveils Its Innovative Question & Answer Space</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/optimal-online-strategies-for-language-acquisition/"><u>Optimal Online Strategies for Language Acquisition</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/the-ultimate-guide-to-increasing-traffic-with-powerful-social-media-videos/"><u>The Ultimate Guide to Increasing Traffic with Powerful Social Media Videos</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/this-innovative-virtual-reality-app-helps-you-learn-a-foreign-language-in-a-fun-way/"><u>This Innovative Virtual Reality App Helps You Learn a Foreign Language in a Fun Way</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/top-15-ultimate-destinations-for-live-football-matches-streaming/"><u>Top 15 Ultimate Destinations for Live Football Matches Streaming</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-performance-tracking-with-garmin/"><u>Top Performance Tracking with Garmin</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-bring-out-clarity-in-low-light-iphone-recordings/"><u>[New] Bring Out Clarity in Low-Light iPhone Recordings</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-fixed-shorts-no-more-hidden-content/"><u>[Updated] 2024 Approved Fixed Shorts - No More Hidden Content</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-discover-the-most-reliable-royalty-free-audio-libraries/"><u>[Updated] In 2024, Discover the Most Reliable Royalty-Free Audio Libraries</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-syncing-your-live-obs-content-with-fb-network-for-2024/"><u>[Updated] Syncing Your Live OBS Content with FB Network for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-elgato-drivers-instantly-a-simple-tutorial/"><u>Download Elgato Drivers Instantly: A Simple Tutorial</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/happy-fourth-a-tapestry-of-global-languages/"><u>Happy Fourth: A Tapestry of Global Languages</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-refining-shots-with-gopros-advanced-color-tools/"><u>In 2024, Refining Shots with GoPro's Advanced Color Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-linguistic-trials-top-exam-preparation-tips/"><u>Mastering Linguistic Trials: Top Exam Preparation Tips</u></a></li>
+<li><a href="https://win-great.techidaily.com/microsofts-new-strategy-a-sign-of-growing-anxiety-reactions-from-the-tech-community-zdnet/"><u>Microsoft's New Strategy: A Sign of Growing Anxiety? Reactions From the Tech Community [ZDNet]</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-below-is-a-get-starting-guide-for-wevideo-follow-it-to-easily-create-videos-online/"><u>New 2024 Approved Below Is a Get-Starting Guide for WeVideo. Follow It to Easily Create Videos Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polyglot-playbook-mastering-language-through-deep-learning/"><u>Polyglot Playbook: Mastering Language Through Deep Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/reimagine-education-mondly-unleashes-ar-in-language-instruction/"><u>Reimagine Education: Mondly Unleashes AR in Language Instruction</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seamless-conversations-starter-pack-27-key-french-phrases/"><u>Seamless Conversations Starter Pack: 27 Key French Phrases</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/troubleshooting-mir4-software-glitches-on-windows-computers/"><u>Troubleshooting MIR4 Software Glitches on Windows Computers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/uniting-linguistic-threads-on-teachers-day/"><u>Uniting Linguistic Threads on Teacher's Day</u></a></li>
 </ul></div>
 

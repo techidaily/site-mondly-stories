@@ -1,7 +1,7 @@
 ---
 title: Ye Olde Piratical Verbal Currency
-date: 2024-08-23T00:29:01.254Z
-updated: 2024-08-24T00:29:01.254Z
+date: 2024-10-19T17:48:40.459Z
+updated: 2024-10-24T18:09:25.006Z
 tags:
   - speak
   - english
@@ -28,6 +28,19 @@ thumbnail: https://thmb.techidaily.com/071483303e8a1f6026bf0da4b7a67ab78d5daef3d
 
  Over the years, the idea gained a lot of notoriety and is now celebrated internationally by people and brands everywhere. For example, in 2008, to celebrate the day, Facebook introduced a pirate-translated version of its website.
 
+<!-- affiliate ads begin -->
+<span id="1516072">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The pirate accent: how to talk like a pirate
 
  **Arr! All right, ye’ bilge rat! It’s time to teach ye’ how to talk like a real pirate!**
@@ -40,9 +53,6 @@ thumbnail: https://thmb.techidaily.com/071483303e8a1f6026bf0da4b7a67ab78d5daef3d
 
 Easy peasy, ain’t it?
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Pirate lingo: useful pirate words and phrases
 
  Here are some nautical pirate phrases to help you get into character easier:
@@ -71,8 +81,12 @@ Easy peasy, ain’t it?
  Arr! Is Talk Like a Pirate Day one of the best parodic holidays ever or what? Not even [World Chocolate Day](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) sounds as good as talking like a pirate all day long with ye’ maties.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Avast, ye! Pirates have discovered a new way to learn languages
 
  **If ye’ wish to learn a new language to help you in yer sea voyages, try [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-3348&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-3348&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-3348) , the language learnin’ app every buccaneer will enjoy!**
@@ -80,16 +94,17 @@ Easy peasy, ain’t it?
 ![jack sparrow](https://media.giphy.com/media/LrIA0CryFKvN6/giphy.gif "How To Talk Like A Pirate: 20 Pirate Words 4")
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<a href="https://appsumo.8odi.net/c/5597632/2151872/7443" target="_top" id="2151872">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151872" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151872/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fahoy-its-talk-like-a-pirate-day-arr%2F&t=How+to+Talk+Like+a+Pirate%3A+20+Pirate+Words "Share on Facebook")
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ## Ahoy! Get your language skills to the next level
 
 [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-3348&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-3348&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-3348) is a pocket-held language tutor that allows you to put your brain on autopilot and enjoy the sail to fluency in 33 languages.
@@ -97,15 +112,17 @@ Easy peasy, ain’t it?
  By combining solid neural science, cutting edge technologies, bite-sized Daily Lessons and a gamified experience guaranteed to make you addicted to learning languages, Mondly gets you fluent faster than you could ever imagine. Every true pirate loves it ![Learn a new language now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-3348&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-3348%26utm%5Fsource%3Dblog-post-id-3348&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-3348%26utm%5Fsource%3Dblog-post-id-3348&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-3348%26utm%5Fsource%3Dblog-post-id-3348&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-3348%26mt%3D8 "Learn a new language now")
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -114,4 +131,20 @@ Easy peasy, ain’t it?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-free-software-leaders-in-chromebook-screen-recording-for-2024/"><u>[New] Free Software Leaders in Chromebook Screen Recording for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-from-idea-to-live-stream-a-comprehensive-guide-for-instagram-and-obs-users/"><u>[New] In 2024, From Idea to Live Stream A Comprehensive Guide for Instagram & OBS Users</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-cut-the-cost-not-the-creativity-best-free-editing-tools-top-9/"><u>2024 Approved Cut The Cost, Not The Creativity Best Free Editing Tools (Top 9)</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-image-ingenuity-funnyflick-studio/"><u>2024 Approved Image Ingenuity FunnyFlick Studio</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breaking-language-barriers-with-top-9-difficult-dialects/"><u>Breaking Language Barriers with Top 9 Difficult Dialects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprendre-lanatomie-fondamentale-parts-of-the-body-en-francais/"><u>Comprendre L'Anatomie Fondamentale: Parts of the Body en Français</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/demystifying-vpns-understanding-their-role-in-protecting-your-digital-life/"><u>Demystifying VPNs: Understanding Their Role in Protecting Your Digital Life</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/digital-learning-for-real-romanians/"><u>Digital Learning for Real Romanians</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/edge-off-your-windows-11-desktop/"><u>Edge Off Your Windows 11 Desktop</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580281495-embark-on-an-enlightening-journey-in-hindi-top-8-reasons-to-select-mondlys-learning-platform/"><u>Embark on an Enlightening Journey in Hindi: Top 8 Reasons to Select Mondly's Learning Platform!</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/is-buying-a-ps5-worthwhile-explore-4-convincing-arguments-for-joining-the-playstation-revolution/"><u>Is Buying a PS5 Worthwhile? Explore 4 Convincing Arguments for Joining the PlayStation Revolution</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-experts-rate-apple-ipad-pro-11-as-the-pinnacle-of-performance-in-2018/"><u>Why Experts Rate Apple iPad Pro (11) as the Pinnacle of Performance in 2018</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/zmi-powerpack-2nkw-comprehensive-examination-of-this-compact-energy-solution/"><u>ZMI PowerPack 2nkW - Comprehensive Examination of This Compact Energy Solution</u></a></li>
+</ul></div>
 

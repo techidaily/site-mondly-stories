@@ -1,7 +1,7 @@
 ---
 title: GSL Innovation Unveiled - The Pearson & Mondly Duo
-date: 2024-08-23T00:26:39.643Z
-updated: 2024-08-24T00:26:39.643Z
+date: 2024-10-19T18:24:13.952Z
+updated: 2024-10-24T17:45:36.370Z
 tags:
   - speak
   - english
@@ -30,6 +30,13 @@ thumbnail: https://thmb.techidaily.com/60c674fe13d2acd35556279ca564158ce88f6acfb
 
  Unlike other frameworks that describe language proficiency in broad bands, the GSE offers a finely-grained scale. It identifies what a learner can accomplish at each point across speaking, listening, reading, and writing skills. This unique approach motivates learners by offering a more detailed view of their progression.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Introducing the Global Scale of Languages (GSL)**
 
 Building on this solid foundation, **Pearson has now introduced the Global Scale of Languages (GSL).**
@@ -39,24 +46,29 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
  By placing languages on a common scale, underpinned by a common set of Learning Objectives, the GSL can ensure comparability across languages to bring greater clarity and simplicity to language learning.
 
 <!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **How Pearson created the GSL**
 
  Building on the GSE, our research team at Pearson decided to prove that this scale could also be transferable to other languages. The study’s results were not only encouraging but groundbreaking. The research confirmed that the GSE is directly transferable to other languages, making it possible for Pearson to develop the new GSL framework.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **Why the GSL stands out**
 
 * **Unparalleled insights:**  Going a step beyond traditional language measurement tools like the CEFR, the GSL provides a more detailed understanding of a learner’s skills through extensive global research.
 * **Confidence in clarity:**  The GSL enables learners to pinpoint their strengths in reading, writing, listening, and speaking with a straightforward 10-90 scale. This level of clarity fosters motivation and boosts learners’ confidence.
 * **Personalized learning pathways:**  With clear objectives at each scale point, the GSL ensures a learning journey tailored to individual goals, making progression more efficient.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Why start with French, Spanish, and Italian?**
 
  These three languages, rich in history and culture, have always been popular choices among our learners. We believe that by integrating GSL with these languages first, we can enhance the learning experience for a larger number of our users.
@@ -65,10 +77,6 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 
  As a Mondly user immersing in these languages, you can expect a fresh content approach, and a progressively structured layout.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Language learning backed by unparalleled global research**
 
  Our integration with the GSL reaffirms our commitment to providing an unmatched learning experience.
@@ -81,8 +89,12 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **Fast-track your progress with Mondly by Pearson**
 
  Whether you’re passionate about French, Spanish, Italian or English, Mondly now offers an enhanced learning journey backed by the precision of the GSL. Celebrate this European Day of Languages by diving into the world of languages with newfound clarity and insight.
@@ -95,8 +107,6 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -104,4 +114,18 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/updated-how-to-convert-twitter-videos-to-gifs-in-2024/"><u>[Updated] How To Convert Twitter Videos To GIFS, In 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-smart-shoppers-guide-to-inexpensive-recording-gear/"><u>[Updated] In 2024, Smart Shopper's Guide to Inexpensive Recording Gear</u></a></li>
+<li><a href="https://win11.techidaily.com/a-guide-to-fixing-windows-lsass-components-issue/"><u>A Guide to Fixing Windows Lsass Components Issue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/greeting-globetrotters-10-languages-one-sunrise-message/"><u>Greeting Globetrotters: 10 Languages, One Sunrise Message</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-xs-max-to-other-iphone-12-pro-max-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone XS Max to other iPhone 12 Pro Max devices? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/is-the-samsung-un65nu8000fxza-overpriced-a-comprehensive-tv-showdown/"><u>Is the Samsung UN6^5NU8000FXZA Overpriced? A Comprehensive TV Showdown!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-leads-the-augmented-reality-in-language-classes/"><u>Mondly Leads the Augmented Reality in Language Classes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/most-extended-term-exploration-initiative/"><u>Most Extended Term Exploration Initiative</u></a></li>
+<li><a href="https://location-social.techidaily.com/set-your-preferred-job-location-on-linkedin-app-of-your-itel-p40plus-drfone-by-drfone-virtual-android/"><u>Set Your Preferred Job Location on LinkedIn App of your Itel P40+ | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/universal-unlock-pattern-for-infinix-hot-30-5g-by-drfone-android/"><u>Universal Unlock Pattern for Infinix Hot 30 5G</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/unlocking-secure-dvds-made-easy-unveiling-the-best-8-techniques-and-5-free-alternatives/"><u>Unlocking Secure DVDs Made Easy: Unveiling the Best 8 Techniques and 5 Free Alternatives</u></a></li>
+</ul></div>
 

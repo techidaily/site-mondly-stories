@@ -1,7 +1,7 @@
 ---
 title: Unveiling Israel’s Mainstream Tongue
-date: 2024-08-23T00:30:37.199Z
-updated: 2024-08-24T00:30:37.199Z
+date: 2024-10-22T18:07:28.224Z
+updated: 2024-10-24T18:47:27.788Z
 tags:
   - speak
   - english
@@ -17,8 +17,6 @@ thumbnail: https://thmb.techidaily.com/b513a033c1a351aae3735f8454f39fad640e39163
 ## Unveiling Israel’s Mainstream Tongue
 
  Home to three major religions (Judaism, Christianity and Islam), Israel is just as diverse when it comes to languages. Therefore, it’s not a matter of “what language is spoken in Israel”, but of which**_are_** **_the languages_** spoken in Israel.
-
-
 
  Following a tumultuous and often violent history, the nation of Israel now has a [population](https://en.wikipedia.org/wiki/Israel#Demographics) of more than 9 million people. Out of this, 74.2% are Jews, 20.9% Arabs and 4.8% are Christians and people who have no religion listed in the civil registry. Despite the cultural diversity, almost the entire population speaks Hebrew, the country’s official language, either as a first or second language. However, this is not the full story of the languages of Israel. Let’s take a closer look at the country’s current linguistic landscape.
 
@@ -37,8 +35,12 @@ thumbnail: https://thmb.techidaily.com/b513a033c1a351aae3735f8454f39fad640e39163
  Modern Hebrew is what you’ll hear on [the streets of Israel](https://link.springer.com/referenceworkentry/10.1007%2F978-3-030-02438-3%5F125) (and what you can [learn with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5614&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5614?mother%5Flang=en%5Fus?target%5Flang=he&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5614?mother%5Flang=en%5Fus?target%5Flang=he) ) and premodern Hebrew is now used only for prayer or study in Jewish communities.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Arabic
 
  Although Arabic is [no longer an official language](https://www.csmonitor.com/World/Middle-East/2018/0917/Why-Arabic-is-flowering-in-Israel-even-as-it-s-officially-demoted) in Israel, it has a special status under Israeli law and it is spoken by Israeli Muslims, Christians and Druze, as well as by Jews who originate from Arab countries.
@@ -49,9 +51,6 @@ thumbnail: https://thmb.techidaily.com/b513a033c1a351aae3735f8454f39fad640e39163
 
  “Dome of the Rock, Jerusalem, Israel” by Stacey Franco©
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Russian
 
  When you asked yourself “what language is spoken in Israel?”, probably Russian wasn’t your first choice. However, over one million [Russian-speaking Israelis](https://en.wikipedia.org/wiki/Languages%5Fof%5FIsrael) make Russian the most widely spoken non-official language in the State of Israel. Following a mass Jewish immigration from the USSR in the 1970s and later, Israel became home to many Soviet Jews who fled Russia to escape anti-Semitic discrimination.
@@ -61,15 +60,23 @@ thumbnail: https://thmb.techidaily.com/b513a033c1a351aae3735f8454f39fad640e39163
 So, as you can see, Russian is surprisingly widespread in Israel.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Other languages
 
  Other languages you’re likely to hear in Israel are Yiddish, French (which was used as a diplomatic language in Israel until the 1990s when the Israeli-French alliance was undermined), German, Spanish and Romanian.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Can you speak English in Israel?
 
  **Yes, you can. A high percentage of Israelis can understand and speak English on at least a basic level.**
@@ -86,8 +93,18 @@ So, as you can see, Russian is surprisingly widespread in Israel.
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Speak Hebrew or Arabic fluently in just 10 minutes a day
 
  Do you want to speak Hebrew fluently fast? Or maybe Arabic? Get Mondly, the award-winning language learning app that will help you speak a new language in just 10 minutes a day.
@@ -104,8 +121,6 @@ So, as you can see, Russian is surprisingly widespread in Israel.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -113,4 +128,17 @@ So, as you can see, Russian is surprisingly widespread in Israel.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/updated-how-to-use-zoom-webinars-beginners-guide/"><u>[Updated] How to Use Zoom Webinars [Beginner’s Guide]</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-top-rated-switch-capture-cards-revealed-for-2024/"><u>[Updated] Top-Rated Switch Capture Cards Revealed for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/6-must-see-danish-productions-boosting-language-gain/"><u>6 Must-See Danish Productions Boosting Language Gain</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conhecer-gritos-de-saudade-todas-as-formas-do-portugues/"><u>Conhecer Gritos De Saudade: Todas as Formas Do Português</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-deep-into-bulgarian-language-10mday/"><u>Dive Deep Into Bulgarian Language - 10M/Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/educational-snacking-excellence-by-mondly-kids-honored-on-google-play-2017/"><u>Educational Snacking Excellence by Mondly Kids, Honored on Google Play 2017</u></a></li>
+<li><a href="https://fox-sys.techidaily.com/guia-paso-a-paso-respaldo-de-archivos-al-disco-duro-exterior-en-windows-10/"><u>Guía Paso a Paso: Respaldo De Archivos Al Disco Duro Exterior en Windows 10</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-filming-techniques-for-high-quality-facebook-video-content/"><u>In 2024, Filming Techniques for High-Quality Facebook Video Content</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-the-essentials-to-establish-a-singular-hashtag-on-tiktok/"><u>In 2024, The Essentials to Establish a Singular Hashtag on TikTok</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/learn-how-to-lock-stolen-your-iphone-12-pro-max-properly-drfone-by-drfone-ios/"><u>Learn How To Lock Stolen Your iPhone 12 Pro Max Properly | Dr.fone</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Global Vernacular Intersections with English
-date: 2024-10-11T21:17:48.284Z
-updated: 2024-10-18T23:28:12.955Z
+date: 2024-10-19T17:42:02.405Z
+updated: 2024-10-24T18:25:05.489Z
 tags:
   - speak
   - english
@@ -38,6 +38,13 @@ thumbnail: https://thmb.techidaily.com/6eaa3e36b8ce62866baa3f0397f35b108aa431d0b
 
  While the question may sound funny (“where did English come from?”), it is a popular inquiry among Google users for obvious reasons. After all, 1.3 billion people worldwide speak English either natively or as a second language. It’s only natural for them to be curious about the origin of the English language.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## English Words from Foreign Languages
 
 1. Guru (Sanskrit)
@@ -73,6 +80,13 @@ thumbnail: https://thmb.techidaily.com/6eaa3e36b8ce62866baa3f0397f35b108aa431d0b
 
 ![English foreign words](https://edge.mondly.com/blog/wp-content/uploads/2024/01/english-foreign-words-600x600.png "100+ English Words Borrowed From Other Languages 4")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Although we usually call them “borrowed words”, these are also known as loanwords. According to Oxford Languages,**a loanword** is_“a word adopted from a foreign language with little or no modification”_ . The transition from one language to another can happen through:
 
 * **Transcription,** which means borrowing words while preserving their original pronunciation in the borrowed language;
@@ -81,22 +95,15 @@ thumbnail: https://thmb.techidaily.com/6eaa3e36b8ce62866baa3f0397f35b108aa431d0b
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "100+ English Words Borrowed From Other Languages 5")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Improve your English fast 🚀
 
  With Mondly, English mastery is at your fingertips – and in your native tongue. Start today ![Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-9827&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-9827%26mt%3D8)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## French loanwords: English words that are actually French
@@ -126,13 +133,6 @@ thumbnail: https://thmb.techidaily.com/6eaa3e36b8ce62866baa3f0397f35b108aa431d0b
 | Gourmet      |
 
  Did you know that approximately**30% of the English vocabulary** consists of words that have their origins in**French and Latin** ? Considering that French was the language of the English king and his court for over 300 years, it’s no surprise. During that time, as many as 10,000 French loanwords came into English.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Spanish loanwords: English words that are actually Spanish
 
@@ -185,10 +185,10 @@ thumbnail: https://thmb.techidaily.com/6eaa3e36b8ce62866baa3f0397f35b108aa431d0b
  Thanks to Italy’s cultural influence throughout history, especially during the Renaissance period, many languages borrowed its words. Italian words related to art, music, architecture and cuisine have an especially high predominance in the English vocabulary.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## German loanwords: English words that are actually German
@@ -273,20 +273,18 @@ Coming Soon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-stream.techidaily.com/new-guffaw-generation-generating-7-hilarious-video-moments-online/"><u>[New] Guffaw Generation Generating 7 Hilarious Video Moments Online</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-mastering-skewed-imagery-texts-for-2024/"><u>[New] Mastering Skewed Imagery Texts for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-customize-video-speed-to-match-your-desired-watch-time-for-2024/"><u>[Updated] Customize Video Speed to Match Your Desired Watch Time for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-unlocking-the-power-of-visual-storytelling-on-instagram/"><u>2024 Approved Unlocking the Power of Visual Storytelling on Instagram</u></a></li>
-<li><a href="https://driver-error.techidaily.com/correcting-errors-with-enex-driver-not-loading-in-win11/"><u>Correcting Errors with eNEX Driver Not Loading in Win11</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cutting-edge-systems-for-effective-language-study/"><u>Cutting-Edge Systems for Effective Language Study</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discover-basic-sound-structures-in-german-language/"><u>Discover Basic Sound Structures in German Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-croatian-language-skills-for-cultural-immersion-success/"><u>Essential Croatian Language Skills for Cultural Immersion Success!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/heres-how-to-use-mondly-and-get-the-best-out-of-it/"><u>Here’s How To Use Mondly And Get The Best Out Of It</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-apple-iphone-13-passcode-screen-by-drfone-ios/"><u>How to Unlock Apple iPhone 13 Passcode Screen?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-korean-at-your-fingertips-discover-6-online-goldmines/"><u>Mastering Korean at Your Fingertips - Discover 6 Online Goldmines</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/navigating-through-the-advantages-and-disadvantages-of-a-local-llm-choice/"><u>Navigating Through The Advantages And Disadvantages Of A Local LLM Choice</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pasos-para-saber-los-dias-de-la-semana-en-espanol/"><u>Pasos Para Saber Los Días De La Semana en Español</u></a></li>
-<li><a href="https://win-luxury.techidaily.com/schritt-fur-schritt-anleitung-zum-offnen-von-windows-10-wiederherstellungsmodus-fur-sysrepair/"><u>Schritt-Für-Schritt Anleitung Zum Öffnen Von Windows 10 Wiederherstellungsmodus Für SysRepair</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/worldwide-words-in-english-language-mergers-over-time/"><u>Worldwide Words in English: Language Mergers Over Time</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-and-oculus-quest-bridging-cultural-communication-in-vr/"><u>'Mondly' & Oculus Quest: Bridging Cultural Communication in VR</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-enhance-your-game-with-this-superb-cost-free-sound-altering-app/"><u>[New] In 2024, Enhance Your Game with This Superb, Cost-Free Sound Altering App</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-budget-friendly-sky-vault-optimal-large-file-haven/"><u>2024 Approved Budget-Friendly Sky Vault Optimal Large File Haven</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/discover-the-best-4k-capture-software-for-live-recording-for-2024/"><u>Discover the Best 4K Capture Software for Live Recording for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-and-update-guide-intel-wi-fi-ax200-ac-9560-network-adapter-drivers/"><u>Download and Update Guide: Intel Wi-Fi AX200 (AC 9560) Network Adapter Drivers</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/effective-strategies-getting-chatgpt-assistance-with-automotive-modifications/"><u>Effective Strategies: Getting ChatGPT Assistance with Automotive Modifications</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/1723808009592-how-to-update-directx-in-windows-11-and-10-quickly-and-easily/"><u>How To Update DirectX In Windows 11 & 10. Quickly & Easily!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/initiating-dialogue-the-key-to-fluent-chatting-mandarin/"><u>Initiating Dialogue: The Key to Fluent Chatting Mandarin</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-to-fluency-no-cost-resources-in-online-japanese-studies/"><u>Journey to Fluency: No Cost Resources in Online Japanese Studies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-expressions-of-affection/"><u>Linguistic Expressions of Affection</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/start-chatting-across-cultures-at-just-475-percent-more/"><u>Start Chatting Across Cultures at Just 4.75 Percent More!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-union-of-mondly-and-pearson-in-filtering-technology/"><u>The Union of Mondly and Pearson in Filtering Technology</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/transforming-spotify-playlist-streams-into-desktop-documents-a-complete-walkthrough/"><u>Transforming Spotify Playlist Streams Into Desktop Documents - A Complete Walkthrough</u></a></li>
 </ul></div>
 

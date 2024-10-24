@@ -1,7 +1,7 @@
 ---
 title: Learning the Language of Chinese Scripts
-date: 2024-08-23T00:30:02.286Z
-updated: 2024-08-24T00:30:02.286Z
+date: 2024-10-22T18:29:40.610Z
+updated: 2024-10-24T18:31:59.863Z
 tags:
   - speak
   - english
@@ -48,9 +48,6 @@ thumbnail: https://thmb.techidaily.com/90ad0e184ba79f95e662dd6bac421c2714531f47a
 
 ![chinese characters](https://edge.mondly.com/blog/wp-content/uploads/2020/06/chinese-characters-600x402.jpg "Quick Introduction To The Chinese Alphabet, Chinese Characters And Pinyin 2")
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
  Chinese antique calligraphic text
 
  Then, in the early 20th century, written vernacular Chinese based on the Beijing dialect was introduced as the new official written language instead of Classical Chinese. People often refer to this standard language as Mandarin because it is based on the Mandarin dialect of Beijing. Thus, Standard Chinese or Mandarin now fulfills the role that Classical Chinese used to fulfill as the official written language that’s used by speakers of all varieties of Chinese.
@@ -63,9 +60,6 @@ thumbnail: https://thmb.techidaily.com/90ad0e184ba79f95e662dd6bac421c2714531f47a
 
  Don’t worry though. There is also good news for us, Chinese beginners! Speakers of all varieties of Chinese typically write in [Standard Chinese](https://en.wikipedia.org/wiki/Standard%5FChinese) even though their spoken language is different. Of course, they’ll pronounce each character in their local variety of Chinese but use the Standard Chinese characters. Nevertheless, you should also note that Chinese languages are often different in terms of grammar and vocabulary. So whatever variety of Chinese you choose to learn, it’s best to stick to it until the end so you won’t get confused.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Two different systems for writing Chinese characters
 
  And when you thought it gets easier… it gets complicated again. Luckily, you were born in the right century and there are smart language learning apps such as [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5327&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5327?mother%5Flang=en%5Fus?target%5Flang=zh&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5327?mother%5Flang=en%5Fus?target%5Flang=zh) that can help you learn Chinese easier.
@@ -77,8 +71,12 @@ thumbnail: https://thmb.techidaily.com/90ad0e184ba79f95e662dd6bac421c2714531f47a
  Despite the obvious differences between the two systems, literate native speakers generally have no problem reading either of them.
 
 <!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Don’t forget about pronunciation
 
  All Chinese varieties or languages – however you want to refer to them – are tonal languages. In other terms, the meaning of a word depends on the tone or the tones that you say it with. Unfortunately for us, those not used to tonal languages, if you change the tone, the meaning of the word can change entirely. That’s why it is always important to give some context.
@@ -88,8 +86,18 @@ thumbnail: https://thmb.techidaily.com/90ad0e184ba79f95e662dd6bac421c2714531f47a
  Do we see why it is so crucial for you to pay attention to tones and pronunciation from your very first [Chinese lesson](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ?
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How many Chinese Characters does the Chinese alphabet have?
 
  Many people ask this question because they want an overview of how much will they have to study or simply out of curiosity. However, since there is no Chinese alphabet, there is no definite answer. But there are some statistics that will probably give you an idea.
@@ -99,23 +107,30 @@ thumbnail: https://thmb.techidaily.com/90ad0e184ba79f95e662dd6bac421c2714531f47a
 ![written Chinese](https://edge.mondly.com/blog/wp-content/uploads/2020/06/written-chinese-600x450.jpg "Quick Introduction To The Chinese Alphabet, Chinese Characters And Pinyin 3")
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  “Written Chinese” by Cherry Lin
 
  But how many Chinese characters really are there? Well, this is a whole other story. The Great Compendium of Chinese Characters or the_Hànyǔ dà zìdiǎn_ (汉语大字典) has**54,678 characters** . Absolutely incredible number. But wait because The Dictionary of Chinese Variant Form or the_Zhōnghuá zì hǎi_ (中华字海) has no less than…**106,230 characters!**
 
  Don’t let those numbers scare you though. If you really want to do this and you are passionate enough, learning Chinese won’t be about numbers, but about how accomplished you’ll feel when you’ll learn something new.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
 ## What is Pinyin?
 
  Pinyin or [Hanyu Pinyin](https://en.wikipedia.org/wiki/Pinyin) (汉语拼音) is for Chinese what [rōmaji is for Japanese](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Meaning –**the official romanization system for Standard Chinese.** In other words, Pinyin uses the Latin alphabet to tell you exactly how to pronounce Chinese characters. It even includes diacritics to indicate tones, so if you don’t necessarily need to learn written Chinese and its many characters, Pinyin is a great way to get going.
 
  All you’ll need to do when working with Pinyin is get English out of your mind. As tempted as you’ll be to pronounce the sounds you already know in a way you are familiar with, don’t forget you are learning Chinese. And Chinese has little to nothing in common to English when it comes to pronunciation.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How do you learn the Chinese alphabet?
 
@@ -131,15 +146,25 @@ thumbnail: https://thmb.techidaily.com/90ad0e184ba79f95e662dd6bac421c2714531f47a
 
 ![chinese writing system](https://edge.mondly.com/blog/wp-content/uploads/2020/06/chinese-writing-system-600x400.jpg "Quick Introduction To The Chinese Alphabet, Chinese Characters And Pinyin 4")
 
+<!-- affiliate ads begin -->
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  “Wusheng Temple, Taiwan” by Henry & Co.©
 
 ## 10 Chinese characters you can learn right now
 
  Now that you know what to expect if you do decide to learn Chinese, let’s move from theory to practice with a quick Chinese lesson. Here are ten of the most commonly used Chinese characters:
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 的 de – used to indicate possession
 
  这是我**的** 朋友。- _Zhè shì wǒ**de** péngyou_ – This is**my** friend.
@@ -147,6 +172,13 @@ thumbnail: https://thmb.techidaily.com/90ad0e184ba79f95e662dd6bac421c2714531f47a
 ### 一 yī – “one”, “once”, “single”, “first, ”best“, “a little”
 
  再来**一** 轮酒！- _Zàilái**yī** lún jiǔ!_ –**One** more round!
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 是 shì – to be (used to link two nouns together)
 
@@ -157,17 +189,18 @@ thumbnail: https://thmb.techidaily.com/90ad0e184ba79f95e662dd6bac421c2714531f47a
  今天我**不** 工作。- _Jīntiān wǒ**bù** gōngzuò._ – I am**not** working today.
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 了 le – modal verb particle
 
  Used to indicate the completion of an activity or the change in a situation. It doesn’t really have an equivalent in English.
 
  现在太晚**了** 。- _Xiànzài tài wǎn**le** ._ – Now it’s not too late.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 人 rén – man, person, people
 
  我们的客人是友好的**人** 。- _Wǒmen de kèrén shì yǒuhǎo de**rén** ._ – Our neighbors are nice**people** .
@@ -181,8 +214,12 @@ thumbnail: https://thmb.techidaily.com/90ad0e184ba79f95e662dd6bac421c2714531f47a
  你**在** 哪里生活？- _Nǐ**zài** nǎlǐ shēnghuó?_ – Where do you live?
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 有 yǒu – to have, there is, there are, to exist
 
  你**有** 一张城市地图吗？- _Nǐ**yǒu** yī zhāng chéngshì dìtú ma?_ – Do you**have** a city map?
@@ -212,8 +249,6 @@ thumbnail: https://thmb.techidaily.com/90ad0e184ba79f95e662dd6bac421c2714531f47a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -221,4 +256,26 @@ thumbnail: https://thmb.techidaily.com/90ad0e184ba79f95e662dd6bac421c2714531f47a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-a-detailed-walkthrough-for-crafting-and-changing-your-videos-covers-on-facebook/"><u>[Updated] In 2024, A Detailed Walkthrough for Crafting and Changing Your Videos' Covers on Facebook</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-optimal-audibility-techniques-to-enhance-recording-quality/"><u>[Updated] Optimal Audibility Techniques to Enhance Recording Quality</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581170012-96-off-for-lifetime-access-learn-a-new-language-today-at-black-friday-prices/"><u>96%‌ OFF For Lifetime Access: Learn A New Language Today At Black Friday Prices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ais-impact-on-teaching-and-linguistic-mastery/"><u>AI's Impact on Teaching and Linguistic Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprende-a-agradecernos-con-60-nombres-hispanohablantes/"><u>Aprende a Agradecernos Con 60 Nombres Hispanohablantes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bilingualism-in-action-turkey-and-korea/"><u>Bilingualism in Action: Turkey & Korea</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/common-language-pitfalls-navigating-the-top-100-mispronunciations/"><u>Common Language Pitfalls: Navigating the Top 100 Mispronunciations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effective-expression-premier-communication-curriculum/"><u>Effective Expression: Premier Communication Curriculum</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevate-your-speaking-skills-mondlys-newest-linguistic-toolkit/"><u>Elevate Your Speaking Skills: Mondly’s Newest Linguistic Toolkit</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-linguistic-diversity-in-a-new-dimension-mondly-vr-experience/"><u>Embrace Linguistic Diversity in a New Dimension - Mondly VR Experience</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/enhanced-audio-sensations-sony-style/"><u>Enhanced Audio Sensations, Sony Style</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-migrate-android-data-from-vivo-y100a-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Migrate Android Data From Vivo Y100A to New Android Phone? | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-a-connoisseurs-guide-to-the-very-best-10-vectors-pix/"><u>In 2024, A Connoisseur's Guide to the Very Best 10 Vectors Pix</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-ispoofer-is-not-working-on-motorola-moto-g34-5g-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, iSpoofer is not working On Motorola Moto G34 5G? Fixed | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-is-a-sim-network-unlock-pin-get-your-google-pixel-7a-phone-network-ready-by-drfone-android/"><u>In 2024, What Is a SIM Network Unlock PIN? Get Your Google Pixel 7a Phone Network-Ready</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580458829-initiate-your-french-phonetic-journey-today/"><u>Initiate Your French Phonetic Journey Today!</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/master-the-proper-technique-for-handling-iphones-and-airpods-effectively-insights/"><u>Master The Proper Technique for Handling iPhones & AirPods Effectively Insights</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/quick-steps-for-a-functional-windows-11-search-interface/"><u>Quick Steps for a Functional Windows 11 Search Interface</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-in-2024-easy-steps-to-create-intro-video-with-after-effects/"><u>Updated In 2024, Easy Steps to Create Intro Video with After Effects</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Vocal Voyage: Irish, Scottish, and Aussie Rhythmic Riffs Uncovered"
-date: 2024-08-23T00:30:19.445Z
-updated: 2024-08-24T00:30:19.445Z
+date: 2024-10-18T18:05:13.162Z
+updated: 2024-10-24T18:46:41.144Z
 tags:
   - speak
   - english
@@ -20,8 +20,6 @@ thumbnail: https://thmb.techidaily.com/250f73dd4b9929867a630f9b8f32aa45e2b59d5ca
 
  Well, somewhere over**40 english accents in the United Kingdom** , but worldwide we can’t know for sure. As the saying goes “so many countries, so many customs”, so it’s fairly difficult to point the finger at one number. Maybe even you have your own English accent. But that doesn’t stop us from putting together a list of the most notable English accents of the worl…_uhm,_ universe. From [British to American](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and even Aussie accent, let’s make the**English accents** inventory and find out how many ways of speaking English are there (at least roughly).
 
-
-
 ## What is an accent?
 
 [Lexico](https://www.lexico.com/definition/accent) explains that an accent is “a distinctive way of pronouncing a language, especially one associated with a particular country, area, or social class”. Interesting, isn’t it? That is why you and maybe some of your friends in a particular area can create a new**English accent** of your own.
@@ -32,6 +30,19 @@ thumbnail: https://thmb.techidaily.com/250f73dd4b9929867a630f9b8f32aa45e2b59d5ca
 
 ![english acceents](https://media.giphy.com/media/26BRCiSRp6d8j86rK/giphy.gif "English Accents: From Queen’s English To Aussie 9")
 
+<!-- affiliate ads begin -->
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## British Accent
 
  Oh, the Brits! Judging by the**British English** accent you think they use, they are so royal, so sophisticated – or as they would presumably say – so_posh_ . But in reality, things are not entirely so. As we already hinted, the UK is incredibly rich in accents. Not everybody speaks British English like Benedict Cumberbatch or Martin Freeman. No, sir. A single British accent does not exist.
@@ -40,9 +51,6 @@ thumbnail: https://thmb.techidaily.com/250f73dd4b9929867a630f9b8f32aa45e2b59d5ca
 
  Let’s get down to work and review some of the most notable [British accents](https://oxfordhousebcn.com/en/a-brief-guide-to-different-british-accents-and-dialects/) you need to know from the British Isles and Ireland.
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Received Pronunciation or Queen’s English
 
  If you are not a Brit but tried to put on a**British accent** at some point, the RP accent is most certainly what you were going for. Also known as the Queen’s/Kings’s English or Oxford English, RP is the closest you can get to a “standard accent” in the UK.
@@ -52,6 +60,13 @@ thumbnail: https://thmb.techidaily.com/250f73dd4b9929867a630f9b8f32aa45e2b59d5ca
  To hear RP in action, watch a lot of BBC or travel to Oxford, Cambridge, or Brighton and chat with the locals.
 
 ![british accent](https://edge.mondly.com/blog/wp-content/uploads/2020/11/british-accent-960x640.jpg "English Accents: From Queen’s English To Aussie 10")
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  “All things British” by Aron Van de Pol©
 
@@ -65,9 +80,6 @@ thumbnail: https://thmb.techidaily.com/250f73dd4b9929867a630f9b8f32aa45e2b59d5ca
 
  To hear the Cockney accent in action, watch the movie Snatch – specifically Jason Statham’s character.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
 ### Brummie Accent
 
 Awww, doesn’t “Brummie” sound really cute?
@@ -76,16 +88,33 @@ Awww, doesn’t “Brummie” sound really cute?
 
 ![British accent](https://media.giphy.com/media/l3mZpcNC69UuXjoME/giphy-downsized-large.gif "English Accents: From Queen’s English To Aussie 11")
 
+<!-- affiliate ads begin -->
+<span id="1977020">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  But I guess it’s true what they say: he who laughs last, laughs best. Now the Brummie accent has millions of fans all over the world because everybody wants to speak – and dress – like Tommy Shelby.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Scottish Accent
 
  Born from the language contact between Scots and the Standard English of England in the late 1700s, the Scottish accent is a rhotic accent. This means that the “r” is pronounced and rolled. Additionally, this accent is also characterized by elongated vowel sounds and the glottal stop (the letter “t” is not pronounced between vowels).
 
  To hear the Scottish accent in action, you can take a trip to Edinburgh, Glasgow, or watch the animated movie Brave which features multiple types of Scottish accents.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Yorkshire Accent
 
@@ -98,24 +127,29 @@ Awww, doesn’t “Brummie” sound really cute?
 ![british english](https://edge.mondly.com/blog/wp-content/uploads/2020/11/british-english-960x640.jpg "English Accents: From Queen’s English To Aussie 12")
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  “Edinburgh, Scotland, UK” by Micheile Henderson©
 
  Because this accent has roots in Old English and is influenced by Old Norse, the language of the [Vikings](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , you’ll hear it used in many fantasy TV shows such as Game of Thrones.
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Northern Irish Accent
 
  If you watched at least one episode of Outlander, the Northern Irish accent will probably be your favorite on this list. Once you get to know Jamie Fraser and his lads, you can’t help but try to imitate their way of speaking.
 
  Distinctive thanks to its often funny slang (“wee” means “small”, “lassie” means “young girl”), Northern Irish was influenced by the lowland Scots language and is characterized by an exaggerated “r”, especially at the end of some sentences.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
-<!-- affiliate ads end -->
 ### Welsh Accent
 
  Officially a country of its own, Wales also has a different language which heavily influences the Welsh English dialect. As you may expect, this is especially true in households where English is the second language and people speak it with a thick and breathy accent.
@@ -125,8 +159,12 @@ Awww, doesn’t “Brummie” sound really cute?
 58 letters and 19 syllables long, this the [longest place name](https://en.wikipedia.org/wiki/Llanfairpwllgwyngyll) in Europe and the second-longest official one-word place name in the world. To all the Welsh people out there, if you can [pronounce](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) this, you have my deepest respect.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### West Country Accent
 
  The West Country English accent is used by the native population of South West England, the area which includes the counties of Cornwall, Devon, Dorset, Somerset, Wiltshire, the City of Bristol, and Gloucestershire.
@@ -155,16 +193,10 @@ Awww, doesn’t “Brummie” sound really cute?
 
  Most American speakers use the rhotic accent and the only traditionally non-rhotic regional American accents are spoken in eastern New England and New York City. But let’s dive in and give a little more detail. Here are the most notable**North American English accents** :
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### **General English American Accent**
 
  This is the “standard” American English spoken by TV actors, new presenters, and a percentage of middle-class Americans;
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **New England Accent**
 
  This includes but is not limited to _(is also present in Eastern Massachusetts, Rhode Island, Maine, Eastern New Hampshire, and Eastern Connecticut)_ the classic Boston accent. As already mentioned, unlike other American English accents, this one is characterized by non-rhoticity. Hence the famous phrase “pahk the cah in Hahvahd Yahd” (“Park the car in Harvard Yard”);
@@ -190,21 +222,22 @@ Coming Soon
 * **Midwestern American accent** – made famous by the film “Fargo”, this accent is mostly present in Minnesota, North Dakota, and a few areas in Iowa. I for one can already hear actress Frances McDormand speaking. Can you?
 * **Midland and Western American dialect** – because they cover a large amount of territory, it is fairly difficult to pin down one prominent feature;
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Canadian English Accents
 
 * **Central Canadian accent** – fairly similar to General American accent;
 * **Eastern Canadian accent** – as these territories were first settled by Scottish and Irish people, many of the present-day accents maintain some of the European features of their “cousins”. The most notable is the Newfoundland Dialect, which in some cases sounds much more like an Irish accent than a North American one.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Australian English Accent
 
  When compared to British English accents, the**Australian accent** is even more homogeneous than the North American English accents. In fact, there are only three main varieties of Australian English: Broad Australian, General Australian, and Cultivated Australian. If you want to broaden your vocabulary with some fun Aussie slang, check out our article [right here](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## New Zealand English Accent
 
  Additionally, New Zealand Accent is very similar to Australian accents. The only difference is the presence of three “clipped” vowels: “i”, “e” and “a” which are close to \[ɨ\], \[ɪ\] and \[ɛ\] respectively rather than \[ɪ\], \[ɛ\] and \[æ\].
@@ -219,18 +252,6 @@ Coming Soon
 
  And don’t forget: there’s no such thing as “the best English accent”. Being good, bad, better or the best depends on where you are in the world. Of course, if you decide to live in the US, the General American Accent would be better, but most people won’t mind if you speak English your own way.
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### What is the most common English accent?
 
  The most common English accent varies depending on the context and region. In terms of global recognition, Received Pronunciation (RP) or Standard British English is often perceived as the "standard" accent due to its historical prestige. However, within specific countries like the United States or Australia, regional accents may be more prevalent.
@@ -262,8 +283,6 @@ English mastery is at your fingertips – and in your native tongue.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -271,4 +290,23 @@ English mastery is at your fingertips – and in your native tongue.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-the-essential-guide-to-creating-stunning-boomerangs/"><u>[New] In 2024, The Essential Guide to Creating Stunning Boomerangs</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-quick-click-quest-the-art-of-facebook-id-reconnaissance/"><u>[Updated] Quick Click Quest The Art of Facebook ID Reconnaissance</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-unleashing-virality-steps-to-skyrocket-your-instagram-content-for-2024/"><u>[Updated] Unleashing Virality Steps to Skyrocket Your Instagram Content for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-unveiling-the-secrets-of-mobile-monetization-on-youtube-for-creators/"><u>[Updated] Unveiling the Secrets of Mobile Monetization on YouTube for Creators</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-must-know-gestures-for-understanding-italians-better/"><u>10 Must-Know Gestures for Understanding Italians Better</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/6-uncharted-advantages-of-multilingualism/"><u>6 Uncharted Advantages of Multilingualism</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/command-the-room-with-these-powerful-50-latin-maxims/"><u>Command the Room with These Powerful 50 Latin Maxims</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conversational-charm-loves-language-in-france/"><u>Conversational Charm: Love's Language in France</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daily-dose-speedy-urdu-education/"><u>Daily Dose: Speedy Urdu Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-the-maximum-molecular-moniker/"><u>Discovering the Maximum Molecular Moniker</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/emblematic-italian-hands-everyday-expressions/"><u>Emblematic Italian Hands: Everyday Expressions</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-migrate-android-data-from-realme-c67-5g-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Migrate Android Data From Realme C67 5G to New Android Phone? | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-four-essential-tips-for-acquiring-youtube-srt/"><u>In 2024, Four Essential Tips for Acquiring YouTube SRT</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-a-vivo-y78t-easily-by-drfone-android/"><u>In 2024, How To Unlock a Vivo Y78t Easily?</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-best-free-avi-merger-tools-combine-avi-videos-with-ease/"><u>New In 2024, Best Free AVI Merger Tools Combine AVI Videos with Ease</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/ultra-30-camera-detailed-review-of-the-garmin-virb/"><u>Ultra 30 Camera Detailed Review of the Garmin VIRB</u></a></li>
+</ul></div>
 

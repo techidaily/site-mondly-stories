@@ -1,7 +1,7 @@
 ---
 title: Spanish Numbers 1-10 Explained
-date: 2024-08-23T00:31:33.697Z
-updated: 2024-08-24T00:31:33.697Z
+date: 2024-10-19T17:04:43.875Z
+updated: 2024-10-24T18:32:16.530Z
 tags:
   - speak
   - english
@@ -35,6 +35,13 @@ thumbnail: https://thmb.techidaily.com/3b4fc9801ceec8439e874198c6f456d3f60986d5a
  Until then, here’s cool audio of a fluent speaker pronouncing the Spanish numbers 1 to 10:
 
 **Good to know:** _uno_becomes an article and changes to_un_if it’s in front of a noun. For example,_un cerdo_translates to “a pig” in English.
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Spanish numbers to 40
 
@@ -71,9 +78,12 @@ thumbnail: https://thmb.techidaily.com/3b4fc9801ceec8439e874198c6f456d3f60986d5a
  As you can see, up to 30 (“thirty”), the numbers are bound together, but from there on they part ways to make counting in Spanish even easier for you. Basically, you won’t say “thirty-one”, but “thirty**and** one”:_treinta y uno_ .
 
 <!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Count to 100 in Spanish
 
  As we already settled, counting in Spanish is all about mastering the basics. Now that you know how to count to 40, counting to 100 in Spanish is a piece of cake. Just learn the tens and you are ready to go.
@@ -104,8 +114,12 @@ DbSchema database designer for all databases, schema design in the team, schema 
 * 98 –_noventa y ocho_
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Spanish numbers to 1000 and beyond
 
  Hundreds shouldn’t scare you either. They are just as simple. Once you know how the hundreds are, you’ll also know the numbers in between.
@@ -144,8 +158,12 @@ Here are some more examples:
 ![count in Spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/07/count-in-spanish-960x663.jpg "Spanish Numbers: How To Count Numbers In Spanish 4")
 
 <!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Barcelona, Spain
 
  If you want to go even further, thousands and millions work exactly like in English: number +_mil_ (“thousand”) or_millón_ (“million”). Here are some examples:
@@ -186,8 +204,6 @@ Here are some more examples:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -195,4 +211,24 @@ Here are some more examples:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/evenue-revolution-leveraging-the-youtube-premium-opportunity/"><u>[New] Revenue Revolution Leveraging the YouTube Premium Opportunity</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-over-120-creative-snapchat-narratives-for-standout-personal-branding/"><u>[Updated] 2024 Approved Over 120 Creative Snapchat Narratives for Standout Personal Branding</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-from-backyard-blogs-to-billion-sub-youtube-channel/"><u>[Updated] From Backyard Blogs to Billion-Sub YouTube Channel</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-skyrocketing-sales-how-ad-revenue-transforms-youtube-videos/"><u>[Updated] Skyrocketing Sales How Ad Revenue Transforms YouTube Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/15-premier-words-of-the-planet/"><u>15 Premier Words of the Planet</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-how-to-amplify-in-game-voices-naturally-step-by-step-process-for-free-fire-players/"><u>2024 Approved How to Amplify In-Game Voices Naturally Step-by-Step Process for Free Fire Players</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ace-languages-premier-examinations-and-prep-strategies/"><u>Ace Languages: Premier Examinations and Prep Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/amplify-advocacy-through-advanced-corporate-language-learning/"><u>Amplify Advocacy Through Advanced Corporate Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apple-commends-mondly-securing-10th-spot-on-education-panel/"><u>Apple Commends Mondly, Securing 10Th Spot on Education Panel</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/becoming-a-language-prodigy-best-certification-pathways/"><u>Becoming a Language Prodigy: Best Certification Pathways</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bring-everywhere-you-go-huawei-plus-mondly/"><u>Bring Everywhere You Go - Huawei + Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/desarrollo-de-comprension-animales-espanoles/"><u>Desarrollo De Comprensión: Animales Españoles</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/empowering-students-integrating-apple-technology-with-mondly/"><u>Empowering Students, Integrating Apple Technology with Mondly</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/free-web-based-video-slicer-effortlessly-cut-footage-directly-in-browser-without-any-charge/"><u>Free Web-Based Video Slicer - Effortlessly Cut Footage Directly In Browser Without Any Charge</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-free-youtube-earning-predictors/"><u>In 2024, Free YouTube Earning Predictors</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-from-frame-to-phrase-expertly-ranked-29-video-translators-on-the-market/"><u>In 2024, From Frame to Phrase Expertly Ranked 29 Video Translators on the Market</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/maximize-sound-select-apps-that-push-volumes-above-100-in-windows/"><u>Maximize Sound: Select Apps That Push Volumes Above 100% in Windows</u></a></li>
+</ul></div>
 

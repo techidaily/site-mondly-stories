@@ -1,7 +1,7 @@
 ---
 title: Worldwide Observance of Thanksgiving Holiday
-date: 2024-08-23T00:33:05.292Z
-updated: 2024-08-24T00:33:05.292Z
+date: 2024-10-23T16:05:00.559Z
+updated: 2024-10-24T18:10:22.536Z
 tags:
   - speak
   - english
@@ -26,8 +26,6 @@ thumbnail: https://thmb.techidaily.com/7dc1f793da1f2b9c448c995323e3532e944d03082
 
  Due to popular culture, Thanksgiving may seem profoundly American. If you are living in a country that doesn’t celebrate Thanksgiving, you probably have the wrong idea that this is an all-American holiday. And that’s perfectly understandable. Every year, you see at least one movie scene that features a happy family enjoying a bountiful dinner made of stuffed turkey and mashed potatoes. Nevertheless, celebrating gratitude is more universal than you think.
 
-
-
  Even some European countries celebrate Thanksgiving. The best example is Germany, which celebrates Erntedankfest (’harvest thanks festival’) on the first Sunday of October. So no, Thanksgiving is not just an American holiday. Similar celebrations take place all around the world – from Canada to Japan and even Liberia.
 
  Let’s learn more about these celebrations and discover seven of the most surprising countries that celebrate Thanksgiving (besides the US).
@@ -46,9 +44,6 @@ thumbnail: https://thmb.techidaily.com/7dc1f793da1f2b9c448c995323e3532e944d03082
 
  Unlike the North American festivities, in rural Germany, Austria, and Switzerland, Erntedankfest is a more public celebration with musical performances, dancing, fireworks, and – you guessed it: food. In some places, churches are decored with autumn crops and during the day, people participate in religious processions or parades.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## 3\. The Netherlands
 
  Ok, this is not entirely true. Not all Dutch people celebrate Thanksgiving, just this city called Leiden.
@@ -56,8 +51,12 @@ thumbnail: https://thmb.techidaily.com/7dc1f793da1f2b9c448c995323e3532e944d03082
  The interesting thing is that the Thanksgiving celebration in Leiden has everything to do with the United States celebration. According to the [Smithsonian Magazine](https://www.smithsonianmag.com/smart-news/they-celebrate-american-thanksgiving-in-the-netherlands-140671441/) , the well-known Pilgrims that feasted with the Wampanoags in 1621, started as a group of English religious separatists that fled England following king James’ persecution. Before heading to the New World, many of these Pilgrims lived in Leiden for about 11 years, until 1620\. The rest is history.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 4\. Grenada
 
  Although it rhymes with Canada, you should know that Grenada is actually a Caribbean country and its Thanksgiving celebration is one of the youngest in the world. Every year, on the 25th of October, Grenadians commemorate the events that took place in 1983, when Grenada’s deputy prime minister executed the prime minister and seized the power. Only nine days later, the United States military came to the rescue and restored order in a matter of weeks.
@@ -69,15 +68,16 @@ thumbnail: https://thmb.techidaily.com/7dc1f793da1f2b9c448c995323e3532e944d03082
  “Thanksgiving turkey” by Claudio Schwarz©
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 5\. Japan
 
  勤労感謝の日 (’Kinrō Kansha no Hi’) has roots in 新嘗祭 (Niiname-sai), the ancient Shinto rice harvest ceremony and it’s celebrated annually on the 23rd of November. Known today as ‘Labor Thanksgiving Day’, the celebration has lost some of its original meaning and is regarded now as an occasion for commemorating labor and reflecting on issues that impact the community, such as the environment and human rights.
 
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 6\. Liberia
 
  Formerly a colony of the American Colonization Society, Liberia declared [its independence](https://www.history.com/this-day-in-history/liberian-independence-proclaimed) in 1947 and became the first democratic republic in African history.
@@ -85,8 +85,12 @@ thumbnail: https://thmb.techidaily.com/7dc1f793da1f2b9c448c995323e3532e944d03082
  However, the freed slaves from the United States who returned to the country around 1820, brought something back from the US: the Thanksgiving celebration. By the 1880s, it was declared a national holiday and nowadays, Liberia is probably the only other country in the world that celebrates the American Thanksgiving.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 7\. the United Kingdom
 
  Yes, Thanksgiving is celebrated in the United Kingdom. Similar to the Erntedankfest celebration in German-speaking countries, Thanksgiving in the UK is actually a [Harvest Festival](https://en.wikipedia.org/wiki/Harvest%5Ffestival) held in late September or early October.
@@ -94,12 +98,12 @@ thumbnail: https://thmb.techidaily.com/7dc1f793da1f2b9c448c995323e3532e944d03082
  During pre-Christian times in Britain, the Saxons would offer the first sheaf of cereals to fertility gods then come together and celebrate the harvest with a supper. Many traditions remained even though Christianity arrived in Britain so the present-day Harvest Festival is celebrated even by churches.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 8\. Brazil
 
  This is kind of a funny one. Apparently, sometime in the 1940s, Brazilian ambassador Joaquim Nabuco returned home from a trip to the US very enthusiastic about the commemorations he saw in St. Patrick’s Cathedral on Thanksgiving Day. So he suggested to President Gaspar Dutra to institute the celebration in Brazil as well.
@@ -132,8 +136,6 @@ No advertising on the website.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -141,4 +143,26 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://mondly-stories.techidaily.com/1719576468399-2022-start-fluently-with-a-95-off-language-quest/"><u>2022: Start Fluently with a 95% Off Language Quest!</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-twittableplustumble-posting-videos-easily/"><u>2024 Approved Twittable+Tumble Posting Videos Easily</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/50-years-of-europes-voices-celebrating-linguistic-babel/"><u>50 Years of Europe’s Voices - Celebrating Linguistic Babel</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-new-lexicon-unfolds-at-mondlylanguages-visionary-journey/"><u>A New Lexicon Unfolds at MondlyLanguages - Visionary Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/advantages-in-two-languages-the-top-6/"><u>Advantages in Two Languages: The Top 6</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/break-language-barriers-with-love-this-february/"><u>Break Language Barriers with Love This February</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-influences-on-american-vs-british-slang/"><u>Cultural Influences on American vs British Slang</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580629507-fluent-in-just-a-few-weeks-learn-tagalog-fast/"><u>Fluent in Just a Few Weeks? Learn Tagalog Fast</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/vlogger-to-earnest-by-year-end-following-sourav-joshis-examples/"><u>From Vlogger to Earnest by Year End - Following Sourav Joshi's Examples</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/guide-to-fix-team-share-on-pc/"><u>Guide to Fix Team Share on PC</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-sign-out-of-apple-id-from-apple-iphone-11-pro-without-password-by-drfone-ios/"><u>How to Sign Out of Apple ID From Apple iPhone 11 Pro without Password?</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-excellent-gopro-video-processing-systems/"><u>In 2024, Excellent GoPro Video Processing Systems</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-infinix-note-30-vip-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Infinix Note 30 VIP to New Android? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-vivo-y100-5g-drfone-by-drfone-virtual-android/"><u>Methods to Change GPS Location On Vivo Y100 5G | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/mirrorless-mastery-10-best-stabilizing-choices/"><u>Mirrorless Mastery 10 Best Stabilizing Choices</u></a></li>
+<li><a href="https://extra-support.techidaily.com/premium-free-mobile-photography-tools-for-slow-movement-effect-for-2024/"><u>Premium Free Mobile Photography Tools for Slow Movement Effect for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581809690-simplified-terms-for-users-today/"><u>Simplified Terms for Users Today!</u></a></li>
+<li><a href="https://win-great.techidaily.com/ultimate-step-by-step-tutorial-restore-your-jpeg-images-without-cost/"><u>Ultimate Step-by-Step Tutorial: Restore Your JPEG Images Without Cost</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576803456-watching-dark-get-smart-about-german-instead/"><u>Watching Dark? Get Smart About German Instead!</u></a></li>
+</ul></div>
 

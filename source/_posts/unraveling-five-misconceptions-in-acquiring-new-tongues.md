@@ -1,7 +1,7 @@
 ---
 title: Unraveling Five Misconceptions in Acquiring New Tongues
-date: 2024-10-16T19:48:15.048Z
-updated: 2024-10-18T18:13:50.972Z
+date: 2024-10-17T16:44:40.789Z
+updated: 2024-10-24T16:22:47.458Z
 tags:
   - speak
   - english
@@ -24,15 +24,22 @@ thumbnail: https://thmb.techidaily.com/42aa8d9afd78cc4e28f215cb4f97cf62596e277c3
 
  False! Everyone with the right motivation can learn a foreign language. The amount of effort and time invested is different for experienced learners and beginners, but the fact remains that anyone can do it. Once you ‘learn how to learn’, certain patterns become visible, especially with grammar, and this makes learning much faster.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Language learning requires a high IQ
 
  So untrue! There are so many smart people who only speak one language. This is because a high IQ doesn’t make anyone a natural-born [polyglot](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . An average IQ combined with persuasiveness, sensitivity and lots of practice is a much better recipe for becoming fluent in another language.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. Failing to learn a language in school makes the student incompetent
@@ -40,16 +47,10 @@ thumbnail: https://thmb.techidaily.com/42aa8d9afd78cc4e28f215cb4f97cf62596e277c3
  There are so many stories of students who left school thinking that they were incapable of learning French or Spanish, and later in life, they became fluent within a few months of living in Latin countries. The reason why students fail to learn a language in school is mostly due to the professor’s incompetence.
 
 <!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. Grammar is difficult
@@ -57,10 +58,10 @@ thumbnail: https://thmb.techidaily.com/42aa8d9afd78cc4e28f215cb4f97cf62596e277c3
  Here’s a fun fact: grammar is a language’s least difficult element and it takes the least time to master. Every language, no matter how remote, is built on clear grammar rules and the experienced learner can easily figure out patterns that he or she can use to accelerate the learning process.
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. Conversations require fluency
@@ -88,13 +89,6 @@ Thank YOU, Alan!
 
 Get Mondly now and speak any language like you never dreamed you would ![Learn a new language](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-72&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-72%26utm%5Fsource%3Dblog-post-id-72&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-72%26utm%5Fsource%3Dblog-post-id-72&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-72%26utm%5Fsource%3Dblog-post-id-72&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-72%26mt%3D8 "Learn a new language")
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
@@ -110,16 +104,17 @@ Get Mondly now and speak any language like you never dreamed you would ![Learn a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/kyrocketing-youtube-traffic-11-seo-insights-unveiled/"><u>[New] Skyrocketing YouTube Traffic 11 SEO Insights Unveiled</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-accelerate-instagram-video-playback-mobile-tips-and-tricks-for-2024/"><u>[Updated] Accelerate Instagram Video Playback Mobile Tips & Tricks for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-discover-the-world-of-screen-capture-with-apowersofts-free-version-for-2024/"><u>[Updated] Discover the World of Screen Capture with Apowersoft's Free Version for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ace-your-tests-elite-strategies-and-key-certifications/"><u>Ace Your Tests: Elite Strategies and Key Certifications</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/connect-conquer-create-the-top-10-reasons-to-learn-languages/"><u>Connect, Conquer, Create: The Top 10 Reasons to Learn Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/demystifying-five-popular-but-inaccurate-language-learning-stories/"><u>Demystifying Five Popular But Inaccurate Language Learning Stories</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-recommendations-6-prime-locations-for-selecting-a-new-laptop/"><u>Expert Recommendations: 6 Prime Locations for Selecting a New Laptop</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/exploring-the-premier-tv-streaming-options-the-top-8-choices/"><u>Exploring the Premier TV Streaming Options – The Top 8 Choices</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-12-to-others-android-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 12 To Others Android Devices? | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-analyzing-the-frequency-of-youtube-payments/"><u>In 2024, Analyzing the Frequency of YouTube Payments</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sweet-seductive-scripts-italian-love-language/"><u>Sweet Seductive Scripts: Italian Love Language</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-turnout-android-video-streams-counterclockwise-for-2024/"><u>[New] Turnout Android Video Streams Counterclockwise for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/expedited-files-scanning-on-windows-os/"><u>Expedited Files Scanning on Windows OS</u></a></li>
+<li><a href="https://win-workspace.techidaily.com/gsm-mp3-movavi/"><u>GSM 오디오를 원근보이한 MP3로 자유성 영역에서 쉽게 바꾸기 - Movavi</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-languages-in-virtual-reality-with-mondly-vr-multiplayer/"><u>Learn Languages in Virtual Reality with Mondly VR Multiplayer</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/mastering-virtual-console-with-top-5-ps3-emulators-for-2024/"><u>Mastering Virtual Console with Top 5 PS3 Emulators for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-data-usage-provisions-explanation/"><u>New Data Usage Provisions Explanation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/oculus-quest-2-exposed-seamless-spectacular-virtual-reality-at-an-incredible-bargain/"><u>Oculus Quest 2 Exposed: Seamless, Spectacular Virtual Reality at an Incredible Bargain</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/panneaux-et-jours-semaine-en-francais/"><u>Panneaux Et Jours: Semaine en Français</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/seamless-hd-to-dvd-transformation-make-professional-dvds-from-high-quality-videos/"><u>Seamless HD to DVD Transformation – Make Professional DVDs From High-Quality Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-tally-ascendancy-of-asias-top-3/"><u>Speaking Tally: Ascendancy of Asia's Top 3</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/troubleshooting-and-fixing-a-nonfunctional-hp-monitor/"><u>Troubleshooting and Fixing a Nonfunctional HP Monitor</u></a></li>
+<li><a href="https://fox-that.techidaily.com/unstuck-from-silence-overcoming-calling-challenges-on-your-iphone-with-these-10-fixes/"><u>Unstuck From Silence: Overcoming Calling Challenges on Your iPhone with These 10 Fixes</u></a></li>
 </ul></div>
 

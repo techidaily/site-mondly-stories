@@ -1,7 +1,7 @@
 ---
 title: "Learn Languages: A Year-End Promise"
-date: 2024-08-23T00:29:56.723Z
-updated: 2024-08-24T00:29:56.723Z
+date: 2024-10-18T16:50:07.359Z
+updated: 2024-10-24T16:54:40.332Z
 tags:
   - speak
   - english
@@ -19,8 +19,6 @@ thumbnail: https://thmb.techidaily.com/a27b3a3de27d6b4c9a23aaf5bc90c6e51b30c3f53
  It’s that time of the year again! No, not Christmas. Fast-forward a bit. I’m talking about that time of the year when you make unrealistic New Year’s resolutions – like [learning a new language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) – that won’t probably make it to the end of January. You know it. I know it. Let’s be honest. But that doesn’t mean you shouldn’t focus on personal growth and make a list of resolutions for the upcoming year. Whether it’s language learning or getting in shape, New Year’s resolutions can become a reality with good planning and SMART goals.
 
  Many of us give up early on our New Year’s resolutions because we’re busy and demoralized. We’re only humans, after all. Still, this can change. So, let’s see how you can take up language learning in the new year and keep doing it until December.
-
-
 
 ## What Are New Year’s Resolutions?
 
@@ -51,11 +49,22 @@ thumbnail: https://thmb.techidaily.com/a27b3a3de27d6b4c9a23aaf5bc90c6e51b30c3f53
  Studies show that breaking down your SMART goals into even smaller steps, like learning 1,000 French words by March, further boosts motivation and reward. Achieving this will let you understand 75% of written French without a dictionary. Moreover, involving a friend enhances motivation through competition, unlike sharing goals on social media. According to a [2019 research](https://as.nyu.edu/faculty/peter-m-gollwitzer.html/09%5FGollwitzer%5FSheeran%5FSeifert%5FMichalski%5FWhen%5FIntentions%5F.pdf) , public goal-sharing may diminish determination, as early social recognition acts as a premature reward. In contrast, friendly competition in learning a language or losing weight can spur your competitive spirit, with the reward being your improvement.
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## The Mental Health Benefits of Language Learning
 
  Why should learning a new language be included in your New Year’s resolutions list? Because language learning is [good for your brain](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . According to multiple studies, the benefits for your cognitive health and well-being are undeniable.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Cognitive Benefits
 
@@ -63,27 +72,18 @@ thumbnail: https://thmb.techidaily.com/a27b3a3de27d6b4c9a23aaf5bc90c6e51b30c3f53
 
  Moreover, language learning will give a great boost to your memory. In fact, it can increase the size of your brain! This is what [Swedish scientists discovered](https://www.theguardian.com/education/2014/sep/04/what-happens-to-the-brain-language-learning) when they used brain scans to monitor what happens when someone learns a second language.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Mental Well-Being Benefits
 
  The third millennium is governed by stress, depression, sleep deprivation and lack of empathy from those around you. Learning a language can be a fulfilling endeavor that boosts self-esteem, reduces stress, and provides a sense of achievement. So, why not give your brain something to be happy about? Learn Spanish. Learn German. Or maybe learn Japanese. Here are some of the [best tips on how to learn a language fast](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "New Year, New Language: Your New Year Aspirations 6")
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Start 2024 with a bang 🎆
 
  Make this the year you learn a new language with Mondly.
 
 [Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-2519&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2519&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2519&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2519&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-2519%26mt%3D8)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ## Economic Advantages of Language Learning
 
  Language learning provides various economic advantages that contribute to both personal and professional growth. If you don’t choose language learning as a resolution for its cognitive benefits, you’ll surely choose it for its economic advantages.
@@ -96,8 +96,12 @@ thumbnail: https://thmb.techidaily.com/a27b3a3de27d6b4c9a23aaf5bc90c6e51b30c3f53
 ![personal growth](https://edge.mondly.com/blog/wp-content/uploads/2019/01/personal-growth-960x704.jpg "New Year, New Language: Your New Year Aspirations 7")
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Top 5 To-Do’s for Learning a New Language
 
 **1\. Set Achievable Daily Goals:** Establish a routine for language practice and break down your overall SMART goal into smaller, daily goals. This will help you get your rewards sooner and keep yourself motivated.
@@ -120,8 +124,12 @@ thumbnail: https://thmb.techidaily.com/a27b3a3de27d6b4c9a23aaf5bc90c6e51b30c3f53
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## New Year, New Language
 
  The time to start learning a new language is now. Not next year, not tomorrow, and not on Monday. Luckily, the award-winning language app Mondly makes language learning fun and helps you avoid procrastination.
@@ -143,8 +151,6 @@ thumbnail: https://thmb.techidaily.com/a27b3a3de27d6b4c9a23aaf5bc90c6e51b30c3f53
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -152,4 +158,20 @@ thumbnail: https://thmb.techidaily.com/a27b3a3de27d6b4c9a23aaf5bc90c6e51b30c3f53
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-synthesizing-creativity-a-brainstormers-toolkit-for-names/"><u>[New] In 2024, Synthesizing Creativity A Brainstormer’s Toolkit for Names</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-zooms-best-alternatives-on-laptops-and-tablets/"><u>[New] In 2024, Zoom's Best Alternatives on Laptops & Tablets</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-dial-up-the-impact-with-50-free-branding-graphics/"><u>[Updated] Dial Up the Impact with 50 FREE Branding Graphics</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-unveiling-efficient-techniques-in-screencastify-recording/"><u>[Updated] In 2024, Unveiling Efficient Techniques in Screencastify Recording</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/30plus-best-french-books-to-read-in-french/"><u>30+ Best French Books to Read in French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ace-the-art-of-speech-top-9-language-fluency-hints/"><u>Ace the Art of Speech: Top 9 Language Fluency Hints</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultivating-curiosity-and-understanding-through-language/"><u>Cultivating Curiosity and Understanding Through Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/developing-fluent-english-for-immigrants/"><u>Developing Fluent English for Immigrants</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dictating-perfection-learning-spaniard-accent-patterns/"><u>Dictating Perfection: Learning Spaniard Accent Patterns</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-from-samsung-galaxy-s21-fe-5g-2023-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock from Samsung Galaxy S21 FE 5G (2023) Devices</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-picsnapper-app-testimonials-and-feedback/"><u>In 2024, PicSnapper App Testimonials & Feedback</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-content-erasure-on-linkedin/"><u>Mastering the Art of Content Erasure on LinkedIn</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719574725009-mondly-teams-up-with-pearson-schooling-corp/"><u>Mondly Teams Up with Pearson Schooling Corp.</u></a></li>
+</ul></div>
 

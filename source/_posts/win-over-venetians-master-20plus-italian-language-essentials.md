@@ -1,7 +1,7 @@
 ---
 title: "Win Over Venetians: Master 20+ Italian Language Essentials"
-date: 2024-10-15T18:55:31.920Z
-updated: 2024-10-18T20:31:30.841Z
+date: 2024-10-20T18:00:34.082Z
+updated: 2024-10-24T18:14:16.134Z
 tags:
   - speak
   - english
@@ -36,10 +36,10 @@ thumbnail: https://thmb.techidaily.com/259362f05442761cee2c53bd4a987280fdd7ced53
  Before we move on, you need to understand that expressions, sayings, phrases, and idioms is that they are the salt and pepper of any language, not just Italian. And the best ones are, of course, those unique to the language you are learning. Why? Because they are the shortcut to making you sound more fluent.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Old Italian Expressions
@@ -69,10 +69,10 @@ _Cavoli amari_ literally translates to “bitter cabbages” in Italian but refe
  When you’re clueless about something or you don’t know what to say, in Italian, you can simply say “boh!”. This one is quite similar to the Italian expression_che ne so!_ meaning “how should I know?”.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Dai
@@ -84,28 +84,15 @@ _Cavoli amari_ literally translates to “bitter cabbages” in Italian but refe
 * _Dai! Basta! Smettila!_ – Come on! That’s enough! Stop that! (frustration or annoyance)
 
 <!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. Pantofolaio
 
  Literally “slipper-man”. Italian slang_pantofolaio_ refers to someone who prefers to stay home in their slippers rather than go out. Do you recognize yourself in this description? A_pantofolaio_ is basically the Italian equivalent of “couch potato”.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5\. Tirare il pacco
 
@@ -130,21 +117,22 @@ _Sbronza_ is for everything related to alcohol as it essentially describes the s
  If you have to convey the meaning of being drunk in a more formal setting, you would definitely not use_sbronza_ . Instead, you would use terms like_ubriachezza_ (“drunkness”) or_intossicazione alcolica_ (“alcohol intoxication”).
 
 <!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 9\. Che casino
 
 _Casino_ in Italian has nothing to do with gambling because it is literally a “brothel”. So, this Italian expression actually means “what a mess!” and is used to describe a situation that’s a bit out of control, confusing, or crowded.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 10\. Beccarsi
 
@@ -161,13 +149,6 @@ _Americanata_ is a playful jab, not to be taken offensively, used to describe so
  Build practical Italian skills for real life with Mondly.
 
 [Start Now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-3415&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-3415&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-3415&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-3415&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-3415%26mt%3D8)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Italian Expressions with Deep Meaning
 
@@ -187,6 +168,20 @@ _Americanata_ is a playful jab, not to be taken offensively, used to describe so
  These Italian expressions with deep meaning are essentially proverbs you can use to add a layer of sophistication to your Italian conversations. Our advice is to employ these expressions as you would in your own language: sparingly. However, ensure you introduce them at the perfect moment when their wisdom can shine and make the most impact.
 
 ![Italian slang](https://edge.mondly.com/blog/wp-content/uploads/2019/09/italian-slang-960x640.jpg "Go Beyond “Ciao Bella”: 20+ Italian Slang Words &Amp; Expressions 7")
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
+  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Bonus: More Italian Slang Words and Expressions
 
@@ -219,13 +214,6 @@ _Americanata_ is a playful jab, not to be taken offensively, used to describe so
  In conclusion, Italian slang and expressions are more than just linguistic flourishes; they are key to truly experiencing Italian culture. By judiciously incorporating them into your conversations, you not only enrich your language skills but also deepen your connection with Italy’s rich heritage. Remember, the goal is to sprinkle these expressions like seasoning – enough to enhance but not to overpower. This careful balance will not only make your speech more authentic but also open doors to more meaningful interactions. Ciao!
 
 Before you go, make sure you check out these FAQs.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Is it okay to use slang when speaking Italian?
 
@@ -275,22 +263,24 @@ Before you go, make sure you check out these FAQs.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-behind-the-scenes-look-at-creating-dynamic-facebook-reels/"><u>[New] 2024 Approved Behind-the-Scenes Look at Creating Dynamic Facebook Reels</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-does-the-sub4sub-strategy-improve-content-consumption/"><u>[Updated] 2024 Approved Does the Sub4Sub Strategy Improve Content Consumption?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719574769106-become-a-croatian-linguist-find-out-the-best-7-benefits-today/"><u>Become a Croatian Linguist – Find Out the Best 7 Benefits Today!</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-call-logs-on-smart-8-hd-by-fonelab-android-recover-call-logs/"><u>Complete guide for recovering call logs on Smart 8 HD</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cross-cultural-communication-learn-languages-in-a-virtual-world/"><u>Cross-Cultural Communication: Learn Languages in a Virtual World</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discovering-hangul-efficiently-master-asian-scripts/"><u>Discovering Hangul: Efficiently Master Asian Scripts</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/free-funny-faces-our-simple-meme-guide/"><u>Free Funny Faces - Our Simple Meme Guide</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-music-files-from-realme-gt-5-240w-by-fonelab-android-recover-music/"><u>How To Restore Missing Music Files from Realme GT 5 (240W)</u></a></li>
-<li><a href="https://discover-deluxe.techidaily.com/how-to-stop-windows-11-from-freezing-during-file-copies/"><u>How To Stop Windows 11 From Freezing During File Copies</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-unlock-samsung-galaxy-xcover-7-phone-forgot-password-by-drfone-android-unlock-android-unlock/"><u>How to Unlock Samsung Galaxy XCover 7 Phone Forgot Password</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/huawei-enhances-user-experience-with-mondly/"><u>Huawei Enhances User Experience with Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pioneering-speech-based-augmented-interaction/"><u>Pioneering Speech-Based Augmented Interaction</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/saying-happy-birthday-worldwide/"><u>Saying Happy Birthday Worldwide</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/the-art-and-science-of-buying-profitable-yt-content/"><u>The Art and Science of Buying Profitable YT Content</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-affordable-and-independent-japan-studies/"><u>The Ultimate Guide to Affordable & Independent Japan Studies</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579728851-top-3-linguistic-hubs-swift-multilingual-mastery-awaits/"><u>Top 3 Linguistic Hubs: Swift Multilingual Mastery Awaits</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/transforming-doc-mastery-with-abbyy-marketplace-advanced-llm-and-rag-technology-unleashed/"><u>Transforming Doc Mastery with ABBYY Marketplace: Advanced LLM and Rag Technology Unleashed</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-fives-finest-tools-for-rapid-video-frame-capturing-for-2024/"><u>[Updated] Five's Finest Tools for Rapid Video Frame Capturing for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-techniques-for-extracting-and-storing-instagram-video-files-pcmac-systems-for-2024/"><u>[Updated] Techniques for Extracting and Storing Instagram Video Files (PC/Mac Systems) for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-crafting-spectacular-gopro-time-lapses-made-easy/"><u>2024 Approved Crafting Spectacular GoPro Time-Lapses Made Easy</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-essential-guide-best-top-10-fb-videos-on-android-downloader/"><u>2024 Approved Essential Guide Best Top 10 FB Videos on Android Downloader</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-samsung-galaxy-a24-drfone-by-drfone-virtual-android/"><u>5 Hassle-Free Solutions to Fake Location on Find My Friends Of Samsung Galaxy A24 | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/a-deep-dive-into-the-bert-model-clarifying-what-sets-it-apart-from-generative-pre-trained-transformer-technologies/"><u>A Deep Dive Into the BERT Model: Clarifying What Sets It Apart From Generative Pre-Trained Transformer Technologies</u></a></li>
+<li><a href="https://win-blog.techidaily.com/fix-guide-resolving-marvels-avengers-pc-game-crashes/"><u>Fix Guide: Resolving Marvel's Avengers PC Game Crashes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/heres-how-to-say-chocolate-in-34-different-languages/"><u>Here’s How To Say Chocolate In 34 Different Languages</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-mastering-access-to-exclusive-snapshots/"><u>In 2024, Mastering Access to Exclusive Snapshots</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-through-the-basics-of-russian-counting/"><u>Journey Through the Basics of Russian Counting</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-strategy-for-effective-learning/"><u>Mondly's Strategy for Effective Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-a-londoner-or-scottish-lass/"><u>Speak Like a Londoner or Scottish Lass</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spooky-spectacles-in-different-cultures/"><u>Spooky Spectacles in Different Cultures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/starting-conversation-in-japan-essential-on-calls/"><u>Starting Conversation in Japan: Essential On-Calls</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/step-by-step-guide-updating-your-audio-technica-speaker-systems-driver-software/"><u>Step-by-Step Guide: Updating Your Audio-Technica Speaker System's Driver Software</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-comprehensive-handbook-for-japanese-language-study/"><u>The Comprehensive Handbook for Japanese Language Study</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-lasting-linguistic-legacy-of-the-english-playwright/"><u>The Lasting Linguistic Legacy of the English Playwright</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/unveiling-the-apple-vision-pro-experience-essential-learnings-from-a-weekend-trial/"><u>Unveiling the Apple Vision Pro Experience: Essential Learnings From a Weekend Trial</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/year-end-savings-alert-save-big-on-mondly-pro/"><u>Year-End Savings Alert: Save Big on Mondly Pro</u></a></li>
 </ul></div>
 

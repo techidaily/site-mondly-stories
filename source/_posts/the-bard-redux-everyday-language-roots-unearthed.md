@@ -1,7 +1,7 @@
 ---
 title: "The Bard Redux: Everyday Language Roots Unearthed"
-date: 2024-08-23T00:26:58.375Z
-updated: 2024-08-24T00:26:58.375Z
+date: 2024-10-21T16:29:58.584Z
+updated: 2024-10-24T18:10:34.347Z
 tags:
   - speak
   - english
@@ -57,9 +57,6 @@ thumbnail: https://thmb.techidaily.com/bab43c6ebbd68c7b02aa8931b44c8b3c5cf156c7a
 
 ![Shakespeare words](https://edge.mondly.com/blog/wp-content/uploads/2023/02/shakespeare-words.jpg "Shakespeare’s Words: 36 Words Shakespeare Invented That We Still Use Today 2")
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Cool words Shakespeare invented
 
 _To invent new words, or not to invent new words?_ Clearly, William Shakespeare did not ask himself that. He just went with it and invented new words so he could properly tell his stories. In the end, he was so good at both storytelling and coining words that today it is impossible to have an English curriculum without Shakespeare. But enough tittle-tattle.**Let’s see what other words Shakespeare invented:**
@@ -76,9 +73,6 @@ _Timon of Athens_ , Act V, Scene I
 
 _King Henry VI_ , Part II, Act IV, Scene I
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **4.** Cold-blooded
 
 _King John_ , Act III, Scene I
@@ -87,9 +81,6 @@ _King John_ , Act III, Scene I
 
 _King Henry VI_ , Part III, Act III, Scene III
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **6\. Fashionable**
 
 _Troilus and Cressida_ , Act III, Scene III
@@ -98,13 +89,24 @@ _Troilus and Cressida_ , Act III, Scene III
 
 _Hamlet_ , Act I, Scene V
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **8\. (to) Gossip**
 
 _The Comedy of Errors_ , Act V, Scene I
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **9\. Hint**
 
 _Othello_ , Act I, Scene III
@@ -113,42 +115,58 @@ _Othello_ , Act I, Scene III
 
 _The Merchant of Venice_ , Act I, Scene I
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### **11\. Majestic**
 
 _Julius Caesar_ , Act I, Scene II
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **12.** Marketable
 
 _As You Like It_ , Act I, Scene II
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **13.** Mimic
 
 _A Midsummer Night’s Dream_ , Act III, Scene II
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ### **14.** Monumental
 
 _Troilus and Cressida_ , Act III, Scene III
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **15.** Obscene
 
 _Love’s Labour’s Lost_ , Act I, Scene I
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **16\. Ode**
 
 _Love’s Labour’s Lost_ , Act IV, Scene III
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **17.** Olympian
 
 _King Henry VI_ , Part III, Act II, Scene III
@@ -158,8 +176,12 @@ _King Henry VI_ , Part III, Act II, Scene III
 _Hamlet_ , Act II, Scene I
 
 <!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **19\. Puking (disputed)**
 
 _As You Like It_ , Act II, Scene VII
@@ -172,9 +194,6 @@ _All’s Well That Ends Well_ , Act I, Scene I
 
 _Hamlet_ , Act V, Scene I
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **22\. (to) Swagger**
 
 _A Midsummer Night’s Dream_ , Act III, Scene I
@@ -183,16 +202,17 @@ _A Midsummer Night’s Dream_ , Act III, Scene I
 
 _Othello_ , Act III, Scene III
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ### **24.** Unreal
 
 _Macbeth_ , Act III, Scene IV
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **25\. Zany**
 
 _Love’s Labour’s Lost_ , Act V, Scene II
@@ -204,9 +224,6 @@ _Love’s Labour’s Lost_ , Act V, Scene II
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Improve thy English with speed
 
  Dost thou desire to improve thy English with speed and ease? Look no further than Mondly, the award-winning language app that doth make learning a joy.
@@ -229,8 +246,6 @@ _Love’s Labour’s Lost_ , Act V, Scene II
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -238,4 +253,26 @@ _Love’s Labour’s Lost_ , Act V, Scene II
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-weekly-must-see-elite-igtv-talents/"><u>[New] In 2024, Weekly Must-See Elite IGTV Talents</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-conveniently-capture-top-chrome-utilities-for-fb-video-downloads-for-2024/"><u>[Updated] Conveniently Capture Top Chrome Utilities for FB Video Downloads for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-expert-tips-for-slide-presentation-with-youtube-for-2024/"><u>[Updated] Expert Tips for Slide Presentation with YouTube for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-seamless-replay-on-iphone-a-how-to-guide/"><u>[Updated] In 2024, Seamless Replay on iPhone A How-To Guide</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/elevate-stories-vibrancy-via-thoughtful-interactive-qandas/"><u>Elevate Stories' Vibrancy via Thoughtful Interactive Q&As</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expert-tips-for-fixing-the-ghost-runner-catastrophic-malfunction-in-windows-11-environment/"><u>Expert Tips for Fixing the 'Ghost Runner' Catastrophic Malfunction in Windows 11 Environment</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fast-frame-rates-and-uninterrupted-play-a-guide-to-fixing-lag-issues-in-warzone/"><u>Fast Frame Rates and Uninterrupted Play: A Guide to Fixing Lag Issues in Warzone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-gps-location-on-oppo-a1-5g-easily-and-safely-drfone-by-drfone-virtual-android/"><u>How to Change GPS Location on Oppo A1 5G Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-check-distance-and-radius-on-google-maps-for-your-oneplus-nord-n30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Check Distance and Radius on Google Maps For your OnePlus Nord N30 5G | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-unraveling-untethered-art-top-public-domain-gems/"><u>In 2024, Unraveling Untethered Art Top Public Domain Gems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jumpstart-your-2023-save-big-and-gain-lifetime-access-to-mondly-premium/"><u>Jumpstart Your 2023: Save Big & Gain Lifetime Access to Mondly Premium!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leading-3-platforms-for-quick-and-seamless-language-learning/"><u>Leading 3 Platforms for Quick & Seamless Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-japanese-etiquette-key-phrases/"><u>Mastering Japanese Etiquette - Key Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-mission-for-millions-in-ukraine/"><u>Mondly's Mission for Millions in Ukraine</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-puzzles-turkey-and-koreas-verbal-ties/"><u>Multilingual Puzzles: Turkey & Korea's Verbal Ties</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/optimal-methods-for-learning-lithuanian-virtually/"><u>Optimal Methods for Learning Lithuanian Virtually</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-for-the-curious-childs-mind/"><u>Spanish for the Curious Child's Mind</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-12-promoters-of-covid-19-untruths/"><u>Top 12 Promoters of Covid-19 Untruths</u></a></li>
+<li><a href="https://driver-install.techidaily.com/upgrade-and-integrate-asus-drivers-with-windows/"><u>Upgrade & Integrate ASUS Drivers with Windows</u></a></li>
+</ul></div>
 

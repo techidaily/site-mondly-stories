@@ -1,7 +1,7 @@
 ---
 title: Vermeidung Von Falschen Deutschen Entschuldigungen
-date: 2024-10-12T18:52:59.288Z
-updated: 2024-10-18T18:03:14.402Z
+date: 2024-10-20T18:52:53.518Z
+updated: 2024-10-24T18:12:39.998Z
 tags:
   - speak
   - english
@@ -27,10 +27,10 @@ thumbnail: https://thmb.techidaily.com/3119c4d644ca38982b7a0f68d251b6e048a299751
  However, this is not strictly a German thing. It’s true Germans say sorry once in a blue moon, but there are some other countries like France or Russia where over-apologizing can be regarded as insincere as well.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to apologize in German
@@ -46,10 +46,10 @@ Here are some practical examples of apologies in German:
 * _Tut mir leid, ich mag die Suppe nicht._ – Sorry, I don’t like the soup.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to say sorry in German – the “Excuse me” sorry
@@ -61,10 +61,10 @@ Here are some practical examples of apologies in German:
  Hear the formal_Entschuldigen Sie_ in action in this basic conversation in German:
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Other ways to say sorry in German
@@ -110,16 +110,10 @@ Here are some practical examples of apologies in German:
 ---
 
 <!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2044582/7443" target="_top" id="2044582">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044582" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044582/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### From 0 to conversational in German
@@ -153,17 +147,22 @@ Here are some practical examples of apologies in German:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-stunning-appraisal-and-alternative-suggestions-for-2024/"><u>[New] Stunning Appraisal & Alternative Suggestions for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-complete-overview-of-full-scene-in-ppro/"><u>2024 Approved Complete Overview of Full Scene in PPro</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-compelling-stories-for-smm-through-ripl/"><u>Crafting Compelling Stories for SMM Through Ripl</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/gebruikerechtlos-flv-naar-gratis-mp4-konvertor-web-online-movavi/"><u>Gebruikerechtlos FLV Naar Gratis MP4 Konvertor Web Online - Movavi</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/harmonic-windows-tunes-hub-for-2024/"><u>Harmonic Windows Tunes Hub for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-reveals-a-revolutionized-question-and-answer-mechanism/"><u>Mondly Reveals a Revolutionized Question & Answer Mechanism</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/oration-ovations-for-worlds-pedagogues/"><u>Oration Ovations for World's Pedagogues</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/orchestrate-your-own-interpretation-harmonized-language-learning/"><u>Orchestrate Your Own Interpretation: Harmonized Language Learning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pearsons-precision-innovation-integrating-gsl-and-mondly/"><u>Pearson's Precision Innovation: Integrating GSL & Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-abcs-an-examination-of-us-uk-language/"><u>The ABC's: An Examination of US-UK Language</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshooting-non-functional-volume-buttons-in-windows-11-solved/"><u>Troubleshooting Non-Functional Volume Buttons in Windows 11 – Solved!</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/updated-in-2024-the-top-10-most-impressive-4k-video-examples/"><u>Updated In 2024, The Top 10 Most Impressive 4K Video Examples</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-apex-on-ice-olympic-highlights-of-short-track-events/"><u>[New] Apex on Ice Olympic Highlights of Short-Track Events</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-instagram-soundtracks-law-and-ethics/"><u>[New] In 2024, Instagram Soundtracks Law & Ethics</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-step-into-sound-design-crafting-and-integrating-whatsapp-ringtone-on-devices-for-2024/"><u>[New] Step Into Sound Design Crafting and Integrating WhatsApp Ringtone on Devices for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-elite-selection-top-downloader-apps-for-vimeo-videos-for-2024/"><u>[Updated] Elite Selection Top Downloader Apps for Vimeo Videos for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-evaluated-and-ranked-the-best-iphone-photo-watermarkers-for-2024/"><u>[Updated] Evaluated and Ranked The Best iPhone Photo Watermarkers for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/google-serp-features-people-also-ask-by-link-assistant-rank-tracker-serp-analysis-serp-analysis/"><u>Google SERP Features - People Also Ask</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-the-ultimate-guide-to-microphone-setup-in-audacity-for-mac/"><u>In 2024, The Ultimate Guide to Microphone Setup in Audacity for Mac</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Apple iPhone XS Max | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jedi-jargon-unraveling-the-language-of-the-force/"><u>Jedi Jargon: Unraveling the Language of The Force</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-aspiration/"><u>Language Learning Aspiration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/should-language-be-free-from-grammatical-chains/"><u>Should Language Be Free From Grammatical Chains?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/simplify-english-words-the-oxford-mondly-way/"><u>Simplify English Words: The Oxford-Mondly Way</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-italian-with-ease-on-your-next-trip/"><u>Speaking Italian with Ease on Your Next Trip</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/syntax-in-learning-new-languages/"><u>Syntax in Learning New Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-compre-written-guide-mastery-over-spanish-accent-types/"><u>The Compre Written Guide: Mastery Over Spanish Accent Types</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transformative-english-learning-using-mondly-strategies/"><u>Transformative English Learning Using Mondly Strategies</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-xiaomi-device-by-drfone-android/"><u>What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Xiaomi Device</u></a></li>
 </ul></div>
 

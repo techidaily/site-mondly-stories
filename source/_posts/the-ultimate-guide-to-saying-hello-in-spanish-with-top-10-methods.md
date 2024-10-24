@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide To Saying 'Hello' In Spanish With Top 10 Methods
-date: 2024-10-15T00:40:51.090Z
-updated: 2024-10-18T16:27:01.897Z
+date: 2024-10-17T16:24:49.766Z
+updated: 2024-10-24T17:59:57.616Z
 tags:
   - speak
   - english
@@ -35,10 +35,10 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
 **Bonus dating tip:** “Hello, beautiful” in Spanish is “Hola, hermosa” and “Hello, handsome” in Spanish is “Hola, hermoso”. Good luck! (wink wink)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Spanish greetings for certain moments of the day
@@ -54,13 +54,20 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
 ![hi in spanish](https://edge.mondly.com/blog/wp-content/uploads/2019/04/hi-in-spanish-600x463.jpg "Hello In Spanish And Other Basic Spanish Greetings You Need To Know 3")
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  ¡Hola, señor! by Bruce Jastrow©
+
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
+  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## “How are you?” in Spanish
 
@@ -75,10 +82,10 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
 **¿Cómo va?** – it translates to “how is it going?” and you can also add “todo” at the end – ¿cómo va todo? – to expand its meaning to “how is it all going?
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## “Yes”, “please” and “thank you” in Spanish
@@ -110,19 +117,6 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
  Or as The Terminator would say:**Hasta la vista, baby!**
 
 ![hasta la vista](https://media.giphy.com/media/2oVfyRHk1EuRy/giphy-downsized-large.gif "Hello In Spanish And Other Basic Spanish Greetings You Need To Know 4")
-
-<!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Not sure you understand how Spanish accents work? Check out our [article on how to master them all](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
@@ -156,18 +150,17 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-information.techidaily.com/new-2024s-cloud-pricing-breakdown-a-detailed-comparison/"><u>[New] 2024'S Cloud Pricing Breakdown A Detailed Comparison</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-effortless-transfer-facebook-videos-from-pcmac/"><u>[New] Effortless Transfer Facebook Videos From PC/Mac</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-simplified-tutorial-mastering-meets-background-blur-for-2024/"><u>[New] Simplified Tutorial Mastering Meet's Background Blur for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-making-your-voice-heard-in-the-podcast-realm/"><u>2024 Approved Making Your Voice Heard in the Podcast Realm</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-your-step-by-step-roadmap-for-instagrams-latest-feature-sharing-gifs/"><u>2024 Approved Your Step-by-Step Roadmap for Instagram's Latest Feature - Sharing GIFs</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/educonnect-uniting-international-educators-at-bett-2022/"><u>EduConnect - Uniting International Educators at BETT 2022</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-reboot-to-renaissance-instagrams-potential-return/"><u>From Reboot to Renaissance: Instagram's Potential Return</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fix-my-honor-x8b-location-is-wrong-drfone-by-drfone-virtual-android/"><u>How to Fix My Honor X8b Location Is Wrong | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-11-pro-max-passcode-without-computer-by-drfone-ios/"><u>How to Unlock iPhone 11 Pro Max Passcode without Computer?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguistic-leap-forward-our-special-95-off-language-program/"><u>Linguistic Leap Forward: Our Special 95% Off Language Program!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/symphony-of-syntax-musics-impact-on-learning-languages/"><u>Symphony of Syntax: Music's Impact on Learning Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-best-of-mondly-now-at-your-fingertips/"><u>The Best of Mondly, Now at Your Fingertips</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-contrast-between-brazilian-and-european-keyboard-features/"><u>The Contrast Between Brazilian & European Keyboard Features</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/a-comprehensive-guide-to-icloud-unlock-from-apple-iphone-11-pro-online-by-drfone-ios/"><u>A Comprehensive Guide to iCloud Unlock From Apple iPhone 11 Pro Online</u></a></li>
+<li><a href="https://fox-shield.techidaily.com/effiziente-strategien-zur-optimierung-ihres-c-laufwerks-auf-dem-windows-server-schritt-fur-schritt-anleitung/"><u>Effiziente Strategien Zur Optimierung Ihres C-Laufwerks Auf Dem Windows Server - Schritt Für Schritt Anleitung</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-do-you-unlock-your-iphone-6s-plus-learn-all-4-methods-drfone-by-drfone-ios/"><u>In 2024, How Do You Unlock your iPhone 6s Plus? Learn All 4 Methods | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-potential-pitfalls-in-virtual-realms/"><u>In 2024, Potential Pitfalls in Virtual Realms</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-essential-compilation-top-10-budget-friendly-lut-sources/"><u>In 2024, The Essential Compilation Top 10 Budget-Friendly LUT Sources</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lingualeap-at-dubai-2020-the-next-language-era/"><u>LinguaLeap at Dubai 2020: The Next Language Era</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-lineage-the-genesis-of-the-dutch-language/"><u>Linguistic Lineage: The Genesis of the Dutch Language</u></a></li>
+<li><a href="https://win-dash.techidaily.com/newest-realtek-bluetooth-drivers-available-install-for-windows-11-and-10/"><u>Newest Realtek Bluetooth Drivers Available: Install for Windows 11 & 10</u></a></li>
+<li><a href="https://discover-helper.techidaily.com/resolving-handbrake-crash-issues-during-bulk-encoding-on-windows-and-mac/"><u>Resolving Handbrake Crash Issues During Bulk Encoding on Windows and Mac</u></a></li>
+<li><a href="https://win-top.techidaily.com/samsung-bitlocker/"><u>Samsung 数据传输故障：尝试 BitLocker 解决方案失败</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukrainian-fluency-mastering-phrases-in-minutes-92-chars/"><u>Ukrainian Fluency: Mastering Phrases in Minutes (92 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiled-dialogues-the-complete-guide-to-african-linguistics/"><u>Unveiled Dialogues: The Complete Guide to African Linguistics</u></a></li>
 </ul></div>
 

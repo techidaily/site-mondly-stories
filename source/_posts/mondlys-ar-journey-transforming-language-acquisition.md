@@ -1,7 +1,7 @@
 ---
 title: "Mondly's AR Journey: Transforming Language Acquisition"
-date: 2024-08-23T00:30:16.053Z
-updated: 2024-08-24T00:30:16.053Z
+date: 2024-10-18T18:05:11.679Z
+updated: 2024-10-24T18:35:02.437Z
 tags:
   - speak
   - english
@@ -30,6 +30,13 @@ thumbnail: https://thmb.techidaily.com/72bac3551a829f100e80929327a859a230ef81a06
 
 _ ![AUGMENTED REALITY LION](https://media.giphy.com/media/ckAvyr8RNxvc0Tbued/giphy.gif "The New Augmented Reality App From Mondly Is The Future Of Language Learning 2") _
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## _An out of this world encounter_
 
  _The**new augmented reality experience from Mondly** introduces us to a new character named Mondly with whom you can talk in various contexts (she can even change her outfit and become a waitress at the restaurant) and [learn a new language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) in the meantime. After all, we all know it is easier to learn a new language when you are being social. The rendez-vous  between me and my new virtual friend started after we scanned the room we were in using just the iPad’s camera. She immediately and seamlessly appeared in front of me. Her eyes met mine and I froze. It this even possible? That was just the beginning, but I already felt like a character in one of my favorite sci-fi shows._
@@ -43,8 +50,18 @@ _ ![AR Mondly Languages](https://media.giphy.com/media/5eF84ByiI55ql9Xyrk/giphy.
 _ ![AUGMENTED REALITY MONDLY LANGUAGES](https://media.giphy.com/media/gC1iUtDE9Tkh0wDx3O/giphy.gif "The New Augmented Reality App From Mondly Is The Future Of Language Learning 4") _
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## _Building the future of learning and teaching_
 
  _On a more serious note, the **new augmented reality app from [Mondly](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-1295&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-1295%26utm%5Fsource%3Dblog-post-id-1295&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-1295%26utm%5Fsource%3Dblog-post-id-1295&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-1295%26utm%5Fsource%3Dblog-post-id-1295&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-1295%26mt%3D8)**  uses technologies like chatbot and speech recognition and brings your conversational friend in your environment for a “face to face” interaction. For a more realistic effect, your virtual language learning assistant uses a human voice especially for you and uses your input to respond accordingly._
@@ -54,22 +71,27 @@ _ ![AUGMENTED REALITY MONDLY LANGUAGES](https://media.giphy.com/media/gC1iUtDE9T
 _ ![AR language learning app](https://media.giphy.com/media/C9pYCWN2mjxuWD0ufF/giphy.gif "The New Augmented Reality App From Mondly Is The Future Of Language Learning 5") _
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
+  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  _Now, I was indeed amazed, but there may be room for improvement. I’m sure that until the launch they will work more on the conversation topics, but when technology makes it possible I expect the character and the animals to be more realistic. I’ve seen it in games, so I’m sure that this will soon be possible in AR._
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## _Pokémon Go is cool, but can’t we all be a little more productive?_
 
  _In the end, I am now sure that Mondly deserves a place next to the best of the best like Google and Apple. They identified the recipe for success in a simple learning problem and used advanced AR technology to give an answer. I have a feeling that more and more kids and even adults will stop chasing Pokémon. Instead, they will still play, but in a more productive way because they will also learn a new language meanwhile using Mondly AR or any other app from Mondly. That’s how you trick people into learning something useful: by luring them with something as interactive as this app._
 
 _ ![MondlyAR app](https://media.giphy.com/media/2yyH5SzNqpUzwwN3TZ/giphy.gif "The New Augmented Reality App From Mondly Is The Future Of Language Learning 6") _
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
  _As I left their headquarters in my 2004 Peugeot 206, I realized that these people live in the future and I am a decade behind them. Hopefully, smart use of technology like theirs will help us make our way to the future._
 
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Faugmented-reality-app-mondly-ar-language-learning%2F&t=The+New+Augmented+Reality+App+From+Mondly+Is+the+Future+of+Language+Learning "Share on Facebook")
@@ -87,8 +109,6 @@ _ ![MondlyAR app](https://media.giphy.com/media/2yyH5SzNqpUzwwN3TZ/giphy.gif "Th
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -96,4 +116,19 @@ _ ![MondlyAR app](https://media.giphy.com/media/2yyH5SzNqpUzwwN3TZ/giphy.gif "Th
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/emystifying-youtube-shorts-template-design-principles-for-2024/"><u>[New] Demystifying YouTube Shorts Template Design Principles for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-mastering-the-art-of-picking-excellent-video-capture-professionals-for-2024/"><u>[New] Mastering the Art of Picking Excellent Video Capture Professionals for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-live-media-masters-choice-vmix-vs-wirecast-for-professionals/"><u>[Updated] 2024 Approved Live Media Masters Choice VMix Vs. Wirecast for Professionals</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprender-sonidos-de-colores-en-espanol/"><u>Aprender Sonidos De Colores en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/descobrir-gritos-de-saudade-em-portugues-compendio-valioso/"><u>Descobrir Gritos De Saudade Em Português - Compêndio Valioso</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/discover-the-invisible-a-comprehensive-guide-to-unveiling-hidden-files-on-a-mac-through-terminal-commands/"><u>Discover the Invisible: A Comprehensive Guide to Unveiling Hidden Files on a Mac Through Terminal Commands</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-teleport-your-gps-location-on-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>How To Teleport Your GPS Location On Realme 12 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-vivo-y78-5g-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Vivo Y78 5G</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-mimicking-masterpieces-crafting-successful-parodies/"><u>In 2024, Mimicking Masterpieces Crafting Successful Parodies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577214649-new-year-diverse-linguistic-dreams/"><u>New Year, Diverse Linguistic Dreams!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578336799-persian-language-heritage-unveiled-learn-today/"><u>Persian Language Heritage Unveiled: Learn Today!</u></a></li>
+<li><a href="https://fox-that.techidaily.com/troubleshooting-uneven-sound-solutions-for-when-one-airpod-is-louder/"><u>Troubleshooting Uneven Sound: Solutions for When One AirPod Is Louder</u></a></li>
+</ul></div>
 

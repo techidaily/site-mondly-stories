@@ -1,7 +1,7 @@
 ---
 title: Shakespeare’s Sonnet Scribbled Into Today's Vernacular
-date: 2024-10-12T22:55:36.612Z
-updated: 2024-10-18T20:07:53.719Z
+date: 2024-10-23T18:47:36.065Z
+updated: 2024-10-24T16:51:22.247Z
 tags:
   - speak
   - english
@@ -57,22 +57,16 @@ thumbnail: https://thmb.techidaily.com/62c8ecc88aff429d62093b18bad06f55833353ec7
 
 ![Shakespeare words](https://edge.mondly.com/blog/wp-content/uploads/2023/02/shakespeare-words.jpg "Shakespeare’s Words: 36 Words Shakespeare Invented That We Still Use Today 2")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Cool words Shakespeare invented
 
 _To invent new words, or not to invent new words?_ Clearly, William Shakespeare did not ask himself that. He just went with it and invented new words so he could properly tell his stories. In the end, he was so good at both storytelling and coining words that today it is impossible to have an English curriculum without Shakespeare. But enough tittle-tattle.**Let’s see what other words Shakespeare invented:**
-
-<!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **1\. Addiction**
 
@@ -86,15 +80,22 @@ _Timon of Athens_ , Act V, Scene I
 
 _King Henry VI_ , Part II, Act IV, Scene I
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **4.** Cold-blooded
 
 _King John_ , Act III, Scene I
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **5\. Dauntless**
@@ -121,6 +122,13 @@ _Othello_ , Act I, Scene III
 
 _The Merchant of Venice_ , Act I, Scene I
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **11\. Majestic**
 
 _Julius Caesar_ , Act I, Scene II
@@ -134,16 +142,10 @@ _As You Like It_ , Act I, Scene II
 _A Midsummer Night’s Dream_ , Act III, Scene II
 
 <!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **14.** Monumental
@@ -154,49 +156,36 @@ _Troilus and Cressida_ , Act III, Scene III
 
 _Love’s Labour’s Lost_ , Act I, Scene I
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **16\. Ode**
 
 _Love’s Labour’s Lost_ , Act IV, Scene III
 
-<!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **17.** Olympian
 
 _King Henry VI_ , Part III, Act II, Scene III
-
-<!-- affiliate ads begin -->
-<span id="1770776">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **18.** Outbreak
 
 _Hamlet_ , Act II, Scene I
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **19\. Puking (disputed)**
@@ -211,27 +200,20 @@ _All’s Well That Ends Well_ , Act I, Scene I
 
 _Hamlet_ , Act V, Scene I
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
-  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **22\. (to) Swagger**
 
 _A Midsummer Night’s Dream_ , Act III, Scene I
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **23.** Tranquil
 
 _Othello_ , Act III, Scene III
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **24.** Unreal
 
@@ -279,22 +261,22 @@ _Love’s Labour’s Lost_ , Act V, Scene II
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-capturing-and-reducing-speed-with-iphone-a-step-by-step-guide-for-2024/"><u>[New] Capturing and Reducing Speed with iPhone A Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-achieving-maximum-compactness-with-mac-recordings-on-snapchat-for-2024/"><u>[Updated] Achieving Maximum Compactness with Mac Recordings on Snapchat for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-get-top-quality-gifs-on-your-mac-instantly-for-2024/"><u>[Updated] Get Top-Quality GIFs on Your Mac Instantly for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/apple-unveils-the-upgraded-mac-studio-a-matured-version-of-the-classic-mac-mini/"><u>Apple Unveils the Upgraded Mac Studio - A Matured Version of the Classic Mac Mini</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/aprende-la-secuencia-del-calendario-de-espana/"><u>Aprende La Secuencia Del Calendario De España</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579581581-conquer-slovak-in-minutes-easy-online-learning-pathway/"><u>Conquer Slovak in Minutes: Easy Online Learning Pathway!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/daily-growth-journey-honoring-the-anniversary-of-1500-free-classes/"><u>Daily Growth Journey: Honoring the Anniversary of 1500 Free Classes</u></a></li>
-<li><a href="https://article-tips.techidaily.com/decoding-the-functions-of-a-virtual-reality-helmet/"><u>Decoding The Functions Of A Virtual Reality Helmet</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fortify-finances-with-fluent-corporate-language-skills/"><u>Fortify Finances with Fluent Corporate Language Skills</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-huawei-nova-y71-drfone-by-drfone-virtual-android/"><u>In 2024, Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Huawei Nova Y71 | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-mission-investing-in-ukrainian-speakers-for-no-expense/"><u>Mondly's Mission: Investing in Ukrainian Speakers, for No Expense</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speedy-polish-mastery-for-novices/"><u>Speedy Polish Mastery for Novices</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/stay-incognito-how-to-stream-unnoticed-on-instagram-for-2024/"><u>Stay Incognito How to Stream Unnoticed on Instagram for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/unlock-ultimate-clarity-choosing-the-perfect-4k-screen/"><u>Unlock Ultimate Clarity Choosing the Perfect 4K Screen</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-your-potential-mondly-endorses-ukraines-linguistic-renaissance/"><u>Unlock Your Potential: Mondly Endorses Ukraine's Linguistic Renaissance</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/where-is-the-best-place-to-catch-dratini-on-poco-x6-pro-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Poco X6 Pro | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/worlds-lengthiest-term-and-its-tale/"><u>World's Lengthiest Term and Its Tale</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-accelerated-record-functionality-and-narrator-support/"><u>[New] Accelerated Record Functionality & Narrator Support</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-unlock-fb-seo-potential-with-keyword-rich-strategies-for-2024/"><u>[New] Unlock FB SEO Potential with Keyword-Rich Strategies for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-obs-studio-setting-up-your-skype-recording-environment/"><u>[Updated] 2024 Approved OBS Studio Setting Up Your Skype Recording Environment</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-rapid-techniques-to-separate-genuine-from-fake-on-insta/"><u>[Updated] Rapid Techniques to Separate Genuine From Fake on Insta</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-a-detailed-review-top-10-screen-recorders-for-mac/"><u>2024 Approved A Detailed Review Top 10 Screen Recorders for Mac</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-navigating-zoomed-details-for-team-collaboration-on-ms-teams/"><u>2024 Approved Navigating Zoomed Details for Team Collaboration on MS Teams</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/compelling-macos-sierra-coders-for-vids-for-2024/"><u>Compelling MacOS Sierra Coders for Vids for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-vivo-t2x-5g-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Vivo T2x 5G to BlackBerry | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-croatian-7-reasons-why-you-should-learn-croatian/"><u>Learn Croatian: 7 Reasons Why You Should Learn Croatian</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-new-tongues-faster-with-mondlys-ar-technology/"><u>Learn New Tongues Faster With Mondly's AR Technology</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-supports-education-by-investing-in-apple-technology-for-students/"><u>Mondly Supports Education By Investing In Apple Technology For Students</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-africas-multilingual-maze/"><u>Navigating Africa's Multilingual Maze</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-tagalog-mastery-daily-learning-in-under-an-hour/"><u>Quick Tagalog Mastery: Daily Learning in Under an Hour</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/second-chances-at-multilingualism/"><u>Second Chances at Multilingualism</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/slavic-siblings-comparing-ukrainian-and-russian/"><u>Slavic Siblings: Comparing Ukrainian and Russian</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/triumvirate-of-asian-speech-forms-priority-save-and-rewind/"><u>Triumvirate of Asian Speech Forms: Priority Save & Rewind</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/what-is-llama-2-and-how-can-you-use-it/"><u>What Is Llama 2 and How Can You Use It?</u></a></li>
 </ul></div>
 

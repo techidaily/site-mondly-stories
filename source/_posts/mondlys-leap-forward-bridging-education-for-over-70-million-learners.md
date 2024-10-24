@@ -1,7 +1,7 @@
 ---
 title: "Mondly's Leap Forward: Bridging Education for Over 70 Million Learners"
-date: 2024-08-23T00:31:05.838Z
-updated: 2024-08-24T00:31:05.838Z
+date: 2024-10-23T18:03:49.633Z
+updated: 2024-10-24T17:31:51.840Z
 tags:
   - speak
   - english
@@ -35,6 +35,13 @@ thumbnail: https://thmb.techidaily.com/a50a3cec0521fa6fb800284717c9122c07291a027
 
  The amount of positive feedback we are getting for Hands-Free is astonishing. People everywhere are praising the voice-powered upgrade for its ability to make the process feel less like studying and more like talking to an old friend. That is why we are working harder than ever to make it available for Android learners too as soon as possible.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## English progress tests created in partnership with Oxford University Press
 
  In 2020, many of us learned that every cloud has a silver lining. At Mondly, we are committed to offering learners everywhere access to high-quality language courses on their mobile phones. This is why we tried – and hopefully succeeded – to make 2020 brighter for the 1.5 billion people worldwide currently learning English.
@@ -50,8 +57,12 @@ thumbnail: https://thmb.techidaily.com/a50a3cec0521fa6fb800284717c9122c07291a027
  For many of those 1.5 billion people, learning English is not just a hobby, but the key to success. Therefore, it was essential for us to maximize the outcome of our partnership and make the trusted content from Oxford available in 33 native languages – including yours.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Mondly is now available on Huawei AppGallery too
 
  When it comes to our apps, accessibility is key. We want everyone to be able to learn new languages with Mondly, regardless of the device or platform they choose. Naturally, with the AppGallery in the top three app stores globally, we were thrilled when Huawei proposed to us to bring Mondly to their community too.
@@ -62,23 +73,8 @@ thumbnail: https://thmb.techidaily.com/a50a3cec0521fa6fb800284717c9122c07291a027
 
 ![mondly huawei](https://edge.mondly.com/blog/wp-content/uploads/2021/03/mondly-huawei-960x521.jpg "Mondly Surpasses 70 Million Learners Worldwide 3")
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
  Huawei Developer Webinar – Grow with AppGallery in China
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Loved by learners, supported by experts
 
  Our mission at Mondly has always been to help people speak new languages fast through technological innovation. This is why we always drew inspiration from tech pioneers such as Google or Apple. Now, seeing all the incredible feedback coming from the very experts who inspired us, we couldn’t be prouder by what we have achieved so far.
@@ -86,9 +82,12 @@ thumbnail: https://thmb.techidaily.com/a50a3cec0521fa6fb800284717c9122c07291a027
  Following our series of exciting updates, Mondly has been featured multiple times in both Apple’s App Store and Huawei’s AppGallery.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### “App of the Day” in Apple’s App Store in 157 countries
 
  “Create Good Resolutions Now”, “Apps We Love Right Now” and “Learn a New Language” are only a few of the categories Mondly has been featured in the last few months. But the greatest honor of all was to be named [“App of the Day”](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) in 157 countries and to be featured on Apple’s celebratory story with the occasion of Romania’s National Day.
@@ -96,9 +95,12 @@ thumbnail: https://thmb.techidaily.com/a50a3cec0521fa6fb800284717c9122c07291a027
  We are thrilled to have received the spotlight in so many countries, but the dearest to our heart was surely the story on the most trending Romanian apps. As Romanians ourselves, it was an honor to be able to represent the thriving tech scene in Romania alongside fellow tech innovators.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<a href="https://appsumo.8odi.net/c/5597632/2100533/7443" target="_top" id="2100533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100533/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Named among the Best Apps of 2020 by Huawei in the “Best for Personal Growth” category
 
  Last but not least, another round of good news came from China. After just months of being launched on Huawei AppGallery, Mondly was featured in “New Apps We Love” and named among the Best Apps of 2020 in the “Best for Personal Growth” category. We’re happy to see how much the new community of learners loves Mondly!
@@ -116,9 +118,6 @@ Here’s to 70 million learners and counting! 🥂
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Give Mondly a go today**
 
  Haven’t had the chance to give [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5757&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5757&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5757) a go yet?
@@ -135,8 +134,6 @@ Here’s to 70 million learners and counting! 🥂
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -144,4 +141,22 @@ Here’s to 70 million learners and counting! 🥂
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-from-camera-roll-to-screen-share-photos-fast-and-simple/"><u>[New] 2024 Approved From Camera Roll to Screen Share Photos Fast and Simple</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-the-hidden-pathway-to-logging-in-depth-whatsapp-chats/"><u>[New] The Hidden Pathway to Logging In-Depth WhatsApp Chats</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-essential-tips-record-powerpoint-live-with-webcam/"><u>[Updated] 2024 Approved Essential Tips Record PowerPoint Live with Webcam</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-clearview-capture-watchlist-for-2024/"><u>[Updated] ClearView Capture Watchlist for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-multitude-of-cheers-for-your-special-day/"><u>A Multitude of Cheers for Your Special Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/best-apps-accelerating-global-communication-skills/"><u>Best Apps Accelerating Global Communication Skills</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-you-when-your-samsung-galaxy-a23-5g-is-off-drfone-by-drfone-virtual-android/"><u>Can Life360 Track You When Your Samsung Galaxy A23 5G is off? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-language-learning-in-virtual-reality-mondly-unveils-vr-edition/"><u>Dive Into Language Learning in Virtual Reality - Mondly Unveils VR Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/durch-deutsche-tage-lernst-du/"><u>Durch Deutsche Tage Lernst Du</u></a></li>
+<li><a href="https://review-topics.techidaily.com/edit-and-send-fake-location-on-telegram-for-your-xiaomi-mix-fold-3-in-3-ways-drfone-by-drfone-virtual-android/"><u>Edit and Send Fake Location on Telegram For your Xiaomi Mix Fold 3 in 3 Ways | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/educators-summit-in-london-uk-bett-2022/"><u>Educators' Summit in London, UK: BETT 2022</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580825709-enhance-communication-skills-in-hindi-discover-7-powerful-mondly-advantages/"><u>Enhance Communication Skills in Hindi - Discover 7 Powerful Mondly Advantages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580711523-hello-in-japanese-all-the-japanese-greetings-you-need-to-know/"><u>Hello In Japanese - All The Japanese Greetings You Need To Know</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-do-you-unlock-your-apple-iphone-12-learn-all-4-methods-by-drfone-ios/"><u>In 2024, How Do You Unlock your Apple iPhone 12? Learn All 4 Methods</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/step-by-step-tutorial-on-using-an-xbox-controllers-with-desktop-pcs/"><u>Step-by-Step Tutorial on Using an Xbox Controllers with Desktop PCs</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Saudar a Portugal Com Flauta Dos Dialetos
-date: 2024-10-11T23:40:31.297Z
-updated: 2024-10-18T16:05:34.448Z
+date: 2024-10-20T18:49:38.713Z
+updated: 2024-10-24T18:58:10.239Z
 tags:
   - speak
   - english
@@ -24,13 +24,6 @@ thumbnail: https://thmb.techidaily.com/fb9dc69321147c58e76f643c816e11fbbc732b6fd
 
  “Hello” is a [powerful word](https://www.merriam-webster.com/words-at-play/the-origin-of-hello) . It opens doors. It makes people smile. And said the right way and at the right time, “hello” can impact someone’s day and you wouldn’t even know it. So here are the right ways to say “hello” in Portuguese and open doors everywhere you go.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### “Hello” in Portuguese – Olá
 
 _Olá_ is the best choice for most social situations regardless of the person you are addressing. It’s somehow formal, but also friendly.
@@ -43,14 +36,14 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ![hi in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-portuguese-1024x658.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 2")
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “Lisbon, Portugal” by Diego García©
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### “How are you” in Portuguese – Tudo bem?
 
@@ -67,16 +60,16 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 * **_Quanto tempo!_ – Long time no see!** – Used the same as in English.
 * **_Como foi o seu dia?_ – How’s your day?** – Used the same as in English.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. “Bom dia!” and other Portuguese greetings for certain moments of the day
 
 ![good morning in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/good-morning-in-portuguese-1024x642.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 3")
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  “Rio de Janeiro, Brazil” by Raphael Nogueira©
 
@@ -87,6 +80,13 @@ _Olá_ is the best choice for most social situations regardless of the person yo
  **Good night in Portuguese –_Boa noite!_**  – The Portuguese language does not make any difference between evening and night. Thus, “goodnight” and “good evening” have the same translation in Portuguese. While in Brazil you will say “boa NOEE-tsh”, in Portugal you will say “boa NOEE-t”.
 
  All three of these are safe to use in any kind of interaction (formal or informal).
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3.“Goodbye” in Portuguese – Adeus
 
@@ -103,13 +103,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ![portuguese greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/08/portuguese-greetings-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 4")
 
  “Ruínas da Fortaleza de Arrifana, Aljezur, Portugal” by Ferhat Deniz Fors©
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Bonus: other basic Portuguese phrases that you should know
 
@@ -142,6 +135,13 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Here’s how to speak Portuguese in 10 minutes a day
 
  Do you want to practice what you’ve learned and maybe learn some more Portuguese? **Check Mondly, the revolutionary language learning platform that makes language learning fun, fast and easy!**
@@ -173,17 +173,17 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-instagram-saves-free-and-without-end/"><u>[New] In 2024, Instagram Saves Free and Without End</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-pioneering-applications-in-3d-animation-design/"><u>[New] In 2024, Pioneering Applications in 3D Animation Design</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-innovative-techniques-crafting-unique-boomerangs-on-snapchat/"><u>[New] Innovative Techniques Crafting Unique Boomerangs on Snapchat</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-streamlined-editing-of-your-tiktok-age/"><u>[Updated] Streamlined Editing of Your TikTok Age</u></a></li>
-<li><a href="https://driver-install.techidaily.com/access-top-tier-sound-in-minutes/"><u>Access Top-Tier Sound in Minutes!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/apertenca-a-cultura-portuguesa-greves-tipicas/"><u>Apertença À Cultura Portuguesa: Greves Tipicas</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/charm-crafted-conversations-flirting-in-english-dialogue/"><u>Charm Crafted Conversations: Flirting in English Dialogue</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dive-into-english-grammars-depth-with-9-essential-hints-from-an-experienced-esl-expert/"><u>Dive Into English Grammar's Depth with 9 Essential Hints From an Experienced ESL Expert</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-xiaomi-redmi-k70-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Xiaomi Redmi K70 to iPhone | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/marauders-dictionary-20-terms-to-sound-like-a-buccaneer/"><u>Marauder's Dictionary: 20 Terms to Sound Like a Buccaneer</u></a></li>
-<li><a href="https://driver-error.techidaily.com/no-display-for-hardware-drives-in-w1011/"><u>No Display for Hardware Drives in W10/11</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-timeless-journey-of-polyglots/"><u>The Timeless Journey of Polyglots</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-how-to-halt-recommendations-no-more-suggests-for-2024/"><u>[New] How to Halt Recommendations No More Suggests for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-filmmaking-made-simple-a-smartphone-guide-to-youtube-thumbnails-for-2024/"><u>[Updated] Filmmaking Made Simple A Smartphone Guide to YouTube Thumbnails for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/garmin-forerunner-45-gps-running-watch-expert-reviews-and-performance-analysis/"><u>Garmin Forerunner 45 GPS Running Watch - Expert Reviews & Performance Analysis</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-best-3-software-to-transfer-files-tofrom-your-oppo-find-x7-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Best 3 Software to Transfer Files to/from Your Oppo Find X7 via a USB Cable | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-nubia-z50s-pro-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Nubia Z50S Pro</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/navigate-the-interview-process-easily-tips-and-tricks-with-chatgpt-support/"><u>Navigate the Interview Process Easily: Tips and Tricks with ChatGPT Support</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/newborn-neurons-fueling-language-learning-in-kids/"><u>Newborn Neurons: Fueling Language Learning in Kids</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/preparation-for-an-israeli-adventure-must-know-phrases-and-insights/"><u>Preparation for an Israeli Adventure: Must-Know Phrases and Insights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/regional-contrasts-in-portuguese-keyboard-usage-europe-and-south-america/"><u>Regional Contrasts in Portuguese Keyboard Usage, Europe & South America</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/say-cheerio-to-a-happy-birthday-italian/"><u>Say Cheerio to a Happy Birthday (Italian)</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/the-realm-of-melodies-where-to-get-hearing-heroes-ringtones/"><u>The Realm of Melodies Where to Get Hearing Heroes' Ringtones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/wochenstruktur-deutsche-sprache-erforschen/"><u>Wochenstruktur: Deutsche Sprache Erforschen</u></a></li>
 </ul></div>
 

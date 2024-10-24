@@ -1,7 +1,7 @@
 ---
 title: Navigating Social Etiquette in Chinese Dialogues
-date: 2024-08-23T00:30:14.915Z
-updated: 2024-08-24T00:30:14.915Z
+date: 2024-10-21T18:48:30.921Z
+updated: 2024-10-24T17:36:00.213Z
 tags:
   - speak
   - english
@@ -38,6 +38,19 @@ thumbnail: https://thmb.techidaily.com/81c13ca843b69bc230707726fcf630e171a8ad9a8
 
  早 (zǎo) is short for 早上好 (zǎo shang hǎo), which means “good morning” in Chinese. The same as our English “good morning”, 早 (zǎo) can be used safely in all kinds of social interactions as long as it is… you’ve guessed it: morning.
 
+<!-- affiliate ads begin -->
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. 你好吗? (nǐ hǎo ma) – “How are you?” in Chinese
 
 Or 您好吗? (nín hǎo ma?) if you want to be polite.
@@ -45,8 +58,12 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
  This expression is generally used as a response to a greeting, but it can also work as a “how are you?”.
 
 <!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 3\. 你怎么样? (nǐ zěnmeyàng) – “What’s up?” in Chinese
 
  As you can probably already tell, this is an informal greeting you can use with your friends.
@@ -58,37 +75,26 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
  To answer to this greeting, you can say “chī le, nǐ ne?” which means “I’ve eaten, how about you?”.
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 5\. 久仰 (jiǔyǎng) – a very formal Chinese greeting
 
  On your way to a business meeting where you’ll meet someone for the first time? Well, that’s the perfect moment to use this very formal Mandarin greeting.
 
  If you want something even MORE‌ formal than that, go with 久闻大名 (jiǔwéndàmíng) literally meaning “your name is famous” – a phrase which could translate to something like “I have heard much about you”. But only use this on very special occasions like meeting the president or a person you hold in very high regard.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## 6\. 最近好吗？(zuì jìn hào mǎ) – “How are you these days?”
 
  Isn’t this beautiful? It’s very similar to the English “how are you?”, so you can use it accordingly.
 
 ![hi in chinese](https://edge.mondly.com/blog/wp-content/uploads/2019/12/hi-in-chinese-1024x682.jpg "How To Say Hello In Chinese: A Quick Guide To Chinese Greetings 3")
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
  “Hello there!” by Theodor Lundqvist©
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 7\. 大家好 (dàjiā hǎo) – say “hello” to a crowd in Chinese
 
  As mentioned earlier, 你好 nǐ hǎo is used to greet only one person at a time. So, if you need to say “hello” to a group of people in Mandarin Chinese, simply go with 大家好 (dàjiā hǎo).
@@ -102,8 +108,12 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  Staying up late to meet with your friends? Then this your chance to show them how well you’ve mastered the Mandarin greetings!
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 10\. 喂 (wèi) – answer your phone like a fluent speaker
 
  Although it is not specific to face-to-face interactions, 喂 (wèi) is still a greeting. So, if you want to answer your phone like a fluent speaker or check whether the person you are talking to is still on the other end of the line, 喂 (wèi) is the Chinese word you are looking for!
@@ -131,8 +141,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -140,4 +148,24 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-cutting-edge-tools-the-best-9-gif-recorders-for-animated-windows-content-for-2024/"><u>[New] Cutting-Edge Tools The Best 9 GIF Recorders for Animated Windows Content for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-srt-to-subcap-conversion-techniques/"><u>[New] SRT to SUBCAP Conversion Techniques</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-view-count-value-how-much-does-1-million-matter/"><u>[New] View Count Value How Much Does 1 Million Matter?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unlocking-youtube-secrets-sharing-videos-in-google-wallet/"><u>[Updated] Unlocking YouTube Secrets Sharing Videos in Google Wallet</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-pixel-prodigies-top-10-gaming-ladies-on-yt/"><u>2024 Approved Pixel Prodigies Top 10 Gaming Ladies on YT</u></a></li>
+<li><a href="https://howto.techidaily.com/app-wont-open-on-your-realme-gt-5-pro-here-are-all-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>App Wont Open on Your Realme GT 5 Pro? Here Are All Fixes | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-the-divide-essential-strategies-for-global-communication/"><u>Bridging the Divide: Essential Strategies for Global Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/british-vs-american-vocabulary-gaps/"><u>British vs American Vocabulary Gaps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/clasificacion-de-colores-por-dificultad/"><u>Clasificación De Colores Por Dificultad</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daily-life-in-korea-understanding-each-day/"><u>Daily Life in Korea: Understanding Each Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581242528-discover-new-languages-easily-only-047-more-than-before/"><u>Discover New Languages Easily – Only $0.47 More than Before!</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-unlock-new-dimensions-exploring-xbox-ones-zooming-feature/"><u>In 2024, Unlock New Dimensions Exploring Xbox One's Zooming Feature</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581410048-master-hindi-effortlessly-mondlys-top-8-learning-incentives/"><u>Master Hindi Effortlessly: Mondly's Top 8 Learning Incentives!</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/reviving-forgotten-dialogues-with-chatgpt-tips-and-tricks-for-history-recovery/"><u>Reviving Forgotten Dialogues with ChatGPT: Tips and Tricks for History Recovery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578037063-unlock-endless-learning-opportunities-for-free-with-mondly-pros-discount-offer/"><u>Unlock Endless Learning Opportunities for Free with Mondly Pro's Discount Offer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581145000-unlock-the-world-with-a-linguistic-95-off-offer-this-year/"><u>Unlock the World with a Linguistic 95% Off Offer This Year</u></a></li>
+<li><a href="https://howto.techidaily.com/want-to-uninstall-google-play-service-from-samsung-galaxy-a54-5g-here-is-how-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Want to Uninstall Google Play Service from Samsung Galaxy A54 5G? Here is How | Dr.fone</u></a></li>
+</ul></div>
 

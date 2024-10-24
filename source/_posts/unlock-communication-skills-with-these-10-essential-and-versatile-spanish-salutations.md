@@ -1,7 +1,7 @@
 ---
 title: Unlock Communication Skills With These 10 Essential & Versatile Spanish Salutations
-date: 2024-08-23T00:31:09.604Z
-updated: 2024-08-24T00:31:09.604Z
+date: 2024-10-18T17:42:54.047Z
+updated: 2024-10-24T18:08:39.451Z
 tags:
   - speak
   - english
@@ -34,6 +34,19 @@ thumbnail: https://thmb.techidaily.com/fe488ca615edc9308d7ef5f18a2de9eeeab475c2b
 
 **Bonus dating tip:** “Hello, beautiful” in Spanish is “Hola, hermosa” and “Hello, handsome” in Spanish is “Hola, hermoso”. Good luck! (wink wink)
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="864" height="1296" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Spanish greetings for certain moments of the day
 
 **Buenos días** – literally meaning “good days”, “buenos días” is more formal than “hola” and it translates to “[good morning](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . The same as in English, this greeting can be used anytime before noon in both formal and informal contexts.
@@ -48,9 +61,6 @@ thumbnail: https://thmb.techidaily.com/fe488ca615edc9308d7ef5f18a2de9eeeab475c2b
 
  ¡Hola, señor! by Bruce Jastrow©
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
-<!-- affiliate ads end -->
 ## “How are you?” in Spanish
 
  In many places around the world, you can also greet people by asking, “how are you?” or “what’s up?”. Particularly in informal situations.  
@@ -64,8 +74,12 @@ thumbnail: https://thmb.techidaily.com/fe488ca615edc9308d7ef5f18a2de9eeeab475c2b
 **¿Cómo va?** – it translates to “how is it going?” and you can also add “todo” at the end – ¿cómo va todo? – to expand its meaning to “how is it all going?
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## “Yes”, “please” and “thank you” in Spanish
 
  If you want to [learn Spanish colors](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , “yes”, “no”, “please” and “thank you” together with the above-mentioned greetings are the absolute basics you’ll need to master before moving forward. Here’s how to say these basic but at the same time crucial [Spanish words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) :
@@ -80,8 +94,18 @@ thumbnail: https://thmb.techidaily.com/fe488ca615edc9308d7ef5f18a2de9eeeab475c2b
 * Nice to meet you – Encantado/Encantada de conocerte
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Goodbye in Spanish
 
  At the end of your rendezvous, you will probably need to say “goodbye” so as to maintain the good first impression you managed to make with your flawless Spanish greetings and introductions. Let’s see how you can do that:
@@ -100,8 +124,18 @@ thumbnail: https://thmb.techidaily.com/fe488ca615edc9308d7ef5f18a2de9eeeab475c2b
 ![hasta la vista](https://media.giphy.com/media/2oVfyRHk1EuRy/giphy-downsized-large.gif "Hello In Spanish And Other Basic Spanish Greetings You Need To Know 4")
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<span id="1424533">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Not sure you understand how Spanish accents work? Check out our [article on how to master them all](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fhello-in-spanish-other-basic-spanish-greetings-you-need-know%2F&t=Hello+in+Spanish+and+Other+Basic+Spanish+Greetings+You+Need+to+Know "Share on Facebook")
@@ -125,8 +159,6 @@ thumbnail: https://thmb.techidaily.com/fe488ca615edc9308d7ef5f18a2de9eeeab475c2b
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -134,4 +166,18 @@ thumbnail: https://thmb.techidaily.com/fe488ca615edc9308d7ef5f18a2de9eeeab475c2b
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-free-windows-programs-expertly-record-live-shows-for-2024/"><u>[New] Free Windows Programs Expertly Record Live Shows for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-step-into-a-tiktok-realm-a-guide-for-joining-lives-for-2024/"><u>[New] Step Into a TikTok Realm A Guide for Joining Lives for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-transform-your-devices-display-into-a-high-quality-record/"><u>[New] Transform Your Device's Display Into a High-Quality Record</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-win-10s-best-webcam-recording-software-guide/"><u>[Updated] In 2024, Win 10'S Best Webcam Recording Software Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-decade-mondlyback-buttonfilter-triumph/"><u>A Decade: MondlyBack ButtonFilter Triumph</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultivating-a-natural-french-accent-with-idioms/"><u>Cultivating a Natural French Accent with Idioms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/efficiency-in-language-learning-top-7-afrikaans-strategies-on-mondly/"><u>Efficiency in Language Learning: Top 7 Afrikaans Strategies on Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576891755-jumpstart-your-2023-save-big-and-gain-lifetime-access-to-mondly-premium/"><u>Jumpstart Your 2023: Save Big & Gain Lifetime Access to Mondly Premium</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581371814-say-hi-in-another-language-today-at-nearly-no-cost-to-you/"><u>Say Hi in Another Language Today – At Nearly No Cost to You</u></a></li>
+<li><a href="https://extra-information.techidaily.com/shuttered-by-darkness-iphone-tips-and-tricks/"><u>Shuttered by Darkness IPhone Tips & Tricks</u></a></li>
+<li><a href="https://techidaily.com/solutions-to-open-excel-2003-read-only-documents-stellar-by-stellar-guide/"><u>Solutions to open Excel 2003 Read Only Documents | Stellar</u></a></li>
+</ul></div>
 

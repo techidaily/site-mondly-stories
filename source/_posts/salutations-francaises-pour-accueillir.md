@@ -1,7 +1,7 @@
 ---
 title: Salutations Françaises Pour Accueillir
-date: 2024-10-12T20:17:52.681Z
-updated: 2024-10-18T16:29:09.699Z
+date: 2024-10-21T18:28:56.847Z
+updated: 2024-10-24T16:29:51.542Z
 tags:
   - speak
   - english
@@ -30,6 +30,13 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
 
  You can use ‘_de rien’_ as an informal response to somebody who has thanked you. You’ll hear this expression used commonly throughout France in a range of situations.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### The literal translation of_‘de rien’_
 
  Whilst it’s important not to think too much about the literal translation of phrases from French into English, it can help us remember how and when to use them. The literal translation of ‘_de rien’_ is ‘of nothing’. In English, we’d likely say ‘no problem’ or ‘don’t worry about it.’
@@ -55,10 +62,10 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
  It is most common amongst very close friends and family members. This particular form is most appropriate when you want to express a higher level of gratitude than_‘de rien’_ , but with somebody close to you, with whom your relationship is casual.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### The literal translation of_‘je t’en prie’_
@@ -71,19 +78,6 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
 
  B:_Je t’en prie !_ (“You’re welcome!”)
 
-<!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3\. The formal “you’re welcome”:_je vous en prie_
 
  You’ll notice that this particular way to say ‘you’re welcome’ in French is very similar to the previous example. In fact, the phrase is almost identical. The only thing that’s changed is the personal pronoun. Instead of using the informal you –_‘tu’_ – we use the formal counterpart –_‘vous’_ .
@@ -91,16 +85,10 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
  This should make_‘je vous en prie’_ nice and easy to remember. Just be careful not to use it with close friends. Using_‘vous’_ will sound unnatural if you are in close company. Likewise, always use this version of you’re welcome in French if you are speaking with somebody you do not know, no matter their level of seniority.
 
 <!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### The literal translation of_‘je vous en prie’_
@@ -122,10 +110,10 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
  “Southern France, Toulouse” by DAT VO©
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
-  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. The easiest to remember:_pas de problème_
@@ -200,21 +188,14 @@ _Th_ _is post is delivered to you by James A. Smith._
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-stability-secured-the-ultimate-guide-for-uninterrupted-iphone-videos/"><u>2024 Approved Stability Secured The Ultimate Guide for Uninterrupted iPhone Videos</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581579845-embracing-new-words-anytime/"><u>Embracing New Words, Anytime</u></a></li>
-<li><a href="https://games-able.techidaily.com/exclusive-high-refresh-gaming-displays/"><u>Exclusive High-Refresh Gaming Displays</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exploring-english-accents-from-british-to-aussie/"><u>Exploring English Accents: From British To Aussie</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/hasten-time-learn-1-10-in-japanese-numbers/"><u>Hasten Time, Learn 1-10 in Japanese Numbers!</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-shotchrome-fx-chromes-screen-capturing/"><u>In 2024, ShotChrome FX Chrome's Screen Capturing</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-the-ultimate-tutorial-for-immersive-iphone-vr-viewing/"><u>In 2024, The Ultimate Tutorial for Immersive iPhone VR Viewing</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-realme-12plus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Realme 12+ 5G | Dr.fone</u></a></li>
-<li><a href="https://driver-download.techidaily.com/installing-epson-wf-7710-drivers-for-optimal-print-quality-on-windows-operating-systems/"><u>Installing EPSON WF-7710 Drivers for Optimal Print Quality on Windows Operating Systems</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581081152-mondly-brings-you-a-diverse-new-phrasebook/"><u>Mondly Brings You a Diverse New Phrasebook</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-the-ultimate-list-10-final-cut-pro-x-competitors-you-need-to-know/"><u>New 2024 Approved The Ultimate List 10 Final Cut Pro X Competitors You Need to Know</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ultimate-collection-of-zero-cost-japanese-learning-tools/"><u>The Ultimate Collection of Zero-Cost Japanese Learning Tools</u></a></li>
-<li><a href="https://blog-min.techidaily.com/the-ultimate-guide-to-choosing-the-most-superior-mkv-format-encoders-for-premium-quality-videos/"><u>The Ultimate Guide to Choosing the Most Superior MKV Format Encoders for Premium Quality Videos</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/understanding-the-duration-required-for-language-mastery/"><u>Understanding the Duration Required for Language Mastery</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/virtual-realm-for-language-learning-socializing-made-simple/"><u>Virtual Realm for Language Learning: Socializing Made Simple</u></a></li>
-<li><a href="https://win-top.techidaily.com/windows-78mp3-wav/"><u>Windows 7/8向けにMP3, WAV音声ファイルを効果的に編集する手引き</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-how-to-kick-start-your-digital-broadcast-today/"><u>2024 Approved How to Kick-Start Your Digital Broadcast Today</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-scalability-strategies-adapting-to-large-scale-meetings-with-zoom-in-windows-11/"><u>2024 Approved Scalability Strategies Adapting to Large-Scale Meetings with Zoom in Windows 11</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/4-ways-to-sync-contacts-from-apple-iphone-8-to-ipad-easily-drfone-by-drfone-transfer-from-ios/"><u>4 Ways to Sync Contacts from Apple iPhone 8 to iPad Easily | Dr.fone</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/best-movie-trailer-makers-for-mac-and-windows/"><u>Best Movie Trailer Makers for Mac and Windows</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/imaginative-inspirations-for-virtual-explorers-the-best-metaverse-moments/"><u>Imaginative Inspirations for Virtual Explorers The Best Metaverse Moments</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-love-jargon-for-a-special-day/"><u>International Love Jargon for a Special Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/practica-controlada-como-decir-colores/"><u>Práctica Controlada: Cómo Decir Colores</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-dance-of-dialogues-across-dialectal-divides/"><u>The Dance of Dialogues Across Dialectal Divides</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-future-of-user-assistance-with-mondlys-qanda-update/"><u>Unveiling the Future of User Assistance with Mondly’s Q&A Update</u></a></li>
 </ul></div>
 

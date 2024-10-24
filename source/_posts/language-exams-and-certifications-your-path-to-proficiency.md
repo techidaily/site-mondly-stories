@@ -1,7 +1,7 @@
 ---
 title: "Language Exams and Certifications: Your Path to Proficiency"
-date: 2024-08-23T00:26:57.227Z
-updated: 2024-08-24T00:26:57.227Z
+date: 2024-10-22T18:49:15.486Z
+updated: 2024-10-24T17:26:53.645Z
 tags:
   - speak
   - english
@@ -24,13 +24,18 @@ thumbnail: https://thmb.techidaily.com/e72d3325cc82dd8ab836962e9def246da610dd4ef
 
  Did you work hard to [learn a new language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ? It might be time for you to have your newly acquired language skills officially recognized. In this comprehensive guide, we will delve into the importance of language exams and certifications, offering insights into their benefits and top-rated exams across different languages. Let’s dive into the world of language exams and unlock your language potential.
 
-
-
 ## Overview of Language Exams/Tests
 
  Language exams or tests are structured assessments designed to measure an individual’s language proficiency. They**evaluate skills in reading, writing, listening, and speaking,** providing a comprehensive evaluation of one’s language abilities.
 
  These exams serve multiple purposes, such as determining language competency for educational admissions, job applications, or immigration requirements. By offering standardized assessments, language exams provide a common benchmark for assessing language skills, ensuring consistency and comparability across different contexts.
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Language Proficiency Scales
 
@@ -73,6 +78,13 @@ thumbnail: https://thmb.techidaily.com/e72d3325cc82dd8ab836962e9def246da610dd4ef
 
  Unlike other language exams,**the DELE certification never expires.**
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. French: DELF and DALF
 
 **DELF** (_Diplôme d’Études en Langue Française,_ meaning Diploma in French Language Studies) is an official certification of French language proficiency for non-native speakers. France Education International administers it on behalf of France’s Ministry of Education.
@@ -107,9 +119,6 @@ thumbnail: https://thmb.techidaily.com/e72d3325cc82dd8ab836962e9def246da610dd4ef
 
  The**HSK certificate does not have an expiration date** and remains valid indefinitely. However, for academic purposes, such as applying to a Chinese university, the certificate is typically accepted for a period of two years from the date of the exam. After this period, you may be required to retake the HSK to provide a more recent certification.
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 7\. Italian: CELI
 
 **CELI** –_The Certificato di Conoscenza della Lingua Italiana_ (Certificate of Knowledge of Italian Language) is an internationally recognized qualification for assessing the fluency of non-native Italian speakers. It is administered by the University for Foreigners of Perugia.
@@ -124,12 +133,6 @@ thumbnail: https://thmb.techidaily.com/e72d3325cc82dd8ab836962e9def246da610dd4ef
 
 ![top language exams](https://edge.mondly.com/blog/wp-content/uploads/2023/06/top-language-exams-960x640.jpg "Language Exams And Certifications: Your Path To Proficiency 8")
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ### 8\. Russian: TORFL
 
 **TORFL,** which stands for the Test of Russian as a Foreign Language_(Тест по русскому языку как иностранному or ТРКИ),_ is a comprehensive certification system designed to assess and certify the proficiency of non-native speakers in the Russian language.
@@ -140,9 +143,6 @@ thumbnail: https://thmb.techidaily.com/e72d3325cc82dd8ab836962e9def246da610dd4ef
 
  The**TORFL certificates do not have an expiration date,** serving as a lasting testament to your Russian language proficiency.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ### 9\. Japanese: JLPT
 
 **JLPT,** which stands for the Japanese-Language Proficiency Test, is a widely recognized language exam that evaluates and certifies the proficiency of non-native speakers in the [Japanese language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
@@ -153,9 +153,6 @@ thumbnail: https://thmb.techidaily.com/e72d3325cc82dd8ab836962e9def246da610dd4ef
 
 **The JLPT certificate never expires.**
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
 ### 10\. Portuguese: CAPLE
 
 **CAPLE** (_Centro de Avaliação de Português Língua Estrangeira_ or Centre for Evaluation of Portuguese as a Foreign Language) is a certification that assesses proficiency in Standard European Portuguese as a second language. The official CAPLE certificate is accredited by the University of Lisbon and the Instituto Camões, which administers the exams on behalf of the Portuguese Ministry of Foreign Affairs.
@@ -211,22 +208,40 @@ thumbnail: https://thmb.techidaily.com/e72d3325cc82dd8ab836962e9def246da610dd4ef
 ![language proficiency](https://edge.mondly.com/blog/wp-content/uploads/2023/06/language-proficiency-960x640.jpg "Language Exams And Certifications: Your Path To Proficiency 10")
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Tips for Language Exam Preparation
 
  Are you ready to ace your language certification? Let’s look at some tips for language exam preparation. Even if your language level is very good, preparing for a language exam is crucial. For example, doing a couple of sample tests can greatly improve your chances of success.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **Set your goal**
 
  To begin, identify the desired level of proficiency or score you wish to achieve and establish realistic goals for each language skill. This approach will help you prioritize your study efforts and effectively monitor your progress.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **Study the exam format**
 
  Familiarize yourself with the structure and sections of the test so you don’t get surprised on the spot. Make sure you know all the question types and tasks you will encounter in each section and the allocated time limits for each.
@@ -235,12 +250,16 @@ thumbnail: https://thmb.techidaily.com/e72d3325cc82dd8ab836962e9def246da610dd4ef
 
  Find out what every section is worth! Understanding the scoring criteria and proficiency levels the exam assesses is more important than you think. Will they evaluate your reading, writing, listening, speaking, vocabulary, and grammar skills?
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ### **Establish a study plan**
 
  Create a well-structured study schedule with dedicated time for each language skill: speaking, listening, writing, etc. Use diverse study materials, such as [language learning apps](https://app.adjust.com/5ixfg4k?campaign=blog-post-id-8270&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-8270&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-8270) , textbooks, online resources, and practice tests, to ensure a comprehensive learning experience.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **Practice with sample tests**
 
@@ -250,9 +269,23 @@ thumbnail: https://thmb.techidaily.com/e72d3325cc82dd8ab836962e9def246da610dd4ef
 
  If you’re one who gets nervous during an exam, allocate dedicated time to practice active listening and speaking to get confident. Mental blocks are more likely to happen when you’re put on the spot during listening and speaking exercises.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **Review and recap**
 
  Repetition is the key to learning. That’s why you must regularly review your learning material to reinforce your knowledge. If it’s too time-consuming, make summaries and review those!
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **Focus on the gaps**
 
@@ -260,9 +293,6 @@ thumbnail: https://thmb.techidaily.com/e72d3325cc82dd8ab836962e9def246da610dd4ef
 
  Prepping for success in language exams is ultimately easy if you stay organized and practice as much as possible. But remember, a positive mindset can make all the difference!
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Choose the Right Language Exam/Test for You
 
  Choosing the right language exam/test for you depends on a lot of things. What are your expectations? What is the language you want to assess? When making your choice, make sure you completely understand what’s your purpose with this certification. Fortunately, there are enough language proficiency tests to choose from. All you have to do is weigh the options. Here are some factors to consider when deciding which language test to take.
@@ -274,9 +304,6 @@ thumbnail: https://thmb.techidaily.com/e72d3325cc82dd8ab836962e9def246da610dd4ef
 
 ![language tests](https://edge.mondly.com/blog/wp-content/uploads/2023/06/language-tests-960x640.jpg "Language Exams And Certifications: Your Path To Proficiency 11")
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 * **Exam format and criteria:** To make an informed decision, it’s crucial to review the format, structure, and criteria of the language test to ensure it suits your strengths. Is the test computer-based, includes written or oral components, or follows a different format? Consider your comfort level with each format and choose the one that best suits your abilities. This will allow you to approach the test with confidence and perform at your best.
 * **Timing and location:** Before committing to a language test, check the availability of test centers and dates in your location. Make sure you have enough time left to prepare before the date you choose.
 * **Budget:** Is the test you chose within your budget? If not, consider switching to a less popular language exam. You’d be surprised to find out that some language exams offer the same benefits for less money.
@@ -284,36 +311,20 @@ thumbnail: https://thmb.techidaily.com/e72d3325cc82dd8ab836962e9def246da610dd4ef
 
  Does your desired language exam meet your conditions? Then it is a good choice. Now let’s move on to some frequently asked questions about language exams.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Frequently Asked Questions About Language Exams
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
-<!-- affiliate ads end -->
 ### What is the purpose of language exams?
 
  The purpose of language exams is to evaluate and certify an individual’s proficiency in a particular language. By successfully completing a language exam, you receive a certification or diploma that officially recognizes your language proficiency level. Some of these certifications are widely accepted and recognized by educational institutions, employers, and organizations around the world.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Why are language exams important?
 
  Language exams are important because they provide objective proof of language proficiency. Additionally, they help individuals gain educational and employment opportunities because they are recognized by institutions and employers worldwide. Language exams are also required for international mobility and serve as milestones in language learning. They also serve as milestones in language learning, offering motivation and a standardized evaluation process.
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 ### How can I prepare for language tests effectively?
 
  To prepare effectively for language tests, familiarize yourself with the test format, identify your strengths and weaknesses and take a lot of sample tests. This will help you prep for success and identify areas that need further improvement. Once you take a few practice tests, you’ll know exactly what you should learn next.
 
-<!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How are language exams scored?
 
  Language exams are typically scored using established criteria and scoring systems specific to each test. The scoring process varies depending on the test format and the skills being assessed. Many language exams have established score conversion tables or band scales. These tables or scales provide a standardized interpretation of test scores, allowing individuals and institutions to compare results across different administrations or applicants.
@@ -353,8 +364,6 @@ thumbnail: https://thmb.techidaily.com/e72d3325cc82dd8ab836962e9def246da610dd4ef
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -362,4 +371,19 @@ thumbnail: https://thmb.techidaily.com/e72d3325cc82dd8ab836962e9def246da610dd4ef
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-discover-best-border-apps-to-elevate-instagram-visuals-for-2024/"><u>[New] Discover Best Border Apps to Elevate Instagram Visuals for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-reverse-the-norm-flipping-videos-for-social-media/"><u>[New] Reverse the Norm Flipping Videos for Social Media</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-transform-your-video-editing-youtube-tunes-in-imovie/"><u>[New] Transform Your Video Editing YouTube Tunes in iMovie</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-cracking-the-code-of-true-instagram-photos/"><u>2024 Approved Cracking the Code of True Instagram Photos</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-transform-shots-to-boost-circular-vignette-features/"><u>2024 Approved Transform Shots to Boost Circular Vignette Features</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-i-transferred-messages-from-oppo-a78-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How I Transferred Messages from Oppo A78 to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/israelian-voyage-preparation-6-must-know-terms-and-insights/"><u>Israelian Voyage Preparation: 6 Must-Know Terms and Insights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/kommunikationskultur-deutsches-grazensummen-abseits-von-hallo/"><u>Kommunikationskultur: Deutsches Gräzensummen Abseits Von Hallo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/online-language-bridge-by-pearson-education/"><u>Online Language Bridge by Pearson Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-ukrainian-understanding-through-deliberate-10-minute-practices-93-chars/"><u>Quick Ukrainian Understanding Through Deliberate 10-Minute Practices (93 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quickbulgarian-quest-learn-in-bursts/"><u>QuickBulgarian Quest - Learn in Bursts</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unlocking-the-potential-of-ddr5-expert-overclocking-session-by-raphael-with-leading-semiconductor-giants-amd-and-samsung/"><u>Unlocking the Potential of DDR5: Expert Overclocking Session by Raphael with Leading Semiconductor Giants, AMD and Samsung</u></a></li>
+</ul></div>
 

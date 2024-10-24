@@ -1,7 +1,7 @@
 ---
 title: Introduction to Basic Mathematical Terms in Russian
-date: 2024-08-23T00:32:46.794Z
-updated: 2024-08-24T00:32:46.794Z
+date: 2024-10-17T17:28:29.728Z
+updated: 2024-10-24T18:05:36.052Z
 tags:
   - speak
   - english
@@ -36,6 +36,19 @@ thumbnail: https://thmb.techidaily.com/82b525816e76358af913747ae984d059f5f8a464e
 * feminine: одна _(odna)_ ; две _(dve)_
 * neuter: одно _(odno)_ ; два _(dva)_
 
+<!-- affiliate ads begin -->
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Learn how to count to 20 in Russian
 
  Did you manage to learn the Russian pronunciation for the first ten numbers? If you are having issues with the accent, you can [get Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4729&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4729?mother%5Flang=en%5Fus?target%5Flang=ru&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4729?mother%5Flang=en%5Fus?target%5Flang=ru) now and hear them pronounced by professional Russian speakers.
@@ -46,22 +59,30 @@ If you did manage, good job! You must be a natural.
 
 ![numbers in russian](https://edge.mondly.com/blog/wp-content/uploads/2020/04/numbers-in-russian-600x424.jpg "Russian Numbers - Learn How To Count In Russian 3")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Russian numbers 11-20
 
 **Good to know:** If you want to bring a flower bouquet when you are invited to someone’s house in Russia, choose an odd number of flowers – so три, пять, семь or девять flowers. One Russian superstition says that bouquets with an even number of flowers are adequate only for funerals.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Russian numbers: 21 and onwards
 
  From here on, Russian numbers are formed similarly to the English numbers (minus the word “and”). If 20 is двадцать_(dvadtsat)_ , then 21 is двадцать**один** _(_ _dvadtsat odin)_ and 22 is двадцать**два** _(dvadtsat dva)_ . Basically, you just**add the numbers from 1 to 9 to the tens.**
 
 ![russian numbers](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-numbers-600x424.jpg "Russian Numbers - Learn How To Count In Russian 4")
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
  Russian tens
 
 Here are some examples:
@@ -78,9 +99,6 @@ And guess what! It works the same with the hundreds.
 
 ![russian hundreds](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-hundreds-600x424.jpg "Russian Numbers - Learn How To Count In Russian 5")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Russian hundreds
 
  For example, if you want to say 146, you say сто сорок шесть_(sto sorok shest)_ .
@@ -88,8 +106,18 @@ And guess what! It works the same with the hundreds.
 Not as hard as you’d expect, is it?
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Russian ordinal numbers
 
  Now that you’ve learned the Russian cardinal numbers, let’s end this short lesson with some ordinal numbers. You never know when they may come in handy.
@@ -126,8 +154,6 @@ Not as hard as you’d expect, is it?
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -135,4 +161,21 @@ Not as hard as you’d expect, is it?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-decoding-advanced-techniques-for-flawless-snapchat-edits/"><u>[New] 2024 Approved Decoding Advanced Techniques for Flawless Snapchat Edits</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-the-role-of-authenticity-checks-in-social-media-posts/"><u>[New] The Role of Authenticity Checks in Social Media Posts</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-crafting-the-ideal-set-of-keywords-for-your-youtube-videos-for-2024/"><u>[Updated] Crafting the Ideal Set of Keywords for Your Youtube Videos for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-chuckle-friendly-image-editors-for-all-devices/"><u>[Updated] In 2024, Chuckle-Friendly Image Editors for All Devices</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-how-to-optimize-your-presence-on-spotify-ads/"><u>2024 Approved How to Optimize Your Presence on Spotify Ads</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-nokia-c02-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Nokia C02 Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-voice-that-echoes-johannes-honterus/"><u>A Voice that Echoes: Johannes Honterus</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/building-bridges-through-basic-chinese-greetings/"><u>Building Bridges Through Basic Chinese Greetings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/debunking-5-language-learning-myths-with-facts-and-experience/"><u>Debunking 5 Language Learning Myths with Facts and Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-indonesian-warmth-common-greetings-guide/"><u>Dive Into Indonesian Warmth: Common Greetings Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effusive-expressions-a-tribute-to-italian-love/"><u>Effusive Expressions: A Tribute to Italian Love</u></a></li>
+<li><a href="https://win-net.techidaily.com/enhance-your-text-editing-with-emeditor-features-white-space-management-and-width-limited-text-options/"><u>Enhance Your Text Editing with EmEditor Features: White Space Management and Width-Limited Text Options</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/top-specs-needed-for-smooth-4k-editing-in-adobe-premiere-pro/"><u>Top Specs Needed for Smooth 4K Editing in Adobe Premiere Pro</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578502910-what-languages-does-santa-claus-speak-find-out-now/"><u>What Languages Does Santa Claus Speak? Find Out Now!</u></a></li>
+</ul></div>
 

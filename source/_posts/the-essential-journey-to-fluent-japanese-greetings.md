@@ -1,7 +1,7 @@
 ---
 title: The Essential Journey to Fluent Japanese Greetings
-date: 2024-08-23T00:32:44.537Z
-updated: 2024-08-24T00:32:44.537Z
+date: 2024-10-21T18:14:02.844Z
+updated: 2024-10-24T16:25:04.414Z
 tags:
   - speak
   - english
@@ -45,13 +45,17 @@ thumbnail: https://thmb.techidaily.com/7a68a371ecefb61abf22397216f859079f91db410
 
  Curious about why there are multiple types of characters in Japanese? Here’s everything there is to know about the [Japanese writing system](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **How to say “hello” on the phone in Japanese: moshi moshi (もしもし)**
 
  Unlike English, which uses the same “hello” for a lot of different social contexts, the Japanese language has a dedicated “hello” for answering the phone:**moshi moshi (もしもし).** Doesn’t that sound cute?
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 2\. Good morning in Japanese and other relevant greetings
 
 **Good morning in Japanese**   **– O_hayō gozaimasu_**  (おはよう ございます) is the best choice for greeting someone in the early morning hours (before 10:00 a.m.). Unlike_Konnichiwa_ ,   **O_hayō gozaimasu_**  a little more formal, so it’s safe to use it with people you don’t know or when you are meeting people in a position of authority (such as your boss or your teacher).
@@ -69,8 +73,12 @@ This greeting is used both as a “hello” and as a “goodbye”.
 ![hi in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-japanese-960x639.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 3")
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  “Meguro River, Matsuno, Japan” by Sora Sagano©
 
 ## 3.“Goodbye” in Japanese
@@ -92,9 +100,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
  “See you soon, human” by Alain Pham©
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
 ## 4\. “Thank you” in Japanese and other polite phrases that you should know
 
  We already settled that the Japanese culture is a culture of respect and politeness. Thus, learning to say**“thank you” in Japanese** is probably one of your most important tasks to complete before visiting Japan. Lucky for you, there’s nothing difficult about that.
@@ -122,12 +127,12 @@ This greeting is used both as a “hello” and as a “goodbye”.
  “Kyoto, Japan” by Andre Benz©
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
+<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Don’t forget about the Japanese bow
 
  Every**“hello” in Japanese** is usually accompanied by a bow, the Western world equivalent of a handshake. Our advice would be to not skip the bow if you really want to feel like you belong.
@@ -145,8 +150,12 @@ No advertising on the website.
  – 45-degree bows are used for greetings only if you meet a very important person like the Emperor or the Prime Minister.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Bonus: basic conversation in Japanese
 
  If you don’t want to stop at just**“thank you” or “hello” in Japanese,** here are a few more**Japanese phrases** that are fairly easy to remember and will definitely make all the difference for your trip to Japan:
@@ -168,9 +177,6 @@ No advertising on the website.
 
 ![sayonara](https://edge.mondly.com/blog/wp-content/uploads/2019/08/sayonara-1024x680.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 6")
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
  “Tenryu-ji Temple, Kyōto-shi, Japan” by Masaaki Komori©
 
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fhello-in-japanese-japanese-greetings-you-need%2F&t=Hello+in+Japanese+%E2%80%93+All+the+Japanese+Greetings+You+Need+to+Know "Share on Facebook")
@@ -194,8 +200,6 @@ No advertising on the website.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -203,4 +207,24 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/rofessional-3d-design-apps-top-5-for-youtubers/"><u>[New] Professional 3D Design Apps - Top 5 for Youtubers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-graphical-forecast-the-dominant-23-social-themes-for-2024/"><u>[Updated] Graphical Forecast The Dominant '23 Social Themes for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-top-converter-mp4-to-facebook-social-media-pro/"><u>[Updated] Top Converter MP4 to Facebook (Social Media Pro)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580959940-17-spanish-sayings-that-will-make-you-sound-like-a-native/"><u>17 Spanish Sayings That Will Make You Sound Like A Native</u></a></li>
+<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-nubia-z50s-pro-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>4 Methods to Turn off Life 360 On Nubia Z50S Pro without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-hitchhikers-guide-to-galactic-dialogues/"><u>A Hitchhiker's Guide to Galactic Dialogues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/babelhub-dubai-the-new-frontier-for-language-enthusiasts/"><u>BabelHub Dubai: The New Frontier for Language Enthusiasts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/boost-your-bengali-skills-fastly/"><u>Boost Your Bengali Skills Fastly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/calendrier-francais-du-lunard/"><u>Calendrier Français Du Lunard</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cross-cultural-linguistics-mental-gains/"><u>Cross-Cultural Linguistics, Mental Gains</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/eloquent-echoes-world-languages-quintessence/"><u>Eloquent Echoes: World Languages' Quintessence</u></a></li>
+<li><a href="https://win-able.techidaily.com/fix-guide-how-to-get-resident-evil-5-running-smoothly-on-your-pc/"><u>Fix Guide: How to Get Resident Evil 5 Running Smoothly on Your PC</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576725998-from-beginner-to-fluent-learn-afrikaans-efficiently-on-mondly-heres-why/"><u>From Beginner to Fluent: Learn Afrikaans Efficiently on Mondly - Here’s Why!</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-comprehensive-look-at-lg-bp350-display-specifications/"><u>In 2024, Comprehensive Look at LG BP350 Display Specifications</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/reclaiming-ravaged-recordings-a-sample-method/"><u>Reclaiming Ravaged Recordings: A Sample Method</u></a></li>
+<li><a href="https://techtrends.techidaily.com/step-by-step-guide-restoring-defaults-in-your-macos-network-preferences/"><u>Step-by-Step Guide: Restoring Defaults in Your macOS Network Preferences</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/where-is-the-best-place-to-catch-dratini-on-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Realme 12 Pro+ 5G | Dr.fone</u></a></li>
+</ul></div>
 

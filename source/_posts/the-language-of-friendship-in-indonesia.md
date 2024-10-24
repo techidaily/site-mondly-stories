@@ -1,7 +1,7 @@
 ---
 title: The Language of Friendship in Indonesia
-date: 2024-08-23T00:29:13.866Z
-updated: 2024-08-24T00:29:13.866Z
+date: 2024-10-17T16:37:03.686Z
+updated: 2024-10-24T16:47:00.682Z
 tags:
   - speak
   - english
@@ -40,18 +40,6 @@ thumbnail: https://thmb.techidaily.com/5c4901379d06e76779eeda32a494315f2bc02d2e9
 
  On the other hand, if someone asks you how you are doing, you can say_kabar baik,_ which means “I am fine” or “I am well”. Here’s what a basic conversation in Indonesian sounds like:
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### ‘Hi’ in Indonesian
 
  Made some new friends during your trip to Bali? When you meet them, you can also use the more informal_hi,_ which is pronounced the same as the English “hi”.
@@ -59,9 +47,12 @@ thumbnail: https://thmb.techidaily.com/5c4901379d06e76779eeda32a494315f2bc02d2e9
 Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Indonesian greetings for different times of day
 
  Like [most languages](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , Indonesian also has some specific greetings dedicated to different times of the day. While in English, we begin every such greeting with “good”, in Indonesian_selamat_ is the word we use to wish people a “happy”, “peaceful” or “safe” day.
@@ -75,22 +66,12 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 ![indonesian words](https://edge.mondly.com/blog/wp-content/uploads/2022/07/indonesian-words.png "Hello In Indonesian: A Quick Guide To Indonesian Greetings 2")
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  The same way we say “morning!’ in English, Indonesians sometimes drop the_selamat_ . This results in a very informal greeting that can be used with friends and family.
 
  Determining the correct time of the day during which you should use a certain greeting is somehow tricky. However, most people will agree that_selamat pagi_ is best used until 11 p.m. and_selamat siang_ until 3 p.m._Selamat sore_ and_selamat malam_ highly depend on the daylight so it’s best to adjust your greetings on the spot.
@@ -98,8 +79,12 @@ Key features:
  Naturally,_selamat tidur_ is only used when someone is retiring for the night.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to say goodbye
 
  Similarly, you can use_selamat tinggal_ if you’re ready to say ‘goodbye’ and leave. If you’re the one staying, you should say_selamat jalan,_ which has no direct translation in English.
@@ -112,8 +97,12 @@ Key features:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Start learning Indonesian today
 
  If learning how to say ‘hello’ in Indonesian made you realize you want to become fluent in Indonesian, this is your lucky day. Award-winning language app Mondly is one of the few solutions available that offers Indonesian courses made by experts.
@@ -136,8 +125,6 @@ Get Mondly today and learn Indonesian naturally with the following:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -145,4 +132,19 @@ Get Mondly today and learn Indonesian naturally with the following:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-support.techidaily.com/updated-step-by-step-guide-insert-a-linked-text-in-your-tiktok-bio/"><u>[Updated] Step-by-Step Guide Insert a Linked Text in Your TikTok Bio</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-mi-11s-screen-recording-elevate-your-digital-storytelling/"><u>2024 Approved Mi 11'S Screen Recording Elevate Your Digital Storytelling</u></a></li>
+<li><a href="https://windows11.techidaily.com/add-command-to-windows-11-context-menu-for-file-moves-and-copies/"><u>Add Command to Windows 11 Context Menu for File Moves & Copies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/connect-worldwide-mondlys-enhanced-multicultural-phrasebook/"><u>Connect Worldwide: Mondly's Enhanced Multicultural Phrasebook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-communication-top-6-strategies-to-embrace-languages/"><u>Conquer Communication: Top 6 Strategies to Embrace Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquering-russian-greetings-keywords-for-fluency/"><u>Conquering Russian Greetings: Keywords for Fluency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effortless-daily-bengali-lessons/"><u>Effortless Daily Bengali Lessons</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/formato-de-video-gratuito-cambia-mov-por-m4a-con-soluciones-online-gratuitas/"><u>Formato De Video Gratuito: Cambia MOV Por M4A Con Soluciones Online Gratuitas</u></a></li>
+<li><a href="https://video-capture.techidaily.com/free-mp3-downloads-your-guide-to-finding-and-saving-hindi-tracks-from-youtube-gaana-saavn/"><u>Free MP3 Downloads: Your Guide to Finding & Saving Hindi Tracks From YouTube, Gaana, Saavn</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-fix-oem-unlock-missing-on-asus-by-drfone-android/"><u>How To Fix OEM Unlock Missing on Asus?</u></a></li>
+<li><a href="https://driver-download.techidaily.com/installing-the-latest-driver-for-logitech-c920-cameras-on-pcs-running-windows-version-11108/"><u>Installing the Latest Driver for Logitech C920 Cameras on PCs Running Windows (Version 11/10/8)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581107411-mondly-unveils-top-8-motivational-factors-to-learn-hindi-online/"><u>Mondly Unveils: Top 8 Motivational Factors to Learn Hindi Online</u></a></li>
+</ul></div>
 

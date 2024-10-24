@@ -1,7 +1,7 @@
 ---
 title: "Lexicon Origins: Shakespearean Words in Modern Chatter"
-date: 2024-10-17T21:55:00.957Z
-updated: 2024-10-18T21:04:52.492Z
+date: 2024-10-19T16:07:17.564Z
+updated: 2024-10-24T18:23:42.097Z
 tags:
   - speak
   - english
@@ -58,22 +58,29 @@ thumbnail: https://thmb.techidaily.com/95080ee1192e9ec99602ccecb30de670936b2e86c
 ![Shakespeare words](https://edge.mondly.com/blog/wp-content/uploads/2023/02/shakespeare-words.jpg "Shakespeare’s Words: 36 Words Shakespeare Invented That We Still Use Today 2")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Cool words Shakespeare invented
 
 _To invent new words, or not to invent new words?_ Clearly, William Shakespeare did not ask himself that. He just went with it and invented new words so he could properly tell his stories. In the end, he was so good at both storytelling and coining words that today it is impossible to have an English curriculum without Shakespeare. But enough tittle-tattle.**Let’s see what other words Shakespeare invented:**
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **1\. Addiction**
 
@@ -95,13 +102,6 @@ _King John_ , Act III, Scene I
 
 _King Henry VI_ , Part III, Act III, Scene III
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **6\. Fashionable**
 
 _Troilus and Cressida_ , Act III, Scene III
@@ -109,13 +109,6 @@ _Troilus and Cressida_ , Act III, Scene III
 ### **7\. (to) Friend**
 
 _Hamlet_ , Act I, Scene V
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **8\. (to) Gossip**
 
@@ -125,6 +118,13 @@ _The Comedy of Errors_ , Act V, Scene I
 
 _Othello_ , Act I, Scene III
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **10.** Laughable
 
 _The Merchant of Venice_ , Act I, Scene I
@@ -132,13 +132,6 @@ _The Merchant of Venice_ , Act I, Scene I
 ### **11\. Majestic**
 
 _Julius Caesar_ , Act I, Scene II
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **12.** Marketable
 
@@ -160,22 +153,15 @@ _Love’s Labour’s Lost_ , Act I, Scene I
 
 _Love’s Labour’s Lost_ , Act IV, Scene III
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **17.** Olympian
 
 _King Henry VI_ , Part III, Act II, Scene III
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **18.** Outbreak
@@ -195,10 +181,10 @@ _All’s Well That Ends Well_ , Act I, Scene I
 _Hamlet_ , Act V, Scene I
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **22\. (to) Swagger**
@@ -208,6 +194,13 @@ _A Midsummer Night’s Dream_ , Act III, Scene I
 ### **23.** Tranquil
 
 _Othello_ , Act III, Scene III
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **24.** Unreal
 
@@ -223,6 +216,13 @@ _Love’s Labour’s Lost_ , Act V, Scene II
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Improve thy English with speed
 
@@ -255,17 +255,20 @@ _Love’s Labour’s Lost_ , Act V, Scene II
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-syncing-images-android-iphone-file-transfer-guide/"><u>[New] 2024 Approved Syncing Images Android-iPhone File Transfer Guide</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-adsense-on-youtube-determining-your-income-from-1k-viewer-engagement-for-2024/"><u>[New] AdSense on YouTube Determining Your Income From 1K Viewer Engagement for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-demystifying-ajeys-monetization-strategy-youtube-edition/"><u>[Updated] In 2024, Demystifying Ajey's Monetization Strategy - YouTube Edition</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/earths-pedagogues-gala-linguistic-array/"><u>Earth's Pedagogues Gala: Linguistic Array</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719578913208-how-to-say-thank-you-in-30-different-languages/"><u>How To Say Thank You In 30 Different Languages</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-xiaomi-redmi-a2-by-phone-number-drfone-by-drfone-virtual-android/"><u>How to Track Xiaomi Redmi A2 by Phone Number | Dr.fone</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-streamlining-mov-recordings-in-windows/"><u>In 2024, Streamlining MOV Recordings in Windows</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/insider-techniques-how-to-erase-every-trace-of-data-off-your-ios-smartphone/"><u>Insider Techniques: How to Erase Every Trace of Data Off Your iOS Smartphone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/interaktionskultur-deutsches-wortschatz-repertoire-ohne-hallo/"><u>Interaktionskultur: Deutsches Wortschatz-Repertoire Ohne 'Hallo'</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-learning-a-gateway-to-smart-minds/"><u>Language Learning - A Gateway to Smart Minds</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/resolved-how-to-fix-volsnapsys-bsod-issues-on-your-windows-pc/"><u>Resolved: How to Fix Volsnap.sys BSOD Issues on Your Windows PC</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/solution-one-common-method-is-providing-adequate-transverse-reinforcement-stirrups-in-concrete-elements-which-helps-confine-the-core-and-delay-buckling-of-l137/"><u>Solution: One Common Method Is Providing Adequate Transverse Reinforcement (Stirrups) in Concrete Elements, Which Helps Confine the Core and Delay Buckling of Longitudinal Bars, Thus Enhancing Flexural Capacity and Ductility.</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-top-10-creative-overlays-for-video-content/"><u>[New] 2024 Approved Top 10 Creative Overlays for Video Content</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-decoding-revenue-how-much-do-creators-earn-on-youtube-in-2024/"><u>[New] Decoding Revenue How Much Do Creators Earn on Youtube, In 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-capture-the-essence-extracting-youtube-audio-directly/"><u>[Updated] 2024 Approved Capture the Essence Extracting YouTube Audio Directly</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-streamline-your-content-embedding-youtube-media-into-instagrams-story-section/"><u>[Updated] In 2024, Streamline Your Content Embedding YouTube Media Into Instagram's Story Section</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-no-money-more-matches-live-record-and-trim-soccer-games/"><u>[Updated] No Money, More Matches Live, Record & Trim Soccer Games</u></a></li>
+<li><a href="https://fox-web3.techidaily.com/design-and-develop-an-engaging-online-sales-catalogue-with-flipbuilder-tools/"><u>Design and Develop an Engaging Online Sales Catalogue with FlipBuilder Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/get-ready-to-meet-your-new-ai-conversation-partner/"><u>Get Ready to Meet Your New AI Conversation Partner</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-vernacular-vanguard-ranking-1-15/"><u>Global Vernacular Vanguard: Ranking 1-15</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/googles-2017-choice-mondly-a-kid-friendly-companion/"><u>Google's 2017 Choice: Mondly - A Kid-Friendly Companion</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-13-with-an-apple-watch-and-what-to-do-if-it-doesnt-work-by-drfone-ios/"><u>How to Unlock iPhone 13 With an Apple Watch & What to Do if It Doesnt Work</u></a></li>
+<li><a href="https://driver-download.techidaily.com/keeping-your-asus-portable-computer-running-smoothly-with-latest-driver-downloads/"><u>Keeping Your ASUS Portable Computer Running Smoothly with Latest Driver Downloads</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-kids-treats-guide-child-health-champion-in-2017s-top-apps/"><u>Mondly Kids Treats Guide: Child Health Champion in 2017'S Top Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speedy-bokmal-acquisition-in-daily-dashes/"><u>Speedy Bokmål Acquisition in Daily Dashes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-oxford-3000-learn-the-most-important-words-in-english/"><u>The Oxford 3000: Learn the Most Important Words in English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/verschiedene-wege-deutschsprachige-grussformeln-zu-finden/"><u>Verschiedene Wege, Deutschsprachige Grußformeln Zu Finden</u></a></li>
 </ul></div>
 

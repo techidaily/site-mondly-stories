@@ -1,7 +1,7 @@
 ---
 title: Peeking Into Mondly’s Instructional Design
-date: 2024-08-23T00:33:04.149Z
-updated: 2024-08-24T00:33:04.149Z
+date: 2024-10-20T16:19:38.994Z
+updated: 2024-10-24T16:02:47.189Z
 tags:
   - speak
   - english
@@ -19,8 +19,6 @@ thumbnail: https://thmb.techidaily.com/c381619f8aafcfb0f80b6508563d2271437d8649f
  How do [children learn languages](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) so easily? Biologically, a child’s brain is prepared for learning, but you never see kids study conjugations, do you? So how can this be possible?
 
  The answer is simpler than you think. They learn by doing. And that’s the best approach for you too.
-
-
 
  After years of working abroad and learning several languages, the founders of what would soon become Mondly made a decision. They needed to bring this amazing approach to an app. And they did.
 
@@ -44,6 +42,13 @@ thumbnail: https://thmb.techidaily.com/c381619f8aafcfb0f80b6508563d2271437d8649f
 
  Basically, what happens in the app is that new and more difficult words or phrases will be shown together with older and less difficult ones. But as you progress, the old information will be shown less and less frequently than the new one. This technique makes sure that the information you learned is well-cemented in your brain before moving on to new concepts.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Lexical coverage: focus on the most common words
 
  Improving your vocabulary is, without a doubt, one of the key aspects of language learning. The more words you’ll know, the closer you’ll be to fluency. But keep in mind that not all words are equally important.
@@ -51,6 +56,13 @@ thumbnail: https://thmb.techidaily.com/c381619f8aafcfb0f80b6508563d2271437d8649f
 [Studies](https://academic.oup.com/applij/article-abstract/34/4/457/199564?redirectedFrom=fulltext) have shown that knowing as little as 100 words helps you understand 50% of any text in the language you’re learning. Surprising as it may seem, it’s true. Knowing 1,000 words will give you a high coverage of 75% of any text. Here’s how much lexical coverage you need to reach fluency in almost any language:
 
 ![lexical coverage](https://edge.mondly.com/blog/wp-content/uploads/2021/10/lexical-coverage-960x761.png "The Learning Method Behind Mondly 5")
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lexical coverage overview
 
@@ -64,8 +76,12 @@ thumbnail: https://thmb.techidaily.com/c381619f8aafcfb0f80b6508563d2271437d8649f
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Take Mondly for a test drive
 
  Take your language learning experience to the next level. With Mondly, you’ll learn by doing.
@@ -82,8 +98,6 @@ thumbnail: https://thmb.techidaily.com/c381619f8aafcfb0f80b6508563d2271437d8649f
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -91,4 +105,24 @@ thumbnail: https://thmb.techidaily.com/c381619f8aafcfb0f80b6508563d2271437d8649f
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-reel-ready-content-best-insta-downloaders-explored/"><u>[New] In 2024, Reel-Ready Content Best Insta Downloaders Explored</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-mastering-mobile-photos-with-best-iphone-cameras-x-7plus/"><u>[Updated] Mastering Mobile Photos with Best iPhone Cameras (X, 7+)</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-unveiling-the-secrets-of-powerful-titles/"><u>[Updated] Unveiling the Secrets of Powerful Titles</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/6-transformative-outcomes-from-language-acquisition/"><u>6 Transformative Outcomes From Language Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cantonese/"><u>聖誕快樂 (Cantonese)</u></a></li>
+<li><a href="https://windows11.techidaily.com/accelerating-media-playback-in-vlc-for-pc-users/"><u>Accelerating Media Playback in VLC for PC Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/anatomie-universelle-en-francais-partes-du-corps/"><u>Anatomie Universelle en Français (Partes Du Corps)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breaking-language-barriers-with-essential-german-phonetic-skills/"><u>Breaking Language Barriers with Essential German Phonetic Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cinematic-journey-towards-language-mastery/"><u>Cinematic Journey Towards Language Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-diacritics-the-essence-of-spanish-pronunciation/"><u>Decoding Diacritics: The Essence of Spanish Pronunciation</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-the-latest-hp-deskjet-ink-advantage-3050a-software-for-windows-at-no-cost/"><u>Download the Latest HP Deskjet Ink Advantage 3050A Software for Windows at No Cost</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/efficient-polish-education-techniques/"><u>Efficient Polish Education Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embarking-on-a-phonetic-adventure-the-essentials-of-german-sounds/"><u>Embarking on a Phonetic Adventure: The Essentials of German Sounds</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/fixed-excel-2003-found-a-problem-with-one-or-more-formula-by-stellar-guide/"><u>Fixed Excel 2003 Found a Problem with One or more Formula</u></a></li>
+<li><a href="https://fox-that.techidaily.com/how-to-get-water-out-of-your-iphones-speakers/"><u>How to Get Water Out of Your iPhone's Speakers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/imovie-masterclass-drawing-viewers-into-your-content-quickly/"><u>IMovie Masterclass Drawing Viewers Into Your Content Quickly</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-oppo-reno-10-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Oppo Reno 10 Pro 5G? | Dr.fone</u></a></li>
+</ul></div>
 

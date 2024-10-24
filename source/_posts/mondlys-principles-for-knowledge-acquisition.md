@@ -1,7 +1,7 @@
 ---
 title: Mondly's Principles for Knowledge Acquisition
-date: 2024-10-12T18:56:02.827Z
-updated: 2024-10-18T18:26:48.335Z
+date: 2024-10-23T17:28:47.436Z
+updated: 2024-10-24T18:54:49.148Z
 tags:
   - speak
   - english
@@ -43,10 +43,10 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
  Basically, what happens in the app is that new and more difficult words or phrases will be shown together with older and less difficult ones. But as you progress, the old information will be shown less and less frequently than the new one. This technique makes sure that the information you learned is well-cemented in your brain before moving on to new concepts.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Lexical coverage: focus on the most common words
@@ -58,10 +58,10 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
 ![lexical coverage](https://edge.mondly.com/blog/wp-content/uploads/2021/10/lexical-coverage-960x761.png "The Learning Method Behind Mondly 5")
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lexical coverage overview
@@ -76,10 +76,10 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Take Mondly for a test drive
@@ -107,18 +107,16 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-leading-14-creative-text-animation-cases/"><u>[New] In 2024, Leading 14 Creative Text Animation Cases</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-accelerating-instagram-videos-quick-tips-for-2024/"><u>[Updated] Accelerating Instagram Videos Quick Tips for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-accessible-obs-presets-for-affordable-computers/"><u>2024 Approved Accessible OBS Presets for Affordable Computers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/access-to-knowledge-with-mondly-for-ukrainian/"><u>Access to Knowledge with Mondly for Ukrainian</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/daily-planet-choice-apples-popular-app/"><u>Daily Planet Choice: Apple's Popular App</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/how-to-track-a-lost-apple-iphone-14-pro-max-for-free-drfone-by-drfone-virtual-ios/"><u>How to Track a Lost Apple iPhone 14 Pro Max for Free? | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-two-ways-to-sync-contacts-from-xiaomi-redmi-a2plus-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Two Ways to Sync Contacts from Xiaomi Redmi A2+ to Gmail | Dr.fone</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/innovative-leap-by-openai-with-the-new-gpt-4-generative-ai-model/"><u>Innovative Leap by OpenAI with the New GPT-ˈ4 Generative AI Model</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/majorly-taught-global-languages-in-the-states/"><u>Majorly Taught Global Languages in the States</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/rapidly-absorb-czech-language-using-modern-online-methods/"><u>Rapidly Absorb Czech Language Using Modern Online Methods</u></a></li>
-<li><a href="https://network-issues.techidaily.com/resolved-winsoft-com-crash/"><u>Resolved WinSOFT COM Crash</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/timeworn-texts-the-linguistic-legacy-of-ancient-greece/"><u>Timeworn Texts: The Linguistic Legacy of Ancient Greece</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/tutorial-completo-scaricare-e-abilitare-il-codec-av1-sulle-versioni-piu-recenti-di-windows-11/"><u>Tutorial Completo: Scaricare E Abilitare Il Codec AV1 Sulle Versioni Più Recenti Di Windows (11)</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-simplified-approach-to-decoding-facebook-statistics/"><u>[New] 2024 Approved Simplified Approach to Decoding Facebook Statistics</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-essential-guide-to-androids-best-video-editors/"><u>[New] The Essential Guide to Android's Best Video Editors</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-unlock-your-phones-potential-for-high-quality-snapchat-recordings/"><u>[Updated] Unlock Your Phone's Potential for High-Quality Snapchat Recordings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-greeting-handbook/"><u>Global Greeting Handbook</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-giggles-on-iphones/"><u>In 2024, Giggles on iPhones</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-navigating-through-your-new-m1-max-clip-world/"><u>In 2024, Navigating Through Your New M1 Max Clip World</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/key-to-proper-spanish-accent-usage-in-writing/"><u>Key to Proper Spanish Accent Usage in Writing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-japanese-language-without-spending-money/"><u>Mastering Japanese Language Without Spending Money</u></a></li>
+<li><a href="https://driver-error.techidaily.com/no-drivers-installed-for-this-device-in-windows-1187-solved/"><u>No Drivers Installed for This Device in Windows 11/8/7 [SOLVED]</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/retro-remake-applying-modern-filters-on-previous-media-posts/"><u>Retro Remake Applying Modern Filters on Previous Media Posts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-naturally-17-commonplace-spanish-phrases/"><u>Speak Naturally: 17 Commonplace Spanish Phrases</u></a></li>
 </ul></div>
 

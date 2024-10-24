@@ -1,7 +1,7 @@
 ---
 title: Swift Techniques for Efficient Language Learning
-date: 2024-10-16T20:00:52.549Z
-updated: 2024-10-19T01:03:30.377Z
+date: 2024-10-17T16:45:27.540Z
+updated: 2024-10-24T16:39:49.529Z
 tags:
   - speak
   - english
@@ -38,14 +38,14 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
 
 ![learn a new language](https://edge.mondly.com/blog/wp-content/uploads/2018/04/learn-a-new-language-960x761.png "Tips And Techniques For Fast And Effective Language Learning 6")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  The reason behind this “trick” is that the**most common 1000 words account for 75% of all spoken communication** , while the**most common 3000 words account for 85% of it** . If this doesn’t feel real, just ask yourself if you know and use all the words in your mother tongue. You will soon realize that the answer is “no”.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Use mnemonics
 
@@ -54,6 +54,13 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
  **A mnemonic device is any learning technique that helps glue stubborn words or expressions to your memory.** There are many types of mnemonics you can create: music, name, expression/word, model, rhyme, note organization, image, connection or spelling mnemonics. The secret is to come up with it yourself so you’ll be more likely to remember it.
 
  For example, when I was in college and I had to memorize a long list of words, I always tried to come up with funny sentences or songs using them. I strongly recommend trying this or other types of mnemonics to improve your learning rhythm.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Identify your learning style
 
@@ -71,6 +78,19 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
 
  Use this information in your own best interest and**learning a new language** can happen a lot faster than you think.
 
+<!-- affiliate ads begin -->
+<span id="1975555">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. Train your ears and muscles for the new language
 
  When one of my friends moved to Denmark to study computer science, her biggest problem was learning Danish. Classes didn’t help much. Four months later and she still didn’t have a clue about the Danish language and its mysterious ways. So, she started learning by herself using language learning apps – like [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-1322&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-1322&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-1322) – and other learning strategies that I have shared with her.
@@ -78,19 +98,6 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
  The first step was to train her speech muscles in order to master pronunciation. You won’t believe it, but that was exactly like going to the gym. My friend’s mother tongue is Romanian. Naturally, the Danish language uses different speech muscles that begin to hurt when you first start practicing. In other words, we call this muscle soreness, but who would have thought that you could get it from**speaking another language** ? It’s funny but also true for my friend!
 
  Therefore, it’s always necessary to train your speech muscles and ears. Any foreign language may sound weird in the beginning. The secret is to hold on to it and exercise with common sounds until it becomes familiar.
-
-<!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5\. Study pronunciation rules and practice
 
@@ -109,10 +116,10 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
 [Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-1322&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-1322&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-1322&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-1322&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-1322%26mt%3D8)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 6\. Talk to yourself
@@ -121,18 +128,18 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
 
  People often claim that speaking in another language changes your personality. The process resembles the idea of having an alter ego. If this works the same for you, let your foreign language alter ego speak. It may be frustrating in the beginning, but it’s super-efficient.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 7\. Enjoy local movies and music
 
  Help your [brain understand that learning a new language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) is not something you do because you have to but because it’s fun. Find something you enjoy doing – like watching a film or listening to music – and try to associate this action with the language you want to learn.
 
 !['How to learn a new language' by Mollie Sivaram©](https://edge.mondly.com/blog/wp-content/uploads/2018/04/how-to-learn-a-new-language-960x640.jpg "Tips And Techniques For Fast And Effective Language Learning 8")
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  As a cinephile, I really enjoy watching films and television series, and last year, I did some research to find the best [movies from Denmark](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Today, my brain associates Danish lessons with something that I enjoy doing and information retention is much easier. Our brain opens just like a flower when we like what we are learning.
 
@@ -162,13 +169,6 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
 
  So what’s to be done? The cheapest way is to create an immersion environment at home. Basically, apply all the above-mentioned tips at once. Surround yourself with books in the language you want to learn, listen to music, learn the lyrics and sing along, read books and articles in your target language – everything all at once. The idea is to bring the new language into your environment.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Bonus tip: Stay optimistic
 
  The fastest way to learn a language is to remain optimistic. People often forget about this aspect, but being optimistic and enjoying the process is a crucial part of learning a new language. Don’t get discouraged by a few bad days. You know what they say: Rome wasn’t built in a day. It’s the same with fluency.
@@ -196,10 +196,10 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
+  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### From 0 to conversational fast
@@ -233,19 +233,19 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-elite-7-drone-gimbal-selections/"><u>[New] Elite 7 Drone Gimbal Selections</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-bring-your-gopro-adventures-online-facebookperiscope-livestream-setup/"><u>[Updated] In 2024, Bring Your Gopro Adventures Online Facebook/Periscope Livestream Setup</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-simplified-guide-integrating-snapchat-with-your-mac/"><u>[Updated] In 2024, Simplified Guide Integrating Snapchat with Your Mac</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-social-media-live-showdown-facebook-vs-youtube-and-twitter-periscope/"><u>[Updated] Social Media Live Showdown Facebook Vs. YouTube & Twitter Periscope</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discovering-indonesian-chit-chat-starts-here/"><u>Discovering Indonesian Chit-Chat Starts Here</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exclusive-headphone-range-best-sounds-for-screen-viewing/"><u>Exclusive Headphone Range: Best Sounds for Screen Viewing</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/getting-acquainted-with-zhuyin/"><u>Getting Acquainted with Zhuyin</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-forgotten-the-voicemail-password-of-nokia-c02-try-these-fixes-by-drfone-android/"><u>In 2024, Forgotten The Voicemail Password Of Nokia C02? Try These Fixes</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-enable-usb-debugging-on-a-locked-honor-play-8t-phone-by-drfone-android/"><u>In 2024, How To Enable USB Debugging on a Locked Honor Play 8T Phone</u></a></li>
-<li><a href="https://win11.techidaily.com/leveraging-linuxs-power-to-boost-android-on-windows/"><u>Leveraging Linux's Power to Boost Android on Windows</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/quick-fixes-for-when-your-wow-voice-channels-go-silent/"><u>Quick Fixes for When Your WoW Voice Channels Go Silent</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/second-language-skills-as-a-vital-fifties-endeavor/"><u>Second Language Skills as a Vital Fifties Endeavor</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sprachstarter-zahlen-bis-100-in-deutscher-sprache/"><u>Sprachstarter: Zählen Bis 100 in Deutscher Sprache</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-top-10-italian-greetings-how-to-say-hello-in-italian/"><u>The Top 10 Italian Greetings: How To Say Hello In Italian</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/utting-through-the-clutter-youtubes-copyright-evolution-for-2024/"><u>[New] Cutting Through the Clutter YouTube's Copyright Evolution for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-groundbreenas-choosing-first-time-gamers-editing-apps-for-2024/"><u>[Updated] Groundbreenas Choosing First-Time Gamers' Editing Apps for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-mastering-visual-communication-a-guide-to-adding-captions-on-tiktok/"><u>2024 Approved Mastering Visual Communication A Guide to Adding Captions on TikTok</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/5-masterful-fluid-interaction-titles-for-2024/"><u>5 Masterful Fluid Interaction Titles for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/apex-legends-solo-mode-top-choices-for-non-crossplay-gaming-for-2024/"><u>Apex Legends Solo Mode Top Choices for Non-Crossplay Gaming for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/exploring-ai-chatbot-restrictions-and-personal-repercussions/"><u>Exploring AI Chatbot Restrictions & Personal Repercussions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/guia-basica-declarar-la-hora-en-espanol/"><u>Guía Básica: Declarar La Hora en Español</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-repair-your-steelseries-arctis-9s-non-functional-mic-solutions-inside/"><u>How to Repair Your SteelSeries Arctis 9'S Non-Functional Mic - Solutions Inside</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-enable-usb-debugging-on-a-locked-nubia-red-magic-9-proplus-phone-by-drfone-android/"><u>In 2024, How To Enable USB Debugging on a Locked Nubia Red Magic 9 Pro+ Phone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-car-locator-apps-for-vivo-y02t-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Car Locator Apps for Vivo Y02T | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingualism-in-the-north-pole-santas-secret/"><u>Multilingualism in the North Pole – Santa’s Secret</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-through-common-language-learning-fallacies/"><u>Navigating Through Common Language Learning Fallacies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rhetoric-romance-pickup-line-playbook/"><u>Rhetoric Romance: Pickup Line Playbook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-bards-impact-vocabulary-that-never-dies/"><u>The Bard's Impact: Vocabulary That Never Dies</u></a></li>
 </ul></div>
 

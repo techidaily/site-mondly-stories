@@ -1,7 +1,7 @@
 ---
 title: "Vielfältig Sein: 10 Alternative Deutsche Begrüßungen"
-date: 2024-08-23T00:34:23.067Z
-updated: 2024-08-24T00:34:23.067Z
+date: 2024-10-19T16:59:20.468Z
+updated: 2024-10-24T16:29:51.684Z
 tags:
   - speak
   - english
@@ -36,9 +36,6 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 
  Since we’re discussing diminutives, let’s also mention that_tschüss_ (‘bye’) can become_tschüssi_ . How cute!
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 3\. Guten Tag – “Hello” or “Good day”
 
  Time to put your tie on!_Guten Tag_ is how you keep things formal. If you want to say ‘hello’ in German to a stranger or maybe to someone you respect, this is the best choice for you.
@@ -55,6 +52,13 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 * _Tag!_
 * _Abend!_
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4\. Wie geht es dir? – “How’s it going?”
 
  Don’t we all sometimes throw in a “how are you” instead of “hello” just to mix things up? Well, Germans do the same.
@@ -63,18 +67,12 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 
  If you want to be as word-efficient as a native, you can also just say the shortened_wie geht’s?_ version.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 5\. Alles klar? – “Everything alright?”
 
  While_alles klar_ can also mean “everything is clear?” or “all fine?”, in the context of greetings is the same as saying “what’s up?” in English.
 
  The simplest way to answer to_alles klar?_ is by saying_ya, danke_ meaning “yes, thanks”. As one would expect, this German greeting is mostly used by youngsters.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 6\. Was ist los? – “What’s up?”
 
  Very similar to_alles klar?_ ,_was ist los?_ is appropriate for very casual conversations.
@@ -82,6 +80,26 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
  When someone asks you_was ist los?_ , you have to pay close attention to their tone of voice. While in the context of greetings it can mean “what’s up?” or “what’s going on?”, if given the right tone, it can also mean “what’s wrong?” or “what’s the matter?”.
 
 !['German greetings' by Angelo Abear©](https://edge.mondly.com/blog/wp-content/uploads/2022/05/german-greetings-960x640.jpg "Hello In German: 10+ German Greetings Beyond Hallo 2")
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Regional German greetings
 
@@ -105,8 +123,18 @@ _– Na._ (“Fine. Thanks!”)
 **Localization:** mostly northern Germany.
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 2\. Moin moin – “Hi”
 
  The ‘harsh’ German language strikes again. Imagine you’re in Hamburg and people are cheerfully saying_moin_ or_moin moin_ or even_moinsten_ to you. What do you do? You say_moin_ back, of course!
@@ -115,18 +143,12 @@ _– Na._ (“Fine. Thanks!”)
 
 **Localization:** northern Germany, especially in and around Hamburg.
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 3\. Grüezi – “Hello”
 
 _Grüezi_ is a greeting you can use in formal situations, such as speaking with people you don’t know.
 
 **Localization:** Switzerland.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 4\. Grüß Gott – “God bless you”
 
  Mainly used by the older generations,_Grüß Gott_ is a very formal greeting that literally means “greetings (from) God” or “God greets you”.
@@ -174,8 +196,6 @@ _Tschüss!_ (‘Goodbye!’)
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -183,4 +203,23 @@ _Tschüss!_ (‘Goodbye!’)
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-the-ultimate-ipad-360-video-creation-for-facebook/"><u>[New] 2024 Approved The Ultimate iPad 360 Video Creation for Facebook</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-tech-savvy-strategies-recording-gotomeeting-on-any-gear-for-2024/"><u>[New] Tech-Savvy Strategies Recording GoToMeeting on Any Gear for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-the-insider-guide-for-seamless-video-sharing-on-instagram-tv-for-2024/"><u>[New] The Insider Guide for Seamless Video Sharing on Instagram TV for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-beat-blast-updated-technology/"><u>[Updated] 2024 Approved Beat Blast Updated Technology</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-crafting-engaging-youtube-channel-names-for-vlogger-success-no-more-than-156/"><u>[Updated] Crafting Engaging YouTube Channel Names for Vlogger Success (No More Than 156)</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-exploring-top-9-iphone-applications-for-adding-photo-water-marks/"><u>[Updated] Exploring Top 9 iPhone Applications for Adding Photo Water Marks</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-record-presentation-for-digital-projection/"><u>2024 Approved Record Presentation for Digital Projection</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/astonish-amalfitans-enjoy-the-richness-of-italian-expressions/"><u>Astonish Amalfitans: Enjoy the Richness of Italian Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/basic-guide-to-the-german-linguistic-system/"><u>Basic Guide to the German Linguistic System</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/boost-your-eloquence-mastering-english-conversation/"><u>Boost Your Eloquence: Mastering English Conversation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breaking-barriers-artificial-intelligences-role-in-learning/"><u>Breaking Barriers: Artificial Intelligence's Role in Learning</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/expert-picks-the-20-leading-graphic-design-software-solutions-today/"><u>Expert Picks: The 20 Leading Graphic Design Software Solutions Today</u></a></li>
+<li><a href="https://howto.techidaily.com/gmail-not-working-on-samsung-galaxy-z-flip-5-7-common-problems-and-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Gmail Not Working on Samsung Galaxy Z Flip 5 7 Common Problems & Fixes | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-proficiency-beyond-grammar/"><u>Linguistic Proficiency Beyond Grammar</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/shortcuts-to-fluent-urdu/"><u>Shortcuts to Fluent Urdu!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-todays-vernacular-decoding-everyday-words/"><u>Speaking Today's Vernacular: Decoding Everyday Words</u></a></li>
+</ul></div>
 

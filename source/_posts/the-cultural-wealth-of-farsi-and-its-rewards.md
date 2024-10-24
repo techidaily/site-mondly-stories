@@ -1,7 +1,7 @@
 ---
 title: The Cultural Wealth of Farsi & Its Rewards
-date: 2024-10-17T19:54:49.536Z
-updated: 2024-10-18T21:37:09.831Z
+date: 2024-10-19T17:05:27.566Z
+updated: 2024-10-24T16:11:30.343Z
 tags:
   - speak
   - english
@@ -28,6 +28,13 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
 
  In other words, the confusion arises from the fact that there’s currently no country on Earth named Persia in the same way there’s no language we can call the ‘Iranian language’. Persian does belong to the Iranian languages, but the Iranian languages are a branch of the Indo-Iranian languages in the Indo-European language family. So they are not an individual language.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The Persian language – history and facts
 
  One of the most fascinating things about Persian is its long history stretching back thousands of years. The Persian language that exists today is a continuation of Middle Persian, itself a continuation of Old Persian, which was used in the Achaemenid Empire between 550 and 330 BCE. Let’s look a little bit at the history of the Persian language and discover what makes it special.
@@ -44,6 +51,13 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
 
 !["Ferdowsi Shahnameh" by McGill Library©](https://edge.mondly.com/blog/wp-content/uploads/2022/09/mcgill-library-AH42Li7NKUc-unsplash-960x629.jpg "Persian Language: History &Amp; Benefits Of Learning Farsi/Persian 2")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Persian Literary History: Ferdowsi’s ‘Shahnameh’ — Siyavush in Sudaba’s private quarters.
 
  Today, there still are a significant number of [Arabic words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) in Persian, but not as many as there could have been.
@@ -53,19 +67,6 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
  During this Persian cultural resurgence, the Persian language and culture impacted a wide geographic area. For this reason, Persian has left its influence on many different languages, including a heavy influence on the [vocabulary of Urdu](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and Turkish. To this day, words of Persian origin can be found as far as Malaysia.
 
  As a matter of fact, there are even some English words of Persian origin. Some of them came directly into English from Persian, but most of them came indirectly into English via a different language. Some examples include bronze, jackal, lemon, mogul, mummy, scarlet, serendipity, shawl, tulip, turban, typhoon, khaki, caravan, and paradise. Probably the most interesting borrowing is the word “checkmate,” which comes from the Persian_Shah Mat_ , meaning “the king is dead”.
-
-<!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Persian vs Farsi: Is Farsi the same as Persian?
 
@@ -78,10 +79,10 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
  According to the [Academy of Persian Language and Literature](https://iranicaonline.org/articles/farhangestan) , the endonym ‘Farsi’ should be avoided in foreign languages. Instead, ‘Persian’ should be the appropriate designation in English, as it has the longest tradition in western languages and is better suited to convey the language’s role as a national and cultural continuity symbol.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Persian vs Arabic: Is Persian similar to Arabic?
@@ -95,13 +96,6 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
  Here are two videos of numbers from 1 to 10 in Persian and in Arabic so you can see the difference:
 
  All in all, Persian and Arabic can’t be considered mutually intelligible. A speaker of either Persian or Arabic with no knowledge of the other could recognize some basic words in writing, but conversations are a whole other story.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## The benefits of learning Farsi/Persian
 
@@ -124,10 +118,10 @@ Other benefits of learning Persian include:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Learn Persian online with Mondly
@@ -161,16 +155,20 @@ Other benefits of learning Persian include:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-capture-cumulative-chronicles/"><u>[New] 2024 Approved Capture Cumulative Chronicles</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-young-yachtsmens-playtime-pleasures-for-2024/"><u>[New] Young Yachtsmen's Playtime Pleasures for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dive-into-diverse-languages-with-googles-editor-selection-mondly/"><u>Dive Into Diverse Languages With Google's Editor Selection - Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fast-track-korean-acquisition-with-these-top-6-e-learning-tools/"><u>Fast-Track Korean Acquisition with These Top 6 E-Learning Tools</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-frame-by-frame-a-beginners-guide-to-converting-videos-to-photos-10-converters/"><u>In 2024, Frame by Frame A Beginners Guide to Converting Videos to Photos 10 Converters</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-can-we-unlock-our-honor-80-pro-straight-screen-edition-phone-screen-by-drfone-android/"><u>In 2024, How Can We Unlock Our Honor 80 Pro Straight Screen Edition Phone Screen?</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-lock-your-itel-p55-5g-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>In 2024, Lock Your Itel P55 5G Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/insiders-look-at-top-9-free-platforms-for-designing-youtube-logos/"><u>Insider's Look at Top 9 FREE Platforms for Designing YouTube Logos</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-fix-valorant-thumbnails-professionally-done-now/"><u>Quick-Fix Valorant Thumbnails Professionally Done Now!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/romance-linguistics-a-study-guide/"><u>Romance Linguistics: A Study Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/step-up-your-language-game-with-dark-on-netflix/"><u>Step Up Your Language Game with Dark on Netflix</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-netflix-picture-in-picture-how-to-use-the-netflix-floating-window-feature/"><u>[New] In 2024, Netflix Picture-in-Picture - How to Use the Netflix Floating Window Feature</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-beyond-reality-comparing-vr-augmented-and-mixed-tech/"><u>2024 Approved Beyond Reality Comparing VR, Augmented & Mixed Tech</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/discover-these-top-5-iphone-friendly-podcast-services/"><u>Discover These Top 5 iPhone-Friendly Podcast Services</u></a></li>
+<li><a href="https://android-frp.techidaily.com/easy-guide-to-lava-yuva-2-frp-bypass-with-best-methods-by-drfone-android/"><u>Easy Guide to Lava Yuva 2 FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-can-oneplus-12mirror-share-to-pc-drfone-by-drfone-android/"><u>How Can OnePlus 12Mirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-lightning-strike-fast-track-language-guide/"><u>Linguistic Lightning Strike: Fast-Track Language Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/market-dominance-keyphrases-for-successful-advertising/"><u>Market Dominance Keyphrases for Successful Advertising</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/methods-for-easing-endless-prompts-after-login-attempts/"><u>Methods for Easing Endless Prompts After Login Attempts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/o-poder-da-palavra-em-portugues-melhores-expressoes-para-amigos/"><u>O Poder Da Palavra Em Português: Melhores Expressões Para Amigos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/phonetic-finesse-navigating-complex-lexical-forms/"><u>Phonetic Finesse: Navigating Complex Lexical Forms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-tagalog-progress-daily-practice-weekly-successes/"><u>Quick Tagalog Progress: Daily Practice, Weekly Successes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-your-mind-embrace-free-language-with-mondly/"><u>Speak Your Mind: Embrace FREE Language with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-volumes-how-mondly-became-the-leading-app/"><u>Speaking Volumes: How Mondly Became the Leading App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transcending-language-gaps-for-lasting-bonds/"><u>Transcending Language Gaps for Lasting Bonds</u></a></li>
+<li><a href="https://techtrends.techidaily.com/windows-10-sync-settings-greyed-out-solved/"><u>Windows 10 Sync Settings Greyed Out [Solved]</u></a></li>
 </ul></div>
 

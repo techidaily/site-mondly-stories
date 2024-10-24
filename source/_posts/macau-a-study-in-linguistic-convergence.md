@@ -1,7 +1,7 @@
 ---
 title: "Macau: A Study in Linguistic Convergence"
-date: 2024-10-17T23:35:00.539Z
-updated: 2024-10-18T21:40:39.669Z
+date: 2024-10-20T18:50:53.679Z
+updated: 2024-10-24T17:32:30.353Z
 tags:
   - speak
   - english
@@ -36,6 +36,13 @@ thumbnail: https://thmb.techidaily.com/31170fc82b47adef76e35b1dbe5e6312865cece8c
 
  Despite its tumultuous history, Macau is the perfect example of a happy ending.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Multilingualism in Macau
 
  Now that you know the history behind it, the Macau linguistic heritage makes much more sense.
@@ -50,6 +57,13 @@ thumbnail: https://thmb.techidaily.com/31170fc82b47adef76e35b1dbe5e6312865cece8c
 
 ![Cantonese in Macau](https://edge.mondly.com/blog/wp-content/uploads/2023/06/cantonese.jpg "Exploring Macau’s Linguistic Mosaic: Cantonese, Macanese, And Portuguese Languages 2")
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Macanese: A Distinctive Creole Language of Macau
 
 **Macanese Patois or the Macanese creole language, known as Patuá** to its speakers, is a mixture of Cantonese, Malay, Sinhalese, and – most importantly – Portuguese. Developed as a lingua franca for communication among the multicultural community of traders, sailors, and settlers, Macanse emerged as a unique language reflecting the melting pot of cultures that Macau represented.
@@ -61,16 +75,10 @@ thumbnail: https://thmb.techidaily.com/31170fc82b47adef76e35b1dbe5e6312865cece8c
  Even during the time when Macau was Portuguese territory, the usage of Macanese was already declining, and this trend is unlikely to change now that the territory is under Chinese administration. However, speakers of Macanese still hold a deep sense of pride in the fact that Macau has its unique local language.
 
 <!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Portuguese in Macau: A Journey of 11,000 km
@@ -82,10 +90,10 @@ thumbnail: https://thmb.techidaily.com/31170fc82b47adef76e35b1dbe5e6312865cece8c
  The linguistic connection between Macau and Portugal also results in significant movement between the two regions. According to the [2021 Macau Census](https://www.dsec.gov.mo/Censos2021/en-US/) , individuals born in Portugal make up around 0.3% of Macau’s total population, indicating a notable presence of Portuguese-born residents in Macau.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Official Portuguese Usage in Macau
@@ -94,13 +102,6 @@ thumbnail: https://thmb.techidaily.com/31170fc82b47adef76e35b1dbe5e6312865cece8c
 
  In official government documents, both written Portuguese and written Chinese (traditional) are used. This dual-language approach demonstrates the recognition and value given to both languages in administrative matters. In daily life, it is common to come across signs and displays in Macau that feature written Chinese and written Portuguese. This parallel use of languages is similar to the coexistence of written Chinese and British English in Hong Kong.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Cantonese: The Dominant Language of Macau
 
  Cantonese, a variant of the [Chinese language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , is spoken in Macau, Hong Kong, Southern China, as well as by Chinese communities in North America and Southeast Asian countries. While Cantonese is considered a dialect of Chinese, it is important to note that Mandarin and Cantonese are not mutually intelligible, meaning speakers of one may not understand the other.
@@ -108,13 +109,6 @@ thumbnail: https://thmb.techidaily.com/31170fc82b47adef76e35b1dbe5e6312865cece8c
  **Despite the city’s historical ties with Portugal, Cantonese firmly dominates the social, commercial, and educational landscapes of Macau.** Over 85% of people in Macau speak Cantonese.
 
 ![multilingualism in Macau](https://edge.mondly.com/blog/wp-content/uploads/2023/06/multilingualism-in-macau.jpg "Exploring Macau’s Linguistic Mosaic: Cantonese, Macanese, And Portuguese Languages 3")
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Cantonese serves as the primary medium of instruction in the majority of schools in Macau. Additionally, there are mandatory classes that focus on Mandarin, ensuring students have exposure to and proficiency in the official language of China.
 
@@ -170,19 +164,18 @@ thumbnail: https://thmb.techidaily.com/31170fc82b47adef76e35b1dbe5e6312865cece8c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-hashtag-hype-unveiling-twitters-toptiktok-videos/"><u>[New] Hashtag Hype Unveiling Twitter's #TopTikTok Videos</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-leading-edge-webcams-and-camcorders-for-windows-11-pcs/"><u>[New] In 2024, Leading Edge Webcams & Camcorders for Windows 11 PCs</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-sociostreamer-convert-tweets-to-videos-for-2024/"><u>[Updated] SocioStreamer Convert Tweets to Videos for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/comprendiendo-botones-de-relojes-ensenanza-basica/"><u>Comprendiendo Botones De Relojes - Enseñanza Básica</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dive-into-dialect-diversity-get-a-staggering-95-off-languages-this-year/"><u>Dive Into Dialect Diversity - Get a Staggering 95% Off Languages This Year</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581448693-epic-deals-on-global-communication-today-only/"><u>Epic Deals on Global Communication Today Only!</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/forgot-your-xiaomi-redmi-note-12-pro-4g-lock-screen-pattern-pin-or-password-here-s-what-to-do-by-drfone-android-unlock-android-unlock/"><u>Forgot your Xiaomi Redmi Note 12 Pro 4G lock screen pattern, PIN or password? Here’s what to do</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-infinix-zero-5g-2023-turbo-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Infinix Zero 5G 2023 Turbo | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-two-ways-to-track-my-boyfriends-lava-yuva-2-without-him-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Two Ways to Track My Boyfriends Lava Yuva 2 without Him Knowing | Dr.fone</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/mastering-the-cosmos-of-3d-printing-an-expert-review-on-elegoos-revolutionary-neptune-4-plus-with-speedy-outputs/"><u>Mastering the Cosmos of 3D Printing - An Expert Review on Elegoo's Revolutionary Neptune 4 Plus with Speedy Outputs</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-precision-meets-gsl-excellence-from-pearson/"><u>Mondly's Precision Meets GSL Excellence From Pearson</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speaking-skill-sharpen-back-button-focus/"><u>Speaking Skill Sharpen: Back Button Focus</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/student-papers-vs-ai-outputs-the-modern-educational-crossroads/"><u>Student Papers Vs. AI Outputs: The Modern Educational Crossroads</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/whats-the-best-way-to-learn-a-language-online/"><u>What's The Best Way To Learn A Language Online</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-acclaimed-selections-discover-the-best-10-vimeo-file-harvesters/"><u>[New] 2024 Approved Acclaimed Selections Discover the Best 10 Vimeo File Harvesters</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-leading-tips-to-record-videos-in-silence/"><u>[New] In 2024, Leading Tips to Record Videos in Silence</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-jokejigsaw-crafting-comedy-graphics/"><u>[Updated] JokeJigsaw Crafting Comedy Graphics</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/essential-youtube-for-asmr-enthusiasts/"><u>Essential YouTube for ASMR Enthusiasts</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/fixed-excel-pivottable-overlap-error-troubleshooting-guide-stellar-by-stellar-guide/"><u>Fixed Excel PivotTable Overlap Error | Troubleshooting Guide | Stellar</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grasping-numbers-as-a-non-native-speaker/"><u>Grasping Numbers as a Non-Native Speaker</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-change-your-sim-pin-code-on-your-htc-u23-pro-phone-by-drfone-android/"><u>How To Change Your SIM PIN Code on Your HTC U23 Pro Phone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-the-premier-audio-augmented-app/"><u>Introducing the Premier Audio-Augmented App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-multiple-languages-quickly-and-quietly-with-the-best-3-platforms/"><u>Master Multiple Languages Quickly & Quietly With the Best 3 Platforms!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-simplifies-global-dialogue-with-new-words/"><u>Mondly Simplifies Global Dialogue with New Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-sounds-of-romance-in-language/"><u>The Sounds of Romance in Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/united-in-happiness-july-4th-revelries/"><u>United in Happiness: July 4Th Revelries</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-best-20-free-adobe-premiere-title-templates-to-download/"><u>Updated 2024 Approved Best 20 Free Adobe Premiere Title Templates to Download</u></a></li>
 </ul></div>
 

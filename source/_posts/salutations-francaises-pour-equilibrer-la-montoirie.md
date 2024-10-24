@@ -1,7 +1,7 @@
 ---
 title: Salutations Françaises Pour Équilibrer La Montoirie
-date: 2024-08-23T00:30:59.881Z
-updated: 2024-08-24T00:30:59.881Z
+date: 2024-10-19T17:56:39.665Z
+updated: 2024-10-24T16:59:50.155Z
 tags:
   - speak
   - english
@@ -46,6 +46,13 @@ thumbnail: https://thmb.techidaily.com/ac0768cd06937c4c888756e7c488f5bb27ac1d6ad
 
 ![de rien](https://edge.mondly.com/blog/wp-content/uploads/2021/05/de-rien-960x540.jpg "4 Popular Ways To Say You’re Welcome In French 2")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  “Strasbourg, France” by Patrick Robert Doyle©
 
 ## 2\. The informal “you’re welcome”:_je t’en prie_
@@ -53,6 +60,13 @@ thumbnail: https://thmb.techidaily.com/ac0768cd06937c4c888756e7c488f5bb27ac1d6ad
  Like_‘de rien’_ , which is certainly the most casual way to say you’re welcome in French, ‘_je t’en prie’_ is another informal way to respond to someone who expressed their gratitude towards you.
 
  It is most common amongst very close friends and family members. This particular form is most appropriate when you want to express a higher level of gratitude than_‘de rien’_ , but with somebody close to you, with whom your relationship is casual.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### The literal translation of_‘je t’en prie’_
 
@@ -65,17 +79,18 @@ thumbnail: https://thmb.techidaily.com/ac0768cd06937c4c888756e7c488f5bb27ac1d6ad
  B:_Je t’en prie !_ (“You’re welcome!”)
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 3\. The formal “you’re welcome”:_je vous en prie_
 
  You’ll notice that this particular way to say ‘you’re welcome’ in French is very similar to the previous example. In fact, the phrase is almost identical. The only thing that’s changed is the personal pronoun. Instead of using the informal you –_‘tu’_ – we use the formal counterpart –_‘vous’_ .
 
  This should make_‘je vous en prie’_ nice and easy to remember. Just be careful not to use it with close friends. Using_‘vous’_ will sound unnatural if you are in close company. Likewise, always use this version of you’re welcome in French if you are speaking with somebody you do not know, no matter their level of seniority.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ### The literal translation of_‘je vous en prie’_
 
  Again, the literal translation of ‘je vous en prie’ is ‘I pray you it’. The important thing to remember here is not the literal translation, but when exactly you should use_‘vous’_ instead of_‘tu’_ .
@@ -98,9 +113,6 @@ thumbnail: https://thmb.techidaily.com/ac0768cd06937c4c888756e7c488f5bb27ac1d6ad
 
  When you’re in the early stages of [learning French](https://travel-lingual.com/how-long-take-to-learn-french/) , sometimes the most sensible thing to do is use what you can remember. The word_‘problème’_ in this particular French expression resembles the English word ‘problem’ and should not be too difficult for you to learn. Be cautious of the [French grave accent](https://travel-lingual.com/french-accent-marks/) on the_‘e’_ as this alters the pronunciation of the word.
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### The literal translation of_‘pas de problème’_
 
  We’re cheating a little here. Whilst this version is not a direct translation of “you’re welcome” in French, it is still very common in France when responding to somebody who has expressed gratitude. The literal translation (as you may have guessed) is “no problem”.
@@ -115,33 +127,12 @@ Example:
 
  A:_Pas de problème. Merci._ (“No problem. Thanks.”)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
-<!-- affiliate ads end -->
 ## Bonus: Less common ways to say “you’re welcome” in French
 
  If you want to mix things up a bit, another informal and very casual way of saying you’re welcome in French is_‘il n’y a pas de quoi’_ . This literally means “there is no what”, but an adapted translation would be “there is no reason (to thank me)”. Being a casual expression, it can be used safely in the same contexts as_‘de rien’_ .
 
  Furthermore,_‘avec plaisir’_ is what you should use if you travel to southern France and want to sound like a local. It literally translates to “with pleasure”, but it is the French correspondent of “my pleasure”.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
-<!-- affiliate ads end -->
 ## Which version of you’re welcome in French should you use and when?
 
  As with any language, it’s important to understand which form of an expression to use in the right context in order to avoid embarrassment in certain situations.
@@ -166,8 +157,12 @@ _Th_ _is post is delivered to you by James A. Smith._
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Speak French fluently in just 10 minutes a day
 
  **Do you want to [speak French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) like a fluent speaker?** Get Mondly, the award-winning language learning app that will help you speak French as if you were Paris-born.
@@ -184,8 +179,6 @@ _Th_ _is post is delivered to you by James A. Smith._
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -193,4 +186,18 @@ _Th_ _is post is delivered to you by James A. Smith._
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-boosting-revenue-through-effective-facebook-video-marketing/"><u>2024 Approved Boosting Revenue Through Effective Facebook Video Marketing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprender-o-portuguese-e-suas-variantes-de-boas-vindas/"><u>Aprender O Portuguese E Suas Variantes De Boas-Vindas</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bonnes-nouvelles-en-francais-oui-bienvenue/"><u>Bonnes Nouvelles en Français: Oui, Bienvenue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-finnish-with-top-rated-online-courses/"><u>Conquer Finnish with Top-Rated Online Courses</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-urdu-in-just-10-minute-sessions/"><u>Conquer Urdu in Just 10-Minute Sessions</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-downgrade-iphone-se-to-the-previous-ios-system-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone SE to the Previous iOS System Version? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-lava-blaze-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use GPS Joystick to Fake GPS Location On Lava Blaze 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-for-people-wanting-to-mock-gps-on-realme-gt-5-240w-devices-drfone-by-drfone-virtual/"><u>In 2024, For People Wanting to Mock GPS on Realme GT 5 (240W) Devices | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-spoofing-life360-how-to-do-it-on-tecno-spark-go-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Spoofing Life360 How to Do it on Tecno Spark Go (2023)? | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/reset-itunes-backup-password-of-apple-iphone-6-prevention-and-solution-by-drfone-ios/"><u>Reset iTunes Backup Password Of Apple iPhone 6 Prevention & Solution</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlocking-the-power-of-smart-lock-a-beginners-guide-for-google-pixel-8-users-by-drfone-android/"><u>Unlocking the Power of Smart Lock A Beginners Guide for Google Pixel 8 Users</u></a></li>
+</ul></div>
 

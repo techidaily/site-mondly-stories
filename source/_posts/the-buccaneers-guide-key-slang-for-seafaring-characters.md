@@ -1,7 +1,7 @@
 ---
 title: "The Buccaneer's Guide: Key Slang for Seafaring Characters"
-date: 2024-10-17T21:13:44.556Z
-updated: 2024-10-19T00:21:13.064Z
+date: 2024-10-20T16:29:58.896Z
+updated: 2024-10-24T18:48:23.490Z
 tags:
   - speak
   - english
@@ -29,10 +29,10 @@ thumbnail: https://thmb.techidaily.com/83bd7ea4746fef983e9856e6043e48be8dfdd87c4
  Over the years, the idea gained a lot of notoriety and is now celebrated internationally by people and brands everywhere. For example, in 2008, to celebrate the day, Facebook introduced a pirate-translated version of its website.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The pirate accent: how to talk like a pirate
@@ -46,6 +46,13 @@ thumbnail: https://thmb.techidaily.com/83bd7ea4746fef983e9856e6043e48be8dfdd87c4
  All you have to do is talk in a deep, gravelly voice, grunt and growl a lot, use insults abundantly, yell “arr!” every now and then, mumble incoherently from all the rum you’ve drunk, slur your words, give up g’s and v’s in most words, and replace “you” and your“ with “ye” and “yer”.
 
 Easy peasy, ain’t it?
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Pirate lingo: useful pirate words and phrases
 
@@ -75,10 +82,16 @@ Easy peasy, ain’t it?
  Arr! Is Talk Like a Pirate Day one of the best parodic holidays ever or what? Not even [World Chocolate Day](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) sounds as good as talking like a pirate all day long with ye’ maties.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Avast, ye! Pirates have discovered a new way to learn languages
@@ -92,13 +105,6 @@ Easy peasy, ain’t it?
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Ahoy! Get your language skills to the next level
 
 [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-3348&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-3348&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-3348) is a pocket-held language tutor that allows you to put your brain on autopilot and enjoy the sail to fluency in 33 languages.
@@ -106,10 +112,10 @@ Easy peasy, ain’t it?
  By combining solid neural science, cutting edge technologies, bite-sized Daily Lessons and a gamified experience guaranteed to make you addicted to learning languages, Mondly gets you fluent faster than you could ever imagine. Every true pirate loves it ![Learn a new language now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-3348&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-3348%26utm%5Fsource%3Dblog-post-id-3348&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-3348%26utm%5Fsource%3Dblog-post-id-3348&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-3348%26utm%5Fsource%3Dblog-post-id-3348&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-3348%26mt%3D8 "Learn a new language now")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
@@ -127,24 +133,20 @@ Easy peasy, ain’t it?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-navigating-tiktok-lives-your-step-by-step-guide/"><u>[New] 2024 Approved Navigating TikTok Lives Your Step-by-Step Guide</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-pioneering-your-path-in-youtube-livestreams-on-mobiles-for-2024/"><u>[New] Pioneering Your Path in YouTube Livestreams on Mobiles for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-the-art-of-online-recording-for-2024/"><u>[New] The Art of Online Recording for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-targeted-thought-leadership-with-profound-fb-video-strategies/"><u>[Updated] In 2024, Targeted Thought Leadership with Profound FB Video Strategies</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/17-must-know-spanish-expressions-for-fluency/"><u>17 Must-Know Spanish Expressions for Fluency</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-creating-square-instagram-video-tutorial-using-imovie/"><u>2024 Approved Creating Square Instagram Video Tutorial Using iMovie</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-exclusive-edition-motorcyclings-top-action-cameras-of-2023-review/"><u>2024 Approved Exclusive Edition Motorcycling’s Top Action Cameras of 2023 Review</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-decade-of-filter-prowess-by-mondlyback/"><u>A Decade of Filter Prowess by MondlyBack</u></a></li>
-<li><a href="https://app-tips.techidaily.com/agnes-ro-discusses-the-transformation-in-developer-responsibilities-at-atlassian-insights-from-zdnet/"><u>Agnes Ro Discusses the Transformation in Developer Responsibilities at Atlassian - Insights From ZDNet</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/conquering-communication-barriers-the-hardest-to-learn-languages/"><u>Conquering Communication Barriers: The Hardest to Learn Languages</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/diminishing-visual-vibrations-on-pro-7/"><u>Diminishing Visual Vibrations on Pro 7</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-edit-and-send-fake-location-on-telegram-for-your-motorola-g54-5g-in-3-ways-drfone-by-drfone-virtual-android/"><u>In 2024, Edit and Send Fake Location on Telegram For your Motorola G54 5G in 3 Ways | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-journey-through-time-unveiled/"><u>Mondly's Journey Through Time Unveiled</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/nombre-a-aprender-de-fauna-en-espanol/"><u>Nombre a Aprender De Fauna en Español</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/proverbs-and-phrases-that-define-the-german-spirit-top-25/"><u>Proverbs and Phrases that Define the German Spirit (Top 25)</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/resetting-connectivity-a-users-manual-to-freshen-up-network-setups-on-a-mac/"><u>Resetting Connectivity: A User's Manual to Freshen Up Network Setups on a Mac</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-first-step-understanding-counting-in-the-russian-language/"><u>The First Step: Understanding Counting in the Russian Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579693755-top-10-easiest-languages-to-learn/"><u>Top 10 Easiest Languages To Learn</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/want-to-understand-the-squid-game-in-korean-learn-the-languageback-buttonfilter-button/"><u>Want To Understand The Squid Game In Korean? Learn The LanguageBack ButtonFilter Button</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-the-artistic-journey-animating-scenes-with-windows-movie-maker/"><u>[New] 2024 Approved The Artistic Journey Animating Scenes with Windows Movie Maker</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-tiny-turbines-car-shindig/"><u>[New] Tiny Turbines' Car Shindig</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-social-media-success-todays-powerful-instagram-tags/"><u>[Updated] In 2024, Social Media Success Today's Powerful #Instagram Tags</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-phasecope-pro-top-lightroom-replacements-unveiled/"><u>[Updated] PhaseCope Pro Top Lightroom Replacements Unveiled</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-poco-x5-pro-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Poco X5 Pro Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/1722994896942-expert-tips-to-resolve-valheim-pc-stuttering-ensure-smooth-gameplay-today/"><u>Expert Tips to Resolve Valheim PC Stuttering – Ensure Smooth Gameplay Today!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-hoist-your-words-like-a-flag/"><u>How to Hoist Your Words Like a Flag</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/i-mille-numero-italiani-conoscenze-per-la-superiorita/"><u>I Mille Numero Italiani: Conoscenze per La Superiorità</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-delete-icloud-account-remove-your-apple-id-permanently-on-iphone-7-by-drfone-ios/"><u>In 2024, How To Delete iCloud Account Remove Your Apple ID Permanently On iPhone 7</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/korean-language-journey-top-6-online-tools-for-success/"><u>Korean Language Journey: Top 6 Online Tools for Success</u></a></li>
+<li><a href="https://review-topics.techidaily.com/realme-messages-recovery-recover-deleted-messages-from-realme-by-fonelab-android-recover-messages/"><u>Realme Messages Recovery - Recover Deleted Messages from Realme</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-language-of-gratitude-basic-xiexie-and-more/"><u>The Language of Gratitude: Basic Xièxiè and More</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-new-augmented-reality-app-from-mondly-is-the-future-of-language-learning/"><u>The New Augmented Reality App From Mondly Is the Future of Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-value-of-english-mastery-insights/"><u>The Value of English Mastery: Insights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-100-frequently-miswritten-english-vocabulary-words/"><u>Top 100 Frequently Miswritten English Vocabulary Words</u></a></li>
 </ul></div>
 

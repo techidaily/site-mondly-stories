@@ -1,7 +1,7 @@
 ---
 title: Russian Counting Companion for New Learners
-date: 2024-08-23T00:30:05.639Z
-updated: 2024-08-24T00:30:05.639Z
+date: 2024-10-23T17:53:19.750Z
+updated: 2024-10-24T17:15:31.678Z
 tags:
   - speak
   - english
@@ -36,6 +36,13 @@ thumbnail: https://thmb.techidaily.com/46162ff1d50cb6f1b35f044048a0b2464ebecd738
 * feminine: одна _(odna)_ ; две _(dve)_
 * neuter: одно _(odno)_ ; два _(dva)_
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Learn how to count to 20 in Russian
 
  Did you manage to learn the Russian pronunciation for the first ten numbers? If you are having issues with the accent, you can [get Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4729&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4729?mother%5Flang=en%5Fus?target%5Flang=ru&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4729?mother%5Flang=en%5Fus?target%5Flang=ru) now and hear them pronounced by professional Russian speakers.
@@ -51,8 +58,12 @@ If you did manage, good job! You must be a natural.
 **Good to know:** If you want to bring a flower bouquet when you are invited to someone’s house in Russia, choose an odd number of flowers – so три, пять, семь or девять flowers. One Russian superstition says that bouquets with an even number of flowers are adequate only for funerals.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Russian numbers: 21 and onwards
 
  From here on, Russian numbers are formed similarly to the English numbers (minus the word “and”). If 20 is двадцать_(dvadtsat)_ , then 21 is двадцать**один** _(_ _dvadtsat odin)_ and 22 is двадцать**два** _(dvadtsat dva)_ . Basically, you just**add the numbers from 1 to 9 to the tens.**
@@ -60,8 +71,12 @@ If you did manage, good job! You must be a natural.
 ![russian numbers](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-numbers-600x424.jpg "Russian Numbers - Learn How To Count In Russian 4")
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Russian tens
 
 Here are some examples:
@@ -79,17 +94,18 @@ And guess what! It works the same with the hundreds.
 ![russian hundreds](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-hundreds-600x424.jpg "Russian Numbers - Learn How To Count In Russian 5")
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Russian hundreds
 
  For example, if you want to say 146, you say сто сорок шесть_(sto sorok shest)_ .
 
 Not as hard as you’d expect, is it?
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Russian ordinal numbers
 
  Now that you’ve learned the Russian cardinal numbers, let’s end this short lesson with some ordinal numbers. You never know when they may come in handy.
@@ -126,8 +142,6 @@ Not as hard as you’d expect, is it?
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -135,4 +149,19 @@ Not as hard as you’d expect, is it?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/ownload-mastery-11-key-youtube-extractors/"><u>[New] Download Mastery 11 Key YouTube Extractors</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-unlocking-ez-grabber-a-quick-guide-to-downloading-setting-up/"><u>[New] In 2024, Unlocking EZ Grabber - A Quick Guide to Downloading, Setting Up</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-instagram-to-twitter-share-content-directly-no-rt/"><u>[New] Instagram to Twitter Share Content Directly (No RT)</u></a></li>
+<li><a href="https://video-capture.techidaily.com/1716069469092-updated-in-2024-effortlessly-create-a-cross-platform-conversation-space-on-skype-a-detailed-manual-for-users-of-all-os-platforms/"><u>[Updated] In 2024, Effortlessly Create a Cross-Platform Conversation Space on Skype A Detailed Manual for Users of All OS Platforms.</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/2024-approved-gourmet-greats-tiktoks-finest-foodies/"><u>2024 Approved Gourmet Greats TikTok's Finest Foodies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-gaps-in-france-with-key-linguistic-tools/"><u>Bridging Gaps in France with Key Linguistic Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprehensive-list-of-10-common-spanish-salutations-and-greetings/"><u>Comprehensive List of 10 Common Spanish Salutations And Greetings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daily-10-minute-commitment-to-latvian-mastery/"><u>Daily 10-Minute Commitment to Latvian Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciding-german-versus-french-proficiency-advantages/"><u>Deciding: German Versus French Proficiency Advantages</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/effective-strategies-for-crafting-convincing-proposals-using-chatgpt/"><u>Effective Strategies for Crafting Convincing Proposals Using ChatGPT</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/unstuck-your-voice-communication-in-apex-legends-fixes-you-need-today/"><u>Unstuck Your Voice Communication in Apex Legends – Fixes You Need Today!</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/vimeo-to-gif-how-to-make-a-gif-from-vimeo-video-for-2024/"><u>Vimeo to GIF How to Make a GIF From Vimeo Video for 2024</u></a></li>
+</ul></div>
 

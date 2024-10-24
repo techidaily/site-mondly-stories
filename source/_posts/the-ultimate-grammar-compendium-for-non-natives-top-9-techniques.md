@@ -1,7 +1,7 @@
 ---
 title: "The Ultimate Grammar Compendium for Non-Natives: Top 9 Techniques"
-date: 2024-08-23T00:27:20.588Z
-updated: 2024-08-24T00:27:20.588Z
+date: 2024-10-19T16:35:00.192Z
+updated: 2024-10-24T17:19:07.358Z
 tags:
   - speak
   - english
@@ -63,11 +63,6 @@ thumbnail: https://thmb.techidaily.com/b59d364af3f09a7a6d6a7653115b93ded9b0954f8
 
  At first glance, there is a lot of information you need to remember. But rest assured: you won’t always have to analyze the situation over and over again in order to choose the correct tense. In time, you will get used to using the correct form naturally.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ## 3\. Learn the English irregular verbs
 
  There are about 200 [irregular verbs](https://en.wikipedia.org/wiki/English%5Firregular%5Fverbs) (and significantly more if prefixed forms are counted) in English. In most cases, the irregularity concerns the past tense or the past participle.
@@ -77,8 +72,12 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
  Don’t forget that this is a central part of English grammar and mastering it will help you sound like a true native fast. Besides, mistaking one verb form for another is something you should avoid at all costs!
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 4\. Focus on context instead of rules
 
  When it comes to [**speaking English**](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ,[Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4717&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4717&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4717) is probably the best tool that can get you there really fast. Why? Because Mondly is based on the inductive method: learn by doing, context and example, and extrapolate to rules. In other words, start thinking in English rather than construct a phrase in your native language, apply the rules and only then translate it accordingly.
@@ -89,18 +88,12 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
  The experts behind Mondly know how amazing the human brain is. This is why they carefully selected the content so that you’ll practice and the brain will make the connections itself. You don’t focus on the process but on the final result: speaking English like a native.
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 5\. Learn the most common exceptions
 
  Forget about rules. Focus on the most common exceptions. Once you begin using the inductive learning method, rules will follow naturally. So it’s the exception you need to study and master.
 
  Whether we are talking about adjective forms, irregular verbs, or nouns without plurals, exceptions are fewer and can help you achieve the level of English fluency and correctness you always dreamed you’d have.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
-<!-- affiliate ads end -->
 ## 6\. Practice English Grammar with Oxford
 
  Being the best always requires hard work and practice. Thus, if you want to take a step further and grow from beginner to advanced and later proficient, you should practice grammar with the special workbooks from [Oxford](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
@@ -109,20 +102,27 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
 ![english grammar lessons](https://edge.mondly.com/blog/wp-content/uploads/2020/04/english-grammar-lessons-600x555.jpg "9 English Grammar Tips From An Esl Speaker 2")
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
  “Find your favorite book” by 🇸🇮 Janko Ferlič©
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 7\. Don’t overthink it
 
  Go with the flow and let the inductive method work. Trust your instinct. In time, once you get used to the language, you’ll be able to speak English as easily as you speak your native language.
 
  Don’t calculate your next ten moves. Instead, think directly in English and just speak. If you overthink a phrase now, you’ll overthink it forever.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 8\. Read your favorite books in English
 
@@ -131,6 +131,13 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
  But you can choose any book you want. Just make sure it matches your proficiency level.
 
  Seeing the English grammar in context will help you assimilate the information faster and learn to use it successfully yourself.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 9\. Make English grammar your friend
 
@@ -157,8 +164,6 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -166,4 +171,26 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/nleashing-potential-mastering-advertising-partnerships-with-famebit/"><u>[New] Unleashing Potential Mastering Advertising Partnerships with FameBit</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-expert-picks-8-superior-linux-snapshot-tools/"><u>[Updated] 2024 Approved Expert Picks 8 Superior Linux Snapshot Tools</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-top-30-youtube-intro-creators-for-spectacular-opening-videos/"><u>[Updated] 2024 Approved Top 30 YouTube Intro Creators for Spectacular Opening Videos</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-navigating-facebook-to-play-youtube-videos-without-interruption/"><u>2024 Approved Navigating Facebook to Play YouTube Videos Without Interruption</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/asus-optical-drive-drivers-secure-and-easy-download-options/"><u>ASUS Optical Drive Drivers - Secure & Easy Download Options</u></a></li>
+<li><a href="https://extra-information.techidaily.com/chime-connoisseurs-curated-list-of-download-websites-for-2024/"><u>Chime Connoisseurs Curated List of Download Websites for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/effortless-steps-to-get-your-wacom-graphic-tablet-up-and-running/"><u>Effortless Steps to Get Your Wacom Graphic Tablet Up and Running</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ce-creativity-how-to-attain-filmora-fcc-accreditation/"><u>Embrace Creativity How to Attain Filmora FCC Accreditation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhancing-your-english-mondly-unveiled-strategies/"><u>Enhancing Your English: Mondly Unveiled Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-croatian-communications-for-stress-free-local-exploration/"><u>Essential Croatian Communications for Stress-Free Local Exploration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-pronunciation-fundamentals-in-german/"><u>Exploring Pronunciation Fundamentals in German</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressoes-de-bencao-em-portugues-diversao-e-conhecimento/"><u>Expressões De Bênção Em Português - Diversão E Conhecimento</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fiery-flirtations-iconic-french-cinema/"><u>Fiery Flirtations: Iconic French Cinema</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/finding-the-language-that-suits-you-best/"><u>Finding The Language That Suits You Best</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fluency-in-a-flash-top-17-quick-pick-spanish-phrases/"><u>Fluency in a Flash: Top 17 Quick-Pick Spanish Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-zero-to-ten-in-russian-counting/"><u>From Zero to Ten in Russian Counting</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/geographic-span-of-romance-languages/"><u>Geographic Span of Romance Languages</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-can-we-bypass-infinix-smart-7-hd-frp-by-drfone-android/"><u>How Can We Bypass Infinix Smart 7 HD FRP?</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/musical-beginnings-the-top-10-tracks-for-engaging-podcast-intros/"><u>Musical Beginnings The Top 10 Tracks for Engaging Podcast Intros</u></a></li>
+</ul></div>
 

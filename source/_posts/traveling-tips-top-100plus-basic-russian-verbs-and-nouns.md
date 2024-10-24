@@ -1,7 +1,7 @@
 ---
 title: "Traveling Tips: Top 100+ Basic Russian Verbs & Nouns"
-date: 2024-08-23T00:34:24.037Z
-updated: 2024-08-24T00:34:24.037Z
+date: 2024-10-23T18:30:30.378Z
+updated: 2024-10-24T16:50:28.520Z
 tags:
   - speak
   - english
@@ -69,6 +69,13 @@ thumbnail: https://thmb.techidaily.com/390e6108c338c717535ae5268513a4f027783679d
 * Where are you from? –_Откуда ты? – Otkuda ty?_
 * Have a good day. –_Ну тогда до свидания. – Nu togda do svidaniya._
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Useful Russian phrases for when you are at the airport
 
  Arriving at the airport – both at the beginning and at the end of your journey – will also require some basic Russian phrases. Whether we are talking about small talk with the person sitting next to you on the airplane, passport verification or asking for directions, these Russian phrases will definitely have your back in any situation.
@@ -79,6 +86,13 @@ thumbnail: https://thmb.techidaily.com/390e6108c338c717535ae5268513a4f027783679d
 * I’m traveling with a child. –_Я путешествую с ребёнком. – Ya puteshestvuyu s rebyonkom._
 
 ![useful russian phrases scaled](https://edge.mondly.com/blog/wp-content/uploads/2018/07/useful-russian-phrases-scaled-640x960.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 4")
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Photo by Tom Barrett
 
@@ -107,9 +121,6 @@ thumbnail: https://thmb.techidaily.com/390e6108c338c717535ae5268513a4f027783679d
 
 ![learn russian](https://edge.mondly.com/blog/wp-content/uploads/2018/07/learn-russian-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 5")
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Photo by A.L.
 
 * Where can I buy tickets? –_Где здесь можно купить билеты? – Gde zdes mozhno kupit bilety?_
@@ -137,9 +148,6 @@ thumbnail: https://thmb.techidaily.com/390e6108c338c717535ae5268513a4f027783679d
 * Very pleasant, thank you. –_Всё было замечательно, спасибо. – Vsyo bylo zamechatelno, spasibo._
 * Here is your bill, please look it over. – _Вот ваш счёт, проверьте пожалуйста. – Vot vash schot, proverte pozhaluysta._
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 5\. Learn Russian to experience the local cuisine
 
  Local cuisine is one of the best parts of a vacation. The experience is not whole if you don’t try at least one traditional meal. Something sweet or something salty? What is it going to be? No worries. Russian cuisine is diverse. You’ll have a great variety of dishes to choose from.
@@ -155,8 +163,12 @@ thumbnail: https://thmb.techidaily.com/390e6108c338c717535ae5268513a4f027783679d
 ![russian-words](https://edge.mondly.com/blog/wp-content/uploads/2018/07/russian-words-1024x684.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 6")
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Photo by Max Delsid
 
 * My wife would like a bowl of soup. –_Моей жене – суп. – Moyey zhene – sup._
@@ -173,8 +185,12 @@ thumbnail: https://thmb.techidaily.com/390e6108c338c717535ae5268513a4f027783679d
 ![useful-russian-words](https://edge.mondly.com/blog/wp-content/uploads/2018/07/useful-russian-words-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 7")
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Photo by Henrique Félix
 
 * I would like a dessert. –_Я хотел бы десерт. Ya hotel by desert._
@@ -197,8 +213,12 @@ Just joking. Still is an amazing drink, though!
 ![russian-travel-guide](https://edge.mondly.com/blog/wp-content/uploads/2018/07/russian-travel-guide-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 8")
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Photo by Edwin Andrade
 
 * Are tickets for the cinema still available? –_Билеты в кино ещё есть? – Bilety v kino yeshcho yest?_
@@ -210,18 +230,6 @@ Just joking. Still is an amazing drink, though!
 * Let’s have some fun. –_Повеселимся! – Poveselimsya!_
 * Are there seats available? –_Ещё остались свободные места? – Yeshcho ostalis svobodnyye mesta?_
 
-<!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 7\. Basic Russian phrases for shopping sprees
 
  This is the cruelest drudgery our loved ones from home put us through while on holiday. _Should I buy a matryoshka doll? Or some vodka? Maybe a refrigerator magnet? But when? What if I don’t buy anything? Will they hate me for life?_ Funny or not, these are all questions that haunt us while on holiday. The best solution? Schedule two hours tops and just get it over with. The same way you would do with a bandage.
@@ -264,13 +272,17 @@ Just joking. Still is an amazing drink, though!
 * Would you like to have dinner with me? –_Поужинаем вместе? – Pouzhynayem vmeste?_
 * I love you. – Я люблю тебя. –_Ya lyublyu tebya._
 
+<!-- affiliate ads begin -->
+<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Bonus: Basic Russian phrases for football lovers
 
 ![russian-phrases-world-cup](https://edge.mondly.com/blog/wp-content/uploads/2018/07/russian-phrases-world-cup-1024x576.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 11")
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Photo by Fauzan Saari
 
 * Do you watch football? –_Ты смотришь футбол? – Ty smotrish futbol?_
@@ -300,8 +312,6 @@ Just joking. Still is an amazing drink, though!
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -309,4 +319,26 @@ Just joking. Still is an amazing drink, though!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-eizos-masterpiece-delving-into-the-world-of-4k-cg318-4k/"><u>[New] EIZO's Masterpiece Delving Into the World of 4K CG318-4K</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-importance-of-secondary-footage-in-engaging-editors/"><u>[New] The Importance of Secondary Footage in Engaging Editors</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-best-firefox-screencasting-extensions/"><u>[Updated] Best FireFox Screencasting Extensions</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-boost-podcast-visibility-through-strategic-seo-tactics/"><u>[Updated] In 2024, Boost Podcast Visibility Through Strategic SEO Tactics</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-glossary-of-youtube-shorts-terms/"><u>[Updated] The Ultimate Glossary of YouTube Shorts Terms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-mondlys-teaching-mechanism/"><u>Decoding Mondly's Teaching Mechanism</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/descifrar-cuando-un-primer-tratado-sobre-el-tiempo-en-espanol/"><u>Descifrar Cuándo: Un Primer Tratado Sobre El Tiempo en Espaňol</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dialect-dynamics-ukrainian-vs-russian-conversations/"><u>Dialect Dynamics: Ukrainian Vs Russian Conversations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/everywhere-favorite-the-days-apple-app/"><u>Everywhere Favorite: The Day's Apple App</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-unfortunately-settings-has-stopped-on-oneplus-12-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Unfortunately Settings Has Stopped on OnePlus 12 Quickly | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/from-casual-gaming-to-serious-playtime-switch-to-windows/"><u>From Casual Gaming to Serious Playtime - Switch to Windows</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-easy-fixes-how-to-recover-forgotten-icloud-password-from-your-apple-iphone-6s-plus-by-drfone-ios/"><u>In 2024, Easy Fixes How To Recover Forgotten iCloud Password From your Apple iPhone 6s Plus</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-knowledge-hub-leading-educational-youtube-sources/"><u>In 2024, Knowledge Hub Leading Educational YouTube Sources</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-nuances-how-por-que-becomes-why/"><u>Language Nuances: How 'Por Que' Becomes 'Why'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-year-new-speaking-abilities/"><u>New Year, New Speaking Abilities</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/overcoming-dialect-divides-in-partnerships/"><u>Overcoming Dialect Divides in Partnerships</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-oppo-f23-5g-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Oppo F23 5G? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speedy-journey-to-numeral-knowledge-in-japan/"><u>Speedy Journey to Numeral Knowledge in Japan</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/your-first-steps-with-spanish-numerals/"><u>Your First Steps With Spanish Numerals</u></a></li>
+</ul></div>
 

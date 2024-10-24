@@ -1,7 +1,7 @@
 ---
 title: Starting Urdu Learning Journey with Keywords
-date: 2024-10-13T16:44:25.285Z
-updated: 2024-10-19T01:14:30.028Z
+date: 2024-10-23T16:57:31.672Z
+updated: 2024-10-24T18:56:05.757Z
 tags:
   - speak
   - english
@@ -86,10 +86,10 @@ thumbnail: https://thmb.techidaily.com/13322664753ec1bcb9b951122efdf005d8bc61a3a
 * stop — _رکو (ruko)_
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The most popular Urdu words searches
@@ -115,10 +115,10 @@ thumbnail: https://thmb.techidaily.com/13322664753ec1bcb9b951122efdf005d8bc61a3a
 * hope — _امید (umeed)_
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Urdu words related to food and drink
@@ -126,19 +126,6 @@ thumbnail: https://thmb.techidaily.com/13322664753ec1bcb9b951122efdf005d8bc61a3a
  Did you know that the [Urdu language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) was one of the premier languages of poetry in South Asia for centuries? And rightly so. Just listen to the music of its words and you’ll understand.
 
 ![words in urdu by Sumeet B©](https://edge.mondly.com/blog/wp-content/uploads/2022/03/words-in-urdu-960x735.jpg "100+ Core Urdu Words – Learn The Most Common Words In Urdu 3")
-
-<!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Meanwhile, let’s add some flavor to your Urdu vocabulary. What are the best words to learn if not the words related to food and drink?
 
@@ -191,10 +178,10 @@ thumbnail: https://thmb.techidaily.com/13322664753ec1bcb9b951122efdf005d8bc61a3a
 * pharmacy — _دواخانہ (dawakhana)_
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Urdu words related to transportation and places
@@ -215,6 +202,19 @@ thumbnail: https://thmb.techidaily.com/13322664753ec1bcb9b951122efdf005d8bc61a3a
 * market — _بازار (bazar)_
 
  Now that you’ve mastered some of the most basic Urdu vocabulary words, you can dive into the practical phrases that’ll help you ease into real-world conversations.
+
+<!-- affiliate ads begin -->
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The most common Urdu phrases
 
@@ -277,22 +277,20 @@ thumbnail: https://thmb.techidaily.com/13322664753ec1bcb9b951122efdf005d8bc61a3a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/updated-techniques-for-stunning-shadow-photography-on-your-iphone-for-2024/"><u>[Updated] Techniques for Stunning Shadow Photography on Your iPhone for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-learners-guide-to-japanese-kanji-and-kana/"><u>A Learner's Guide to Japanese Kanji & Kana</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/beat-time-learn-japanese-digits-fast/"><u>Beat Time, Learn Japanese Digits Fast</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580403599-fastidious-norsk-comprehension-in-short-spurts/"><u>Fastidious Norsk Comprehension in Short Spurts</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/get-ahead-of-the-curve-learn-about-the-new-samsung-galaxy-z-fold-6-specs-and-news-now/"><u>Get Ahead of the Curve - Learn About the New Samsung Galaxy Z Fold 6 Specs and News Now</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/horas-y-segundos-un-guia-para-empezar/"><u>Horas Y Segundos: Un Guía Para Empezar</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-migrate-android-data-from-tecno-pova-5-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Migrate Android Data From Tecno Pova 5 to New Android Phone? | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-spy-on-text-messages-from-computer-and-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>How to Spy on Text Messages from Computer & Poco F5 5G | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Apple iPhone 6 Plus | Dr.fone</u></a></li>
-<li><a href="https://win-blog.techidaily.com/league-of-legends-troubleshooting-overcoming-black-screen-glitches/"><u>League of Legends Troubleshooting: Overcoming Black Screen Glitches</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lectura-y-manejo-de-hora-en-espanol-para-nuevos-aprendices/"><u>Lectura Y Manejo De Hora en Espaňol Para Nuevos Aprendices</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/local-voices-teach-you-romanian/"><u>Local Voices Teach You Romanian</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/mastering-pace-the-netflix-playback-guide-for-2024/"><u>Mastering Pace The Netflix Playback Guide for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-kids-and-parents-unite-winning-app-features-on-play/"><u>Mondly Kids and Parents Unite! Winning App Features on Play</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/al-7-dslr-recommendations-for-dynamic-video-content-for-2024/"><u>Optimal 7 DSLR Recommendations For Dynamic Video Content for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/precision-in-speech-apt-language-courses-outline/"><u>Precision in Speech: Apt Language Courses Outline</u></a></li>
-<li><a href="https://common-error.techidaily.com/quick-tricks-for-enabling-lost-bluetooth-functionality-in-windows-11-systems/"><u>Quick Tricks for Enabling Lost Bluetooth Functionality in Windows 11 Systems</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-doubled-surface-capture-method-for-2024/"><u>[Updated] Doubled Surface Capture Method for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-sculpting-light-an-in-depth-look-at-lightroom-hdr-photos/"><u>[Updated] Sculpting Light An In-Depth Look at Lightroom HDR Photos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-android-beat-best-free-apps-for-downloading-youtube-tunes/"><u>2024 Approved Android Beat Best Free Apps for Downloading YouTube Tunes</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/boost-productivity-on-your-apple-device-using-the-top-18-shortcuts-in-ios/"><u>Boost Productivity on Your Apple Device Using the Top 18 Shortcuts in iOS</u></a></li>
+<li><a href="https://techidaily.com/complete-guide-to-hard-reset-your-oppo-a1x-5g-drfone-by-drfone-reset-android-reset-android/"><u>Complete Guide to Hard Reset Your Oppo A1x 5G | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-lava-blaze-pro-5g-by-drfone-android/"><u>In 2024, The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Lava Blaze Pro 5G</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-love-letters-for-lifes-milestones/"><u>Linguistic Love Letters for Life's Milestones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-announces-enhanced-customer-support-qanda/"><u>Mondly Announces Enhanced Customer Support Q&A</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-magic-unleashed-mondly-and-oculus-quest/"><u>Multilingual Magic Unleashed: Mondly and Oculus Quest</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/play-store-stuck-on-downloading-of-nokia-c110-7-ways-to-resolve-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Stuck on Downloading Of Nokia C110? 7 Ways to Resolve | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saying-hello-and-goodbye-indonesias-communication-norms/"><u>Saying Hello & Goodbye: Indonesia's Communication Norms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seamless-connections-with-huawei-plus-mondly/"><u>Seamless Connections with Huawei + Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-a-native-in-latvia-the-ten-minute-method/"><u>Speak Like a Native in Latvia: The Ten-Minute Method</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-melting-pot-africas-linguistic-landscape/"><u>The Melting Pot: Africa’s Linguistic Landscape</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/unveiling-intels-new-chip-battlemage-eco-friendly-power-consumption-at-100w-less-than-ice-lake-generation-and-robust-overclocking-in-light-of-latest-raptor-43/"><u>Unveiling Intel's New Chip - Battlemage, Eco-Friendly Power Consumption at 100W Less Than Ice Lake Generation and Robust Overclocking in Light of Latest Raptor Lake Updates</u></a></li>
 </ul></div>
 

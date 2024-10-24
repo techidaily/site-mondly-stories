@@ -1,7 +1,7 @@
 ---
 title: "Mondly’s Boundless Learning Network: A Community of 70+ Million"
-date: 2024-10-17T00:38:21.443Z
-updated: 2024-10-18T20:07:50.381Z
+date: 2024-10-22T17:07:50.009Z
+updated: 2024-10-24T18:21:00.803Z
 tags:
   - speak
   - english
@@ -35,6 +35,13 @@ thumbnail: https://thmb.techidaily.com/28b4424e01d4cc277a30d2dc85adec4230b241c9e
 
  The amount of positive feedback we are getting for Hands-Free is astonishing. People everywhere are praising the voice-powered upgrade for its ability to make the process feel less like studying and more like talking to an old friend. That is why we are working harder than ever to make it available for Android learners too as soon as possible.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## English progress tests created in partnership with Oxford University Press
 
  In 2020, many of us learned that every cloud has a silver lining. At Mondly, we are committed to offering learners everywhere access to high-quality language courses on their mobile phones. This is why we tried – and hopefully succeeded – to make 2020 brighter for the 1.5 billion people worldwide currently learning English.
@@ -49,6 +56,13 @@ thumbnail: https://thmb.techidaily.com/28b4424e01d4cc277a30d2dc85adec4230b241c9e
 
  For many of those 1.5 billion people, learning English is not just a hobby, but the key to success. Therefore, it was essential for us to maximize the outcome of our partnership and make the trusted content from Oxford available in 33 native languages – including yours.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Mondly is now available on Huawei AppGallery too
 
  When it comes to our apps, accessibility is key. We want everyone to be able to learn new languages with Mondly, regardless of the device or platform they choose. Naturally, with the AppGallery in the top three app stores globally, we were thrilled when Huawei proposed to us to bring Mondly to their community too.
@@ -60,10 +74,10 @@ thumbnail: https://thmb.techidaily.com/28b4424e01d4cc277a30d2dc85adec4230b241c9e
 ![mondly huawei](https://edge.mondly.com/blog/wp-content/uploads/2021/03/mondly-huawei-960x521.jpg "Mondly Surpasses 70 Million Learners Worldwide 3")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Huawei Developer Webinar – Grow with AppGallery in China
@@ -74,13 +88,6 @@ thumbnail: https://thmb.techidaily.com/28b4424e01d4cc277a30d2dc85adec4230b241c9e
 
  Following our series of exciting updates, Mondly has been featured multiple times in both Apple’s App Store and Huawei’s AppGallery.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### “App of the Day” in Apple’s App Store in 157 countries
 
  “Create Good Resolutions Now”, “Apps We Love Right Now” and “Learn a New Language” are only a few of the categories Mondly has been featured in the last few months. But the greatest honor of all was to be named [“App of the Day”](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) in 157 countries and to be featured on Apple’s celebratory story with the occasion of Romania’s National Day.
@@ -88,10 +95,16 @@ thumbnail: https://thmb.techidaily.com/28b4424e01d4cc277a30d2dc85adec4230b241c9e
  We are thrilled to have received the spotlight in so many countries, but the dearest to our heart was surely the story on the most trending Romanian apps. As Romanians ourselves, it was an honor to be able to represent the thriving tech scene in Romania alongside fellow tech innovators.
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
-  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983552">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Named among the Best Apps of 2020 by Huawei in the “Best for Personal Growth” category
@@ -99,13 +112,6 @@ thumbnail: https://thmb.techidaily.com/28b4424e01d4cc277a30d2dc85adec4230b241c9e
  Last but not least, another round of good news came from China. After just months of being launched on Huawei AppGallery, Mondly was featured in “New Apps We Love” and named among the Best Apps of 2020 in the “Best for Personal Growth” category. We’re happy to see how much the new community of learners loves Mondly!
 
  We deeply admire everything Apple and Huawei do and hope to make it to their “Walk of Fame” many times over in the future.
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## What’s next?
 
@@ -143,20 +149,22 @@ Here’s to 70 million learners and counting! 🥂
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-how-to-enhance-team-engagement-through-zoom-recording/"><u>[Updated] 2024 Approved How to Enhance Team Engagement Through Zoom Recording</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-boosting-viewership-with-animated-subscribe-buttons-in-filmora-easy-guide-for-2024/"><u>[Updated] Boosting Viewership with Animated Subscribe Buttons in Filmora (Easy Guide) for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-weaving-worthy-preview-pieces/"><u>[Updated] In 2024, Weaving Worthy Preview Pieces</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-mastering-the-craft-of-professional-gopro-cinematography/"><u>[Updated] Mastering the Craft of Professional Gopro Cinematography</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/7-inspiring-motivations-to-learn-a-second-language/"><u>7 Inspiring Motivations to Learn a Second Language</u></a></li>
-<li><a href="https://program-issues.techidaily.com/accelerate-your-progress-expert-tips-for-swift-shader-tweaks-in-star-wars-battlefront-ii/"><u>Accelerate Your Progress: Expert Tips for Swift Shader Tweaks in Star Wars Battlefront II</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/diverse-dialects-shared-joy-on-resurrection-day/"><u>Diverse Dialects, Shared Joy on Resurrection Day</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/efficient-exercises-for-elite-english-or-fancy-french-skills/"><u>Efficient Exercises for Elite English or Fancy French Skills</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/engaging-with-brit-banter-and-jargon/"><u>Engaging with Brit Banter and Jargon</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-cut-down-clutter-discover-these-7-ultimate-android-app-blockers/"><u>In 2024, Cut Down Clutter Discover These 7 Ultimate Android App Blockers</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, How To Pause Life360 Location Sharing For Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-unveiling-the-secrets-of-medical-ad-success-on-fb/"><u>In 2024, Unveiling the Secrets of Medical Ad Success on FB</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/les-secrets-de-la-creation-danimation-comment-concevoir-votre-video-en-beton/"><u>Les Secrets De La Création D'Animation : Comment Concevoir Votre Vidéo en Béton</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-free-languages-for-ukraines-masses/"><u>Mondly: Free Languages for Ukraine's Masses</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/saber-cuando-es-que-hora-en-espanol-para-iniciados/"><u>Saber Cuándo Es Qué: Hora en Español Para Iniciados</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-a-step-by-step-on-downloading-instagrams-viral-content/"><u>[Updated] In 2024, A Step-by-Step on Downloading Instagram's Viral Content</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/movavi-ogg-mpeg/"><u>無版稅的MOVAVI 工具: 從 OGG 到 MPEG 在線上進行直接過渡</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-tecno-pop-8-android-system-webview-crash-2024-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Tecno Pop 8 Android System Webview Crash 2024 Issue | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-the-error-of-unfortunately-the-processcomandroidphone-has-stopped-on-oneplus-nord-n30-se-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix the Error of Unfortunately the Process.com.android.phone Has Stopped on OnePlus Nord N30 SE | Dr.fone</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/fixing-the-blue-screen-of-death-bsod-with-error-code-ea/"><u>Fixing the Blue Screen of Death (BSoD) with Error Code Ea</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/get-more-on-your-phone-plan-with-verizons-best-deals-of-the-month/"><u>Get More on Your Phone Plan with Verizon's Best Deals of the Month</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-mastering-comfortable-virtual-realities/"><u>In 2024, Mastering Comfortable Virtual Realities</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-to-speak-like-a-native-ru-letter-pronunciations/"><u>Learn to Speak Like a Native: RU Letter Pronunciations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/main-tongue-in-croatia/"><u>Main Tongue in Croatia</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-merges-with-pearson-edu-connectivity/"><u>Mondly Merges With Pearson Edu-Connectivity</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/navigating-the-maze-of-zoom-broadcasting-tools-for-2024/"><u>Navigating the Maze of Zoom Broadcasting Tools for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swift-progress-to-japanese-numerical-fluency/"><u>Swift Progress to Japanese Numerical Fluency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-path-to-fluency-unveil-8-superior-benefits-of-learning-hindi-online-with-mondly/"><u>The Path to Fluency: Unveil 8 Superior Benefits of Learning Hindi Online with Mondly!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-deep-emotions-in-hungarian-speech/"><u>Understanding Deep Emotions in Hungarian Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-turkish-language-learning-a-concise-alphabet-and-pronunciation-guide/"><u>Unlocking Turkish Language Learning: A Concise Alphabet & Pronunciation Guide</u></a></li>
+<li><a href="https://win-blog.techidaily.com/valorant-pc-gameplay-fixing-input-lag-issues/"><u>Valorant PC Gameplay: Fixing Input Lag Issues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ye-artful-jargon-unlocking-pirate-slang-and-vocabulary/"><u>Ye Artful Jargon: Unlocking Pirate Slang and Vocabulary</u></a></li>
 </ul></div>
 

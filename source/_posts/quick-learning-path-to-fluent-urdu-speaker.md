@@ -1,7 +1,7 @@
 ---
 title: Quick Learning Path to Fluent Urdu Speaker
-date: 2024-08-23T00:26:27.751Z
-updated: 2024-08-24T00:26:27.751Z
+date: 2024-10-20T17:54:59.760Z
+updated: 2024-10-24T18:19:46.064Z
 tags:
   - speak
   - english
@@ -34,6 +34,13 @@ thumbnail: https://thmb.techidaily.com/37d4ae187da74466ba527c2a86e17302882825cfe
 
  Moreover, in the 19th century, the Hindi–Urdu [controversy](https://en.wikipedia.org/wiki/Hindi%E2%80%93Urdu%5Fcontroversy) arose in colonial India. The debate was whether Hindi or Urdu should be chosen as a national language. In 1900, the government issued a decree granting symbolic equal status to both Hindi and Urdu. But then, Gandhi proposed using either Devanagari or Urdu script, under the traditional generic term Hindustani. Therefore, in 1950, Hindi, in the Devanagari script, along with English, replaced Urdu as one of the official languages of India.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Learn Urdu from Hindi, Arabic, English, Korean and more
 
  You spoke. We listened! Because the vast majority of people want to learn Urdu from popular languages like Hindi (although similar, you still need some help to learn both), Arabic, English or Korean, we worked hard and finally made it possible.
@@ -41,8 +48,12 @@ thumbnail: https://thmb.techidaily.com/37d4ae187da74466ba527c2a86e17302882825cfe
  Starting right now, you can [learn Urdu](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4511&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4511?mother%5Flang=en%5Fus?target%5Flang=ur&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4511?mother%5Flang=en%5Fus?target%5Flang=ur) from Hindi, Arabic, English, Korean and 29 other languages only with Mondly.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 10 basic Urdu words and phrases you can learn right now
 
  Are you excited to learn Urdu yet? Let’s not waste any more time and start with your first “Urdu for beginners” course right now. Here are the top 10 basic Urdu words and phrases everybody should know. Transliteration included so you’ll easily know how to pronounce them.
@@ -64,8 +75,12 @@ thumbnail: https://thmb.techidaily.com/37d4ae187da74466ba527c2a86e17302882825cfe
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Speak Urdu today
 
  It can be really tricky to master Urdu pronunciation if you don’t actively live in Pakistan. But with Mondly, the award-winning language learning app, you can learn Urdu naturally with practical topics, authentic conversations and bite-sized Daily Lessons.
@@ -80,8 +95,6 @@ thumbnail: https://thmb.techidaily.com/37d4ae187da74466ba527c2a86e17302882825cfe
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -89,4 +102,19 @@ thumbnail: https://thmb.techidaily.com/37d4ae187da74466ba527c2a86e17302882825cfe
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-top-8-sites-to-get-free-green-screen-backgrounds-and-footage/"><u>[New] 2024 Approved Top 8 Sites to Get Free Green Screen Backgrounds and Footage</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-crafting-seamless-audiovisual-mixes-in-audacity/"><u>[Updated] 2024 Approved Crafting Seamless Audiovisual Mixes in Audacity</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-streamers-vs-micro-influencers-which-platform-reigns-supreme-for-brief-videos/"><u>[Updated] In 2024, Streamers Vs. Micro-Influencers Which Platform Reigns Supreme for Brief Videos?</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/about-tecno-phantom-v-flip-frp-bypass-by-drfone-android/"><u>About Tecno Phantom V Flip FRP Bypass</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-delete-icloud-account-remove-your-apple-id-permanently-from-iphone-se-by-drfone-ios/"><u>How To Delete iCloud Account Remove Your Apple ID Permanently From iPhone SE</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-choreographing-gripping-podcast-openings/"><u>In 2024, Choreographing Gripping Podcast Openings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-enchantment-learning-by-playing/"><u>Latin Enchantment: Learning by Playing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lifetime-access-to-premium-mondly-zero-price/"><u>Lifetime Access to Premium Mondly: Zero Price</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/profiling-the-largest-blocs-of-francophone-populace/"><u>Profiling the Largest Blocs of Francophone Populace</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-insiders-guide-to-instagrams-music-licensing-policies-for-2024/"><u>The Insider’s Guide to Instagram's Music Licensing Policies for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukrainian-and-russian-dialects-a-comparative-study/"><u>Ukrainian & Russian Dialects: A Comparative Study</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/ultimate-guide-on-apple-iphone-15-pro-max-icloud-activation-lock-bypass-by-drfone-ios/"><u>Ultimate Guide on Apple iPhone 15 Pro Max iCloud Activation Lock Bypass</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "The Oxford 3000: Learn the Most Important Words in English"
-date: 2024-08-23T00:34:28.902Z
-updated: 2024-08-24T00:34:28.902Z
+date: 2024-10-17T17:32:38.854Z
+updated: 2024-10-24T16:49:41.631Z
 tags:
   - speak
   - english
@@ -33,6 +33,13 @@ thumbnail: https://thmb.techidaily.com/d8e6bf944e6c6a44077570ad300a1fab74b99e0c0
  As [Oxford University Press](https://elt.oup.com/feature/global/expert/oxford-3000?cc=ro&selLanguage=en) explains, _the original list was compiled by looking at word frequency information from the British National Corpus, a large database of English texts (100 million words) composed of a wide range of written and spoken genres which can be seen as representing language usage in general. While frequency was the main guiding principle in compiling the list, raw frequency data can throw up a number of anomalies that make little sense from a teaching perspective. For example, some words that are clearly useful for learners, such as “passport” and “apple”, are not very high frequency in a general corpus. For this reason, compilers took into account not just frequency, but also familiarity (…) as judged by a panel of 70 teachers._
 
  Since its inception, the Oxford 3000 has been revised to reflect the language in daily use that has changed a lot due to the growth of the internet and social media.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The most important words in English and their relation to CEFR levels
 
@@ -76,8 +83,6 @@ thumbnail: https://thmb.techidaily.com/d8e6bf944e6c6a44077570ad300a1fab74b99e0c0
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -85,8 +90,18 @@ thumbnail: https://thmb.techidaily.com/d8e6bf944e6c6a44077570ad300a1fab74b99e0c0
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-from-basic-to-brilliant-a-complete-hdr-portrait-guide/"><u>[New] From Basic to Brilliant A Complete HDR Portrait Guide</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-spectrum-of-autonomous-flight-machines/"><u>[New] Spectrum of Autonomous Flight Machines</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-the-simplest-way-to-understand-and-apply-discord-spoilers/"><u>[Updated] 2024 Approved The Simplest Way to Understand and Apply Discord Spoilers</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-in-2024-twitgrabber-mobile-app-for-downloading-tweets-videos/"><u>[Updated] In 2024, TwitGrabber Mobile App for Downloading Tweets' Videos</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-srt-explained-essential-aspects-and-more/"><u>2024 Approved SRT Explained Essential Aspects and More</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/become-fluent-faster-with-mondly/"><u>Become Fluent Faster with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/contare-in-italiano-pianificazione-di-un-percorso-educativo/"><u>Contare in Italiano: Pianificazione Di Un Percorso Educativo</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-location-on-facebook-dating-for-your-xiaomi-redmi-note-12-pro-4g-drfone-by-drfone-virtual-android/"><u>How to Change Location On Facebook Dating for your Xiaomi Redmi Note 12 Pro 4G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lyric-infused-education-science-backed-language-acquisition/"><u>Lyric-Infused Education: Science-Backed Language Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-italy-in-fluency-the-travelers-phrasebook/"><u>Navigating Italy in Fluency: The Traveler's Phrasebook</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/unveiling-the-top-5-facebook-video-downloaders-today-for-2024/"><u>Unveiling the Top 5 Facebook Video Downloaders Today for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: Speedy Strategies for Mastering New Languages
-date: 2024-08-23T00:27:41.248Z
-updated: 2024-08-24T00:27:41.248Z
+date: 2024-10-20T18:49:35.897Z
+updated: 2024-10-24T16:59:59.060Z
 tags:
   - speak
   - english
@@ -20,8 +20,6 @@ thumbnail: https://thmb.techidaily.com/3a0ddaab1602f9aac9589130fbb24dc40e59a2711
 
  Many people struggle with this. Always trying to learn a new language but never succeeding. Until they discover that learning a new language fast is the same as losing weight: it takes ambition to make it happen. There’s no magic method, just some real tips and tricks.
 
-
-
  So is there a shortcut to language learning after all? If you hoped you could steal Dexter’s tactic to learn French, I have news for you: it’s possible! Didn’t see that coming, did you? Yes, scientists have discovered that [stimulus in our sleep helps consolidate memories](https://www.independent.co.uk/news/science/yes-you-can-learn-a-foreign-language-in-your-sleep-say-swiss-psychologists-9574112.html) . But I, for one, wouldn’t risk getting stuck with just three words for the rest of my_omelette du fromage._
 
 No, really. If you want to learn a new language, you shouldn’t rely on learning in your sleep. That’s a thing of the future. Let’s discuss what you could do_now_instead. Here are the best [tips on how to learn a language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) fast.
@@ -34,6 +32,13 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
 
  Let’s explore the best tips to learn a language fast that could work for you.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Focus on the basics
 
  Start by being realistic. Don’t expect to become conversational from day one. The secret is to approach your goal step by step. Start with the first**100 most common words** and create sentences until you feel comfortable with all of them. Then move to the next 1000\. You will be surprised at how fluently you can speak after just 1000 mastered basic words.
@@ -42,9 +47,6 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
 
  The reason behind this “trick” is that the**most common 1000 words account for 75% of all spoken communication** , while the**most common 3000 words account for 85% of it** . If this doesn’t feel real, just ask yourself if you know and use all the words in your mother tongue. You will soon realize that the answer is “no”.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. Use mnemonics
 
  I know this sounds complicated, but you may have used this learning tactic before when repetition alone wasn’t enough.
@@ -53,13 +55,6 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
 
  For example, when I was in college and I had to memorize a long list of words, I always tried to come up with funny sentences or songs using them. I strongly recommend trying this or other types of mnemonics to improve your learning rhythm.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 ### 3\. Identify your learning style
 
  Identifying your dominant learning style can accelerate the learning process. Many people struggle to learn [languages because teachers](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) often use the same teaching tactics for everyone, forgetting that we all have unique learning styles. How do_you_ prefer to learn? Here are the main individualized learning styles:
@@ -75,6 +70,13 @@ No advertising on the website.
 | **solitary** (intrapersonal) | you prefer to work alone and use self-study.      |
 
  Use this information in your own best interest and**learning a new language** can happen a lot faster than you think.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. Train your ears and muscles for the new language
 
@@ -107,24 +109,28 @@ No advertising on the website.
  People often claim that speaking in another language changes your personality. The process resembles the idea of having an alter ego. If this works the same for you, let your foreign language alter ego speak. It may be frustrating in the beginning, but it’s super-efficient.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 7\. Enjoy local movies and music
 
  Help your [brain understand that learning a new language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) is not something you do because you have to but because it’s fun. Find something you enjoy doing – like watching a film or listening to music – and try to associate this action with the language you want to learn.
 
 !['How to learn a new language' by Mollie Sivaram©](https://edge.mondly.com/blog/wp-content/uploads/2018/04/how-to-learn-a-new-language-960x640.jpg "Tips And Techniques For Fast And Effective Language Learning 8")
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
  As a cinephile, I really enjoy watching films and television series, and last year, I did some research to find the best [movies from Denmark](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Today, my brain associates Danish lessons with something that I enjoy doing and information retention is much easier. Our brain opens just like a flower when we like what we are learning.
 
  Just as effective,[music will give a new perspective on the language you’re learning](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Learn the lyrics, sing along and enjoy one of the best ways to learn a language.
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 8\. Read only what matters
 
  Probably the best way to learn a language is through reading. Once you have mastered the basics of the language you’re learning, reading can take you to the next level. Even though you don’t know all the foreign words, context can help you extract their meaning.
@@ -134,17 +140,18 @@ No advertising on the website.
  And it doesn’t necessarily have to be books. You can also read articles, poetry or whatever interests you more. Are you a Harry Potter fan? Great, read that. Considering its reading level (middle grade), Harry Potter is a good choice. Sure, it contains a lot of made-up terms as it’s a book about wizards, but that shouldn’t stop you from learning new and useful words. It’s not all magic and spells, after all.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 9\. Try comprehensible input
 
  Comprehensible input is highly connected to what we mentioned earlier about consuming content in the language you want to learn. Basically, comprehensible input refers to language material that is at or slightly above your current proficiency level, allowing you to understand and learn from it.
 
  This method involves consuming content such as reading material, podcasts, videos, and conversations in your target language that you can comprehend with some effort but which still challenges you to learn new vocabulary and grammar concepts. This approach helps you learn a language quickly and more naturally, similar to how you learned your first language. Just remember to choose materials that interest you and keep you engaged, so you can learn at your own pace and make progress.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
 ### 10\. Immerse yourself in the language
 
  Immersion is praised as one of the best ways to learn a language. Once you become able to speak your new language fluently or even at a satisfactory level, it’s time to go out into the world. Your objective is to communicate with real people as much as possible.
@@ -153,7 +160,21 @@ No advertising on the website.
 
 !['Learning a new language' by Sam Lion©](https://edge.mondly.com/blog/wp-content/uploads/2018/04/learning-a-new-language-960x620.jpg "Tips And Techniques For Fast And Effective Language Learning 9")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  So what’s to be done? The cheapest way is to create an immersion environment at home. Basically, apply all the above-mentioned tips at once. Surround yourself with books in the language you want to learn, listen to music, learn the lyrics and sing along, read books and articles in your target language – everything all at once. The idea is to bring the new language into your environment.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Bonus tip: Stay optimistic
 
@@ -203,8 +224,6 @@ No advertising on the website.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -212,4 +231,22 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/updated-exclusive-collection-vimeo-video-clippers-for-2024/"><u>[Updated] Exclusive Collection Vimeo Video Clippers for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-mastering-livestran-interactions-with-these-ten-backtrack-techniques/"><u>[Updated] Mastering Livestran Interactions with These Ten Backtrack Techniques</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-olympic-snowboard-x-sprint-highlights-22/"><u>2024 Approved Olympic Snowboard X Sprint Highlights '22</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-voice-record-hacks-3-ways-to-get-it-right-on-ipad/"><u>2024 Approved Voice Record Hacks 3 Ways to Get It Right on iPad</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/dissecting-tunefabs-technology-for-flawless-capture-for-2024/"><u>Dissecting Tunefab's Technology for Flawless Capture for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhanced-creativity-and-expression-with-second-language-skills/"><u>Enhanced Creativity and Expression with Second Language Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enter-new-era-of-language-learning-with-mondlyar/"><u>Enter New Era of Language Learning with MondlyAR</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-spelling-knowledge-the-most-frequently-misspelled-words/"><u>Essential Spelling Knowledge: The Most Frequently Misspelled Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/everyday-wisdom-gathering-celebrating-1500-gratis-learning-sessions/"><u>Everyday Wisdom Gathering: Celebrating 1500 Gratis Learning Sessions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-flavor-to-verse-chocolate-speeches-across-nations/"><u>From Flavor to Verse: Chocolate Speeches Across Nations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-fehlender-respekt-erkennen-und-bedingen-sagen/"><u>German: Fehlender Respekt Erkennen Und Bedingen Sagen</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/herausragende-4k-videos-und-playlists-fuhren-sie-die-kostenlose-download-losung-ein/"><u>Herausragende 4K Videos Und Playlists - Führen Sie Die Kostenlose Download-Lösung Ein!</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-15-to-other-iphone-11-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 15 To Other iPhone 11 devices? | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/iphone-se-2022-backup-password-never-set-but-still-asking-heres-the-fix-by-drfone-ios/"><u>iPhone SE (2022) Backup Password Never Set But Still Asking? Heres the Fix</u></a></li>
+<li><a href="https://fox-that.techidaily.com/revive-your-iphone-light-beam-essential-fixes-for-a-broken-flashlight-12-methods/"><u>Revive Your iPhone Light Beam: Essential Fixes for a Broken Flashlight (12 Methods)</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Svenskarens Geni: Allt I Görelse"
-date: 2024-10-16T21:40:17.103Z
-updated: 2024-10-18T18:24:24.282Z
+date: 2024-10-17T16:09:12.018Z
+updated: 2024-10-24T16:10:39.402Z
 tags:
   - speak
   - english
@@ -26,6 +26,13 @@ thumbnail: https://thmb.techidaily.com/84d0bc5cbf75aff634c938ea8def6c75418d8f074
 
  If you’re visiting and want to get a coffee, the simplest way to sound and look like a local is to throw in a smile and a **“Hej!”** (pronounced just like _Hey!_). This one is the perfect greeting, regardless of the time of day or to whom you address it.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to say “Hello!” in Swedish
 
  In more formal circumstances, you can use the word **“hallå”** (/haˈloː/). Sometimes, Swedes like to articulate the word when greeting someone by saying **“** **Hallå, hallå!”**  or even use it when they’re irritated and what to bring more attention to a situation they’re telling you about.
@@ -35,48 +42,41 @@ thumbnail: https://thmb.techidaily.com/84d0bc5cbf75aff634c938ea8def6c75418d8f074
  Even if you’re just visiting, you might have to answer the phone at the hotel or when you’re expecting a call from the embassy, for example. The easiest way to do this is to say “Hello” followed by introducing yourself. This sounds something like : **“** **Hallå! Det här är \[your name\].”**  This will not only impress the person on the other end, but they might mistake you for a local. That would be a good thing, but you need to let them know you don’t speak Swedish fluently before they start talking faster.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to say “Good Morning!” in Swedish
 
  At the restaurant, cafés, or when you enter a building, saying “Good Morning!” is a sign of respect and will help you establish a connection with those around you. The Swedish equivalent of the morning greeting is **“God morgon!”**  . It’s important to use all the common greetings, even as a foreigner because you will most likely make a good impression.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to say “Good evening!” in Swedish
 
 **“God kväll!”** is a rather formal greeting in [Swedish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  , but you might hear this in theaters, or when the evening news show starts. Usually, this greeting is not used between family and friends. “Kväll” is pronounced _kvell_ and the “g” can be silent.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to say “Goodnight!” in Swedish
 
  After getting acquainted with Swedes, you will most likely enjoy late night talks and drinks, so a proper Goodnight is needed to end the day properly. **“Godnatt!”** , often pronounced _goo-natt_  is the way to wish locals a good night’s rest and let them know you can’t wait to hang out again soon.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to say “What’s up?” in Swedish
 
  What better way to find out more about your Swedish friends’ day or how they’re feeling than asking “what’s up?”? **“Hur är det?”** or **“hur går det?”**  are what is used to ask “how is it?” and “how is it going?”. They are both informal ways of getting a conversation started and can be used when talking on the phone as well, just after you introduce yourself.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to say “Goodbye!” in Swedish
 
@@ -106,21 +106,21 @@ thumbnail: https://thmb.techidaily.com/84d0bc5cbf75aff634c938ea8def6c75418d8f074
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-unraveling-iphones-audio-mystery-ringtone-adjustments/"><u>[New] 2024 Approved Unraveling iPhone's Audio Mystery Ringtone Adjustments</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/break-language-limitations-oculus-quest-adds-multilingual-capabilities/"><u>Break Language Limitations: Oculus Quest Adds Multilingual Capabilities</u></a></li>
-<li><a href="https://facebook.techidaily.com/fortify-your-online-presence-from-facebook-spying/"><u>Fortify Your Online Presence From Facebook Spying</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/galactic-lexicon-a-journey-through-star-wars-unique-languages/"><u>Galactic Lexicon: A Journey Through Star Wars' Unique Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-language-tips-birthday-compliments/"><u>Global Language Tips: Birthday Compliments</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-welcoming-practices-manual/"><u>Global Welcoming Practices Manual</u></a></li>
-<li><a href="https://common-error.techidaily.com/1723208042311-how-to-restore-mic-functionality-on-your-steelseries-arctis-5-headset-easy-fix-tips-for-gamers/"><u>How to Restore Mic Functionality on Your SteelSeries Arctis 5 Headset - Easy Fix Tips for Gamers.</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-edit-and-send-fake-location-on-telegram-for-your-samsung-galaxy-s21-fe-5g-2023-in-3-ways-drfone-by-drfone-virtual-android/"><u>In 2024, Edit and Send Fake Location on Telegram For your Samsung Galaxy S21 FE 5G (2023) in 3 Ways | Dr.fone</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/in-2024-vlog-with-verve-following-in-the-footsteps-of-video-experts/"><u>In 2024, Vlog with Verve Following in the Footsteps of Video Experts</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/korean-alphabet-made-simple-a-learners-guide-to-hangul/"><u>Korean Alphabet Made Simple: A Learner's Guide to Hangul</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/mastering-the-art-of-sticky-notes-display-on-win-11/"><u>Mastering the Art of Sticky Notes Display on Win 11</u></a></li>
-<li><a href="https://games-able.techidaily.com/prime-240hz-vision-for-enhanced-gaming/"><u>Prime 240Hz Vision for Enhanced Gaming</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/romance-languages-a-cultural-overview/"><u>Romance Languages: A Cultural Overview</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sveriges-geni-inbordes-visa/"><u>Sveriges Geni: Inbördes Visa</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-realme-c67-5g-device-by-drfone-android/"><u>The Ultimate Guide How to Bypass Swipe Screen to Unlock on Realme C67 5G Device</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/vloggers-verdict-which-gadget-wins-gopro-and-garmin-for-2024/"><u>Vloggers' Verdict Which Gadget Wins? GoPro & Garmin for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-harnessing-the-power-of-hdr-in-portrait-photography/"><u>[New] Harnessing the Power of HDR in Portrait Photography</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-elite-race-games-collection-guide/"><u>[Updated] In 2024, Elite Race Games Collection Guide</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-mastering-the-art-of-twitters-live-video-engagement/"><u>2024 Approved Mastering the Art of Twitter's Live Video Engagement</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-secrets-to-successfully-capturing-facebooks-status-videos/"><u>2024 Approved Secrets to Successfully Capturing Facebook's Status Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/get-ready-to-connect-your-ai-conversation-guide/"><u>Get Ready to Connect: Your AI Conversation Guide</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-deleted-calendar-events-iphone-6s-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Retrieve Deleted Calendar Events iPhone 6s? | Stellar</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-latest-guide-how-to-bypass-motorola-moto-g73-5g-frp-without-computer-by-drfone-android/"><u>In 2024, Latest Guide How To Bypass Motorola Moto G73 5G FRP Without Computer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jubilant-joys-july-the-4th-festival/"><u>Jubilant Joys, July the 4Th Festival</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-the-language-of-chinese-scripts/"><u>Learning the Language of Chinese Scripts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multicultural-linguistics-in-macau/"><u>Multicultural Linguistics in Macau</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1726029002875-pc/"><u>PCスクリーンとオーディオの録画・録音方法一挙提示</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/russian-counting-companion-for-new-learners/"><u>Russian Counting Companion for New Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/skyrocket-sales-the-secret-of-sophisticated-biz-dialogue/"><u>Skyrocket Sales: The Secret of Sophisticated Biz Dialogue</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-path-to-prominence-elevating-brands-with-telegram-strategies/"><u>The Path to Prominence Elevating Brands with Telegram Strategies</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-windows-10-video-editing-software-the-best-imovie-replacements-for-2024/"><u>Updated Windows 10 Video Editing Software The Best iMovie Replacements for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/viking-vocabulary-the-speech-of-the-scandinavian-saga-tellers/"><u>Viking Vocabulary: The Speech of the Scandinavian Saga-Tellers</u></a></li>
 </ul></div>
 

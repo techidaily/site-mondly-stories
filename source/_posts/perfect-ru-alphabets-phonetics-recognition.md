@@ -1,7 +1,7 @@
 ---
 title: Perfect RU Alphabets' Phonetics Recognition
-date: 2024-10-14T00:22:06.512Z
-updated: 2024-10-18T22:54:09.274Z
+date: 2024-10-17T17:22:11.232Z
+updated: 2024-10-24T16:13:12.348Z
 tags:
   - speak
   - english
@@ -28,6 +28,13 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 
  Russian has been greatly influenced by Old Church Slavonic and – since the westernizing policies of Tsar Peter I the Great in the 18 century – by the [languages of western Europe](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Then, the 19th-century poet Aleksandr Pushkin determined the further development of the [Russian language we know](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) today. His writings, in which he combined the colloquial and Church Slavonic styles, were decisive in establishing the best style for literary use.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### The Cyrillic script
 
 [The Cyrillic script](https://en.wikipedia.org/wiki/Cyrillic%5Fscript) is the national script in various Slavic-, Turkic- and Iranic-speaking countries in Eastern Europe, the Caucasus, Central Asia, and Northern Asia.
@@ -39,13 +46,6 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 ![russian letters](https://edge.mondly.com/blog/wp-content/uploads/2020/03/russian-letters-600x480.jpg "Master The Russian Alphabet Pronunciation 2")
 
  “Red Square, Moscow, Russia” by Aurelien Romain©
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Understand how to pronounce the Russian alphabet
 
@@ -63,13 +63,6 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 * **М м** sounds like “m” in “mother” or “mobile”,
 * **О о** sounds like “o” in “bore” or “more” (without the ‘r’ sound),
 * **Т т** sounds like “t” in “top” or “task”.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Russian letters that sound the same as in English (but look different)
 
@@ -91,10 +84,10 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 * **Я я** sounds like “yu” in yummy or “ya” in “yard”.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Russian letters that look the same as in English (but sound different)
@@ -109,6 +102,19 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 * **Х х** sounds like “ch” in “loch”,
 * **Ы ы** sounds like “i” in “ill” but with a “rounder” pronunciation (said with your tongue slightly back in your mouth).
 
+<!-- affiliate ads begin -->
+<span id="1982508">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Russian letter with no English equivalent
 
 * Ь – this is called the “soft sign” and it is used to modify the pronunciation of the preceding consonant by making it soft (palatalized),
@@ -120,14 +126,14 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 
 ![russian alphabet pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2020/03/russian-alphabet-pronunciation-1-431x600.jpg "Master The Russian Alphabet Pronunciation 3")
 
- Russian alphabet pronunciation
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Russian alphabet pronunciation
 
 ## Russian lesson no. 1: rules
 
@@ -174,20 +180,18 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-top-conversion-suite-for-mp4fb-sharing/"><u>[Updated] 2024 Approved Top Conversion Suite for MP4/FB Sharing</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/arabic-for-beginners-a-step-by-step-guide/"><u>Arabic For Beginners: A Step By Step Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/brain-exercises-to-make-language-learning-easier/"><u>Brain Exercises to Make Language Learning Easier</u></a></li>
-<li><a href="https://win-blog.techidaily.com/descargar-e-importar-archivos-avi-de-formato-3gpp-sin-coste-adicional-con-movavi/"><u>Descargar E Importar Archivos AVI De Formato 3GPP Sin Coste Adicional Con Movavi</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-chorus-celebrating-educations-linguists/"><u>Global Chorus: Celebrating Education's Linguists</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/making-my-way-to-the-perfect-future-language/"><u>Making My Way to the Perfect Future Language</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/prime-video-grabber-fb-and-firefox-edition-for-2024/"><u>Prime Video Grabber FB & FireFox Edition for 2024</u></a></li>
-<li><a href="https://driver-download.techidaily.com/1722968572964-quick-and-efficient-grab-your-usb-webcam-drivers-today/"><u>Quick and Efficient: Grab Your USB Webcam Drivers Today!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/say-it-like-a-local-essential-17-spanish-proverbs/"><u>Say It Like A Local: Essential 17 Spanish Proverbs</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/1722846989589-step-by-step-process-for-shifting-images-from-googles-library-to-apples-cloud-space/"><u>Step-by-Step Process for Shifting Images From Google's Library to Apple's Cloud Space</u></a></li>
-<li><a href="https://program-issues.techidaily.com/the-complete-guide-to-fixing-hitman-3s-persistent-cannot-connect-to-server-error/"><u>The Complete Guide to Fixing Hitman 3'S Persistent 'Cannot Connect to Server' Error</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-quirks-and-charms-of-german-language-top-25-sayings/"><u>The Quirks and Charms of German Language (Top 25 Sayings)</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-unlimited-access-90-day-free-trial-of-final-cut-pro-inside/"><u>Updated 2024 Approved Unlimited Access 90-Day Free Trial of Final Cut Pro Inside</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/witchcraft-and-pumpkins-across-borders/"><u>Witchcraft & Pumpkins Across Borders</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/wavggtop4/"><u>ベストの無料WAVからオGGへの変換ツールTOP4選び</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-achieving-a-million-on-the-map-a-strategic-view-to-sub-guide-for-2024/"><u>[New] Achieving a Million on the Map A Strategic View-to-Sub Guide for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-crafting-captivating-reels-musical-integration-strategies/"><u>[New] In 2024, Crafting Captivating Reels Musical Integration Strategies</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/allying-up-mr-beasts-earnings-for-2024/"><u>[New] Tallying Up Mr. Beast's Earnings for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-pro-shortcuts-every-youtuber-needs-the-top-20-list/"><u>[Updated] In 2024, Pro Shortcuts Every YouTuber Needs - The Top 20 List</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-master-screen-grabber-list-1-8-for-2024/"><u>[Updated] Master Screen Grabber List #1-8 for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-power-of-pixels-a-review-of-the-4k-cg318-4k-monitor/"><u>In 2024, The Power of Pixels A Review of the 4K CG318-4K Monitor</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mind-multitasker-top-6-benefits-of-dual-language-skills/"><u>Mind-Multitasker: Top 6 Benefits of Dual Language Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/snappy-lesson-plan-quick-japanese-numbers-1-10/"><u>Snappy Lesson Plan: Quick Japanese Numbers 1-10</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-italian-signal-speaking/"><u>The Art of Italian Signal Speaking</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essential-reference-for-japanese-language-learners/"><u>The Essential Reference for Japanese Language Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-skillful-home-cooking-techniques-and-strategies/"><u>The Ultimate Guide to Skillful Home Cooking Techniques and Strategies</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-led-lighting-strips-a-comprehensive-guide/"><u>Top Rated LED Lighting Strips : A Comprehensive Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tv-series-and-films-the-language-acquisition-route/"><u>TV Series & Films: The Language Acquisition Route</u></a></li>
 </ul></div>
 

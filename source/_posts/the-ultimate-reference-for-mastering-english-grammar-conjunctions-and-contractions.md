@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Reference for Mastering English Grammar Conjunctions & Contractions
-date: 2024-08-23T00:28:17.095Z
-updated: 2024-08-24T00:28:17.095Z
+date: 2024-10-17T17:57:44.450Z
+updated: 2024-10-24T17:56:50.012Z
 tags:
   - speak
   - english
@@ -28,8 +28,6 @@ thumbnail: https://thmb.techidaily.com/0a4429b41076dffc8b778c6281e805f6a7937a0d2
 
  Contraction words are generally easy enough to sort out, but there are situations where they can get tricky. For all those situations, it’s necessary to keep an eye out for rules. That’s why**we are** – or let’s say_**we’re**_ – going to explain everything you need to know about the rules of contractions in English. And while we’re at it, we will also add a contraction word list to go perfectly with the explanations.
 
-
-
 ## What is a contraction?
 
 **A contraction is** a type of abbreviation formed by combining two or more words and dropping one or more letters. In writing, the missing letters are replaced by an apostrophe. Sometimes called ‘short forms’, English contractions usually join a subject pronoun and a verb, an interrogative adverb and a verb, or a verb and the word_not_ .
@@ -40,13 +38,24 @@ thumbnail: https://thmb.techidaily.com/0a4429b41076dffc8b778c6281e805f6a7937a0d2
 
  Careful, though! It’s**best to avoid contractions in highly formal contexts,** like academic papers, grant proposals, formal speeches, or any materials requiring a professional appearance.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Understanding English contractions
 
  Contractions are an essential part of the English language. For this reason, it’s important to understand and use them correctly. Let’s look at a couple of examples so you can better understand what we’re talking about.
 
 <!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Types of English contractions
 
 * **Subject pronoun + verb:** This is the most common type of contraction in English. For example:_I am_ becomes_I’m_ ,_you are_ becomes_you’re_ ,_he is_ becomes_he’s_ , and so on.
@@ -77,11 +86,19 @@ Coming Soon
 ![contractions in English](https://edge.mondly.com/blog/wp-content/uploads/2023/11/contractions-in-english-960x960.png "The Ultimate Guide To English Contractions 3")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Grammar rules for English contractions
 
  Before you go thinking you know everything about contractions, we must look over some rules for contractions grammar.
@@ -92,9 +109,6 @@ Coming Soon
 4. **Some contractions are regional:** Like [slang words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , some English contractions are used only in certain regions or cultures. For example,_y’all_ and_ain’t_ are only used in some parts of the United States. So, technically, not everyone is familiar with them, which means you shouldn’t use them extensively.
 5. **Negative contractions and tag questions go together like English speakers and [misspelled words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) :** A tag question is a short question added at the end of a sentence to turn it into a question. They are used to confirm information or engage the listener in the conversation. For example: “You’re coming to the party, aren’t you?”. When the declarative part of the sentence is affirmative, the question part is formulated as negative and conversely. If the tag question is negative, it’s your cue to use a contraction.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Common contractions in English
 
  Contraction word list
@@ -227,9 +241,6 @@ Coming Soon
 | you will                     | you’ll      |
 | you will; you shall          | you’ll      |
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 ## Contractions in writing and their importance
 
  If you write in English on a daily basis, you probably use contractions quite a lot. And that’s perfectly fine if you talk to your family or friends. English contractions save time and space and make your daily communications sound friendlier.
@@ -240,9 +251,6 @@ Coming Soon
 
  However, if what you’re writing is semi-formal, you can use a couple of very popular contractions. The only condition is to not forget about the apostrophe, as the entire text will look unprofessional.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
 ## Examples of contractions in everyday language
 
  Now that you know the rules and have a comprehensive word list of contractions, it’s time to look at some examples of contractions from everyday language.
@@ -298,8 +306,6 @@ Coming Soon
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -307,4 +313,21 @@ Coming Soon
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-conquer-color-chaos-discover-essential-tutorials-and-techniques/"><u>[New] 2024 Approved Conquer Color Chaos - Discover Essential Tutorials and Techniques</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-dominating-viewers-spaces-channel-empire-rules/"><u>[Updated] In 2024, Dominating Viewers' Spaces Channel Empire Rules</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-lightening-your-day-with-humor-comical-facebook-detention-memes-for-2024/"><u>[Updated] Lightening Your Day with Humor Comical Facebook Detention Memes for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/bypassing-server-slips-resolving-ms-store-failures-in-1011/"><u>Bypassing Server Slips: Resolving MS Store Failures in 10/11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhance-your-language-learning-via-mondly/"><u>Enhance Your Language Learning via Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/entertain-edoardo-discover-20plus-authentic-italian-slang-words/"><u>Entertain Edoardo: Discover 20+ Authentic Italian Slang Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-porque-vs-por-que-a-linguistic-dive/"><u>Exploring 'Porque' Vs 'Por Que': A Linguistic Dive</u></a></li>
+<li><a href="https://fox-that.techidaily.com/fixing-error-4013-a-guide-to-smoothly-updating-and-restoring-your-iphone/"><u>Fixing Error 4013: A Guide to Smoothly Updating and Restoring Your iPhone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/focus-fluency-and-fast-learning-with-these-mental-exerciples/"><u>Focus, Fluency, and Fast Learning with These Mental Exerciples</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-greetings-how-to-say-hello-in-french/"><u>French Greetings: How To Say Hello In French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-latin-to-modern-expressions-romance-languages/"><u>From Latin to Modern Expressions: Romance Languages</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-tips-of-transferring-messages-from-tecno-phantom-v-flip-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Tips of Transferring Messages from Tecno Phantom V Flip to iPhone 14/15 | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-guide-resolving-non-functional-windows-key-issues-on-windows-10/"><u>Troubleshooting Guide: Resolving Non-Functional Windows Key Issues on Windows 10</u></a></li>
+<li><a href="https://win-answers.techidaily.com/windows-11-and-10-troubleshooting-top-tips-for-solving-zoom-crashes/"><u>Windows 11 & 10 Troubleshooting: Top Tips for Solving Zoom Crashes</u></a></li>
+</ul></div>
 

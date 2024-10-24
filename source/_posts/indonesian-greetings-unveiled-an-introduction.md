@@ -1,7 +1,7 @@
 ---
 title: "Indonesian Greetings Unveiled: An Introduction"
-date: 2024-10-14T00:20:02.031Z
-updated: 2024-10-19T01:00:23.807Z
+date: 2024-10-23T16:14:38.728Z
+updated: 2024-10-24T17:06:04.728Z
 tags:
   - speak
   - english
@@ -32,13 +32,6 @@ thumbnail: https://thmb.techidaily.com/7ba02d2067d54837e1bd869f645984fb69141a6a3
 
  Last but not least, if someone greets you using the_wai_ gesture (slight bow with the palms put together in front of the chest), you can show respect towards their culture by returning the same gesture.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to say ‘hello’ in Indonesian
 
  **If you want to say ‘hello’ in Indonesian, you can simply say_halo_ .** It’s short, sweet and almost identical to the English ‘hello’ you already know and use. Besides, it’s friendly and works great in most social situations.
@@ -47,11 +40,31 @@ thumbnail: https://thmb.techidaily.com/7ba02d2067d54837e1bd869f645984fb69141a6a3
 
  On the other hand, if someone asks you how you are doing, you can say_kabar baik,_ which means “I am fine” or “I am well”. Here’s what a basic conversation in Indonesian sounds like:
 
+<!-- affiliate ads begin -->
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### ‘Hi’ in Indonesian
 
  Made some new friends during your trip to Bali? When you meet them, you can also use the more informal_hi,_ which is pronounced the same as the English “hi”.
 
 Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Indonesian greetings for different times of day
 
@@ -66,10 +79,10 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 ![indonesian words](https://edge.mondly.com/blog/wp-content/uploads/2022/07/indonesian-words.png "Hello In Indonesian: A Quick Guide To Indonesian Greetings 2")
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The same way we say “morning!’ in English, Indonesians sometimes drop the_selamat_ . This results in a very informal greeting that can be used with friends and family.
@@ -79,10 +92,10 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
  Naturally,_selamat tidur_ is only used when someone is retiring for the night.
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to say goodbye
@@ -95,13 +108,6 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Start learning Indonesian today
 
@@ -134,24 +140,18 @@ Get Mondly today and learn Indonesian naturally with the following:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-step-by-step-process-for-free-youtube-introend-making/"><u>[New] 2024 Approved Step-by-Step Process for Free YouTube Intro/End Making</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-prime-ringtone-reserves-retro-rhythms-online/"><u>[New] In 2024, Prime Ringtone Reserves Retro Rhythms Online</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-unleash-the-power-of-windows-11-with-auto-hdr-feature-activation-for-2024/"><u>[New] Unleash the Power of Windows 11 with Auto HDR Feature Activation for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-maximizing-memories-the-ultimate-guide-for-overwatch-players/"><u>[Updated] In 2024, Maximizing Memories The Ultimate Guide for Overwatch Players</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-key-facts-on-youtube-lives-visual-identity/"><u>2024 Approved Key Facts on YouTube Live's Visual Identity</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-comprehensive-guide-to-chinese-polite-addresses/"><u>A Comprehensive Guide to Chinese Polite Addresses</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/beyond-basics-advanced-steps-for-total-tongue-tying/"><u>Beyond Basics: Advanced Steps for Total Tongue-Tying</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/efficient-language-learning-10-minute-routines/"><u>Efficient Language Learning, 10-Minute Routines</u></a></li>
-<li><a href="https://win-able.techidaily.com/guide-resolving-msi-afterburners-inability-to-detect-gpu-on-latest-windows-versions/"><u>Guide: Resolving MSI Afterburner's Inability to Detect GPU on Latest Windows Versions</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/ideas-in-images-top-20-photos-to-fire-up-creativity-for-2024/"><u>Ideas in Images Top 20 Photos to Fire Up Creativity for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-tecno-pova-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location on TikTok to See More Content On your Tecno Pova 5 Pro | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-polish-in-minutes/"><u>Mastering Polish in Minutes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-triumph-in-apples-educational-apps-top-ten-countdown/"><u>Mondly’s Triumph in Apple's Educational Apps Top Ten Countdown</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/parisian-chatterbox-103plus-phrases-for-easy-france-traveling/"><u>Parisian Chatterbox: 103+ Phrases for Easy France Traveling</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speaking-with-ease-breaking-down-tough-language-patterns/"><u>Speaking with Ease: Breaking Down Tough Language Patterns</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/stepwise-training-for-effective-transcription-with-gdoc-for-2024/"><u>Stepwise Training for Effective Transcription with GDoc for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unpacking-the-most-prevalent-speaker-numbers-for-french-language/"><u>Unpacking the Most Prevalent Speaker Numbers for French Language</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/unraveling-the-mechanics-of-predictive-ai-technology/"><u>Unraveling the Mechanics of Predictive AI Technology</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/what-is-the-longest-word-in-the-world/"><u>What Is the Longest Word in the World?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-premiere-edition-selective-sierra-video-editors/"><u>[Updated] Premiere Edition Selective Sierra Video Editors</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-learning-made-easy-utilizing-youtube-for-dynamic-classrooms/"><u>2024 Approved Learning Made Easy Utilizing YouTube for Dynamic Classrooms</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-unveiling-secrets-the-best-dronescopic-stabilizers-reviewed/"><u>2024 Approved Unveiling Secrets The Best Dronescopic Stabilizers Reviewed</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/cutting-edge-concert-streaming-services/"><u>Cutting-Edge Concert Streaming Services</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/frp-hijacker-by-hagard-download-and-bypass-your-vivo-y17s-frp-locks-by-drfone-android/"><u>FRP Hijacker by Hagard Download and Bypass your Vivo Y17s FRP Locks</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/head-to-head-review-the-new-samsung-galaxy-s23-ultra-against-the-last-generations-powerhouse-s21-ultra/"><u>Head-to-Head Review: The New Samsung Galaxy S23 Ultra Against the Last Generation's Powerhouse, S21 Ultra</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-fix-apple-id-verification-code-not-working-from-iphone-11-pro-by-drfone-ios/"><u>In 2024, How To Fix Apple ID Verification Code Not Working From iPhone 11 Pro</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-indulgence-saying-chocolate-in-languages/"><u>International Indulgence: Saying 'Chocolate' In Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-preference-this-apple-app/"><u>International Preference: This Apple App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-the-precision-of-the-global-scale-of-languages-by-pearson-to-mondly/"><u>Introducing the Precision of the Global Scale of Languages by Pearson to Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jumpstart-your-turkish-learning-an-essential-phonetics-guidebook/"><u>Jumpstart Your Turkish Learning: An Essential Phonetics Guidebook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/minute-math-learning-japanese-digits-now/"><u>Minute Math: Learning Japanese Digits Now</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-introduction-to-the-swedish-alphabet-and-its-fascinating-history/"><u>Quick Introduction to the Swedish Alphabet and Its Fascinating History</u></a></li>
 </ul></div>
 

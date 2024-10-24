@@ -1,7 +1,7 @@
 ---
 title: The Unseen Strength of Elder Polyglots
-date: 2024-08-23T00:34:11.907Z
-updated: 2024-08-24T00:34:11.907Z
+date: 2024-10-19T16:07:47.761Z
+updated: 2024-10-24T16:41:22.779Z
 tags:
   - speak
   - english
@@ -28,6 +28,13 @@ thumbnail: https://thmb.techidaily.com/3b5dbab902dc8db71b72fe778c491655a451dd9fd
   
  Although this is advantageous, Costa adds that it is much more difficult for seniors to master accents. The good news is, there are game-like tutorials that can teach males and females ages 6 to 90 or over to speak a new language of their choosing. These games include voiceovers that teach participants how to [pronounce](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) certain words.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Bilingualism Improves Cognition**
 
  Bilingualism is beneficial to brain health, according to researchers at Edinburgh University. After examining medical records of 648 patients with Alzheimer’s disease in Hyderabad, the researchers found that monolingual patients developed dementia earlier than those who spoke two languages. The lead researcher, Thomas Bak, notes that learning a new language later in life is beneficial because it helps exercise the brain.
@@ -35,8 +42,12 @@ thumbnail: https://thmb.techidaily.com/3b5dbab902dc8db71b72fe778c491655a451dd9fd
  Experts in senior health agree with Bak. The brain needs exercise and learning a new word every day or a new language can structurally and functionally alter the brain. It can make it more efficient and more flexible. Playing brain games that keep the mind young is also advisable. This includes crossword puzzles, card games, and Scrabble. Seniors can also improve their problem-solving skills by building something. If you have always wanted to build a birdhouse, for example, starting this project will help you exercise your brain. Experts also suggest that you carry cash for your daily purchases. Counting your change and remembering simple mathematical computations is a good brain exercise. With regular exercise, the brain will be better at focusing on remembering lists, directions, and sequences.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
+  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Learning keeps the brain young**
 
  York University and the American Academy of Neurology also conducted their own studies about bilingualism and dementia. Both institutions found that switching from one language to the other activates areas of the brain responsible for executive functioning. This involves the same area that is responsible for completing tasks.
@@ -44,8 +55,12 @@ thumbnail: https://thmb.techidaily.com/3b5dbab902dc8db71b72fe778c491655a451dd9fd
  According to the studies, utilizing this part of the brain often can decrease cognitive decline and can delay the initial effects of dementia. It must be noted that a third language is not required unless you are already bilingual. For multilingual individuals, learning a new language when you reach the age of 50 is a good way to improve brain health.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **More Than Just Medical Benefits**
 
  Bilingualism does not only help keep your brain active, but it can also increase your social interactions. The Gerontological Society of America notes that socialization can help improve an older individual’s general well-being.
@@ -67,8 +82,6 @@ _– written by Jane Sandwood, contributor at Mondly_
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -76,4 +89,19 @@ _– written by Jane Sandwood, contributor at Mondly_
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-support.techidaily.com/new-magix-image-handling-insights-reviewed/"><u>[New] MAGIX Image Handling Insights Reviewed</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-honor-play-7t-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Honor Play 7T Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/abbyy-finereader-15-update-ameliorer-et-accelerer-votre-transition-numerique-avec-les-nouvelles-fonctionnalites/"><u>ABBYY FineReader 15 Update : Améliorer Et Accélérer Votre Transition Numérique Avec Les Nouvelles Fonctionnalités</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/augmented-visions-vrs-cinematic-influence-for-2024/"><u>Augmented Visions VR's Cinematic Influence for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/become-a-professional-in-no-time-using-these-6-effective-strategies-for-learning-portuguese/"><u>Become a Professional in No Time Using These 6 Effective Strategies for Learning Portuguese</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-the-latest-drivers-for-your-hp-officejet-pro-cu8720-free-downloads-for-windows-users/"><u>Get the Latest Drivers for Your HP OfficeJet Pro Cu8720: Free Downloads for Windows Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-english-education-programs/"><u>Global English Education Programs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-barriers-break-for-a-minimal-0-today/"><u>Language Barriers Break for a Minimal $0 Today</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/maximize-savings-a-step-by-step-guide-to-preordering-top-tech-iphone-15-and-new-apple-watch-series-9-ultra-zdnet-insights/"><u>Maximize Savings: A Step-by-Step Guide to Preordering Top Tech: IPhone 15 and New Apple Watch Series 9 Ultra | ZDNet Insights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/old-salt-lexicon-a-pirates-speaking-guide/"><u>Old Salt Lexicon: A Pirate’s Speaking Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/romance-and-its-roots-in-language-culture/"><u>Romance and Its Roots in Language Culture</u></a></li>
+<li><a href="https://video-capture.techidaily.com/the-ultimate-list-of-8-gratis-corporate-video-conferencing-software/"><u>The Ultimate List of 8 Gratis Corporate Video Conferencing Software</u></a></li>
+</ul></div>
 

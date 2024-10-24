@@ -1,7 +1,7 @@
 ---
 title: Languages of Croatia
-date: 2024-08-23T00:33:52.017Z
-updated: 2024-08-24T00:33:52.017Z
+date: 2024-10-17T17:40:04.121Z
+updated: 2024-10-24T16:19:44.813Z
 tags:
   - speak
   - english
@@ -34,6 +34,19 @@ thumbnail: https://thmb.techidaily.com/2b68f106433b091c014f2083746f9820ace97ab74
 
  “Plitvice, Croatia” by Mike Swigunski©
 
+<!-- affiliate ads begin -->
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How similar are Croatian and Serbian?
 
  If you know the story of Yugoslavia, then you also know about the strong connection between Serbia, Croatia, Bosnia, and Montenegro. Sharing a common linguistic ancestor and being encouraged to use a joint language between 1918 and the 1990s, definitely had an impact on what we regard today as four independent languages. But then there’s also the fact that after the collapse of Yugoslavia, political developments have encouraged these ethnic groups to emphasize the differences between their languages. This is what you can call a turbulent and ofter erratic history.
@@ -46,9 +59,6 @@ thumbnail: https://thmb.techidaily.com/2b68f106433b091c014f2083746f9820ace97ab74
 
  Add regional dialects and subdialects to that, and there you have it. What was previously called ‘the Serbo-Croatian language’ are today two different languages: Croatian and Serbian.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 ## It is hard to learn Croatian?
 
  If you’re a native English speaker, yes, Croatian may prove [hard to learn](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . But not harder than languages such as Japanese, Chinese or Arabic.
@@ -60,13 +70,21 @@ thumbnail: https://thmb.techidaily.com/2b68f106433b091c014f2083746f9820ace97ab74
 ![aerial view of Dubrovnik, Croatia](https://edge.mondly.com/blog/wp-content/uploads/2021/10/croatian-language-960x640.jpg "What Language Is Spoken In Croatia? 3")
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  “Dubrovnik, Croatia” by Geio Tischler©
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Hello in Croatian and other basic Croatian words
 
  **The most popular way to say ‘hello’ in Croatian is_bok_ , but you can also use_zdravo,_ a more formal hello.** Similarly to other languages, it all depends on who you are talking to and how friendly you allow yourself to be. If you’re a tourist in Croatia,_bok_ or_bog_ (in some areas) should work fine in most situations.
@@ -92,8 +110,12 @@ thumbnail: https://thmb.techidaily.com/2b68f106433b091c014f2083746f9820ace97ab74
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## From 0 to conversational in Croatian
 
  Do you want to see the Croatian language in action? Get Mondly, the award-winning language learning app that will help you speak Croatian like a pro.
@@ -115,8 +137,6 @@ thumbnail: https://thmb.techidaily.com/2b68f106433b091c014f2083746f9820ace97ab74
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -124,4 +144,23 @@ thumbnail: https://thmb.techidaily.com/2b68f106433b091c014f2083746f9820ace97ab74
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-how-to-craft-eye-catching-youtubes-end-titles/"><u>[New] 2024 Approved How to Craft Eye-Catching YouTubes End Titles</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-innovative-design-crafting-youtubes-efficient-subscribe-page/"><u>2024 Approved Innovative Design Crafting YouTube's Efficient Subscribe Page</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-unlocking-windows-11s-visual-capabilities-with-auto-hdr-mode-activation/"><u>2024 Approved Unlocking Windows 11'S Visual Capabilities with Auto HDR Mode Activation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/african-languages-unleashed-a-cultural-expedition/"><u>African Languages Unleashed: A Cultural Expedition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/basic-russian-expressions-boosting-travel-confidence/"><u>Basic Russian Expressions Boosting Travel Confidence</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/best-practices-in-linguistics-top-5-teaching-technologies/"><u>Best Practices in Linguistics: Top 5 Teaching Technologies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brief-but-effective-guide-to-japanese-numerals/"><u>Brief but Effective Guide to Japanese Numerals</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cross-border-favorite-the-days-apple-app/"><u>Cross-Border Favorite: The Day's Apple App</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/des-astuces-pour-tirer-profit-de-lcompression-gratuite-des-fichiers-pdf-lourds-guide-complet/"><u>Des Astuces Pour Tirer Profit De L'Compression Gratuite Des Fichiers PDF Lourds - Guide Complet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/empowerment-through-the-lens-of-honterus/"><u>Empowerment Through the Lens of Honterus</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-can-i-use-a-fake-gps-without-mock-location-on-infinix-note-30i-drfone-by-drfone-virtual-android/"><u>How Can I Use a Fake GPS Without Mock Location On Infinix Note 30i? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580763861-is-german-hard-to-study/"><u>Is German Hard To Study?</u></a></li>
+<li><a href="https://facebook.techidaily.com/pocketing-profits-from-peoples-pages/"><u>Pocketing Profits From People's Pages</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/quick-troubleshooting-guide-for-i2c-hid-device-driver-issues/"><u>Quick Troubleshooting Guide for I2C HID Device Driver Issues</u></a></li>
+<li><a href="https://review-topics.techidaily.com/remove-google-frp-lock-on-oneplus-ace-2-by-drfone-android-unlock-remove-google-frp/"><u>Remove Google FRP Lock on OnePlus Ace 2</u></a></li>
+<li><a href="https://program-issues.techidaily.com/resolving-discord-glitches-for-a-smooth-streaming-experience-a-step-by-step-guide/"><u>Resolving Discord Glitches for a Smooth Streaming Experience: A Step-by-Step Guide</u></a></li>
+</ul></div>
 

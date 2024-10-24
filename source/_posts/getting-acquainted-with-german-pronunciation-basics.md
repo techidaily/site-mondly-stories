@@ -1,7 +1,7 @@
 ---
 title: Getting Acquainted with German Pronunciation Basics
-date: 2024-08-23T00:27:48.071Z
-updated: 2024-08-24T00:27:48.071Z
+date: 2024-10-18T17:48:04.606Z
+updated: 2024-10-24T16:05:25.316Z
 tags:
   - speak
   - english
@@ -26,6 +26,13 @@ thumbnail: https://thmb.techidaily.com/be8413a30f19599698e9b5b7f7e17b9eb5081fbfd
 
  Considering you’re already familiar with all the other letters, let’s continue by taking a closer look at these four special letters: ß, ä, ö and ü.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### ß also known as ‘sharp S’, ‘eszett’ or ‘scharfes S’
 
  Although it looks different from everything you’ve ever seen in English, ß shouldn’t intimidate you. Vaguely resembling a capital ‘B’,**the letter ß is pronounced like a sharp S** (like the ‘s’ in ‘see’) – hence its name ‘eszett’ or ‘scharfes S’.
@@ -35,8 +42,12 @@ thumbnail: https://thmb.techidaily.com/be8413a30f19599698e9b5b7f7e17b9eb5081fbfd
  Eszett not having a capitalized version sparked debates for a long time, so the Council for German Orthography [officially adopted](https://www.sueddeutsche.de/bildung/rechtschreibung-das-alphabet-bekommt-einen-neuen-buchstaben-1.3566309) a capital in 2017\. The capital of ß is ẞ.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### German umlauts: ä, ö, ü
 
  While highly representative for the German language, the German umlauts are ‘guilty’ of making the most uncommon sounds to English speakers.
@@ -54,11 +65,12 @@ Now round off your lips and start practicing!
 ![german alphabet](https://edge.mondly.com/blog/wp-content/uploads/2022/04/german-alphabet-960x640.jpg "A Beginner’s Guide To The German Pronunciation &Amp; Alphabet 2")
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
 ## German pronunciation guide for single letters
 
  Now that we’ve settled the matters with ß, ä, ö and ü, it’s time to move on to more familiar letters and see how their pronunciation differs from English.
@@ -73,9 +85,6 @@ Now round off your lips and start practicing!
 4. **J** – _Oh ja,_ you already know this one! The German _j_ is pronounced like the English ‘y’.
 5. **E** – If you see an _e_ at the end of a German word, make sure to pronounce it like this: ‘eh’. Come on! Loud and clear: _Katze_ (‘cat’)!
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ## German pronunciation guide for letter combinations
 
  Just a few more examples and you’ll soon be ready to speak like a German! Let’s see how you should pronounce certain letter combinations in German:
@@ -94,8 +103,18 @@ Now round off your lips and start practicing!
  Did you recognize_ze rules_ in this example?
 
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982457">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to pronounce long German words
 
 _Ja,_ the German language is famous for its very long words, but once again – this shouldn’t intimidate you. Most [German words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) are, in fact, compounds.
@@ -133,8 +152,6 @@ _Tschüss!_
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -142,4 +159,21 @@ _Tschüss!_
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/updated-reaping-the-benefits-of-hdr-for-professional-videoists-for-2024/"><u>[Updated] Reaping the Benefits of HDR for Professional Videoists for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/engaging-with-media-a-language-masterclass-approach/"><u>Engaging with Media: A Language Masterclass Approach</u></a></li>
+<li><a href="https://win-able.techidaily.com/enhancing-playability-how-to-fix-fps-fluctuations-in-the-f1-2021-racing-game-on-pc/"><u>Enhancing Playability: How to Fix FPS Fluctuations in the F1 2021 Racing Game on PC</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/excellence-in-learning-mondly-takes-the-lead/"><u>Excellence in Learning: Mondly Takes the Lead</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expanding-horizons-language-and-intelligence/"><u>Expanding Horizons: Language & Intelligence</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressive-french-color-words-fast-tracked/"><u>Expressive French Color Words Fast Tracked</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/finding-purpose-and-fulfillment-in-your-fifties-through-language-skills/"><u>Finding Purpose and Fulfillment in Your Fifties Through Language Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-beginner-to-fluent-mondlys-transformational-techniques-top-10/"><u>From Beginner to Fluent: Mondly's Transformational Techniques, Top 10</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/how-to-get-the-newest-version-of-your-intel-centrino-advanced-n-6235-chipset-driver/"><u>How to Get the Newest Version of Your Intel Centrino Advanced-N 6235 Chipset Driver</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-xiaomi-redmi-note-12-pro-5g-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Xiaomi Redmi Note 12 Pro 5G Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-ultimate-guide-viewing-the-complete-indiana-jones-franchise-sequentially/"><u>The Ultimate Guide: Viewing The Complete Indiana Jones Franchise Sequentially</u></a></li>
+<li><a href="https://win-marvelous.techidaily.com/ultimate-guide-starting-up-with-external-media-lenovo-pcs-and-windows-11/"><u>Ultimate Guide: Starting Up With External Media - Lenovo PCs & Windows 11</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/1720672582068-underlying-issues-with-video-editing-tool-performance/"><u>Underlying Issues with Video Editing Tool Performance</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unresolved-mysteries-for-ai-seven-prompts-that-challenge-gpt-3s-capabilities/"><u>Unresolved Mysteries for AI: Seven Prompts That Challenge GPT-3's Capabilities</u></a></li>
+</ul></div>
 

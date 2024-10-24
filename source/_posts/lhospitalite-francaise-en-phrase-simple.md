@@ -1,7 +1,7 @@
 ---
 title: L'Hospitalité Française En Phrase Simple
-date: 2024-08-23T00:31:10.733Z
-updated: 2024-08-24T00:31:10.733Z
+date: 2024-10-17T17:37:48.055Z
+updated: 2024-10-24T16:35:50.143Z
 tags:
   - speak
   - english
@@ -48,14 +48,24 @@ thumbnail: https://thmb.techidaily.com/643f417ea21e236b7a77b1b03708fbc61c8fba5f4
 
  “Strasbourg, France” by Patrick Robert Doyle©
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 2\. The informal “you’re welcome”:_je t’en prie_
 
  Like_‘de rien’_ , which is certainly the most casual way to say you’re welcome in French, ‘_je t’en prie’_ is another informal way to respond to someone who expressed their gratitude towards you.
 
  It is most common amongst very close friends and family members. This particular form is most appropriate when you want to express a higher level of gratitude than_‘de rien’_ , but with somebody close to you, with whom your relationship is casual.
+
+<!-- affiliate ads begin -->
+<span id="1328683">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### The literal translation of_‘je t’en prie’_
 
@@ -68,8 +78,12 @@ thumbnail: https://thmb.techidaily.com/643f417ea21e236b7a77b1b03708fbc61c8fba5f4
  B:_Je t’en prie !_ (“You’re welcome!”)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 3\. The formal “you’re welcome”:_je vous en prie_
 
  You’ll notice that this particular way to say ‘you’re welcome’ in French is very similar to the previous example. In fact, the phrase is almost identical. The only thing that’s changed is the personal pronoun. Instead of using the informal you –_‘tu’_ – we use the formal counterpart –_‘vous’_ .
@@ -77,8 +91,12 @@ thumbnail: https://thmb.techidaily.com/643f417ea21e236b7a77b1b03708fbc61c8fba5f4
  This should make_‘je vous en prie’_ nice and easy to remember. Just be careful not to use it with close friends. Using_‘vous’_ will sound unnatural if you are in close company. Likewise, always use this version of you’re welcome in French if you are speaking with somebody you do not know, no matter their level of seniority.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### The literal translation of_‘je vous en prie’_
 
  Again, the literal translation of ‘je vous en prie’ is ‘I pray you it’. The important thing to remember here is not the literal translation, but when exactly you should use_‘vous’_ instead of_‘tu’_ .
@@ -95,14 +113,18 @@ thumbnail: https://thmb.techidaily.com/643f417ea21e236b7a77b1b03708fbc61c8fba5f4
 
 ![you're welcome](https://edge.mondly.com/blog/wp-content/uploads/2021/05/youre-welcome-960x640.jpg "4 Popular Ways To Say You’re Welcome In French 3")
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  “Southern France, Toulouse” by DAT VO©
 
 ## 4\. The easiest to remember:_pas de problème_
 
  When you’re in the early stages of [learning French](https://travel-lingual.com/how-long-take-to-learn-french/) , sometimes the most sensible thing to do is use what you can remember. The word_‘problème’_ in this particular French expression resembles the English word ‘problem’ and should not be too difficult for you to learn. Be cautious of the [French grave accent](https://travel-lingual.com/french-accent-marks/) on the_‘e’_ as this alters the pronunciation of the word.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### The literal translation of_‘pas de problème’_
 
@@ -118,9 +140,6 @@ Example:
 
  A:_Pas de problème. Merci._ (“No problem. Thanks.”)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Bonus: Less common ways to say “you’re welcome” in French
 
  If you want to mix things up a bit, another informal and very casual way of saying you’re welcome in French is_‘il n’y a pas de quoi’_ . This literally means “there is no what”, but an adapted translation would be “there is no reason (to thank me)”. Being a casual expression, it can be used safely in the same contexts as_‘de rien’_ .
@@ -150,18 +169,6 @@ _Th_ _is post is delivered to you by James A. Smith._
 
 ---
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Speak French fluently in just 10 minutes a day
 
  **Do you want to [speak French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) like a fluent speaker?** Get Mondly, the award-winning language learning app that will help you speak French as if you were Paris-born.
@@ -178,8 +185,6 @@ _Th_ _is post is delivered to you by James A. Smith._
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -187,4 +192,24 @@ _Th_ _is post is delivered to you by James A. Smith._
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-safe-mp3-extraction-three-methods-for-youtube-audio-conversion/"><u>[New] In 2024, Safe MP3 Extraction Three Methods for YouTube Audio Conversion</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-flawless-screen-recorders/"><u>[Updated] Flawless Screen Recorders</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-minutes-to-fluency-your-daily-guide-to-latvian-learning/"><u>10 Minutes to Fluency: Your Daily Guide to Latvian Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-minute-bangla-blitz-start-your-language-adventure-today/"><u>10-Minute Bangla Blitz: Start Your Language Adventure Today</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-blend-sounds-in-presentation-ppts/"><u>2024 Approved Blend Sounds in Presentation PPTs</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/6-pioneering-nft-creators-spurring-artistic-genius/"><u>6 Pioneering NFT Creators Spurring Artistic Genius</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/9-unexpected-ways-language-affects-mindset/"><u>9 Unexpected Ways Language Affects Mindset</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/boost-your-productivity-with-two-screens-on-your-mac-setup-instructions-inside/"><u>Boost Your Productivity with Two Screens on Your Mac - Setup Instructions Inside!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/captains-colloquialism-compendium-piratical-language-lesson/"><u>Captain's Colloquialism Compendium: Piratical Language Lesson</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conversational-couture-tailoring-pick-up-lines-in-spanish/"><u>Conversational Couture: Tailoring Pick-Up Lines in Spanish</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/how-to-fix-performance-hitches-in-path-of-exile-for-smooth-gameplay/"><u>How to Fix Performance Hitches in Path of Exile for Smooth Gameplay</u></a></li>
+<li><a href="https://win-able.techidaily.com/how-to-fix-the-persistent-connection-failed-error-in-hitman-3/"><u>How to Fix the Persistent 'Connection Failed' Error in Hitman 3</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-enhanced-viewing-experience-apply-filters-on-videos/"><u>In 2024, Enhanced Viewing Experience Apply Filters on Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578245800-language-barrier-breakthroughs-with-an-epic-95-savings-opportunity/"><u>Language Barrier Breakthroughs with an Epic 95% Savings Opportunity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581698084-learn-catalan-online-in-just-10-minutes-a-day/"><u>Learn Catalan Online in Just 10 Minutes a Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578090462-mastering-languages-made-simple-explore-our-top-triads-benefits/"><u>Mastering Languages Made Simple: Explore Our Top Triad's Benefits!</u></a></li>
+<li><a href="https://win-blog.techidaily.com/r-type-final-2-on-desktop-now-running-without-a-hitch-say-goodbye-to-frustrating-crashes/"><u>R-Type Final 2 on Desktop Now Running Without a Hitch - Say Goodbye to Frustrating Crashes!</u></a></li>
+</ul></div>
 

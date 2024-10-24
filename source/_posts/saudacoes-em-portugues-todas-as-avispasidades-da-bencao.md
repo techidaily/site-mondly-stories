@@ -1,7 +1,7 @@
 ---
 title: "Saudações Em Português: Todas as Avispasidades Da Bênção"
-date: 2024-10-17T00:59:11.278Z
-updated: 2024-10-18T19:26:03.385Z
+date: 2024-10-19T17:10:26.514Z
+updated: 2024-10-24T16:38:58.741Z
 tags:
   - speak
   - english
@@ -24,6 +24,19 @@ thumbnail: https://thmb.techidaily.com/85ea88a283ba15f13d63e8eaf5823127ecc1dabd5
 
  “Hello” is a [powerful word](https://www.merriam-webster.com/words-at-play/the-origin-of-hello) . It opens doors. It makes people smile. And said the right way and at the right time, “hello” can impact someone’s day and you wouldn’t even know it. So here are the right ways to say “hello” in Portuguese and open doors everywhere you go.
 
+<!-- affiliate ads begin -->
+<span id="1982461">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### “Hello” in Portuguese – Olá
 
 _Olá_ is the best choice for most social situations regardless of the person you are addressing. It’s somehow formal, but also friendly.
@@ -31,10 +44,10 @@ _Olá_ is the best choice for most social situations regardless of the person yo
  Be careful with your Portuguese pronunciation though! A lot of people accidentally mistake Portuguese for Spanish. You don’t want to do that. Just say “OH-lah” and everybody from Brazil to Mozambique will understand that you are saying “hello” in Portuguese.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### “Hi” in Portuguese – Oi
@@ -61,10 +74,10 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 * **_Como foi o seu dia?_ – How’s your day?** – Used the same as in English.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. “Bom dia!” and other Portuguese greetings for certain moments of the day
@@ -81,6 +94,13 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
  All three of these are safe to use in any kind of interaction (formal or informal).
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3.“Goodbye” in Portuguese – Adeus
 
  The most common way to say “Goodbye” in Portuguese is_Adeus_ , but you can also use_Tchau_ which simply translates to “bye”.
@@ -96,13 +116,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ![portuguese greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/08/portuguese-greetings-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 4")
 
  “Ruínas da Fortaleza de Arrifana, Aljezur, Portugal” by Ferhat Deniz Fors©
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Bonus: other basic Portuguese phrases that you should know
 
@@ -135,13 +148,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Here’s how to speak Portuguese in 10 minutes a day
 
  Do you want to practice what you’ve learned and maybe learn some more Portuguese? **Check Mondly, the revolutionary language learning platform that makes language learning fun, fast and easy!**
@@ -173,19 +179,16 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-harness-the-full-potential-of-your-youtube-content-using-wmm/"><u>[New] 2024 Approved Harness the Full Potential of Your YouTube Content Using WMM</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-ultimate-guide-top-ten-meme-designs-for-virality/"><u>[New] 2024 Approved Ultimate Guide Top Ten Meme Designs for Virality</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-best-routes-to-collecting-visual-content-for-2024/"><u>[Updated] Best Routes to Collecting Visual Content for 2024</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-effective-ways-to-design-fb-ad-videos-for-2024/"><u>[Updated] Effective Ways to Design FB Ad Videos for 2024</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/2024-approved-mastering-facebook-visuals-adding-text-boxes-and-dark-bar-overlays/"><u>2024 Approved Mastering Facebook Visuals Adding Text Boxes & Dark Bar Overlays</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/5-things-to-consider-before-you-buy-a-fitness-tracker/"><u>5 Things to Consider Before You Buy a Fitness Tracker</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/anonymous-legacy-non-protected-creative-pieces/"><u>Anonymous Legacy Non-Protected Creative Pieces</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/career-advantages-with-cognition-the-top-4-reasons-to-learn-languages-later-in-life/"><u>Career Advantages with Cognition: The Top 4 Reasons to Learn Languages Later in Life</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exacting-education-pearsons-gsl-meets-mondly/"><u>Exacting Education: Pearson’s GSL Meets Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-learning-path-resolution-of-2024/"><u>Language Learning Path - Resolution of 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-afrikaans-unveil-how-mondly-makes-learning-easy-and-effective/"><u>Mastering Afrikaans: Unveil How Mondly Makes Learning Easy & Effective</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/skagen-falster-3-review-the-perfect-blend-of-timeless-elegance-and-cutting-edge-technology-in-a-smartwatch/"><u>Skagen Falster 3 Review: The Perfect Blend of Timeless Elegance and Cutting-Edge Technology in a Smartwatch</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/soviet-speech-the-common-thread-of-uk-and-russ/"><u>Soviet Speech: The Common Thread of Uk & Russ</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/tage-der-woche-deutsche-sprachreise-antreten/"><u>Tage Der Woche: Deutsche Sprachreise Antreten</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-how-to-stream-videos-on-twitter-using-your-smartphone/"><u>[New] In 2024, How To Stream Videos on Twitter Using Your Smartphone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-innovative-ways-to-generate-money-on-snapchat-channels/"><u>[Updated] 2024 Approved Innovative Ways to Generate Money on Snapchat Channels</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-az-capture-insights-apps-explored/"><u>2024 Approved AZ Capture Insights Apps Explored</u></a></li>
+<li><a href="https://games-able.techidaily.com/boosting-opera-gx-with-a-month-of-free-disco/"><u>Boosting Opera GX with a Month of Free Disco</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-unlock-locked-iphone-12-mini-without-passcode-by-drfone-ios-unlock-ios-unlock/"><u>How to Unlock locked iPhone 12 mini without Passcode</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-learn-how-everything-works-on-vivo-v30-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Learn How Everything Works On Vivo V30 Pro | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swift-expressive-colors-in-french/"><u>Swift, Expressive Colors in French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-overseas-tongues-studied-in-the-states/"><u>Top Overseas Tongues Studied In the States</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/troubleshooting-the-haldll-file-not-found-error-for-windows-xp-users/"><u>Troubleshooting the 'hal.dll' File Not Found Error for Windows XP Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ultimate-guide-to-mastering-lithuanian-from-your-laptop/"><u>Ultimate Guide to Mastering Lithuanian From Your Laptop</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-israels-mainstream-tongue/"><u>Unveiling Israel’s Mainstream Tongue</u></a></li>
 </ul></div>
 

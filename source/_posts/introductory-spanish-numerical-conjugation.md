@@ -1,7 +1,7 @@
 ---
 title: Introductory Spanish Numerical Conjugation
-date: 2024-08-23T00:28:13.686Z
-updated: 2024-08-24T00:28:13.686Z
+date: 2024-10-23T18:52:44.350Z
+updated: 2024-10-24T18:03:17.455Z
 tags:
   - speak
   - english
@@ -35,6 +35,13 @@ thumbnail: https://thmb.techidaily.com/8f8ccde6a37994fbb46b3e6f7b726055988d6d039
  Until then, here’s cool audio of a fluent speaker pronouncing the Spanish numbers 1 to 10:
 
 **Good to know:** _uno_becomes an article and changes to_un_if it’s in front of a noun. For example,_un cerdo_translates to “a pig” in English.
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Spanish numbers to 40
 
@@ -71,8 +78,12 @@ thumbnail: https://thmb.techidaily.com/8f8ccde6a37994fbb46b3e6f7b726055988d6d039
  As you can see, up to 30 (“thirty”), the numbers are bound together, but from there on they part ways to make counting in Spanish even easier for you. Basically, you won’t say “thirty-one”, but “thirty**and** one”:_treinta y uno_ .
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Count to 100 in Spanish
 
  As we already settled, counting in Spanish is all about mastering the basics. Now that you know how to count to 40, counting to 100 in Spanish is a piece of cake. Just learn the tens and you are ready to go.
@@ -103,8 +114,12 @@ thumbnail: https://thmb.techidaily.com/8f8ccde6a37994fbb46b3e6f7b726055988d6d039
 * 98 –_noventa y ocho_
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Spanish numbers to 1000 and beyond
 
  Hundreds shouldn’t scare you either. They are just as simple. Once you know how the hundreds are, you’ll also know the numbers in between.
@@ -143,8 +158,12 @@ Here are some more examples:
 ![count in Spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/07/count-in-spanish-960x663.jpg "Spanish Numbers: How To Count Numbers In Spanish 4")
 
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Barcelona, Spain
 
  If you want to go even further, thousands and millions work exactly like in English: number +_mil_ (“thousand”) or_millón_ (“million”). Here are some examples:
@@ -185,8 +204,6 @@ Here are some more examples:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -194,4 +211,19 @@ Here are some more examples:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-information.techidaily.com/new-10-best-practices-for-boosting-srt-on-pc-and-macos/"><u>[New] 10 Best Practices for Boosting SRT on PC & macOS</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-leading-digital-background-switchers-shutterfix-excellence-for-2024/"><u>[New] Leading Digital Background Switchers ShutterFix Excellence for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-top-5-android-games-for-true-ps2-virtual-gaming-adventures/"><u>[Updated] Top 5 Android Games for True PS2 Virtual Gaming Adventures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhance-global-business-communication-with-top-language-tools/"><u>Enhance Global Business Communication with Top Language Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ensenanza-completa-sobre-el-cuerpo-humano-atras-de-la-nariz/"><u>Enseñanza Completa Sobre El Cuerpo Humano: Atrás De La Nariz</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/european-versus-south-american-phonology/"><u>European versus South American Phonology</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fluent-flirts-the-art-of-spanish-charms/"><u>Fluent Flirts: The Art of Spanish Charms</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-after-switching-from-infinix-note-30-vip-racing-edition-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data After Switching From Infinix Note 30 VIP Racing Edition to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-quick-guide-to-itel-p55-frp-bypass-instantly-by-drfone-android/"><u>In 2024, A Quick Guide to Itel P55 FRP Bypass Instantly</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-high-quality-inexpensive-countdown-apps/"><u>In 2024, High-Quality Inexpensive Countdown Apps</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/navigating-the-world-of-tech-gear-with-toms-expertise/"><u>Navigating the World of Tech Gear with Tom's Expertise</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/ntoskrnlexe-solved-resource-overuse-in-windows/"><u>Ntoskrnl.exe: Solved Resource Overuse in Windows</u></a></li>
+</ul></div>
 

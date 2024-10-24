@@ -1,7 +1,7 @@
 ---
 title: The Dawn of Verbalized Augmented Experiences
-date: 2024-10-13T20:39:58.825Z
-updated: 2024-10-18T17:33:26.363Z
+date: 2024-10-18T16:52:54.029Z
+updated: 2024-10-24T18:22:58.040Z
 tags:
   - speak
   - english
@@ -43,10 +43,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 > _We started working on Mondly AR in August 2017 and by the time [Blade Runner 2049](http://www.imdb.com/title/tt1856101/) was released, we already had a working demo. Watching Blade Runner 2049 made me realize that we were beginning to build the future. To me, Joi (the holographic companion of officer K) looked like a super advanced version of Mondly – the character we were creating. They can both understand speech, reply with a human voice and change outfits. Of course, Mondly is not as smart and realistic as Joi. Yet. But she can teach you 7 languages. And this is just the beginning._
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Here’s what you should know about Mondly AR
@@ -65,10 +65,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facts and figures about Mondly
@@ -85,10 +85,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 * [Mondly Press Kit](https://www.dropbox.com/sh/vo4j5214zvwdxy5/AAC20VxIgpuiEe7ED2%5F37VNEa?dl=0)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Media mentions about Mondly
@@ -120,19 +120,24 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-support.techidaily.com/new-iphone-hacks-filming-and-modifying-lengthy-video-sequences/"><u>[New] IPhone Hacks Filming & Modifying Lengthy Video Sequences</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-expert-techniques-for-manipulating-iphone-photos/"><u>[Updated] Expert Techniques for Manipulating iPhone Photos</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-closing-with-panache-free-youtubes-1-six/"><u>[Updated] In 2024, Closing with Panache Free YouTube's #1 Six!</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-removing-your-facebook-live-video-tech-steps/"><u>2024 Approved Removing Your Facebook Live Video Tech Steps</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/9-english-grammar-tips-from-an-esl-speaker/"><u>9 English Grammar Tips From an ESL Speaker</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/childhood-nutrition-savvy-with-mondly-kids-google-plays-best-of-2017/"><u>Childhood Nutrition Savvy with Mondly Kids - Google Play’s Best of 2017</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discovering-the-german-alphabet-and-its-phonetics/"><u>Discovering the German Alphabet and Its Phonetics</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/how-to-repair-a-fatal-unmountablebootvolume-bug-in-windows-10-easily/"><u>How to Repair a Fatal UNMOUNTABLE_BOOT_VOLUME Bug in Windows 10 Easily!</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-samsung-galaxy-s23-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Your Samsung Galaxy S23 Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-vivo-v29-pro-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Vivo V29 Pro online without jailbreak</u></a></li>
-<li><a href="https://fox-access.techidaily.com/in-2024-the-gradual-sound-escalation-auditions-guide-to-fades/"><u>In 2024, The Gradual Sound Escalation Audition’s Guide to Fades</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguistic-versatilitys-upside-6-perks-demystified/"><u>Linguistic Versatility's Upside: #6 Perks Demystified</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-languages-top-online-learning-methods/"><u>Mastering Languages: Top Online Learning Methods</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/visionaries-unite-global-insights-on-ai-advancements/"><u>Visionaries Unite: Global Insights on AI Advancements</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-top-selection-scintillating-cardboard-vr-gaming-experiences/"><u>[New] Top Selection Scintillating Cardboard VR Gaming Experiences</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-your-guide-to-premium-metaverse-goggles-and-headsets/"><u>2024 Approved Your Guide to Premium Metaverse Goggles & Headsets</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/fix-guide-lost-d3dx939dll-in-windows-11-os/"><u>Fix Guide: Lost D3DX9_39.dll in Windows 11 OS</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/gaming-revolution-microsoft-pledges-enhanced-performance-for-arm-windows-mobile-systems/"><u>Gaming Revolution: Microsoft Pledges Enhanced Performance for ARM Windows Mobile Systems</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-can-you-transfer-files-from-motorola-moto-g73-5g-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How Can You Transfer Files From Motorola Moto G73 5G To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://fox-where.techidaily.com/how-to-set-up-incremental-backups-from-windows-server-to-a-network-drive/"><u>How to Set Up Incremental Backups From Windows Server to a Network Drive</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/how-to-transfer-apple-iphone-15-plus-data-to-iphone-12-a-complete-guide-drfone-by-drfone-transfer-from-ios/"><u>How to Transfer Apple iPhone 15 Plus Data to iPhone 12 A Complete Guide | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-honor-100-to-pc-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Honor 100 to PC? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/meet-your-innovative-ai-discussion-partner/"><u>Meet Your Innovative AI Discussion Partner</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-no-cost-language-learning-nationwide/"><u>Mondly: No-Cost Language Learning Nationwide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/number-1-10-in-everyday-spanish/"><u>Number 1-10 in Everyday Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/opening-doors-with-foreign-tongues-anytime/"><u>Opening Doors with Foreign Tongues Anytime</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pronunciation-pioneers-unveiling-scottish-irish-and-aussie-flair/"><u>Pronunciation Pioneers: Unveiling Scottish, Irish, and Aussie Flair</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/setting-and-securing-your-2022-success/"><u>Setting & Securing Your 2022 Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-finest-3-online-schools-learn-languages-with-precision-and-passion/"><u>The Finest 3 Online Schools: Learn Languages with Precision & Passion</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-9-nokia-c02-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>Top 9 Nokia C02 Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/uncovering-the-top-120-vital-vietnamese-words/"><u>Uncovering the Top 120 Vital Vietnamese Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vibrant-verses-of-venetian-verve/"><u>Vibrant Verses of Venetian Verve</u></a></li>
+<li><a href="https://discover-guides.techidaily.com/1728502554288-windows-881/"><u>Windows 8/8.1 システムバックアップ手順【完全なセキュリティ保証】</u></a></li>
 </ul></div>
 

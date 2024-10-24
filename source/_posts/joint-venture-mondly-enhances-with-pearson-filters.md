@@ -1,7 +1,7 @@
 ---
 title: "Joint Venture: Mondly Enhances with Pearson Filters"
-date: 2024-08-23T00:32:16.604Z
-updated: 2024-08-24T00:32:16.604Z
+date: 2024-10-22T18:15:09.850Z
+updated: 2024-10-24T16:48:27.891Z
 tags:
   - speak
   - english
@@ -39,6 +39,13 @@ thumbnail: https://thmb.techidaily.com/eae25c8cb1f012b237b4735a8d726d09f7b30b165
 
  At Pearson, our purpose is simple: to add life to a lifetime of learning. We believe that every learning opportunity is a chance for a personal breakthrough. That’s why our c.20,000 Pearson employees are committed to creating vibrant and enriching learning experiences designed for real-life impact. We are the world’s leading learning company, serving customers in more than 200 countries with digital content, assessments, qualifications, and data. For us, learning isn’t just what we do. It’s who we are. Visit us at pearsonplc.com
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **About Mondly**
 
  Mondly is a leading language learning platform that has been named “Regional App of the Year” by Facebook, “App of the Day” by Apple, and “Editors’ Choice” by Google Play. Launched in 2014, it quickly became a leading app in the mobile space. According to Statista, Mondly is currently in the Top 5 language learning apps worldwide by number of downloads.
@@ -51,8 +58,6 @@ thumbnail: https://thmb.techidaily.com/eae25c8cb1f012b237b4735a8d726d09f7b30b165
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -60,9 +65,22 @@ thumbnail: https://thmb.techidaily.com/eae25c8cb1f012b237b4735a8d726d09f7b30b165
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-webcam-wizardry-on-macbook-pro/"><u>[New] Webcam Wizardry on MacBook Pro</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-enhance-ipad-recording-simpler-approaches-revealed/"><u>[Updated] In 2024, Enhance iPad Recording Simpler Approaches Revealed</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-video-conversion-made-simple-the-best-flv-tools-for-youtube-for-2024/"><u>[Updated] Video Conversion Made Simple The Best Flv Tools for YouTube for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/1726027318568-google/"><u>動画の自由な見極め - Google フォトで簡単に回転するコツ</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/acquiring-mastery-in-spanish-greetings-10-key-expressions/"><u>Acquiring Mastery in Spanish Greetings: 10 Key Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/award-winning-app-for-families-mondlys-innovative-design/"><u>Award-Winning App for Families: Mondly's Innovative Design</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/building-bridges-with-global-cultures-why-learn-languages-at-50plus/"><u>Building Bridges with Global Cultures: Why Learn Languages at 50+</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/connect-seamlessly-integrating-bluetooth-technology-into-personal-computers/"><u>Connect Seamlessly: Integrating Bluetooth Technology Into Personal Computers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/converse-with-confidence-in-italy-the-essential-phrases-list/"><u>Converse with Confidence in Italy: The Essential Phrases List</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/descubre-el-lenguaje-semanal-en-espana/"><u>Descubre El Lenguaje Semanal en España</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/elevate-your-writing-with-innovative-ideas-from-the-worlds-5-leading-ai-generators/"><u>Elevate Your Writing with Innovative Ideas From the World's 5 Leading AI Generators</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-eclectic-videoland-rating/"><u>In 2024, Eclectic Videoland Rating</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/install-or-update-your-logiteche-mk710-mouse-software-get-it-here/"><u>Install or Update Your Logiteche MK710 Mouse Software - Get It Here!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581844423-mondly-kids-edition-smart-filter-feature-2017/"><u>Mondly Kid's Edition: Smart Filter Feature, 2017!</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721480937852-stuck-with-a-disconnected-vpn-on-your-iphone-try-our-top-7-solutions/"><u>Stuck With A Disconnected VPN on Your iPhone? Try Our Top 7 Solutions!</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->

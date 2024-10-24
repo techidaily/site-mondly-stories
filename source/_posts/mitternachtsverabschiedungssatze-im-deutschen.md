@@ -1,7 +1,7 @@
 ---
 title: Mitternachtsverabschiedungssätze Im Deutschen
-date: 2024-08-23T00:34:18.718Z
-updated: 2024-08-24T00:34:18.718Z
+date: 2024-10-18T17:35:04.058Z
+updated: 2024-10-24T16:12:56.633Z
 tags:
   - speak
   - english
@@ -59,15 +59,16 @@ thumbnail: https://thmb.techidaily.com/8f13b229b4309cc607ca12c22275ed95f06f33bc5
  When you didn’t plan a next meeting or get-together and you’re not sure when you are going to see the other person, you can simply say_Man sieht sich_ , which means “see you”.
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 7\. Bis bald – ‘See you soon’ in German
 
  However, it’s way more common to take your leave by saying_Bis bald_ , which means “see you soon” in German. For the next three goodbyes, it will be useful to know that_bis_ is the German equivalent of “till”.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 8\. Bis später – ‘See you later’
 
  If you enjoy getting creative with your goodbyes in German,_Bis später_ is another great option for a casual farewell.
@@ -88,46 +89,77 @@ thumbnail: https://thmb.techidaily.com/8f13b229b4309cc607ca12c22275ed95f06f33bc5
 * _Bis Samstag_ – “Until Saturday”
 * _Bis Sonntag_ – “Until Sunday”
 
+<!-- affiliate ads begin -->
+<span id="1982459">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## basic german words
 
 ![basic german words](https://edge.mondly.com/blog/wp-content/uploads/2022/07/basic-german-words-960x960.png "15 Ways To Say Goodbye In German 2")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
+  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<span id="1983584">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 10\. Gute Nacht – ‘Good night’ in German
 
  Naturally,_Gute Nacht_ (“good night”) is another great way to say goodbye if you’re retiring for the night. Although we use_Guten Morgen_ (“good morning”) as a greeting,_Gute Nacht_ only works as a farewell.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 11\. Bis zum nächsten Mal – ‘See you next time’
 
  If you want to say goodbye to someone you regularly see, like a coworker or a classmate,_Bis zum nächsten Mal_ is the most suitable choice.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ## 12\. Wir sehen uns dann – ‘See you then’
 
 _Wir sehen uns_ is another nice way to say “see ya later” if you are making plans with someone. Add_dann_ to that and it will mean something more along the lines of “see you then”.
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 13\. Viel Spaß – ‘Have fun’ in German
 
  Supposing that the other person is going to a party or a similar activity, you can say_Viel Spaß_ , which means “enjoy” or “have fun”.
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 14\. Mach’s gut – ‘Take care’
 
  For more caring natures,_Mach’s gut_ is the perfect way to end a conversation. It is, of course, an informal way to say goodbye and it’s reserved for people with whom we have a special relationship.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 15\. Lebewohl – ‘Farewell’
 
  Last of not least, if you want to sound dramatic or crack a joke, you can always say_Lebewohl_ , which literally means “live well” but is most commonly translated as “farewell”.
@@ -161,8 +193,6 @@ _Wir sehen uns_ is another nice way to say “see ya later” if you are making 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -170,4 +200,24 @@ _Wir sehen uns_ is another nice way to say “see ya later” if you are making 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-unveiling-the-hidden-treasures-youtubes-top-makeup-talents/"><u>[New] In 2024, Unveiling the Hidden Treasures YouTube's Top Makeup Talents</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-leading-with-innovation-configuring-and-measuring-success-in-fb-instream-ads/"><u>[Updated] 2024 Approved Leading with Innovation Configuring & Measuring Success in FB Instream Ads</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/6-top-danish-features-for-non-native-language-enthusiasts/"><u>6 Top Danish Features for Non-Native Language Enthusiasts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-language-gaps-oculus-quests-latest-update-with-mondly/"><u>Bridging Language Gaps: Oculus Quest's Latest Update with Mondly</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-and-latest-updates-for-canon-printer-mg250-series/"><u>Download & Latest Updates for Canon Printer MG250 Series</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ernsthaftes-erlernen-von-deutschen-tagen-der-woche/"><u>Ernsthaftes Erlernen Von Deutschen Tagen Der Woche</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expertly-guiding-through-english-grammars-maze-9-essential-hints-from-an-esl-maestro/"><u>Expertly Guiding Through English Grammar's Maze: 9 Essential Hints From an ESL Maestro</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/forecasting-the-best-language-for-me-next/"><u>Forecasting The Best Language For Me Next?</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-navigating-youtube-success-through-strategic-studio-use/"><u>In 2024, Navigating YouTube Success Through Strategic Studio Use</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-sony-unveils-excellence-the-4k-smartphone-breakthrough-with-xperia-xz/"><u>In 2024, Sony Unveils Excellence The 4K Smartphone Breakthrough with Xperia XZ</u></a></li>
+<li><a href="https://fake-location.techidaily.com/looking-for-a-location-changer-on-samsung-galaxy-a05s-look-no-further-drfone-by-drfone-virtual-android/"><u>Looking For A Location Changer On Samsung Galaxy A05s? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-triumphs-earned-a-place-among-top-10-ed-tech-prowess/"><u>Mondly Triumphs, Earned a Place Among Top 10 Ed-Tech Prowess</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-unleashing-the-power-of-color-in-final-cut-pro-for-2024/"><u>New Unleashing the Power of Color in Final Cut Pro for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/selecting-your-preferred-future-linguistic-pursuit/"><u>Selecting Your Preferred Future Linguistic Pursuit</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-love-no-matter-the-language/"><u>Speak Love, No Matter the Language</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/step-by-step-guide-to-modifying-video-playback-size-on-windowsmac/"><u>Step-by-Step Guide to Modifying Video Playback Size on Windows/Mac</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-other-great-video-editing-options-besides-powerdirector-for-android-and-ios/"><u>Updated Other Great Video Editing Options Besides PowerDirector for Android and iOS</u></a></li>
+</ul></div>
 

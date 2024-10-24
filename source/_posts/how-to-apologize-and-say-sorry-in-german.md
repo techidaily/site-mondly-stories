@@ -1,7 +1,7 @@
 ---
 title: How To Apologize And Say Sorry In German
-date: 2024-08-23T00:26:48.080Z
-updated: 2024-08-24T00:26:48.080Z
+date: 2024-10-21T16:02:48.181Z
+updated: 2024-10-24T17:03:56.932Z
 tags:
   - speak
   - english
@@ -26,6 +26,13 @@ thumbnail: https://thmb.techidaily.com/d9697a004ae2bbc53020d06bba853be86eb98852f
 
  However, this is not strictly a German thing. It’s true Germans say sorry once in a blue moon, but there are some other countries like France or Russia where over-apologizing can be regarded as insincere as well.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to apologize in German
 
 _**Es tut mir leid**_ is the standard sorry or the apologetic sorry. It’s the kind of sorry you say when you messed up and you want to apologize for what you did. The expression conveys a sense of responsibility it is kind of a formal apology.
@@ -39,8 +46,12 @@ Here are some practical examples of apologies in German:
 * _Tut mir leid, ich mag die Suppe nicht._ – Sorry, I don’t like the soup.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to say sorry in German – the “Excuse me” sorry
 
  If you bump into someone on the street or cause a mishap, the most common way to say “sorry” in German is_**Entschuldigung**_ which literally means “apology!”. This is basically the “sorry” or the “excuse me” you say for a minor inconvenience. In other words, we’re talking about a slight bump or barely touching that person. If you knock them over, a cool_Entschuldigung_ won’t do, so you should probably apologize sincerely.
@@ -50,8 +61,12 @@ Here are some practical examples of apologies in German:
  Hear the formal_Entschuldigen Sie_ in action in this basic conversation in German:
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Other ways to say sorry in German
 
  As you very well know, there can also be other situations where you need to say “sorry” in German. For example, the “can you repeat that?” sorry is quite common. Of course, you can always say_“Entschuldigung?”_ together with the proper facial expression, but sometimes that might not be enough.
@@ -95,8 +110,12 @@ Here are some practical examples of apologies in German:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### From 0 to conversational in German
 
  Do you want to stop apologizing for your pronunciation? Get Mondly, the award-winning language app that will help you [speak German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) from day 1.
@@ -119,8 +138,6 @@ Here are some practical examples of apologies in German:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -128,4 +145,21 @@ Here are some practical examples of apologies in German:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-integrating-whatsapp-into-your-twitter-video-sharing-routine/"><u>[New] 2024 Approved Integrating WhatsApp Into Your Twitter Video Sharing Routine</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-magic-in-managing-photos-with-magix/"><u>[New] Magic in Managing Photos with MAGIX</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-best-eight-high-res-cinematography-systems/"><u>2024 Approved Best Eight High-Res Cinematography Systems</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/chatgpt-revolutionizes-custom-ai-development-with-its-recent-upgrade-for-unique-gpt-creations/"><u>ChatGPT Revolutionizes Custom AI Development with Its Recent Upgrade for Unique GPT Creations</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-apple-id-from-apple-iphone-13-without-password-by-drfone-ios/"><u>In 2024, How to Remove Apple ID from Apple iPhone 13 without Password?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-vivo-y200e-5g-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos From Vivo Y200e 5G to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/is-autonomous-gpt-a-viable-option-without-access-to-gpt-4-technology/"><u>Is Autonomous GPT a Viable Option Without Access to GPT-4 Technology?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jumpstarting-conversations-in-indonesia-phrases/"><u>Jumpstarting Conversations in Indonesia: Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-japanese-numbers-in-just-10-minutes/"><u>Learn Japanese Numbers In Just 10 Minutes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingualism-in-middle-age-the-cognitive-and-social-benefits-that-make-it-worthwhile/"><u>Multilingualism in Middle Age: The Cognitive and Social Benefits That Make It Worthwhile</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seafaring-slang-survival-kit-mastering-piratical-vernacular/"><u>Seafaring Slang Survival Kit: Mastering Piratical Vernacular</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seven-years-of-mondly-empowerment-across-globe/"><u>Seven Years of Mondly Empowerment Across Globe</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-tongue-of-truth-learning-hangul-for-ks/"><u>The Tongue of Truth: Learning Hangul for KS</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/trasforma-i-tuoi-file-swf-in-formato-m4v-gratuitamente-con-movavi-guida-rapida/"><u>Trasforma I Tuoi File SWF in Formato M4V Gratuitamente Con Movavi - Guida Rapida</u></a></li>
+</ul></div>
 

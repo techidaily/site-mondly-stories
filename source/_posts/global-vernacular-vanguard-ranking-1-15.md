@@ -1,7 +1,7 @@
 ---
 title: "Global Vernacular Vanguard: Ranking 1-15"
-date: 2024-08-23T00:34:25.994Z
-updated: 2024-08-24T00:34:25.994Z
+date: 2024-10-17T18:08:47.577Z
+updated: 2024-10-24T16:25:33.515Z
 tags:
   - speak
   - english
@@ -44,6 +44,13 @@ thumbnail: https://thmb.techidaily.com/fed3ffae9229ff3a7d3580519bb324f0e6bad8a6c
 
  _**Do you want to learn Chinese?[Get Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-2471&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=zh&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=zh) and start speaking today.**_
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **2\. Spanish** **—** **471 million native speakers**
 
  Along with English, Spanish is one of the most widely spoken languages in the world. With over 543 million speakers (native and non-native),[Spanish](https://en.wikipedia.org/wiki/Spanish%5Flanguage) is also the third most used language on the internet after English and Russian and one of the most taught foreign languages worldwide together with English and French. Additionally, Spanish is the primary language in 20 countries worldwide and one of the easiest languages to learn by a native English speaker.
@@ -60,6 +67,13 @@ thumbnail: https://thmb.techidaily.com/fed3ffae9229ff3a7d3580519bb324f0e6bad8a6c
 
  _**Do you want to [learn English](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ?[Get Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-2471&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471) and start today.**_
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **4\. Hindi — 342** **million native speakers**
 
  Not to be confused with Hindustani, which incorporates both [Hindi](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and Urdu, Hindi is the official language of the Government of India, along with English.
@@ -75,8 +89,12 @@ thumbnail: https://thmb.techidaily.com/fed3ffae9229ff3a7d3580519bb324f0e6bad8a6c
  _**Do you want to learn Hindi?[Get Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-2471&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=hi&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=hi) and start speaking today.**_
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **5\. Arabic — 315 million native speakers**
 
  The 21st edition of Ethnologue puts Arabic in fifth place with 315 million native speakers. Various online resources share this place between Arabic and Hindi, frequently putting Hindi first. But things are a little more complicated than that.
@@ -103,18 +121,12 @@ thumbnail: https://thmb.techidaily.com/fed3ffae9229ff3a7d3580519bb324f0e6bad8a6c
 
  _**Do you want to learn Bengali?[Get Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-2471&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=bn&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=bn) and start speaking today.**_
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### **8\. Russian — 153 million native speakers**
 
  The language of tsars and tsarinas, of Tchaikovsky, Dostoevsky, and magical fairy tales occupies eighth place with 153 million native speakers. Russian is one of the six official UN languages and the official language of Russia, Belarus, Tajikistan, Kyrgyzstan, and Kazakhstan. It is also widely spoken as a second language and_lingua franca_ in some parts of Asia and Eastern Europe. If you want to learn Russian, you’ll have to get acquainted with the [Cyrillic alphabet](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) which consists of 33 letters – just 7 more than the Latin alphabet.
 
 ![most common languages](https://edge.mondly.com/blog/wp-content/uploads/2018/12/most-common-languages-960x757.jpg "Top 15 Most Spoken Languages In The World 5")
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
  “St. Basil’s Cathedral, Russia” by Anastasiya Romanova©
 
  _**Do you want to [learn Russian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ?[Get Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-2471&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=ru&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=ru) and start speaking today.**_
@@ -129,6 +141,13 @@ thumbnail: https://thmb.techidaily.com/fed3ffae9229ff3a7d3580519bb324f0e6bad8a6c
 
  _**Do you want to [learn Japanese](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ?[Get Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-2471&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=ja&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=ja) and start speaking today.**_
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **10\. Yue Chinese — 84 million native speakers**
 
  The name Cantonese is often used instead of [Yue Chinese](https://en.wikipedia.org/wiki/Yue%5FChinese) , but linguists prefer to reserve that name for a specific variety used in Guangzhou (Canton), Wuzhou (Ngchow), Hong Kong, and Macau.
@@ -140,16 +159,16 @@ thumbnail: https://thmb.techidaily.com/fed3ffae9229ff3a7d3580519bb324f0e6bad8a6c
  Making a surprise appearance in our topmost spoken languages, the [Marathi language](https://en.wikipedia.org/wiki/Marathi%5Flanguage#Writing) is native to Maharashtra, India. It is the official language in the Maharashtra state of Western India and one of the 22 scheduled languages of India. Starting in 1950, it is being written in the Balbodh style of Devanagari.
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **12\. Telugu —** **82.5 million native speakers**
 
  Spoken by Telugu people living in the Indian states of Andhra Pradesh and Telangana (where it is also the official language), the [Telugu language](https://en.wikipedia.org/wiki/Telugu%5Flanguage) is a Dravidian language (family of languages spoken mainly in southern India and northern Sri Lanka). Telugu is one of six languages designated a classical language of India by the country’s government and ranks fourth among the languages with the highest number of native speakers in India.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->
 ### **13\. Turkish — 82.2** **million native speakers**
 
  Turkish is the most widely spoken of the Turkic languages, with native speakers in both Southeast Europe and Western Asia (mostly in Anatolia). Outside Turkey, there are smaller groups of speakers in Greece, Macedonia, Germany, Bulgaria, The Caucasus, and other parts of Europe and Central Asia.
@@ -158,16 +177,16 @@ thumbnail: https://thmb.techidaily.com/fed3ffae9229ff3a7d3580519bb324f0e6bad8a6c
 
 ![most spoken languages in the world](https://edge.mondly.com/blog/wp-content/uploads/2018/12/most-spoken-languages-in-the-world-960x643.jpg "Top 15 Most Spoken Languages In The World 6")
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
  “Cappadocia, Turkey” by Mar Cerdeira©
 
  _**Do you want to [learn Turkish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ?[Get Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-2471&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=tr&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=tr) and start speaking today.**_
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **14\. Wu Chinese — 81 million native speakers**
 
@@ -176,8 +195,12 @@ No advertising on the website.
  Major Wu varieties include those of Shanghai, Suzhou, Wuxi, Changzhou, Ningbo, Hangzhou, Shaoxing, Wenzhou, Jinhua, and Yongkang.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **15\. French — 79**   **million native speakers**
 
  Ah, French, the language of love! Although being placed seventh in the most spoken languages by a total number of speakers, French falls the last in the “native speakers” top with 79 million native speakers worldwide.
@@ -188,9 +211,6 @@ No advertising on the website.
 
  _**Do you want to [learn French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ?[Get Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-2471&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=fr&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-2471?mother%5Flang=en%5Fus?target%5Flang=fr) and start speaking today.**_
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Most spoken languages in the world by the total number of speakers
 
  According to 2021 fresh data from Ethnologue, the most spoken languages in the world by the total number of speakers are:
@@ -215,14 +235,6 @@ No advertising on the website.
 
 ![most popular languages](https://edge.mondly.com/blog/wp-content/uploads/2018/12/most-popular-languages-1-960x760.png "Top 15 Most Spoken Languages In The World 7")
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  The most popular language in every country according to data from [Budget Direct](https://www.budgetdirect.com.au/blog/the-third-most-popular-language-in-every-country.html)
 
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Ftop-15-most-spoken-languages-in-the-world%2F&t=Top+15+Most+Spoken+Languages+In+The+World "Share on Facebook")
@@ -246,8 +258,6 @@ No advertising on the website.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -255,4 +265,19 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-guidance.techidaily.com/new-the-ultimate-periscope-user-manual/"><u>[New] The Ultimate Periscope User Manual</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-jest-junction-youtubes-top-20-for-a-lighthearted-pause/"><u>[Updated] Jest Junction YouTube's Top 20 for a Lighthearted Pause</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-strategic-approaches-to-maximize-impact-with-spotify-ads/"><u>[Updated] Strategic Approaches to Maximize Impact with Spotify Ads</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-aerial-titans-clash-dji-and-gopros-quest/"><u>2024 Approved Aerial Titans Clash DJI and GoPro's Quest</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-catalonias-language-in-10-minsday/"><u>Conquer Catalonia's Language in 10 Mins/Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enriched-life-in-your-fifties-through-second-language-mastery/"><u>Enriched Life in Your Fifties Through Second Language Mastery</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/il-conversore-di-file-video-ottimale-per-iphone-trasforma-mov-mkv-e-piu-in-formato-mp4/"><u>Il Conversore Di File Video Ottimale per iPhone: Trasforma MOV, MKV E Più in Formato MP4</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-a-quick-guide-to-nokia-c02-frp-bypass-instantly-by-drfone-android/"><u>In 2024, A Quick Guide to Nokia C02 FRP Bypass Instantly</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-vivo-s18e-location-by-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Vivo S18e Location by Number | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-linguistic-etiquette-in-china/"><u>Learning Linguistic Etiquette in China</u></a></li>
+<li><a href="https://win-blog.techidaily.com/optimizing-your-experience-with-fixes-for-mass-effect-series-audio-interruptions/"><u>Optimizing Your Experience with Fixes for Mass Effect Series Audio Interruptions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/prime-language-management-solutions/"><u>Prime Language Management Solutions</u></a></li>
+</ul></div>
 

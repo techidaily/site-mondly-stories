@@ -1,7 +1,7 @@
 ---
 title: سعيد اليوم لك (Arabic)
-date: 2024-08-23T00:34:14.259Z
-updated: 2024-08-24T00:34:14.259Z
+date: 2024-10-22T18:39:00.858Z
+updated: 2024-10-24T17:34:41.719Z
 tags:
   - speak
   - english
@@ -59,8 +59,12 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
  “Santa and a fan” by Mike Arney©
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## French –_Joyeux Noël!_
 
  Do you want to see what Christmas magic and miracles really mean? Then add the movie with the same name –_Joyeux Noël_ – on your Christmas movies list and thank me later. I promise it won’t be cheesy. On the contrary!
@@ -69,16 +73,10 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
 
  Nothing compares to the warmth and magic of a German Christmas market. If you have never been to one, you should try going this year._Weihnachten_ (Christmas) is incredibly tasty in Germany!
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 ## Italian –_Buon Natale!_
 
  Famous for its_bellezza_ and absolutely splendid seashores, Italy is also the home of highly religious Christmas traditions. One of the most important Italian Christmas celebrations is having_presepi_ (nativity scenes) everywhere.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Portuguese –_Feliz Natal!_
 
  While in Portugal [Santa Claus](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) is known as_Pai Natal_ (“Father Christmas”), in Brazil people call him_Papai Noel_ or_Bom Velhinho_ (“Good Old Man”). Unlike many countries in Europe where Santa leaves presents under the Christmas tree, in Brazil kids leave a sock near a window hoping that Papai Noel will find it and exchange it for a present.
@@ -86,28 +84,40 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
 ![merry christmas in french](https://edge.mondly.com/blog/wp-content/uploads/2019/12/merry-christmas-in-french-1024x682.jpg "How To Say Merry Christmas In 21 Different Languages 3")
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  “The Christmas present we all need” by Jakob Owens©
 
 ## Romanian –_Crăciun Fericit!_
 
  Did you know that one of the most beautiful Christmas markets in Europe takes place in Sibiu? It’s almost like Santa had scattered magic dust all over the place. It’s breathtakingly beautiful!
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
+  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Russian –_Счастливого Рождества! (Schastlivogo Rozhdestva!)_
 
  While most countries celebrate Christmas on the 25th of December, Russia celebrates it on the 7th of January because the Russian Orthodox church uses “The old calendar” or the Julian calendar. And the 25th of December on the Julian calendar corresponds to the 7th of January in the Gregorian calendar.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Swedish – _God Jul!_
 
  Nothing says**Swedish fika** like brunch with a friend on Christmas Day. Or at least that’s how we, as nonlocals, imagine it. In reality, on Christmas Eve, Swedish people have an entire feast called_julbord_ with many different kinds of cold fish,_julskinka_ (a type of Christmas ham), salads, cheeses, meatballs,_prinskorv_ (Swedish sausages), jellied pigs’ feet,_revbenspjäll_ (oven-roasted pork ribs) and many others. Mmm… Sounds delicious!
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ## Norwegian –_God Jul!_
 
  Christmas wasn’t celebrated in Norway until the XI century when Christianity first came to the area. But today, children in Norway patiently wait for_Julenissen_ (Santa Claus) every year in December.
@@ -119,9 +129,12 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
  In Denmark, it is said that the_Julemanden_ (“Christmas Man” or “Yule Man”) brings presents to children that were good during the year. Julemanden is very similar to Santa Claus, lives in Greenland, also travels in a sleigh pulled by reindeers and likes rice pudding.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Finnish –_Hyvää Joulua!_
 
  You’d think this is where all the magic happens considering the fact that everybody believes Santa lives in Lapland, the northernmost region of Finland. But just until you hear this.
@@ -130,23 +143,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
 ![merry christmas in german](https://edge.mondly.com/blog/wp-content/uploads/2019/12/merry-christmas-in-german-1024x683.jpg "How To Say Merry Christmas In 21 Different Languages 4")
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
-<!-- affiliate ads end -->
  “Christmas home” by Євгенія Височина©
 
 ## Icelandic –_Gleðileg Jól!_
@@ -158,8 +154,12 @@ Key features:
  I don’t know about you, but I think I’m moving to Iceland because Christmas sounds like a lot of fun there!
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Polish –_Wesołych Świąt!_
 
  Poland is a largely Catholic country and Christmas Eve is a very important and, above all, busy day because people clean their houses and cook lots of food for the upcoming celebration days. Traditionally, Christmas Eve is considered a day of fasting and abstinence and meat is allowed to be eaten only on Christmas Day.
@@ -168,14 +168,24 @@ Key features:
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "How To Say Merry Christmas In 21 Different Languages 5")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Get on Santa's Nice List
 
  Last chance to get on Santa’s “Nice List” by learning languages with Mondly. 🎅
 
 [Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-4426&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4426&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4426&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4426&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-4426%26mt%3D8)
+
+<!-- affiliate ads begin -->
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Dutch –_Vrolijk Kerstfeest!_
 
@@ -189,15 +199,19 @@ Key features:
 
 ![merry christmas in italian](https://edge.mondly.com/blog/wp-content/uploads/2019/12/merry-christmas-in-italian-1024x684.jpg "How To Say Merry Christmas In 21 Different Languages 6")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  “Christmas lights” by T. Rampersad©
 
 ## Czech –_Veselé Vánoce!_
 
  Czech tradition says that Ježíšek or “Little Jesus” (the Czech_Christkind_) brings presents while children enjoy the Christmas Eve dinner and leaves them under the Christmas Tree.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Japanese –_メリークリスマス！(Merīkurisumasu!)_
 
  In Japan, which is primarily Buddhist and Shinto, Christmas isn’t a traditional holiday. However, like other Western holidays and traditions, it has become increasingly popular in Japan since World War II. The only difference is that Christmas is seen as a romantic occasion for couples here. They also celebrate [Thanksgiving](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Suitably enough, the most famous Japanese Christmas song is “Christmas Eve” by Tatsuro Yamashita, which is about lovers unable to meet on Christmas Eve.
@@ -340,9 +354,6 @@ Key features:
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How does Santa know so many languages? This is his secret
 
  Did you ever wonder how [Santa knows so many languages](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ?‌ Well, it seems that his well-kept secret has finally been divulged by the elves.
@@ -365,8 +376,6 @@ Key features:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -374,4 +383,21 @@ Key features:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-taking-the-leap-secrets-for-free-fcp-acquisition/"><u>[New] 2024 Approved Taking the Leap Secrets for Free FCP Acquisition</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-rhythmreview-music-and-dialogue-analysis-for-2024/"><u>[New] RhythmReview Music and Dialogue Analysis for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-the-ultimate-guide-to-asus-proart-a-high-end-display-for-2024/"><u>[New] The Ultimate Guide to ASUS ProArt A High-End Display for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-video-recording-decisions-optimal-fps-is-it-30-or-60/"><u>[Updated] In 2024, Video Recording Decisions Optimal FPS – Is It 30 or 60?</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-top-5-emulators-the-ultimate-guide-for-classic-ps1-games-on-pc/"><u>[Updated] Top 5 Emulators The Ultimate Guide for Classic PS1 Games on PC</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-10-visionary-beauticians-poised-success/"><u>2024 Approved 10 Visionary Beauticians Poised Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fine-tune-your-tongue-top-100-accent-boosting-twisters/"><u>Fine-Tune Your Tongue: Top 100 Accent-Boosting Twisters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grasping-english-grammar-nuances-top-9-strategies-from-a-lifelong-esl-learner/"><u>Grasping English Grammar Nuances: Top 9 Strategies From a Lifelong ESL Learner</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-do-honor-90-screen-sharing-drfone-by-drfone-android/"><u>How To Do Honor 90 Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-from-lava-yuva-3-pro-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock from Lava Yuva 3 Pro Phones with/without a PC</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-through-vietnam-with-key-phrases-compiled/"><u>Journey Through Vietnam with Key Phrases Compiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-chat-essential-17-spontaneous-spanish-phrases/"><u>Master Chat: Essential 17 Spontaneous Spanish Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/no-more-walls-mondly-bridges-linguistic-gaps-in-ukraine/"><u>No More Walls: Mondly Bridges Linguistic Gaps in Ukraine</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revolutionize-language-skills-7-reasons-for-afrikaans-on-mondly/"><u>Revolutionize Language Skills: 7 Reasons for Afrikaans on Mondly</u></a></li>
+</ul></div>
 

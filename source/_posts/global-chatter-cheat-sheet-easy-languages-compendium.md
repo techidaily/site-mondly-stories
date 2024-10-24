@@ -1,7 +1,7 @@
 ---
 title: "Global Chatter Cheat Sheet: Easy Languages Compendium"
-date: 2024-08-23T00:32:57.241Z
-updated: 2024-08-24T00:32:57.241Z
+date: 2024-10-17T18:17:15.476Z
+updated: 2024-10-24T16:06:08.264Z
 tags:
   - speak
   - english
@@ -34,15 +34,19 @@ As [the FSI confirms](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFF
 
 Check out t h e [6 best Danish films to learn Danish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) !
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Swedish
 
  Spoken by 10 million people in both Sweden and Finland, the [Swedish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) language is known to be mutually intelligible with Norwegian and Danish (to some extent). Good news, right?
 
  An important characteristic of Swedish grammar that makes it different from English is the placement of the definite article after the noun. However, its vocabulary contains many loanwords from German, French, and English. That means you’ll have a better chance at mastering it faster if you already know the above-mentioned languages. Everywhere you look in the world of languages, there’s a connection that can help you learn faster. Make the most of it!
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Norwegian
 
 ![norwegian landscape](https://edge.mondly.com/blog/wp-content/uploads/2019/06/norwegian-landscape-960x720.jpg "Top 10 Easiest Languages To Learn 2")
@@ -52,6 +56,13 @@ Check out t h e [6 best Danish films to learn Danish](https://shop.mondly.com/af
  With around 5 million native speakers,[Norwegian has an interesting story](https://www.britannica.com/topic/Norwegian-language) behind its two distinct norms: Bokmål (also known as Dano-Norwegian or Riksmål) and New Norwegian (also known as Nynorsk).
 
  The story started back in the 15th century after the union of Norway with Denmark. That’s when Old Norwegian writing traditions gradually began to die out, and Dano-Norwegian took over. Then, in 1814, Norway became independent, and although the linguistic union with Danish persisted, the people felt they needed a language of their own. That’s when the New Norwegian norm began to be used. Today, the people of Norway learn to read and write in New Norwegian, but only about 20% of them use it as their language of choice in writing.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Afrikaans – the easiest language to learn for both English and Dutch speakers
 
@@ -76,17 +87,24 @@ Check out t h e [6 best Danish films to learn Danish](https://shop.mondly.com/af
 ![french city](https://edge.mondly.com/blog/wp-content/uploads/2019/06/french-city-960x540.jpg "Top 10 Easiest Languages To Learn 3")
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  ‘Strasbourg, France’ by Patrick Robert Doyle©
 
  A favorite among Romance language learners, French has a massive amount of shared vocabulary with English, due to both linguistic roots, but also territorial conflicts. We agree, that [French pronunciation](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  is no picnic at first, but pop culture is a real help in perfecting your skills.
 
  We must also mention some differences: 17 verb forms as opposed to 12 in English, gendered nouns, and some tricky accents. But given the cultural and even professional opportunities it presents, it’s really worthwhile to [learn French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) !
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Italian
 
  Some people get interested in Italian due to the culinary aspect, some recognize the fact that Latin roots really do help English speakers [learn Italian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . To each his own, we say.
@@ -94,17 +112,18 @@ Check out t h e [6 best Danish films to learn Danish](https://shop.mondly.com/af
  Seriously now, Italian is also highly readable, with a shorter alphabet than English: 21 letters instead of 26.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Spanish
 
  Since we talked about Italian, Spanish couldn’t be far behind, right? The same advantages as with Italian apply here as well, the many [cognates](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) making the learning experience a lot easier.
 
  When it comes to pronunciation, things are also pretty straightforward, as it’s a phonetic language through and through. But keep in mind that, same as with French, grammar could be a little bewildering at first: we’re talking about different verb tenses, grammar rules, and exceptions. What more incentive do you need to [learn Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  , aside from the fact that it is the second most spoken language in the world?
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Romanian
 
  Horror stories aside, Romanian is a lot more than the language of Bram Stoker’s [Dracula](https://en.wikipedia.org/wiki/Dracula)  ! This language has a unique history, being the only Romance language in the [Eastern part of Latin Europe](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Its roots make it similar to the above-mentioned languages, and indeed similar to English.
@@ -113,9 +132,6 @@ Check out t h e [6 best Danish films to learn Danish](https://shop.mondly.com/af
 
 ![romanian castle](https://edge.mondly.com/blog/wp-content/uploads/2019/06/romanian-castle-960x641.jpg "Top 10 Easiest Languages To Learn 4")
 
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  ‘Peleș Castle, România’ by Majkl Velner©
 
 ## Portuguese
@@ -128,6 +144,19 @@ Check out t h e [6 best Danish films to learn Danish](https://shop.mondly.com/af
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<span id="1374819">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Speak a new language in just 10 minutes a day
 
@@ -150,8 +179,6 @@ Check out t h e [6 best Danish films to learn Danish](https://shop.mondly.com/af
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -159,4 +186,24 @@ Check out t h e [6 best Danish films to learn Danish](https://shop.mondly.com/af
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-uninterrupted-adventures-top-10-best-offline-ios-titles/"><u>[Updated] 2024 Approved Uninterrupted Adventures Top 10 Best Offline iOS Titles</u></a></li>
+<li><a href="https://extra-information.techidaily.com/accelerated-approach-eliminating-signatures-quickly/"><u>Accelerated Approach Eliminating Signatures Quickly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/amorous-artistry-a-guide-to-lines/"><u>Amorous Artistry: A Guide to Lines</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/arabic-basics-for-first-timers/"><u>Arabic Basics for First-Timers</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/banking-security-under-threat-chatgpts-potential-risks-explored/"><u>Banking Security Under Threat? ChatGPT’s Potential Risks Explored</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/chromes-multi-screen-magic-pip-tutorial/"><u>Chrome's Multi-Screen Magic PIP Tutorial</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conversational-prowess-top-17-commonplace-spanish-idioms/"><u>Conversational Prowess: Top 17 Commonplace Spanish Idioms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dominant-croatian-language/"><u>Dominant Croatian Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/early-brain-adaptability-kids-language-learning-advantage/"><u>Early Brain Adaptability: Kids' Language Learning Advantage</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/easy-methods-for-downloading-and-updating-pc-acpi-drivers/"><u>Easy Methods for Downloading and Updating PC ACPI Drivers</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-capturing-still-moments-from-clips-on-windows-11/"><u>In 2024, Capturing Still Moments From Clips on Windows 11</u></a></li>
+<li><a href="https://windows11.techidaily.com/quick-guide-to-uninstalling-and-reinstalling-on-windows-11/"><u>Quick Guide to Uninstalling and Reinstalling on Windows 11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577749458-sovac-slovaci-language-journey-unfolding-one-quick-lesson-daily/"><u>Sovac Slováci - Language Journey Unfolding, One Quick Lesson Daily</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580375581-the-best-way-to-learn-korean-online-6-brilliant-resources/"><u>The Best Way To Learn Korean Online - 6 Brilliant Resources</u></a></li>
+<li><a href="https://extra-information.techidaily.com/top-10-after-effects-text-presets-for-2024/"><u>Top 10 After Effects Text Presets for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579536662-unlock-global-communication-now-96-off/"><u>Unlock Global Communication, Now 96% Off!</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-windows-movie-maker-essentials-learn-to-edit-videos-like-a-pro/"><u>Updated Windows Movie Maker Essentials Learn to Edit Videos Like a Pro</u></a></li>
+</ul></div>
 

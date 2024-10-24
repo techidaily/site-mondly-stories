@@ -1,7 +1,7 @@
 ---
 title: The Essential Dictionary of Casual Speech
-date: 2024-10-14T19:25:45.032Z
-updated: 2024-10-19T01:04:39.122Z
+date: 2024-10-21T16:25:30.026Z
+updated: 2024-10-24T18:19:23.766Z
 tags:
   - speak
   - english
@@ -48,6 +48,13 @@ thumbnail: https://thmb.techidaily.com/3f943451ad9f20674a4982a12bf6e3782b7a46fb4
 
  **Thus, it’s important to know English slang words because they bring us closer and while also enriching the language.**
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **History of English slang words**
 
  Whether you millennial desperately trying to stay cool – like me –, a Gen X-er striving to understand the new generations, or a baby boomer who wants to be the_GOAT_ (Greatest Of All Time) grandpa or grandma, you’ve come to the right place. Why? ‘Cause we’re about to absolutely_slay_ this list of popular slang words! But first, let’s talk briefly about the history behind English slang terms. This will help you figure out their importance and why all new generations have them.
@@ -61,6 +68,13 @@ thumbnail: https://thmb.techidaily.com/3f943451ad9f20674a4982a12bf6e3782b7a46fb4
  In the 20th century, slang went mainstream through media and pop culture. Social media and the internet have further amplified its influence, resulting in a rapid evolution that incorporates words and phrases from various languages and cultures.
 
  Currently, slang remains an integral part of our daily language, used to express humor, irony, and social identity. Although some slang words become obsolete quickly, others become part of the lexicon and can stay_lit_ for generations.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **Examples of historical slang words and their meanings**
 
@@ -133,13 +147,6 @@ _– Did you see?‌ The new season of Lucifer just landed on Netflix!_
 
 _– OMG‌ I’m shook! I need to watch it ASAP!_
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Tea
 
 When someone is “spilling the tea”, it means they are gossiping.
@@ -155,19 +162,6 @@ _What happened at Jessica’s birthday party? Come on, spill the tea!_
 To respond to another person’s criticism.
 
  _Maria is quick to quick to clap back at everyone who says she doesn’t have a nice British accent._
-
-<!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Bye, Felicia
 
@@ -191,11 +185,25 @@ _– Mood!_
 
 _I’m so hangry right now I could eat five burgers in one sitting!_
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## NGL
 
 Not Gonna Lie. Another way of saying “to tell you the truth”.
 
 _NGL, I’m not in the mood to go out tonight._
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Slay
 
@@ -206,10 +214,17 @@ _Pedro Pascal’s performance in The Last of Us slayed._
 ![pedro pascal](https://media.giphy.com/media/xa5PxUklxPjMqK81jc/giphy.gif "Popular English Slang Words And Phrases – How To Talk Like Gen Z 6")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Receipts
@@ -262,10 +277,10 @@ _– Whoa, don’t be such a stan._
  English slang, like languages in general, can’t be entirely homogenous. With native speakers dispersed across the globe, slang evolves differently depending on factors such as culture, dialect, and more. That’s why [Aussie slang](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) is so different from [British slang](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and British slang is so different than American slang. Different cultures make different slang, just like different countries make different languages.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **Differences in words and phrases across English-speaking countries**
@@ -276,13 +291,6 @@ _– Whoa, don’t be such a stan._
 * **Spelling:** Spelling can also differ between countries. For instance, Americans spell “color” without a ‘u’, while in the UK, they use the spelling “colour”.
 * **Pronunciation:** Don’t get me started. The differences between [British English and American English](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) are plentiful in this sector.
 * **Culture:** For example, Australian slang is heavily influenced by surfing and beach culture, while American slang has been influenced by hip-hop and African American Vernacular English.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **Examples of popular slang words in different regions**
 
@@ -338,17 +346,10 @@ _– Whoa, don’t be such a stan._
 !['English slang words' by RODNAE Productions©](https://edge.mondly.com/blog/wp-content/uploads/2023/03/english-slang-words-960x640.jpg "Popular English Slang Words And Phrases – How To Talk Like Gen Z 8")
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **How to use slang words in conversation**
@@ -373,13 +374,6 @@ _– Whoa, don’t be such a stan._
 * **Revisit this list:** Whenever you feel like your slang knowledge has_ghosted_ you, revisit this list. Or, if you feel like you’re ready for a lot more, the Urban Dictionary will always have your back.
 
  Just remember: slang words can vary based on region, social group, and generation, so it’s essential to consider the context when using them.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Are you ready to_slay?_
 
@@ -423,22 +417,20 @@ Okay, so what did we learn so far? Let’s recap:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-learn-to-leverage-telegram-a-comprehensive-online-tutorial/"><u>[New] 2024 Approved Learn to Leverage Telegram A Comprehensive Online Tutorial</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-expert-guide-to-enablingdisabling-multitasking-in-safari/"><u>[New] Expert Guide to Enabling/Disabling Multitasking in Safari</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-transforming-archived-content-for-livestream-audiences-on-facebook/"><u>[New] Transforming Archived Content for Livestream Audiences on Facebook</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-a-comprehensive-guide-to-laptop-screen-recording-techniques/"><u>[Updated] 2024 Approved A Comprehensive Guide to Laptop Screen Recording Techniques</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/accelerate-tagalog-learning-in-minutes-not-days/"><u>Accelerate Tagalog Learning in Minutes, Not Days</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/apples-daily-pick-the-global-favorite/"><u>Apple's Daily Pick: The Global Favorite</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/edunets-showcase-at-mansion-house-london/"><u>Edunet's Showcase at Mansion House, London</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/experience-the-lenovo-ideapad-320-a-perfect-blend-of-elegance-and-mobility-complemented-by-lenovos-signature-keyboard-design/"><u>Experience the Lenovo IdeaPad 320 - A Perfect Blend of Elegance & Mobility Complemented by Lenovo's Signature Keyboard Design</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/families-of-romantic-dialects-explored/"><u>Families of Romantic Dialects Explored</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-lava-blaze-curve-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Lava Blaze Curve 5G? | Dr.fone</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/iphone-lens-magic-perfecting-close-up-and-macro-shots/"><u>IPhone Lens Magic Perfecting Close-Up and Macro Shots</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/making-macgpt-choices-the-smart-decision-guide/"><u>Making MacGPT Choices: The Smart Decision Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/new-years-aspirations-method-to-success/"><u>New Year's Aspirations: Method to Success</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/online-mp3-maker-vullend-uw-asf-files-gratis-met-movavi/"><u>Online MP3 Maker - Vullend Uw ASF Files Gratis Met Movavi</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-strategic-advantage-of-bilingualism-in-english/"><u>The Strategic Advantage of Bilingualism in English</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-the-local-speak-key-russian-expressions-explained/"><u>Unlock the Local Speak: Key Russian Expressions Explained</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-potential-ai-in-education-and-language-studies/"><u>Unlocking Potential: AI In Education & Language Studies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-bridging-communication-gaps-in-the-virtual-reality-arena-with-oculus-quest/"><u>'Mondly': Bridging Communication Gaps in the Virtual Reality Arena with Oculus Quest</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-unlock-your-channels-potential-with-audios/"><u>[New] Unlock Your Channel's Potential with Audios</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-stepwise-approach-for-professional-screen-recordings-in-adobe-captive/"><u>[Updated] 2024 Approved Stepwise Approach for Professional Screen Recordings in Adobe Captive</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-elite-race-games-collection-guide/"><u>[Updated] Elite Race Games Collection Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/advanced-insights-into-gesture-based-user-input/"><u>Advanced Insights Into Gesture-Based User Input</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-fake-gps-location-apps-on-android-of-your-oppo-find-x6-pro-drfone-by-drfone-virtual/"><u>In 2024, 10 Fake GPS Location Apps on Android Of your Oppo Find X6 Pro | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-samsung-galaxy-xcover-7-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Samsung Galaxy XCover 7? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/six-sweet-secrets-of-being-bilingual/"><u>Six Sweet Secrets of Being Bilingual</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-inside-the-world-of-spanish-greetings-with-these-10-key-phrases/"><u>Step Inside The World Of Spanish Greetings With These 10 Key Phrases</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-vloggers-guide-to-optimal-lens-performance/"><u>The Vlogger's Guide to Optimal Lens Performance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-6-benefits-of-being-bilingual-what-is-bilingualism/"><u>Top 6 Benefits Of Being Bilingual - What Is Bilingualism?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-germanys-language-discover-our-top-25-sayings/"><u>Unlock Germany's Language - Discover Our Top 25 Sayings</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/upscale-your-artwork-comprehensive-tutorial-on-transforming-pclx-pencil2d-animations-into-mp4-videos-for-online-sharing/"><u>Upscale Your Artwork: Comprehensive Tutorial on Transforming Pclx Pencil2D Animations Into MP4 Videos for Online Sharing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vocabulary-voyage-comparing-cockney-chatter-to-aussie-buzzwords/"><u>Vocabulary Voyage: Comparing Cockney Chatter to Aussie Buzzwords</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/zero-cost-to-zero-limit-explore-languages-on-black-friday/"><u>Zero Cost to Zero Limit - Explore Languages on Black Friday</u></a></li>
 </ul></div>
 

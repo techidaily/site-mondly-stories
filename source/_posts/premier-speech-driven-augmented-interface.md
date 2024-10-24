@@ -1,7 +1,7 @@
 ---
 title: Premier Speech-Driven Augmented Interface
-date: 2024-10-14T22:28:05.241Z
-updated: 2024-10-18T23:36:10.988Z
+date: 2024-10-23T18:31:06.454Z
+updated: 2024-10-24T17:53:03.904Z
 tags:
   - speak
   - english
@@ -43,10 +43,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 > _We started working on Mondly AR in August 2017 and by the time [Blade Runner 2049](http://www.imdb.com/title/tt1856101/) was released, we already had a working demo. Watching Blade Runner 2049 made me realize that we were beginning to build the future. To me, Joi (the holographic companion of officer K) looked like a super advanced version of Mondly – the character we were creating. They can both understand speech, reply with a human voice and change outfits. Of course, Mondly is not as smart and realistic as Joi. Yet. But she can teach you 7 languages. And this is just the beginning._
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Here’s what you should know about Mondly AR
@@ -65,10 +65,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
-  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facts and figures about Mondly
@@ -85,10 +85,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 * [Mondly Press Kit](https://www.dropbox.com/sh/vo4j5214zvwdxy5/AAC20VxIgpuiEe7ED2%5F37VNEa?dl=0)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Media mentions about Mondly
@@ -120,24 +120,20 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-audio-visual-synergy-iphones-role-in-modern-music-videos/"><u>[New] 2024 Approved Audio-Visual Synergy IPhone's Role in Modern Music Videos</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-breaking-down-8-common-blunders-in-early-stage-youtube-success-for-2024/"><u>[New] Breaking Down 8 Common Blunders in Early-Stage YouTube Success for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-audio-transformation-expertise-from-ttml-and-xml-to-dynamic-srts/"><u>[New] In 2024, Audio Transformation Expertise From TTML & XML to Dynamic SRTs</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/new-in-2024-securely-connect-a-step-by-step-guide-to-discord-calls/"><u>[New] In 2024, Securely Connect A Step-by-Step Guide to Discord Calls</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-lit-tales-in-just-a-minute-for-2024/"><u>[New] Lit Tales in Just a Minute for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-catch-the-flame-ideas-for-unbroken-snapstreaks-for-2024/"><u>[Updated] Catch the Flame - Ideas for Unbroken Snapstreaks for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-guide-to-silent-screen-time-view-unseen-stories-on-devices-for-2024/"><u>[Updated] Guide to Silent Screen Time View Unseen Stories on Devices for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-audience-expansion-strategies-that-honor-youtube-standards/"><u>[Updated] In 2024, Audience Expansion Strategies That Honor YouTube Standards</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581475811-10-minute-tagalog-grind-start-today/"><u>10-Minute Tagalog Grind - Start Today!</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-top-5-kid-friendly-flying-toys/"><u>2024 Approved Top 5 Kid-Friendly Flying Toys</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-spanish-verbal-grammar-for-beginners/"><u>Essential Spanish Verbal Grammar for Beginners</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/explore-new-vocabulary-with-mondlys-updated-phrasebook/"><u>Explore New Vocabulary with Mondly’s Updated Phrasebook</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-shaking-hands-to-nodding-japenese-greetings-unveiled/"><u>From Shaking Hands to Nodding – Japenese Greetings Unveiled</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/how-to-get-resident-evil-5-running-again-after-pc-launch-issues/"><u>How to Get Resident Evil 5 Running Again After PC Launch Issues</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-paves-the-way-affordable-education-in-ukrainian-and-beyond/"><u>Mondly Paves the Way: Affordable Education in Ukrainian & Beyond</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/new-years-sale-96-off-for-lifetime-access-to-mondly-premium/"><u>New Year’s Sale: 96% OFF for Lifetime Access to Mondly Premium</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/playful-phrases-the-poise-of-pick-up-lines-in-spanish/"><u>Playful Phrases: The Poise of Pick-Up Lines in Spanish</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sounds-of-language-across-atlantic/"><u>Sounds of Language Across Atlantic</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/tecnicas-audiovisuales-con-colores/"><u>Técnicas Audiovisuales Con Colores</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-top-5-methods-for-capturing-sound-in-windows-11/"><u>[New] Top 5 Methods for Capturing Sound in Windows 11</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-comprehensive-tutorial-for-shifting-facial-gender-representation-online-for-2024/"><u>[Updated] Comprehensive Tutorial for Shifting Facial Gender Representation Online for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-best-youtube-video-reaction-ideas/"><u>2024 Approved Best YouTube Video Reaction Ideas</u></a></li>
+<li><a href="https://extra-information.techidaily.com/boosting-productivity-with-zoom-and-a-chromebook/"><u>Boosting Productivity with Zoom and a Chromebook</u></a></li>
+<li><a href="https://windows11.techidaily.com/easy-steps-for-changing-sheet-names-in-microsoft-excel/"><u>Easy Steps for Changing Sheet Names in Microsoft Excel</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/elevate-your-videos-luminous-techniques-for-android-users/"><u>Elevate Your Videos - Luminous Techniques for Android Users</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-spoofing-life360-how-to-do-it-on-samsung-galaxy-a25-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Spoofing Life360 How to Do it on Samsung Galaxy A25 5G? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oculus-quest-launches-multilingual-support-with-mondly/"><u>Oculus Quest Launches Multilingual Support with 'Mondly'!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quickstep-ukranian-proficiency-10-minute-daily-goal-84-chars/"><u>Quickstep Ukranian Proficiency, 10-Minute Daily Goal (84 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revolutionize-your-year-with-unlimited-lifetime-access-to-mondly-premium-at-no-cost/"><u>Revolutionize Your Year with Unlimited Lifetime Access to Mondly Premium at No Cost</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seafaring-savvy-essential-piratical-lexicon-unveiled/"><u>Seafaring Savvy: Essential Piratical Lexicon Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-love-understand-each-other-tackling-relationship-barriers/"><u>Speak Love, Understand Each Other: Tackling Relationship Barriers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-efficiency-prime-approaches-to-master-an-online-language/"><u>Unlocking Efficiency: Prime Approaches to Master an Online Language</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-record-and-edit-an-animoji-or-memoji-karaoke-music-video/"><u>Updated 2024 Approved Record and Edit an Animoji or Memoji Karaoke Music Video</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/which-upcoming-language-should-i-embrace/"><u>Which Upcoming Language Should I Embrace?</u></a></li>
 </ul></div>
 

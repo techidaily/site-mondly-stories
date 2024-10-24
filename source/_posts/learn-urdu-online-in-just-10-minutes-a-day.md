@@ -1,7 +1,7 @@
 ---
 title: Learn Urdu Online in Just 10 Minutes a Day
-date: 2024-08-23T00:33:31.421Z
-updated: 2024-08-24T00:33:31.421Z
+date: 2024-10-22T17:15:52.267Z
+updated: 2024-10-24T16:23:03.002Z
 tags:
   - speak
   - english
@@ -34,6 +34,13 @@ thumbnail: https://thmb.techidaily.com/6751e55bdf4c2e1662ce3bd78f4508fbf0de25f71
 
  Moreover, in the 19th century, the Hindi–Urdu [controversy](https://en.wikipedia.org/wiki/Hindi%E2%80%93Urdu%5Fcontroversy) arose in colonial India. The debate was whether Hindi or Urdu should be chosen as a national language. In 1900, the government issued a decree granting symbolic equal status to both Hindi and Urdu. But then, Gandhi proposed using either Devanagari or Urdu script, under the traditional generic term Hindustani. Therefore, in 1950, Hindi, in the Devanagari script, along with English, replaced Urdu as one of the official languages of India.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Learn Urdu from Hindi, Arabic, English, Korean and more
 
  You spoke. We listened! Because the vast majority of people want to learn Urdu from popular languages like Hindi (although similar, you still need some help to learn both), Arabic, English or Korean, we worked hard and finally made it possible.
@@ -41,8 +48,12 @@ thumbnail: https://thmb.techidaily.com/6751e55bdf4c2e1662ce3bd78f4508fbf0de25f71
  Starting right now, you can [learn Urdu](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4511&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4511?mother%5Flang=en%5Fus?target%5Flang=ur&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4511?mother%5Flang=en%5Fus?target%5Flang=ur) from Hindi, Arabic, English, Korean and 29 other languages only with Mondly.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 10 basic Urdu words and phrases you can learn right now
 
  Are you excited to learn Urdu yet? Let’s not waste any more time and start with your first “Urdu for beginners” course right now. Here are the top 10 basic Urdu words and phrases everybody should know. Transliteration included so you’ll easily know how to pronounce them.
@@ -64,8 +75,12 @@ thumbnail: https://thmb.techidaily.com/6751e55bdf4c2e1662ce3bd78f4508fbf0de25f71
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Speak Urdu today
 
  It can be really tricky to master Urdu pronunciation if you don’t actively live in Pakistan. But with Mondly, the award-winning language learning app, you can learn Urdu naturally with practical topics, authentic conversations and bite-sized Daily Lessons.
@@ -80,8 +95,6 @@ thumbnail: https://thmb.techidaily.com/6751e55bdf4c2e1662ce3bd78f4508fbf0de25f71
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -89,4 +102,26 @@ thumbnail: https://thmb.techidaily.com/6751e55bdf4c2e1662ce3bd78f4508fbf0de25f71
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-the-full-picture-a-comprehensive-review-of-android-lightroom-for-2024/"><u>[New] The Full Picture A Comprehensive Review of Android Lightroom for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-harnessing-the-power-combine-zoom-and-google-mail-for-2024/"><u>[Updated] Harnessing the Power Combine Zoom & Google Mail for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-xiaomi-13t-pro-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Xiaomi 13T Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-photo-visionaries-guide-unveiling-the-best-6-high-res-cameras/"><u>2024 Approved Photo Visionaries Guide Unveiling the Best 6 High-Res Cameras</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/a-complete-list-where-to-find-high-quality-music-files/"><u>A Complete List Where to Find High-Quality Music Files</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accelerated-tagalog-learning-a-simple-daily-routine/"><u>Accelerated Tagalog Learning - A Simple Daily Routine</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/become-a-linguistic-pro-mondly-clinches-the-title/"><u>Become a Linguistic Pro: Mondly Clinches the Title</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/catalan-catch-up-minutes-a-day-words-gained/"><u>Catalan Catch-Up: Minutes a Day, Words Gained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/charting-the-course-learning-german-from-scratch/"><u>Charting the Course: Learning German From Scratch</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conversalab-interactive-language-learning-experience/"><u>ConversaLab: Interactive Language Learning Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cross-border-easter-messages-in-multiple-dialects/"><u>Cross-Border Easter Messages in Multiple Dialects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deutsche-verantwortungsausdrucke-lernen/"><u>Deutsche Verantwortungsausdrücke Lernen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevating-usability-mondly-and-pearsons-buttonjunction/"><u>Elevating Usability: Mondly & Pearson's ButtonJunction</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-language-independence-with-no-cost-japanese-resources/"><u>Embrace Language Independence with No Cost Japanese Resources</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/everything-you-need-to-know-about-unlocked-iphone-14-plus-drfone-by-drfone-ios/"><u>Everything You Need To Know About Unlocked iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-mastering-video-calls-discover-the-top-10-apps-for-your-phone/"><u>In 2024, Mastering Video Calls Discover the Top 10 Apps for Your Phone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-guide-resolving-frequent-usb-connection-drops/"><u>Troubleshooting Guide: Resolving Frequent USB Connection Drops</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-steps-when-your-hyperx-cloud-alpha-microphone-fails/"><u>Troubleshooting Steps When Your HyperX Cloud Alpha Microphone Fails</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-tips-fixing-the-alienware-command-center-issues/"><u>Troubleshooting Tips: Fixing the Alienware Command Center Issues</u></a></li>
+</ul></div>
 

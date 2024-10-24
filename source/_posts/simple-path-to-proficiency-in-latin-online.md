@@ -1,7 +1,7 @@
 ---
 title: Simple Path to Proficiency in Latin Online
-date: 2024-08-23T00:34:00.558Z
-updated: 2024-08-24T00:34:00.558Z
+date: 2024-10-18T17:04:41.345Z
+updated: 2024-10-24T18:45:45.521Z
 tags:
   - speak
   - english
@@ -40,6 +40,13 @@ _Ergo_ (“therefore”), the easiest way to learn Latin online is now literally
 
 _Ergo_ , history makes Latin the backbone of many present-day languages and studying it could help you gain valuable insight into the infrastructure of many other languages.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Latin grammar and the Latin alphabet
 
  The Latin alphabet that many languages use today evolved from the visually similar Etruscan alphabet, which – in turn – evolved from the Cumaean Greek version of the Greek alphabet, which was itself descended from the Phoenician alphabet that derived from Egyptian hieroglyphics. As a result of Etruscans ruling early Rome, over time, their alphabet developed into the Latin alphabet that many centuries later became the writing system we all know today.
@@ -49,8 +56,12 @@ A fascinating origin story, isn’t it?
  With three distinct genders, up to seven noun cases, five declensions, four verb conjugations, six tenses, three persons, three moods, two voices, two or three aspects and two numbers, Latin grammar may seem complicated. But once you start your Latin classes with Mondly and learn to read Latin, you’ll be surprised how fast you can actually master this language due to the knowledge you already possess.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Common Latin phrases and expressions we still use today
 
  **Far from being a dead language, Latin is very much alive in our day-to-day conversations.** _Carpe diem_ ,_et cetera_ ,_et alii_ ,_habemus papam_ ,_in vitro_ ,_magna cum laude_ ,_curriculum vitae_ and_mea culpa_ are just a few of the [Latin phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) we still use today.
@@ -78,22 +89,12 @@ A fascinating origin story, isn’t it?
 * _amor vincit omnia_ – love conquers all (is also the name of a painting by the Italian Baroque artist Caravaggio)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
+<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Reasons to learn Latin
 
  Forget about the Latin dictionary and the countless hours of studying Latin grammar. **The best way to learn Latin is online,[for free with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4492&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4492?mother%5Flang=en%5Fus?target%5Flang=la&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4492?mother%5Flang=en%5Fus?target%5Flang=la) .**
@@ -112,8 +113,12 @@ Key features:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Start learning Latin today
 
  The Latin language is no longer is secret code meant only for scholars or the Catholic Church. Starting right now, you can learn Latin with Mondly using bite-sized lessons and practical topics to help you discover how Romans conversed in their day-to-day life.
@@ -128,8 +133,6 @@ Key features:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -137,4 +140,20 @@ Key features:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-master-the-art-of-customizing-youtube-thumbnails-and-improving-visibility/"><u>[New] In 2024, Master the Art of Customizing YouTube Thumbnails and Improving Visibility</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nlock-creative-potential-with-these-top-9-free-editors-for-2024/"><u>[New] Unlock Creative Potential with These Top 9 Free Editors for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-how-to-autoplay-youtube-videos-on-facebook-in-2024/"><u>[Updated] How to Autoplay Youtube Videos on Facebook, In 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-lol-factory-robotic-deadwalkers-for-2024/"><u>[Updated] LOL Factory Robotic Deadwalkers for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-optimize-online-presence-video-embellishment-with-logos-and-watermarks/"><u>[Updated] Optimize Online Presence Video Embellishment with Logos and Watermarks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprender-a-controlar-tiempo-con-botones/"><u>Aprender a Controlar Tiempo Con Botones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/best-for-kids-on-google-play-mondly-with-back-button-control/"><u>Best for Kids on Google Play: Mondly with Back Button Control</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/communicating-love-through-hungarian-culture-and-language/"><u>Communicating Love Through Hungarian Culture and Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/countless-cultures-one-speaker-who-is-he/"><u>Countless Cultures, One Speaker - Who Is He?</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-10-best-webcam-recorders-windows-10/"><u>In 2024, 10 Best Webcam Recorders Windows 10</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-sharefake-gps-on-uber-for-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to share/fake gps on Uber for Tecno Spark 20 Pro | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/install-official-broadcom-bluetooth-driver-for-windows-pcs-latest-versions/"><u>Install Official Broadcom Bluetooth Driver for Windows PCs - Latest Versions</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/step-by-step-guide-stop-assassins-creed-odyssey-from-crashing-your-pc-easily/"><u>Step-by-Step Guide: Stop Assassin's Creed Odyssey From Crashing Your PC Easily</u></a></li>
+</ul></div>
 

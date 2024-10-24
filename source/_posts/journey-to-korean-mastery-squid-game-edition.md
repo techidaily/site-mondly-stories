@@ -1,7 +1,7 @@
 ---
 title: Journey to Korean Mastery - Squid Game Edition
-date: 2024-08-23T00:32:34.244Z
-updated: 2024-08-24T00:32:34.244Z
+date: 2024-10-21T18:12:19.982Z
+updated: 2024-10-24T18:21:37.703Z
 tags:
   - speak
   - english
@@ -19,8 +19,6 @@ thumbnail: https://thmb.techidaily.com/c367633b9f9ef727c06fd08d3dd4d78a496570d92
  Obsessed with Squid Game? Let’s be serious. ‘Obsessed’ is a light word. If BTS made me think about learning Korean, Squid Game outright bought my subscription to [learn Korean](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6194&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko) .
 
  It’s Netflix’s biggest ever series launch and it’s bloody… splendid. The world loves it. In fact, people love it so much that more and more of them want to learn Korean. It’s not just me or just you. It’s the whole world. Squid Game literally took the world by storm.
-
-
 
  The only problem is that the meaning of some scenes in Squid Game seems to have been changed by subtitles. Ever since the show’s official release in September, Korean-speaking fans have been sharing Squid Game mistranslations all over Twitter and TikTok.
 
@@ -44,6 +42,13 @@ So what’s there to be done?
 
  Now, this global phenomenon even has its own name. **The cultural boom coming from South Korea since the 1990s is known today as the Korean wave or [hallyu](https://en.wikipedia.org/wiki/Korean%5Fwave) .** Basically, everything we love about Korean pop culture is embedded in hallyu.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why Squid Game got lost in translation
 
  Not everyone will get this, but can you imagine how sad it is to be lost in translation without Scarlett Johansson and Bill Murray?
@@ -65,9 +70,12 @@ So there’s only one conclusion we can draw from this…
 **Like Thanos, getting lost in translation is inevitable.**
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Learn Korean and overcome the one-inch-tall barrier of subtitles
 
  It’s amazing how people learn languages for love. There’s no greater drive than love. And I’m not talking just about romantic love. The fact that so many people are learning Korean after they watched Squid Game, it’s an act of love. All these people learn Korean out of love for this show. Others have been learning the language out of love for BTS. You could even go so far as to say that love makes us smarter. Or better.
@@ -75,8 +83,12 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 ![squid game love](https://media.giphy.com/media/USVF7ZnGqVuoABCBUr/giphy.gif "Obsessed With Squid Game, But Lost In Translation? Learn Korean 7")
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  **Would you [learn Korean](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6194&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko) out of love for hallyu?** In 2020, in his Oscar acceptance speech, ‘Parasite’ director Bong Joon Ho said something the world will never forget:
 
  Once you overcome the 1-inch-tall barrier of subtitles, you will be introduced to so many more amazing films.
@@ -85,9 +97,6 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 
  And you know what’s the second-best thing about this? You’ll be in great company. Since the launch of Squid Game, Mondly has seen a massive increase in people starting to learn Korean. You can join them all **[here](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6194&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko)**  .
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Even the English language wants to learn Korean
 
  Do you need an extra reason to start learning? Here’s a good one: even the English language started to learn Korean.
@@ -100,8 +109,12 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## From 0 to conversational in Korean
 
  Here’s the best way to up your Korean game fast. Get Mondly, the award-winning language learning app, put your enthusiasm to work and speak Korean like a pro in no time. It can be really tricky to master the Korean pronunciation if you don’t actively live in South Korea. But with Mondly, you’ll have access to a fast and highly efficient learning method that allows you to learn Korean naturally with:
@@ -121,8 +134,6 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -130,4 +141,18 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtubes-tagging-system-unveiled/"><u>2024 Approved YouTube's Tagging System Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/anatomie-essentielle-decoder-le-corps-humain-en-francais/"><u>Anatomie Essentielle: Décoder Le Corps Humain en Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/astonish-abruzzese-with-essential-slang-terms/"><u>Astonish Abruzzese with Essential Slang Terms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/basic-russian-vocabulary-and-phrases-mastery-101/"><u>Basic Russian Vocabulary & Phrases Mastery 101</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/be-bilingual-today-learn-german-from-popular-show-dark/"><u>Be Bilingual Today! Learn German From Popular Show, Dark</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/compatibility-check-can-your-iphone-13-case-be-adapted-for-the-latest-iphone-14-model-zdnet/"><u>Compatibility Check: Can Your iPhone 13 Case Be Adapted for the Latest iPhone 14 Model? - ZDNet</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/elevating-exercise-how-apples-new-airpods-pro-can-become-your-personal-trainer-with-heart-sensor-capabilities-analysis/"><u>Elevating Exercise: How Apple's New AirPods Pro Can Become Your Personal Trainer with Heart Sensor Capabilities Analysis</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-sound-of-success-audio-recording-guide/"><u>In 2024, The Sound of Success Audio Recording Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579992783-new-year-new-verbal-horizon/"><u>New Year, New Verbal Horizon!</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/redefining-your-twitter-vibe-with-dynamic-video-thumbnails-for-2024/"><u>Redefining Your Twitter Vibe with Dynamic Video Thumbnails for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/swift-driver-transformation-radeon-hd-4800/"><u>Swift Driver Transformation: Radeon HD 4800</u></a></li>
+</ul></div>
 

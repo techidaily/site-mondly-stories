@@ -1,7 +1,7 @@
 ---
 title: Principios Del Entendimiento Del Tiempo en Español
-date: 2024-10-17T19:26:17.168Z
-updated: 2024-10-18T23:13:57.446Z
+date: 2024-10-17T17:34:27.868Z
+updated: 2024-10-24T16:44:44.445Z
 tags:
   - speak
   - english
@@ -31,6 +31,13 @@ But first things first.
  In order to tell the time in Spanish, you’ll first have to learn how to properly ask for the time in Spanish. You can never be too cautious. I’m just making sure you’re not missing that_fiesta española_ you spent weeks thinking about!
 
  In addition to the now well-known_**¿que hora es?**_ which literally translates to “what hour is it?”, you can also ask_**¿tiene hora?**_ which is literally “do you have the hour?”. Easy enough!
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The basics of Spanish time
 
@@ -74,20 +81,13 @@ Here are some examples:
 ![telling time in spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/06/telling-time-in-spanish-600x600.jpg "How To Tell Time In Spanish - A Complete Guide For Beginners 3")
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
-  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Telling time in Spanish – a visual guide
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Hour + minutes in Spanish time
 
@@ -101,10 +101,16 @@ Here are some examples:
 * _Son las ocho y quince._ (“it’s eight and fifteen minutes”)
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Different ways of telling time in Spanish
@@ -116,13 +122,6 @@ Here are some examples:
 * _es/son_ +_las_ \+ hour + con + number of minutes –**_Son las tres con diez_**
 
  Which one do you prefer? Additionally, if we also count it_cuarto_ and_media_ , there are no less than four different ways to tell the time in Spanish. And you’ve just mastered them all!
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to indicate the time of day in Spanish
 
@@ -173,6 +172,13 @@ Here are some examples:
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Speak Spanish fluently in just 10 minutes a day
 
  Do you want to [speak Spanish fluently](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) fast? Get Mondly, the award-winning language learning app that will help you speak Spanish as if you were Spanish-born.
@@ -198,21 +204,24 @@ Here are some examples:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/updated-expert-psd-text-framing/"><u>[Updated] Expert PSD Text Framing</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-tweeted-cinematics-from-video-to-wavmp3-for-2024/"><u>[Updated] Tweeted Cinematics From Video to WAV/MP3 for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-top-secrets-to-improve-your-gopro-videos/"><u>2024 Approved Top Secrets to Improve Your GoPro Videos</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/accelerate-your-learning-of-japanese-digits/"><u>Accelerate Your Learning of Japanese Digits</u></a></li>
-<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-vpna-to-fake-gps-location-on-nubia-red-magic-9-proplus-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use VPNa to Fake GPS Location On Nubia Red Magic 9 Pro+ | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-gps-on-infinix-note-30-5g-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>In 2024, How To Fake GPS On Infinix Note 30 5G For Mobile Legends? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/international-educators-day-multilingual-commemoration/"><u>International Educators' Day: Multilingual Commemoration</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/recorder-at-zero-free-capture-of-your-android-content-for-2024/"><u>Recorder at Zero Free Capture of Your Android Content for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sharpen-articulation-skills-100-engaging-tongue-twisters/"><u>Sharpen Articulation Skills: 100 Engaging Tongue Twisters</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/step-by-step-japan-study-independent-paths-and-free-tools/"><u>Step-By-Step Japan Study: Independent Paths and Free Tools</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-foundations-of-hiragana-and-katakana-systems/"><u>The Foundations of Hiragana and Katakana Systems</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-power-of-two-tongues-essential-bilingual-gains/"><u>The Power of Two Tongues: Essential Bilingual Gains</u></a></li>
-<li><a href="https://techidaily.com/the-way-to-recover-deleted-contacts-on-tecno-without-backup-by-fonelab-android-recover-contacts/"><u>The way to recover deleted contacts on Tecno without backup.</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/tracing-dutch-linguistics-origin-and-evolution/"><u>Tracing Dutch Linguistics: Origin and Evolution</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/ultimate-guide-to-reviving-your-airpods-when-and-how-to-perform-a-factory-reset-cnet-guides/"><u>Ultimate Guide to Reviving Your AirPods: When & How To Perform A Factory Reset | CNET Guides</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/your-next-best-source-for-world-exploration-for-2024/"><u>Your Next-Best Source for World Exploration for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-how-to-give-a-makeover-to-existing-images-and-videos-with-ig-filters/"><u>[Updated] 2024 Approved How to Give a Makeover to Existing Images and Videos with IG Filters</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-elevate-your-minecraft-skills-with-the-art-of-circle-and-sphere-creation/"><u>[Updated] Elevate Your Minecraft Skills with the Art of Circle & Sphere Creation</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-recording-techniques-for-stellar-voice-over-audio-for-2024/"><u>[Updated] Recording Techniques for Stellar Voice-Over Audio for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/breaking-the-code-how-to-reactivate-memory-feature-in-win11/"><u>Breaking the Code: How to Reactivate Memory Feature in Win11</u></a></li>
+<li><a href="https://fake-location.techidaily.com/dose-life360-notify-me-when-someone-checks-my-location-on-samsung-galaxy-f04-drfone-by-drfone-virtual-android/"><u>Dose Life360 Notify Me When Someone Checks My Location On Samsung Galaxy F04? | Dr.fone</u></a></li>
+<li><a href="https://fox-ssl.techidaily.com/expert-guide-mastering-sql-query-techniques/"><u>Expert Guide: Mastering SQL Query Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/interactive-intelligence-acquire-new-language-skills-virtually/"><u>Interactive Intelligence: Acquire New Language Skills Virtually</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigate-conversation-easily-17-basic-spanish-sayings/"><u>Navigate Conversation Easily: 17 Basic Spanish Sayings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-horizons-in-your-forties-language-learnings-top-4-advantages/"><u>New Horizons in Your Forties: Language Learning's Top 4 Advantages</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/pro-techniques-for-efficient-win-files-max-156/"><u>Pro Techniques for Efficient Win Files (Max 156)</u></a></li>
+<li><a href="https://article-helps.techidaily.com/revival-device-pack-for-2024/"><u>Revival Device Pack for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solve-the-problem-of-undetected-bluetooth-devices-in-windows-10-quickly/"><u>Solve the Problem of Undetected Bluetooth Devices in Windows 10 Quickly!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-hindi-adventure-awaits-dive-into-8-engaging-mondly-reasons/"><u>The Ultimate Hindi Adventure Awaits: Dive Into 8 Engaging Mondly Reasons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/timeless-tongues-earths-most-antique-linguistic-forms/"><u>Timeless Tongues: Earth's Most Antique Linguistic Forms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transformative-technology-mondly-and-pearsons-buttonfusion/"><u>Transformative Technology: Mondly and Pearson's ButtonFusion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-the-secrets-of-turkish-quick-pronunciation-and-letter-reference/"><u>Unlocking the Secrets of Turkish: Quick Pronunciation and Letter Reference</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-germanys-quirkiest-phrases-top-25/"><u>Unveiling Germany's Quirkiest Phrases (Top 25)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-best-language-for-my-learning-journey/"><u>Unveiling The Best Language for My Learning Journey</u></a></li>
+<li><a href="https://driver-download.techidaily.com/update-wireless-software-or-driver-on-windows-1110/"><u>Update Wireless Software or Driver on Windows 11/10</u></a></li>
 </ul></div>
 

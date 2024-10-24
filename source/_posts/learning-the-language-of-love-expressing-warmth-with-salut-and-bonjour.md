@@ -1,7 +1,7 @@
 ---
 title: "Learning the Language of Love: Expressing Warmth with 'Salut' & 'Bonjour'"
-date: 2024-10-15T19:40:33.993Z
-updated: 2024-10-18T17:40:33.829Z
+date: 2024-10-17T18:55:39.620Z
+updated: 2024-10-24T16:19:44.006Z
 tags:
   - speak
   - english
@@ -26,13 +26,6 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  But everyone wants to make a change from time to time. So let’s dive into 12 ways to say hello in French that are not_Bonjour._
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 1\. “Hi” in French –_Salut!_
 
  Just as commonly used, but a bit more informal,_Salut_ is what we could call_Bonjour_ ’s cool kid.
@@ -45,18 +38,18 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  However, if you are in Quebec, you are free to use_Bon matin_ until 10 or 11 AM.
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3\. “Good afternoon” in French –_Bon après-midi!_
 
  While it’s used less often than its brothers,_Bon après-midi_ is a nice twist to_Bonjour_ .
 
  But take notice! French speakers generally use it when they are saying goodbye, so you should follow their lead and avoid using it at the beginning of a conversation.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 4\. “Good evening” in French –_Bonsoir!_
 
@@ -70,13 +63,6 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  “French fashion” by Charles 🇵🇭©
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 6\. Hello? –_Allô?_
 
  Although it is not specific to face to face interactions,_Allô_ is still considered a greeting.
@@ -86,6 +72,13 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 ## 7\. Excuse me? –_Excusez-moi?_
 
  Looking for a polite way to get someone’s attention in French? Maybe there’s someone blocking your way in the store or maybe you want to get noticed by the office clerk. In these situations, a classic greeting would be a bit redundant. So instead you could use this “question-like”_Excusez-moi?_ that has a double meaning and works as both a greeting and a way to get someone’s attention.
+
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
+  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 8\. “How are you” in French –_Comment ça va?_
 
@@ -102,10 +95,10 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
  The only slight difference is the level for formality associated of each phrase:_Ça va?_ is obviously more suitable for informal interactions with friends and family.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 10\. What’s up? –_Quoi de neuf?_
@@ -113,10 +106,10 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
  Want to spice up and diversify your “ça-va”s? Go with the informal_Quoi de neuf_ that translates to “what’s up?” or “what’s new?”.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 11\. The cute Bonjour:_Coucou!_
@@ -128,6 +121,13 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
 ![bonjour](https://edge.mondly.com/blog/wp-content/uploads/2019/11/bonjour-scaled-960x641.jpg "How To Say Hello In French: 12 Useful French Greetings 3")
 
  “Coucou! Is me! The Frenchie!” by Graham Holtshausen©
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 12\. How’s it going? –_Ça roule?_
 
@@ -167,18 +167,21 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-cross-platform-comparison-iphone-vs-android-youtube-viewing/"><u>[New] 2024 Approved Cross-Platform Comparison IPhone vs Android YouTube Viewing</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-amplifying-photos-through-acoustics-internet-based/"><u>[Updated] Amplifying Photos Through Acoustics, Internet-Based</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/counteract-vibration-for-clear-captures/"><u>Counteract Vibration for Clear Captures</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/decoding-ru-language-sound-structure/"><u>Decoding RU Language Sound Structure</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-honor-magic-vs-2-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Honor Magic Vs 2 to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-prevent-cross-site-tracking-on-infinix-note-30-pro-and-browser-drfone-by-drfone-virtual-android/"><u>In 2024, Prevent Cross-Site Tracking on Infinix Note 30 Pro and Browser | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580459475-lechange-bienveillant-en-francais-merci/"><u>L'Echange Bienveillant en Français: Merci!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/milestone-moments-with-mondly-languages-visionary-dreams-alive/"><u>Milestone Moments with Mondly Languages - Visionary Dreams Alive</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-art-of-sending-stunning-3d-photos-via-facebook/"><u>The Art of Sending Stunning 3D Photos via Facebook</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/this-innovative-virtual-reality-app-helps-you-learn-a-foreign-language/"><u>This Innovative Virtual Reality App Helps You Learn A Foreign Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/timeless-voices-earths-most-venerable-languages/"><u>Timeless Voices: Earth’s Most Venerable Languages</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/unveiling-the-power-of-high-quality-gaming-screenshots-for-2024/"><u>Unveiling the Power of High-Quality Gaming Screenshots for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/visualcut-content-checker/"><u>VisualCut Content Checker</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-the-best-gopro-hero5-black-batteries-and-chargers-official-and-3rd-party/"><u>[New] In 2024, The Best GoPro Hero5 Black Batteries and Chargers Official and 3Rd Party</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-from-fast-paced-footage-to-staggeringly-slow-motion-videos-a-comprehensive-ig-reel-guide/"><u>[Updated] From Fast-Paced Footage to Staggeringly Slow Motion Videos A Comprehensive IG Reel Guide</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-how-to-build-circles-and-spheres-in-minecraft/"><u>[Updated] In 2024, How to Build Circles and Spheres in Minecraft</u></a></li>
+<li><a href="https://win-reviews.techidaily.com/beheben-sie-den-server-2012-blue-screen-of-death-beim-wahlen-von-einstellungen-schritt-fur-schritt-anleitung/"><u>Beheben Sie Den Server 2012 Blue Screen of Death Beim Wählen Von Einstellungen – Schritt-Für-Schritt-Anleitung</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/enhancing-online-excel-webworkers-strategies-for-streamlining-spreadsheet-efficiency/"><u>Enhancing Online Excel Webworkers: Strategies for Streamlining Spreadsheet Efficiency</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-xiaomi-redmi-note-13-5g-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Xiaomi Redmi Note 13 5G to Samsung Phone | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/korean-alphabet-a-quick-guide-to-hangul/"><u>Korean Alphabet – A Quick Guide to Hangul</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-of-love-a-global-valentines-day-guide/"><u>Language of Love: A Global Valentine’s Day Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-french-efficiently-from-home-guide/"><u>Learn French Efficiently From Home Guide</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/m1-vs-m2-ipad-pro-showdown-finding-the-best-device-to-suit-your-preferences/"><u>M1 Vs. M2 iPad Pro Showdown: Finding the Best Device to Suit Your Preferences</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/majority-mother-tongues-the-15-summit/"><u>Majority Mother Tongues – The #15 Summit</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multicultural-mastery-the-art-of-interacting-across-borders/"><u>Multicultural Mastery: The Art of Interacting Across Borders</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pace-yourself-learn-japans-counting-quickly/"><u>Pace Yourself, Learn Japan's Counting Quickly</u></a></li>
+<li><a href="https://win-able.techidaily.com/pc-gamers-rejoice-fix-your-dragons-dogma-2-crash-problem-today/"><u>PC Gamers Rejoice! Fix Your Dragon's Dogma 2 Crash Problem Today</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/primes-peak-performers-highest-tweets-and-viewing-numbers-for-2024/"><u>Prime’s Peak Performers Highest Tweets & Viewing Numbers for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/which-dialect-flourishes-in-israeli-territory/"><u>Which Dialect Flourishes in Israeli Territory?</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Language Learning Journey: How Long Does It Take To Master A New Language?"
-date: 2024-10-11T22:13:18.121Z
-updated: 2024-10-19T01:11:44.264Z
+date: 2024-10-17T17:34:10.999Z
+updated: 2024-10-24T18:14:10.920Z
 tags:
   - speak
   - english
@@ -43,6 +43,13 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
 * **Knowing more than one language helps —** languages with shared features with English are generally easier to learn, while those with significant cultural and linguistic differences may take longer to learn;
 * **The time spent learning depends on you** **—** The time it takes to learn a new language varies greatly depending on your motivation and dedication to the task.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Interagency Language Roundtable scale or the IRL scale
 
  The Interagency Language Roundtable is a grading scale used by the US government to scale [employees](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and diplomats working for the FSI (Foreign Service Institute). You’ll find this scale to be the most accurate when it comes to native English speakers learning a foreign language. Basically, what this scale does is establish the language difficulty.
@@ -59,18 +66,18 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
 
  But first, we need to clarify a certain aspect of learning foreign languages as a native English speaker: some languages are more difficult to learn than others. Why? Because English and some other languages haven’t been in contact with one another for thousands of years and have evolved in a totally different way. But studying languages that are completely different from English is not impossible. It takes longer, but you’ll eventually get there.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Easiest language to learn for English speakers
 
  The data presented below reflects a study held by the FSI (Foreign Service Institute) of the US government. Again, this is probably the most accurate data regarding how much time it takes for a native English speaker to become fluent in a particular new language.
 
  The FSI has over 800 language learning courses in more than 70 languages with more than 70 years of experience in training US diplomats and foreign affairs employees.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **Tier 1:** Languages that are most closely related to English
 
@@ -104,13 +111,6 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
 * comparable stress and intonation patterns;
 * already share a number of vocabulary words.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **Tier 2:** Similar to English
 
 | Language | Time needed to reach fluency |
@@ -122,6 +122,13 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
  The grammar is more complicated and difficult to understand; hence, German gets a tier 2 difficulty score, but of course, there are other Germanic languages out there that are much harder to master, like Icelandic.
 
 !["Fastest way to learn a language" by RF._.studio©](https://edge.mondly.com/blog/wp-content/uploads/2018/04/fastest-way-to-learn-a-language-960x641.jpg "How Long Does It Take In Hours To Learn A Language? 4")
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **Tier 3:** Languages that may have cultural and linguistic differences compared to English
 
@@ -135,10 +142,10 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
 [Learn with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-1364&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-1364&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-1364)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **Tier 4:** Languages that are profoundly different from English
@@ -172,13 +179,6 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
  All of the tier 5 languages are highly sophisticated and complex compared to English having an average learning curve of up to 4 times the period it takes for the average English speaker to learn Dutch for example. So arm yourself with a lot of patience and plenty of determination.
 
  Based on all the data and testimonies English speakers made over the years, the hardest language to learn award may go to Japanese due to the thousands of characters you need to memorize while having three different writing varieties.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **Tier 5:** Extraordinary level of difficulty
 
@@ -232,20 +232,22 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-essential-app-picks-best-10-editors-to-transform-reels/"><u>[New] In 2024, Essential App Picks Best 10 Editors to Transform Reels</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-sculpting-speed-at-winter-olympics/"><u>[New] Sculpting Speed at Winter Olympics</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-record-complete-page-display/"><u>[Updated] 2024 Approved Record Complete Page Display</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/beginners-guide-to-iphone-screen-capture/"><u>Beginner's Guide to iPhone Screen Capture</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/celebrating-the-linguistic-tapestry-of-our-teachers/"><u>Celebrating the Linguistic Tapestry of Our Teachers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dialect-dynamics-portuguese-of-the-two-hemispheres/"><u>Dialect Dynamics: Portuguese of the Two Hemispheres</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/enhancing-your-love-quest-the-role-of-chatgpt-in-elevating-your-romantic-endeavors/"><u>Enhancing Your Love Quest: The Role of ChatGPT in Elevating Your Romantic Endeavors</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-education-trends-top-languages-for-americans/"><u>Global Education Trends: Top Languages for Americans</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/gsl-transformation-pearson-and-mondly-join-forces/"><u>GSL Transformation - Pearson & Mondly Join Forces</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-can-we-unlock-our-poco-x5-phone-screen-by-drfone-android/"><u>In 2024, How Can We Unlock Our Poco X5 Phone Screen?</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-apple-iphone-12-pro-max-to-roku-drfone-by-drfone-ios/"><u>In 2024, How to Mirror Apple iPhone 12 Pro Max to Roku? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-czech-with-online-simplicity-techniques/"><u>Mastering Czech with Online Simplicity Techniques</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/oculus-event-practice-your-spanish-and-socialize-in-mondly-vr-multiplayer/"><u>Oculus Event: Practice Your Spanish and Socialize in Mondly VR Multiplayer</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/perfect-pronunciation-powered-by-100-dynamic-twisters/"><u>Perfect Pronunciation Powered by 100 Dynamic Twisters</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/solving-common-sound-problems-in-outriders-a-comprehensive-guide/"><u>Solving Common Sound Problems in Outriders: A Comprehensive Guide</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-transform-your-edits-how-to-negate-distracting-surroundings-using-affinity-photo-for-2024/"><u>[New] Transform Your Edits How to Negate Distracting Surroundings Using Affinity Photo for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-rapid-techniques-to-separate-genuine-from-fake-on-insta/"><u>[Updated] 2024 Approved Rapid Techniques to Separate Genuine From Fake on Insta</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-go-live-on-youtube-from-a-phone-no-need-for-huge-fans-yet-for-2024/"><u>[Updated] Go Live on YouTube From a Phone, No Need for Huge Fans Yet for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/expert-tips-for-efficient-youtube-to-mpeg-transcoding-for-2024/"><u>Expert Tips for Efficient YouTube-to-MPEG Transcoding for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/google-play-services-wont-update-12-fixes-are-here-on-xiaomi-redmi-12-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Play Services Wont Update? 12 Fixes are Here on Xiaomi Redmi 12 5G | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-reset-gmail-password-on-sony-xperia-10-v-devices-by-drfone-android/"><u>How to Reset Gmail Password on Sony Xperia 10 V Devices</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-pairing-video-cameras-with-desktop-captures/"><u>In 2024, Pairing Video Cameras with Desktop Captures</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-tecno-spark-10-pro-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>In 2024, Tecno Spark 10 Pro ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://fox-sure.techidaily.com/mastering-the-art-of-email-campaigns-insights-with-massmail-software/"><u>Mastering the Art of Email Campaigns: Insights with MassMail Software</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-inclusive-mission-expanding-education-reach-to-70-millionplus/"><u>Mondly's Inclusive Mission: Expanding Education Reach to 70 Million+</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/networking-the-worldwide-education-community-at-bett/"><u>Networking the Worldwide Education Community at BETT</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-dawn-in-polyglot-journey-never-too-late/"><u>New Dawn in Polyglot Journey - Never Too Late</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/simultaneous-speech-scholarship/"><u>Simultaneous Speech Scholarship</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-a-local-the-most-useful-german-sayings-countdown/"><u>Speak Like a Local: The Most Useful German Sayings Countdown</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-must-know-16-phrases-for-gratitude-in-german-culture/"><u>The Must-Know 16 Phrases for Gratitude in German Culture</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-speech-perfection-english-tongue-twister-workout/"><u>Unlocking Speech Perfection: English Tongue Twister Workout</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-choose-german-for-your-career-top-10-reasons/"><u>Why Choose German for Your Career: Top 10 Reasons</u></a></li>
 </ul></div>
 

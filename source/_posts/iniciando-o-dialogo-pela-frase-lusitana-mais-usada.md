@@ -1,7 +1,7 @@
 ---
 title: Iniciando O Diálogo Pela Frase Lusitana Mais Usada
-date: 2024-08-23T00:26:43.534Z
-updated: 2024-08-24T00:26:43.534Z
+date: 2024-10-21T16:32:16.264Z
+updated: 2024-10-24T18:05:25.827Z
 tags:
   - speak
   - english
@@ -24,15 +24,19 @@ thumbnail: https://thmb.techidaily.com/70a221261e83ff3179ef93192d51afbff1f725757
 
  “Hello” is a [powerful word](https://www.merriam-webster.com/words-at-play/the-origin-of-hello) . It opens doors. It makes people smile. And said the right way and at the right time, “hello” can impact someone’s day and you wouldn’t even know it. So here are the right ways to say “hello” in Portuguese and open doors everywhere you go.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### “Hello” in Portuguese – Olá
 
 _Olá_ is the best choice for most social situations regardless of the person you are addressing. It’s somehow formal, but also friendly.
 
  Be careful with your Portuguese pronunciation though! A lot of people accidentally mistake Portuguese for Spanish. You don’t want to do that. Just say “OH-lah” and everybody from Brazil to Mozambique will understand that you are saying “hello” in Portuguese.
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### “Hi” in Portuguese – Oi
 
  Friendly and very informal,_Oi!_ is one of the most common ways to greet your friends in Brazil (people from Portugal use it as well, but not as much as_olá)_ . This is how you could greet your mates and close colleagues, but never the people you don’t really know. Don’t stress it tough! When the time comes, you will feel and just know what’s the required Portuguese greeting for that particular situation.
@@ -40,14 +44,21 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ![hi in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-portuguese-1024x658.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 2")
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  “Lisbon, Portugal” by Diego García©
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### “How are you” in Portuguese – Tudo bem?
 
  Asking someone how they are doing is probably just as important as saying “hello”. Sometimes you don’t even expect an answer. This is just an even nicer way to greet someone. So let’s see the many ways Portuguese-speaking people ask someone how they are doing depending on the context.
@@ -62,6 +73,13 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 * **_Beleza?_ – What’s up?** – universally informal and perfect for greeting close friends. It literally translates to “what’s going on with your life?”
 * **_Quanto tempo!_ – Long time no see!** – Used the same as in English.
 * **_Como foi o seu dia?_ – How’s your day?** – Used the same as in English.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 2\. “Bom dia!” and other Portuguese greetings for certain moments of the day
 
@@ -91,9 +109,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ![portuguese greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/08/portuguese-greetings-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 4")
 
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  “Ruínas da Fortaleza de Arrifana, Aljezur, Portugal” by Ferhat Deniz Fors©
 
 ## Bonus: other basic Portuguese phrases that you should know
@@ -120,9 +135,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ![obrigado](https://edge.mondly.com/blog/wp-content/uploads/2019/08/obrigado-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 5")
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
  “Gruta do Lago Azul, Brazil” by Ademir Alves©
 
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fhello-in-portuguese-basic-portuguese-greetings-you-need%2F&t=Hello+in+Portuguese+and+Other+Basic+Portuguese+Greetings+You+Need+to+Know "Share on Facebook")
@@ -130,9 +142,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Here’s how to speak Portuguese in 10 minutes a day
 
  Do you want to practice what you’ve learned and maybe learn some more Portuguese? **Check Mondly, the revolutionary language learning platform that makes language learning fun, fast and easy!**
@@ -155,8 +164,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -164,4 +171,26 @@ _Olá_ is the best choice for most social situations regardless of the person yo
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-advanced-color-grading-with-luts-in-premiere-pro/"><u>[New] In 2024, Advanced Color Grading with LUTs in Premiere Pro</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-direct-transmission-of-google-meet-into-your-youtube-playlist/"><u>[New] In 2024, Direct Transmission of Google Meet Into Your YouTube Playlist</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-balancing-acts-in-youtube-music-mixes/"><u>[Updated] In 2024, Balancing Acts in YouTube Music Mixes</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-beyond-views-and-likes-pursuing-profits-on-youtube/"><u>[Updated] In 2024, Beyond Views and Likes Pursuing Profits on YouTube</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-digital-doyens-guide-streaming-and-recording-mastery/"><u>[Updated] In 2024, Digital Doyen’s Guide Streaming and Recording Mastery</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-decoding-windows-10s-secret-for-file-imports/"><u>2024 Approved Decoding Windows 10'S Secret for File Imports</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-how-to-find-your-niche-and-style-a-starters-guide/"><u>2024 Approved How to Find Your Niche and Style - a Starter's Guide</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-successfully-bypass-icloud-activation-lock-from-apple-iphone-xr-by-drfone-ios/"><u>How to Successfully Bypass iCloud Activation Lock from Apple iPhone XR</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-lovemaking-crafting-romantic-dialogue-in-spanish/"><u>Linguistic Lovemaking: Crafting Romantic Dialogue in Spanish</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/r-quick-youtube-video-uploads-and-rendering-secrets/"><u>Master Quick YouTube Video Uploads and Rendering Secrets</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/primary-overseas-languages-studied-in-usa/"><u>Primary Overseas Languages Studied in USA</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quelques-initiations-francaises-pour-merci/"><u>Quelques Initiations Françaises Pour 'Merci'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sociable-by-nature-unlocking-the-power-of-french-greetings/"><u>Sociable by Nature: Unlocking the Power of French Greetings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speedy-bengali-course-online/"><u>Speedy Bengali Course Online</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-filmmakers-guide-to-accompanying-unboxings-with-tunes-for-2024/"><u>The Filmmaker's Guide to Accompanying Unboxings with Tunes for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-6-danish-movies-for-mastering-danish-language/"><u>Top 6 Danish Movies for Mastering Danish Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-countries-by-french-linguistic-diversity/"><u>Top Countries by French Linguistic Diversity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-global-availability-a-guide-to-using-chatgpt-anytime-anywhere-with-chatgpt-everywhere/"><u>Unlocking Global Availability: A Guide to Using ChatGPT Anytime, Anywhere with ChatGPT Everywhere</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-italy-top-100-travelers-phrases-in-italian/"><u>Unlocking Italy: Top 100 Traveler's Phrases in Italian</u></a></li>
+</ul></div>
 

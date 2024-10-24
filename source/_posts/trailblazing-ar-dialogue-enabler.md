@@ -1,7 +1,7 @@
 ---
 title: Trailblazing AR Dialogue Enabler
-date: 2024-08-23T00:31:01.898Z
-updated: 2024-08-24T00:31:01.898Z
+date: 2024-10-21T16:54:18.178Z
+updated: 2024-10-24T16:04:27.419Z
 tags:
   - speak
   - english
@@ -42,6 +42,13 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 > _We started working on Mondly AR in August 2017 and by the time [Blade Runner 2049](http://www.imdb.com/title/tt1856101/) was released, we already had a working demo. Watching Blade Runner 2049 made me realize that we were beginning to build the future. To me, Joi (the holographic companion of officer K) looked like a super advanced version of Mondly – the character we were creating. They can both understand speech, reply with a human voice and change outfits. Of course, Mondly is not as smart and realistic as Joi. Yet. But she can teach you 7 languages. And this is just the beginning._
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Here’s what you should know about Mondly AR
 
 * Is available on [Google Play](https://play.google.com/store/apps/details?id=com.atistudios.mondlyar.languages&hl=en)
@@ -58,8 +65,12 @@ Alex Iliescu, our CEO, spoke about the launch:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
+  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Facts and figures about Mondly
 
 * 30 million downloads, in over 190 countries
@@ -74,8 +85,12 @@ Alex Iliescu, our CEO, spoke about the launch:
 * [Mondly Press Kit](https://www.dropbox.com/sh/vo4j5214zvwdxy5/AAC20VxIgpuiEe7ED2%5F37VNEa?dl=0)
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Media mentions about Mondly
 
 * **INC.com** – “The New Way to Learn Languages”
@@ -96,8 +111,6 @@ Alex Iliescu, our CEO, spoke about the launch:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -105,4 +118,18 @@ Alex Iliescu, our CEO, spoke about the launch:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-rethinking-social-media-presence-in-light-of-instagrams-new-algorithm/"><u>[New] 2024 Approved Rethinking Social Media Presence in Light of Instagram's New Algorithm</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-is-your-facebook-video-more-engaging-in-a-vertical-format/"><u>[Updated] 2024 Approved Is Your Facebook Video More Engaging in a Vertical Format?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-best-mac-mp4-cutter-apps-enhance-video-editing-for-2024/"><u>[Updated] Best Mac MP4 Cutter Apps Enhance Video Editing for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/augment-realities-mondly-redefining-language-learning/"><u>Augment Realities: Mondly Redefining Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/challenges-in-learning-german/"><u>Challenges in Learning German</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conversational-cupid-flirting-lines-for-love-enthusiasts/"><u>Conversational Cupid: Flirting Lines for Love Enthusiasts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevate-your-social-skills-with-these-top-italian-greetings/"><u>Elevate Your Social Skills with These Top Italian Greetings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevating-language-instruction-through-ai-systems/"><u>Elevating Language Instruction Through AI Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/every-move-monetized-a-corporate-reality/"><u>Every Move Monetized: A Corporate Reality</u></a></li>
+<li><a href="https://techidaily.com/how-to-free-up-apple-iphone-7-plus-space-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>How To Free Up Apple iPhone 7 Plus Space | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-universal-unlock-pattern-for-vivo-y27s-by-drfone-android/"><u>In 2024, Universal Unlock Pattern for Vivo Y27s</u></a></li>
+</ul></div>
 

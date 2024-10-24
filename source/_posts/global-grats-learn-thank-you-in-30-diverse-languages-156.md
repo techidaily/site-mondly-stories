@@ -1,7 +1,7 @@
 ---
 title: "Global Grats: Learn Thank You in 30 Diverse Languages (156)"
-date: 2024-08-23T00:31:42.765Z
-updated: 2024-08-24T00:31:42.765Z
+date: 2024-10-20T16:53:41.964Z
+updated: 2024-10-24T18:47:08.708Z
 tags:
   - speak
   - english
@@ -58,6 +58,13 @@ thumbnail: https://thmb.techidaily.com/0d605cbff29d9fac95ea636e3f1dc6722b73dcac2
 
  “Thanks” by Hanny Naibaho©
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The origin of saying “thank you”
 
  The mere act of expressing gratitude sits at the core of human interaction, so it should be interesting to analyze it a bit more. As the [Oxford Dictionaries](https://en.oxforddictionaries.com/definition/thank%5Fyou) explain, “thank you” is “a polite expression used when acknowledging a gift, service, or compliment, or accepting or refusing an offer”. “Thank you” is basically the general expression of gratitude or politeness to someone for an act of kindness that he or she has done.
@@ -82,9 +89,12 @@ thumbnail: https://thmb.techidaily.com/0d605cbff29d9fac95ea636e3f1dc6722b73dcac2
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## From 0 to conversational in over 40 languages
 
  Do you want to speak Spanish fluently fast? Or maybe French? Get [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6274&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6274&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6274) , the award-winning language learning app that will help you speak up to 41 languages.
@@ -106,8 +116,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -115,4 +123,20 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-enhance-your-gaming-sims-4-on-camera-techniques-for-2024/"><u>[New] Enhance Your Gaming Sims 4 on Camera Techniques for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-aspect-ratios-unveiled-a-complete-youtube-manual/"><u>[Updated] 2024 Approved Aspect Ratios Unveiled A Complete YOUTUBE Manual</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-instantaneous-installation-laugh-with-ifunny-memes-easily/"><u>[Updated] Instantaneous Installation Laugh with iFunny Memes Easily</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/111-must-learn-croatian-language-skills-before-your-next-trip-to-the-coastal-paradise/"><u>111 Must-Learn Croatian Language Skills Before Your Next Trip to the Coastal Paradise</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-exploring-intensified-illumination-for-advanced-hdr-video/"><u>2024 Approved Exploring Intensified Illumination for Advanced HDR Video</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-frosty-filming-experts-ice-cream-screen-capture-method/"><u>2024 Approved Frosty Filming Expert's Ice Cream Screen Capture Method</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/movavivocavi-video-converter-guide/"><u>使用Movavi:如何免費網上變更VOC格式成AVI - VIDEO CONVERTER GUIDE</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprende-a-agradecernos-a-los-animales-60-nombres/"><u>Aprende a Agradecernos a Los Animales: 60 Nombres</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/celebrating-a-full-circle-mondlys-jubilee-year/"><u>Celebrating a Full Circle: Mondly’s Jubilee Year</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/chatgpt-techniques-for-creating-a-poetry-anthology/"><u>ChatGPT Techniques for Creating a Poetry Anthology</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/colombian-charity-danny-empowering-those-in-need/"><u>Colombian Charity Danny: Empowering Those in Need</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-cant-take-screenshot-due-to-security-policy-on-xiaomi-redmi-13c-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Cant Take Screenshot Due to Security Policy on Xiaomi Redmi 13C | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-ideal-watchlist-for-asmr-fans/"><u>In 2024, Ideal Watchlist for ASMR Fans</u></a></li>
+</ul></div>
 

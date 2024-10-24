@@ -1,7 +1,7 @@
 ---
 title: "Grasping the Basics: From German Sounds to Spelling"
-date: 2024-08-23T00:26:32.676Z
-updated: 2024-08-24T00:26:32.676Z
+date: 2024-10-21T18:38:49.793Z
+updated: 2024-10-24T17:05:40.007Z
 tags:
   - speak
   - english
@@ -26,6 +26,13 @@ thumbnail: https://thmb.techidaily.com/13e7f7e7be76604c5dab6c596dcfa1c029fcc1516
 
  Considering you’re already familiar with all the other letters, let’s continue by taking a closer look at these four special letters: ß, ä, ö and ü.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### ß also known as ‘sharp S’, ‘eszett’ or ‘scharfes S’
 
  Although it looks different from everything you’ve ever seen in English, ß shouldn’t intimidate you. Vaguely resembling a capital ‘B’,**the letter ß is pronounced like a sharp S** (like the ‘s’ in ‘see’) – hence its name ‘eszett’ or ‘scharfes S’.
@@ -35,8 +42,12 @@ thumbnail: https://thmb.techidaily.com/13e7f7e7be76604c5dab6c596dcfa1c029fcc1516
  Eszett not having a capitalized version sparked debates for a long time, so the Council for German Orthography [officially adopted](https://www.sueddeutsche.de/bildung/rechtschreibung-das-alphabet-bekommt-einen-neuen-buchstaben-1.3566309) a capital in 2017\. The capital of ß is ẞ.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### German umlauts: ä, ö, ü
 
  While highly representative for the German language, the German umlauts are ‘guilty’ of making the most uncommon sounds to English speakers.
@@ -53,12 +64,6 @@ Now round off your lips and start practicing!
 
 ![german alphabet](https://edge.mondly.com/blog/wp-content/uploads/2022/04/german-alphabet-960x640.jpg "A Beginner’s Guide To The German Pronunciation &Amp; Alphabet 2")
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ## German pronunciation guide for single letters
 
  Now that we’ve settled the matters with ß, ä, ö and ü, it’s time to move on to more familiar letters and see how their pronunciation differs from English.
@@ -74,8 +79,12 @@ Now round off your lips and start practicing!
 5. **E** – If you see an _e_ at the end of a German word, make sure to pronounce it like this: ‘eh’. Come on! Loud and clear: _Katze_ (‘cat’)!
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## German pronunciation guide for letter combinations
 
  Just a few more examples and you’ll soon be ready to speak like a German! Let’s see how you should pronounce certain letter combinations in German:
@@ -94,9 +103,12 @@ Now round off your lips and start practicing!
  Did you recognize_ze rules_ in this example?
 
 <!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to pronounce long German words
 
 _Ja,_ the German language is famous for its very long words, but once again – this shouldn’t intimidate you. Most [German words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) are, in fact, compounds.
@@ -134,8 +146,6 @@ _Tschüss!_
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -143,4 +153,21 @@ _Tschüss!_
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-top-ranked-techniques-for-capturing-online-sport-spectacles/"><u>[New] 2024 Approved Top-Ranked Techniques for Capturing Online Sport Spectacles</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-top-5-budget-friendly-gaming-mice-under-100/"><u>[Updated] Top 5 Budget-Friendly Gaming Mice (Under $100)</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-unmask-phony-followers-a-speedy-cost-free-approach-for-instagram-for-2024/"><u>[Updated] Unmask Phony Followers A Speedy, Cost-Free Approach for Instagram for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/addressing-jvm-not-created-a-windows-solution/"><u>Addressing JVM Not Created: A Windows Solution</u></a></li>
+<li><a href="https://win-able.techidaily.com/how-to-stop-the-king-of-fighters-xv-from-frequent-pc-malfunctions-and-enjoy-uninterrupted-playtime/"><u>How to Stop 'The King of Fighters XV' From Frequent PC Malfunctions and Enjoy Uninterrupted Playtime</u></a></li>
+<li><a href="https://review-topics.techidaily.com/issues-playing-h-265-hevc-video-on-motorola-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Issues playing H.265 HEVC video on Motorola</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-lovemaking-selecting-subtle-pickup-lines/"><u>Linguistic Lovemaking: Selecting Subtle Pickup Lines</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-initiative-groundbreaking-ukraine-language-learning-without-cost/"><u>Mondly's Initiative: Groundbreaking Ukraine Language Learning Without Cost</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/precision-in-speech-french-pronunciation-for-newcomers/"><u>Precision in Speech: French Pronunciation for Newcomers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/solved-overcoming-challenges-when-using-older-usb-composite-device-models/"><u>Solved: Overcoming Challenges When Using Older USB Composite Device Models</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sonic-synchronicity-100-tongue-twister-triumphs/"><u>Sonic Synchronicity: 100 Tongue Twister Triumphs</u></a></li>
+<li><a href="https://win-dash.techidaily.com/startech-drivers-seamless-integration-with-windows-1187-troubleshooting-guide-unveiled/"><u>StarTech Drivers: Seamless Integration with Windows 11/8/7 – Troubleshooting Guide Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-5-solutions-for-resolving-zoom-cant-begin-video-streaming/"><u>Top 5 Solutions for Resolving 'Zoom Can't Begin Video Streaming'</u></a></li>
+<li><a href="https://win-online.techidaily.com/top-gratuites-logiciels-de-clonage-disque-pour-windows-11-et-aines-depasser-macrium-reflect/"><u>Top Gratuites Logiciels De Clonage Disque Pour Windows 11 Et Aînés : Dépasser Macrium Reflect</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Population & Prevalence of French-Speaking Societies
-date: 2024-10-12T18:02:35.736Z
-updated: 2024-10-18T22:18:54.113Z
+date: 2024-10-22T17:44:50.703Z
+updated: 2024-10-24T17:44:25.714Z
 tags:
   - speak
   - english
@@ -32,6 +32,13 @@ thumbnail: https://thmb.techidaily.com/59ebf54bbd2728b1cee67f80e126289c9f6737977
 
  In fact, the French language is so popular that according to current [projections](https://www.forbes.com/sites/pascalemmanuelgobry/2014/03/21/want-to-know-the-language-of-the-future-the-data-suggests-it-could-be-french/?sh=51a894376d58) , there will be over 750 million French speakers around the world by 2050\. So it’s definitely a good idea to [start learning French](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-7067&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-7067?mother%5Flang=en%5Fus?target%5Flang=fr&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-7067?mother%5Flang=en%5Fus?target%5Flang=fr) right now!
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## List of French-speaking countries
 
 **French is the official language of 29 countries:** **Belgium, Benin, Burkina Faso, Burundi, Cameroon,** **Central African Republic,**   **Canada, Chad, the Ivory Coast, Comoros, Congo, the Democratic Republic of the Congo (DRC), Djibouti, Equatorial Guinea, France, Gabon, Guinea, Haiti, Luxembourg, Madagascar, Mali, Monaco, Niger, Rwanda,[Senegal](https://www.familiesgotravel.com/2016/03/africa-kids-what-to-do-in-senegal/) , Seychelles, Switzerland, Togo and Vanuatu.**
@@ -43,13 +50,6 @@ thumbnail: https://thmb.techidaily.com/59ebf54bbd2728b1cee67f80e126289c9f6737977
  Now let’s go into a little more detail and split the countries into continents.
 
 ![how many people speak french](https://edge.mondly.com/blog/wp-content/uploads/2022/10/how-many-people-speak-french-960x600.jpg "Top French-Speaking Countries | How Many People Speak French? 4")
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### French-speaking countries in Europe
 
@@ -63,13 +63,6 @@ thumbnail: https://thmb.techidaily.com/59ebf54bbd2728b1cee67f80e126289c9f6737977
 * Monaco — 97%
 * Switzerland — 67%
 * Italy — 20% (French is the official language of the autonomous region of the Aosta Valley)
-
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
-  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### French-speaking countries in Africa
 
@@ -111,19 +104,6 @@ Needless to say, the only French-speaking country in North America is:
 
 * Canada — 29% (percentage of the entire population speaking French).
 
-<!-- affiliate ads begin -->
-<span id="1983551">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### French-speaking countries in the Caribbean
 
 We told you that French speakers could be found everywhere in the world!
@@ -135,10 +115,10 @@ We told you that French speakers could be found everywhere in the world!
 !['French speakers' by Claudia Altamimi©](https://edge.mondly.com/blog/wp-content/uploads/2022/10/french-speakers-960x720.jpg "Top French-Speaking Countries | How Many People Speak French? 5")
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### French-speaking countries in Oceania
@@ -151,6 +131,13 @@ We told you that French speakers could be found everywhere in the world!
 
  Later, in the 1880s, France and the United Kingdom claimed parts of the archipelago and they agreed to manage it jointly. However, an independence movement arose in the 1970s, and the Republic of Vanuatu was founded in 1980\. And that’s the story of how the French language made it all the way to Australia.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Countries where French is spoken although it’s not an official language
 
  Despite not being their official language, French is spoken in other countries as well. Just like previously mentioned, the French language enjoys growing notoriety all over the world.
@@ -158,6 +145,13 @@ We told you that French speakers could be found everywhere in the world!
  Some of the largest minorities of French speakers can be found in Lebanon (38%), Algeria (33%), Tunisia (53%), Morocco (36%), Italy (20%) and Mauritius (73%). The same as before, the number represents the percentage of the entire population speaking French.
 
  Now we finally have the full picture and we can understand why French is spoken on five continents.
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## A short history of the French language
 
@@ -207,19 +201,19 @@ We told you that French speakers could be found everywhere in the world!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-rectify-blank-page-views-on-social-media/"><u>[Updated] In 2024, Rectify Blank Page Views on Social Media</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-social-gaming-galore-the-ultimate-metaverse-list/"><u>2024 Approved Social Gaming Galore The Ultimate Metaverse List</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/3-best-tools-to-hard-reset-infinix-note-30-drfone-by-drfone-reset-android-reset-android/"><u>3 Best Tools to Hard Reset Infinix Note 30 | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bridging-knowledge-gaps-with-ai-assistance/"><u>Bridging Knowledge Gaps With AI Assistance</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/diagnosing-and-repairing-usb-port-malfunctions-on-windows-10-and-windows-11-systems/"><u>Diagnosing and Repairing USB Port Malfunctions on Windows 10 & Windows 11 Systems</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discover-the-countries-that-santa-can-speak-too/"><u>Discover the Countries That Santa Can Speak Too</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/earths-dominant-tongues-leading-fifteen-list/"><u>Earth's Dominant Tongues: Leading Fifteen List</u></a></li>
-<li><a href="https://techtrends.techidaily.com/experience-horror-chronologically-watching-the-conjuring-franchise-correctly/"><u>Experience Horror Chronologically: Watching 'The Conjuring' Franchise Correctly</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/from-catalina-to-big-sur-a-comprehensive-mac-os-shift-guide/"><u>From Catalina to Big Sur A Comprehensive Mac OS Shift Guide</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-nokia-c12-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Nokia C12 Pro | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/local-lingo-made-simple-speak-like-an-aussie/"><u>Local Lingo Made Simple: Speak Like an Aussie</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/serene-soundtracks-copyright-free-legal-meditation-music-for-2024/"><u>Serene Soundtracks – Copyright-Free, Legal Meditation Music for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/solace-for-strugglers-dannys-foundation-in-colombia/"><u>Solace for Strugglers: Danny's Foundation in Colombia</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/us-birthday-a-universal-happiness/"><u>U.S. Birthday: A Universal Happiness</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-perfecting-your-tiktok-content-utilizing-templates-to-enhance-videos/"><u>[New] 2024 Approved Perfecting Your TikTok Content Utilizing Templates to Enhance Videos</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-recording-revolution-tactics-for-extracting-live-data/"><u>[Updated] In 2024, Recording Revolution Tactics for Extracting LIVE Data</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unleash-creativity-unlimited-samples-of-50-youtube-banners-for-free-in-2024/"><u>[Updated] Unleash Creativity Unlimited Samples of 50 YouTube Banners for Free, In 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/best-3-software-to-transfer-files-tofrom-your-xiaomi-redmi-note-12-pro-5g-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Best 3 Software to Transfer Files to/from Your Xiaomi Redmi Note 12 Pro 5G via a USB Cable | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/best-scribblers-ios-and-androids-leading-image-editors/"><u>Best Scribblers IOS & Android's Leading Image Editors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/globe-trotting-grammar-master-languages-with-vr/"><u>Globe-Trotting Grammar: Master Languages with VR</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hello-in-german-10plus-german-greetings-beyond-hallo/"><u>Hello in German: 10+ German Greetings Beyond Hallo</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-oppo-a18-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Oppo A18 online without jailbreak</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/innovative-pedagogy-discussion-with-global-peers/"><u>Innovative Pedagogy Discussion with Global Peers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/la-semaine-dun-novice-guide-des-dix-jours/"><u>La Semaine D'un Novice: Guide Des Dix Jours</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-through-english-contractions-made-simple/"><u>Navigating Through English Contractions Made Simple</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-edit-your-way-to-viral-top-10-vlog-editing-apps-for-mobile/"><u>New 2024 Approved Edit Your Way to Viral Top 10 Vlog Editing Apps for Mobile</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/the-ultimate-cheat-sheet-inserting-vimeo-videos-into-slides/"><u>The Ultimate Cheat Sheet Inserting Vimeo Videos Into Slides</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-ways-to-express-cupids-affection-this-day/"><u>Worldwide Ways to Express Cupid's Affection This Day</u></a></li>
 </ul></div>
 

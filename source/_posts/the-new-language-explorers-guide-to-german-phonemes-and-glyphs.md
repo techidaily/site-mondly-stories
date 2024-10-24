@@ -1,7 +1,7 @@
 ---
 title: The New Language Explorer's Guide to German Phonemes & Glyphs
-date: 2024-08-23T00:27:49.197Z
-updated: 2024-08-24T00:27:49.197Z
+date: 2024-10-21T17:05:33.918Z
+updated: 2024-10-24T16:41:43.843Z
 tags:
   - speak
   - english
@@ -26,6 +26,13 @@ thumbnail: https://thmb.techidaily.com/d7fc33001fbc9f5f434107b4cf49e4fbc2a35ddb5
 
  Considering you’re already familiar with all the other letters, let’s continue by taking a closer look at these four special letters: ß, ä, ö and ü.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### ß also known as ‘sharp S’, ‘eszett’ or ‘scharfes S’
 
  Although it looks different from everything you’ve ever seen in English, ß shouldn’t intimidate you. Vaguely resembling a capital ‘B’,**the letter ß is pronounced like a sharp S** (like the ‘s’ in ‘see’) – hence its name ‘eszett’ or ‘scharfes S’.
@@ -35,8 +42,12 @@ thumbnail: https://thmb.techidaily.com/d7fc33001fbc9f5f434107b4cf49e4fbc2a35ddb5
  Eszett not having a capitalized version sparked debates for a long time, so the Council for German Orthography [officially adopted](https://www.sueddeutsche.de/bildung/rechtschreibung-das-alphabet-bekommt-einen-neuen-buchstaben-1.3566309) a capital in 2017\. The capital of ß is ẞ.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### German umlauts: ä, ö, ü
 
  While highly representative for the German language, the German umlauts are ‘guilty’ of making the most uncommon sounds to English speakers.
@@ -54,11 +65,19 @@ Now round off your lips and start practicing!
 ![german alphabet](https://edge.mondly.com/blog/wp-content/uploads/2022/04/german-alphabet-960x640.jpg "A Beginner’s Guide To The German Pronunciation &Amp; Alphabet 2")
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
+  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## German pronunciation guide for single letters
 
  Now that we’ve settled the matters with ß, ä, ö and ü, it’s time to move on to more familiar letters and see how their pronunciation differs from English.
@@ -73,9 +92,6 @@ Now round off your lips and start practicing!
 4. **J** – _Oh ja,_ you already know this one! The German _j_ is pronounced like the English ‘y’.
 5. **E** – If you see an _e_ at the end of a German word, make sure to pronounce it like this: ‘eh’. Come on! Loud and clear: _Katze_ (‘cat’)!
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## German pronunciation guide for letter combinations
 
  Just a few more examples and you’ll soon be ready to speak like a German! Let’s see how you should pronounce certain letter combinations in German:
@@ -93,9 +109,6 @@ Now round off your lips and start practicing!
 
  Did you recognize_ze rules_ in this example?
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to pronounce long German words
 
 _Ja,_ the German language is famous for its very long words, but once again – this shouldn’t intimidate you. Most [German words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) are, in fact, compounds.
@@ -133,8 +146,6 @@ _Tschüss!_
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -142,4 +153,18 @@ _Tschüss!_
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-hidden-gems-in-the-world-of-snapchat-ringtones-online/"><u>[New] Hidden Gems in the World of Snapchat Ringtones Online</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-illuminated-insights-best-practices-for-nighttime-portraiture-for-2024/"><u>[Updated] Illuminated Insights Best Practices for Nighttime Portraiture for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/building-blocks-of-boosted-bots-elevating-bot-based-promotion-for-2024/"><u>Building Blocks of Boosted Bots Elevating Bot-Based Promotion for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhanced-user-experience-with-policy-update/"><u>Enhanced User Experience with Policy Update</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/entertain-etruscans-learn-italys-slang-lexicon-quickly/"><u>Entertain Etruscans: Learn Italy's Slang Lexicon Quickly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/epic-tales-of-making-latin-engaging-for-youths/"><u>Epic Tales of Making Latin Engaging for Youths</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-guide-to-french-phonetics-for-beginners/"><u>Essential Guide to French Phonetics for Beginners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-connoisseur-unveil-7-secrets-of-afrikaans-via-mondly/"><u>From Novice to Connoisseur: Unveil 7 Secrets of Afrikaans via Mondly</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/izing-income-average-adsense-payouts-per-thousand-viewers/"><u>Maximizing Income Average AdSense Payouts Per Thousand Viewers</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/steps-to-updating-the-drivers-of-your-intel-centrino-ae-8905/"><u>Steps to Updating the Drivers of Your Intel Centrino AE-8905</u></a></li>
+<li><a href="https://win-deluxe.techidaily.com/top-ranking-digital-photo-background-eraser-tools/"><u>Top-Ranking Digital Photo Background Eraser Tools</u></a></li>
+</ul></div>
 

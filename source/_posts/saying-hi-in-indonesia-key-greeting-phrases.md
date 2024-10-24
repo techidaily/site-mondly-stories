@@ -1,7 +1,7 @@
 ---
 title: "Saying Hi in Indonesia: Key Greeting Phrases"
-date: 2024-10-13T20:58:41.808Z
-updated: 2024-10-18T16:34:03.559Z
+date: 2024-10-20T16:17:37.674Z
+updated: 2024-10-24T16:58:12.940Z
 tags:
   - speak
   - english
@@ -32,6 +32,13 @@ thumbnail: https://thmb.techidaily.com/5f29ab47c82493b144af09fd3ee1e6f095ceaed40
 
  Last but not least, if someone greets you using the_wai_ gesture (slight bow with the palms put together in front of the chest), you can show respect towards their culture by returning the same gesture.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to say ‘hello’ in Indonesian
 
  **If you want to say ‘hello’ in Indonesian, you can simply say_halo_ .** It’s short, sweet and almost identical to the English ‘hello’ you already know and use. Besides, it’s friendly and works great in most social situations.
@@ -41,10 +48,10 @@ thumbnail: https://thmb.techidaily.com/5f29ab47c82493b144af09fd3ee1e6f095ceaed40
  On the other hand, if someone asks you how you are doing, you can say_kabar baik,_ which means “I am fine” or “I am well”. Here’s what a basic conversation in Indonesian sounds like:
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ‘Hi’ in Indonesian
@@ -66,10 +73,10 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 ![indonesian words](https://edge.mondly.com/blog/wp-content/uploads/2022/07/indonesian-words.png "Hello In Indonesian: A Quick Guide To Indonesian Greetings 2")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The same way we say “morning!’ in English, Indonesians sometimes drop the_selamat_ . This results in a very informal greeting that can be used with friends and family.
@@ -79,16 +86,10 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
  Naturally,_selamat tidur_ is only used when someone is retiring for the night.
 
 <!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to say goodbye
@@ -101,13 +102,6 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Start learning Indonesian today
 
@@ -140,17 +134,22 @@ Get Mondly today and learn Indonesian naturally with the following:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-maximize-collaboration-via-zooms-share-feature/"><u>[New] 2024 Approved Maximize Collaboration via Zoom's Share Feature</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-complete-guide-for-seamlessly-linking-content-into-your-tiktok-profile/"><u>2024 Approved Complete Guide for Seamlessly Linking Content Into Your TikTok Profile</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/accelerated-ukranian-learning-in-brief-sessions-104-chars/"><u>Accelerated Ukranian Learning in Brief Sessions (104 Chars)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/apples-global-ed-tech-showcase-hails-mondly-at-10-spotlight/"><u>Apple's Global Ed-Tech Showcase Hails Mondly at #10 Spotlight</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/complete-step-by-step-tutorial-on-handbrakes-av1-encoding/"><u>Complete Step-by-Step Tutorial on HandBrake's AV1 Encoding</u></a></li>
-<li><a href="https://fox-that.techidaily.com/detailed-evaluation-of-the-gaomon-pd1560-stylus-tablet/"><u>Detailed Evaluation of the Gaomon PD1560 Stylus Tablet</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discover-the-soul-of-indonesia-through-its-salutations/"><u>Discover the Soul of Indonesia Through Its Salutations</u></a></li>
-<li><a href="https://win-answers.techidaily.com/eradicate-halo-infinite-freeze-ups-and-play-smoothly-with-these-essential-pc-tweaks-7-proven-methods/"><u>Eradicate Halo Infinite Freeze-Ups and Play Smoothly with These Essential PC Tweaks (7 Proven Methods)</u></a></li>
-<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-realme-v30t-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Realme V30T | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/google-validates-mondly-your-assured-path-to-multilingual-excellence/"><u>Google Validates: Mondly, Your Assured Path to Multilingual Excellence</u></a></li>
-<li><a href="https://discover-alternatives.techidaily.com/optimized-with-the-help-of-cookiebot-enhancing-user-experience-and-conversion-rates/"><u>Optimized with the Help of Cookiebot: Enhancing User Experience and Conversion Rates</u></a></li>
-<li><a href="https://facebook.techidaily.com/tech-tolls-facebook-and-cos-6-hour-disruption/"><u>Tech Tolls: Facebook and Co.'s 6-Hour Disruption</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-fiscal-summary-producing-a-music-video/"><u>[New] Fiscal Summary Producing a Music Video</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-achieving-youtube-apex-with-smart-management-tools/"><u>[New] In 2024, Achieving YouTube Apex with Smart Management Tools</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-exploring-options-a-treasure-hunt-for-your-tiktok-symbol/"><u>[Updated] 2024 Approved Exploring Options A Treasure Hunt for Your TikTok Symbol</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-master-quick-red-eye-correction-with-this-free-ios-tool/"><u>[Updated] In 2024, Master Quick Red-Eye Correction with This Free iOS Tool</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-gamescene-capturers-compendium/"><u>2024 Approved GameScene Capturer's Compendium</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/google-advocates-mondly-your-comprehensive-learning-companion/"><u>Google Advocates: Mondly - Your Comprehensive Learning Companion</u></a></li>
+<li><a href="https://change-location.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-vivo-y100a-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Vivo Y100A | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/holidays-of-thankfulness-in-different-nations/"><u>Holidays of Thankfulness in Different Nations</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-oppo-find-x7-ultra-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Oppo Find X7 Ultra Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jumpstart-your-latvian-commit-to-10-daily-minutes/"><u>Jumpstart Your Latvian - Commit to 10 Daily Minutes</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/mastering-podcast-titling-a-comprehensive-approach/"><u>Mastering Podcast Titling A Comprehensive Approach</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-polish-learning-techniques/"><u>Quick Polish Learning Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-big-three-of-asian-languages-quick-save-function/"><u>The Big Three of Asian Languages: Quick Save Function</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essential-guide-to-mastering-conversational-skills/"><u>The Essential Guide to Mastering Conversational Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-6-benefits-embracing-arabic-learning-via-mondly-online/"><u>Top 6 Benefits: Embracing Arabic Learning via Mondly Online</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/web-funnies-forge-for-2024/"><u>Web Funnies Forge for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/whimsical-whispers-seducing-with-spoken-spanish/"><u>Whimsical Whispers: Seducing With Spoken Spanish</u></a></li>
 </ul></div>
 

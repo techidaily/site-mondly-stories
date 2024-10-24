@@ -1,7 +1,7 @@
 ---
 title: Simple Steps to Chatting with a Chinese Friend
-date: 2024-08-23T00:32:52.633Z
-updated: 2024-08-24T00:32:52.633Z
+date: 2024-10-22T17:07:26.586Z
+updated: 2024-10-24T16:43:13.707Z
 tags:
   - speak
   - english
@@ -44,16 +44,23 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
  This expression is generally used as a response to a greeting, but it can also work as a “how are you?”.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## 3\. 你怎么样? (nǐ zěnmeyàng) – “What’s up?” in Chinese
 
  As you can probably already tell, this is an informal greeting you can use with your friends.
 
 <!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 4\. 你吃了吗？(nǐ chī le ma) – “Have you eaten?”
 
  Are you confused? Amused? Or maybe a little bit of both? I was, too, when I first heard this greeting. When someone says 你吃了吗？(nǐ chī le ma) to you, they don’t actually want to know if you have eaten. In Chinese culture, this greeting is used as a way of showing someone you care about their well-being.
@@ -66,9 +73,6 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
  If you want something even MORE‌ formal than that, go with 久闻大名 (jiǔwéndàmíng) literally meaning “your name is famous” – a phrase which could translate to something like “I have heard much about you”. But only use this on very special occasions like meeting the president or a person you hold in very high regard.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 6\. 最近好吗？(zuì jìn hào mǎ) – “How are you these days?”
 
  Isn’t this beautiful? It’s very similar to the English “how are you?”, so you can use it accordingly.
@@ -76,13 +80,14 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 ![hi in chinese](https://edge.mondly.com/blog/wp-content/uploads/2019/12/hi-in-chinese-1024x682.jpg "How To Say Hello In Chinese: A Quick Guide To Chinese Greetings 3")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  “Hello there!” by Theodor Lundqvist©
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 7\. 大家好 (dàjiā hǎo) – say “hello” to a crowd in Chinese
 
  As mentioned earlier, 你好 nǐ hǎo is used to greet only one person at a time. So, if you need to say “hello” to a group of people in Mandarin Chinese, simply go with 大家好 (dàjiā hǎo).
@@ -92,11 +97,22 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
  Want to diversify the way you greet people in Chinese? Then you can go with 下午好 (xiàwǔ hǎo) when it’s the right time of the day.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 9\. 晚上好 (wǎnshàng hǎo) – “Good evening” in Chinese
 
  Staying up late to meet with your friends? Then this your chance to show them how well you’ve mastered the Mandarin greetings!
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
+  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 10\. 喂 (wèi) – answer your phone like a fluent speaker
 
@@ -125,8 +141,6 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -134,4 +148,26 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/updated-10-igtv-talents-ready-to-take-off-for-2024/"><u>[Updated] 10 IGTV Talents Ready to Take Off for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-the-ultimate-guide-to-alternatives-to-streamlabs-obs/"><u>[Updated] 2024 Approved The Ultimate Guide to Alternatives to StreamLabs OBS</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprendizaje-de-tiempo-en-espanol-fundamentos/"><u>Aprendizaje De Tiempo en Español: Fundamentos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bestappcom-names-mondly-the-best-language-learning-app-of-2022/"><u>BestApp.com Names Mondly The Best Language Learning App Of 2022</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/britlish-english-mastering-the-local-language/"><u>Britlish English: Mastering the Local Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/captivating-couture-bilingual-banter/"><u>Captivating Couture: Bilingual Banter</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/charting-the-course-to-youtube-fame-strategic-video-release-frequency-for-2024/"><u>Charting the Course to YouTube Fame Strategic Video Release Frequency for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-romanian-through-our-app/"><u>Discover Romanian Through Our App</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/discover-the-leading-apple-laptops-and-desktops-of-2024-according-to-zdnets-rankings/"><u>Discover the Leading Apple Laptops and Desktops of 2024, According to ZDNet's Rankings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-language-pathways-french-edition/"><u>Discovering Language Pathways - French Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-down-under-slang-a-comprehensible-guide/"><u>Dive Into Down Under Slang: A Comprehensible Guide</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-turn-off-find-my-apple-iphone-6-plus-when-phone-is-broken-by-drfone-ios/"><u>How to Turn Off Find My Apple iPhone 6 Plus when Phone is Broken?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-tecno-camon-30-pro-5g-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Tecno Camon 30 Pro 5G to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-the-basics-of-print-settings-in-adobe-photoshop/"><u>Mastering the Basics of Print Settings in Adobe Photoshop</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/protecting-your-iphone-from-the-latest-mercenary-backed-spyware-attacks-insights-and-advice-from-apple/"><u>Protecting Your iPhone From the Latest Mercenary-Backed Spyware Attacks: Insights and Advice From Apple</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/proven-recorders-ioss-leading-screenshot-tools/"><u>Proven Recorders IOS's Leading Screenshot Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576354474-shortcuts-to-fluent-urdu/"><u>Shortcuts to Fluent Urdu</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581019140-the-body-parts-in-spanish-from-head-to-toe/"><u>The Body Parts In Spanish – From Head To Toe</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unpacking-the-features-a-comprehensive-review-of-logitechs-c920-hd-webcam/"><u>Unpacking the Features: A Comprehensive Review of Logitech's C920 HD Webcam</u></a></li>
+</ul></div>
 

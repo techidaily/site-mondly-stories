@@ -1,7 +1,7 @@
 ---
 title: Saudações Básicas Em Português Para Ficar De Olho
-date: 2024-10-16T23:22:25.224Z
-updated: 2024-10-18T17:38:03.913Z
+date: 2024-10-17T18:12:37.134Z
+updated: 2024-10-24T18:39:45.170Z
 tags:
   - speak
   - english
@@ -24,13 +24,6 @@ thumbnail: https://thmb.techidaily.com/9e8b456962dede45b52947713c8978e1ca5454c2b
 
  “Hello” is a [powerful word](https://www.merriam-webster.com/words-at-play/the-origin-of-hello) . It opens doors. It makes people smile. And said the right way and at the right time, “hello” can impact someone’s day and you wouldn’t even know it. So here are the right ways to say “hello” in Portuguese and open doors everywhere you go.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### “Hello” in Portuguese – Olá
 
 _Olá_ is the best choice for most social situations regardless of the person you are addressing. It’s somehow formal, but also friendly.
@@ -44,6 +37,13 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ![hi in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-portuguese-1024x658.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 2")
 
  “Lisbon, Portugal” by Diego García©
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### “How are you” in Portuguese – Tudo bem?
 
@@ -61,10 +61,10 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 * **_Como foi o seu dia?_ – How’s your day?** – Used the same as in English.
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. “Bom dia!” and other Portuguese greetings for certain moments of the day
@@ -81,13 +81,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
  All three of these are safe to use in any kind of interaction (formal or informal).
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3.“Goodbye” in Portuguese – Adeus
 
  The most common way to say “Goodbye” in Portuguese is_Adeus_ , but you can also use_Tchau_ which simply translates to “bye”.
@@ -102,14 +95,14 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ![portuguese greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/08/portuguese-greetings-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 4")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “Ruínas da Fortaleza de Arrifana, Aljezur, Portugal” by Ferhat Deniz Fors©
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Bonus: other basic Portuguese phrases that you should know
 
@@ -142,6 +135,13 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Here’s how to speak Portuguese in 10 minutes a day
 
  Do you want to practice what you’ve learned and maybe learn some more Portuguese? **Check Mondly, the revolutionary language learning platform that makes language learning fun, fast and easy!**
@@ -173,14 +173,16 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-digital-dynamo-unleashing-videoviral-impact/"><u>[New] In 2024, Digital Dynamo Unleashing #VideoViral Impact</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-srt-to-sub-guide-practical-conversion-methods/"><u>[Updated] In 2024, SRT to SUB Guide Practical Conversion Methods</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/a-closer-look-at-facebooks-video-transformation-for-2024/"><u>A Closer Look at Facebook’s Video Transformation for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ancient-lexicons-ranking-the-worlds-time-tested-tongues/"><u>Ancient Lexicons: Ranking the World’s Time-Tested Tongues</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/blast-from-the-past-expert-insights-into-playing-super-mario-bros-on-the-timeless-nintendo-game-and-watch/"><u>Blast From the Past: Expert Insights Into Playing Super Mario Bros. On the Timeless Nintendo Game & Watch</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/browse-and-learn-any-language-all-year-round/"><u>Browse & Learn Any Language, All-Year Round</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/proven-tips-and-tricks-to-nail-every-green-screen-scene/"><u>Proven Tips and Tricks to Nail Every Green Screen Scene</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-global-lexicon-of-inspiring-teaching-voices/"><u>The Global Lexicon of Inspiring Teaching Voices</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-turkish-script-decoded-simplified-alphabet-and-sound-guide/"><u>The Turkish Script Decoded: Simplified Alphabet & Sound Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-best-quick-windows-gallery-app/"><u>[New] In 2024, Best Quick Windows Gallery App</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-the-platform-face-off-going-live-with-obstwitch-for-2024/"><u>[New] The Platform Face-Off Going Live with OBS/Twitch for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ee-youtube-playlist-downloadersonlinepcandroidios/"><u>11 FREE YouTube Playlist Downloaders[Online/PC/Android/iOS)</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/ace-the-classics-with-clear-cut-winning-strategies-for-high-definition-hd/"><u>Ace the Classics with Clear-Cut Winning Strategies for High-Definition HD</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/creer-des-fichiers-ogg-a-partir-de-mp2-directement-sur-votre-ordinateur-une-solution-gratuite-tutorials-movavi/"><u>Créer Des Fichiers OGG À Partir De MP2 Directement Sur Votre Ordinateur : Une Solution Gratuite - Tutorials Movavi</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-participation-in-thanksgiving-celebrations/"><u>International Participation in Thanksgiving Celebrations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/languageluminaries-unveiling-at-dubai-expo-2020/"><u>LanguageLuminaries: Unveiling at Dubai Expo 2020</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-leading-the-charge-in-language-apps/"><u>Mondly: Leading the Charge in Language Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-learning-path-to-fluent-urdu-speaker/"><u>Quick Learning Path to Fluent Urdu Speaker</u></a></li>
+<li><a href="https://win-tricks.techidaily.com/start-methoden-von-windows/"><u>Start-Methoden Von Windows 지정 통신이 없는 사용자 요소로 부트팀하기</u></a></li>
+<li><a href="https://win-workspace.techidaily.com/zdnet-analysis-assessing-the-value-of-chatgpt-vs-chatgpt-plus-subscriptions/"><u>ZDNet Analysis: Assessing the Value of ChatGPT Vs. ChatGPT Plus Subscriptions</u></a></li>
 </ul></div>
 

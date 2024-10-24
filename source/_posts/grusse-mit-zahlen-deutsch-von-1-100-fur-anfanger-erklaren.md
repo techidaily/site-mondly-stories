@@ -1,7 +1,7 @@
 ---
 title: "Grüße Mit Zahlen: Deutsch Von 1-100 Für Anfänger Erklären"
-date: 2024-08-23T00:30:49.756Z
-updated: 2024-08-24T00:30:49.756Z
+date: 2024-10-17T16:59:28.316Z
+updated: 2024-10-24T18:37:19.703Z
 tags:
   - speak
   - english
@@ -58,8 +58,12 @@ thumbnail: https://thmb.techidaily.com/98776572354897cc2b9eb92b9469126b6b1576e9e
 * **twenty —_zwanzig_**
 
 <!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## German multiples of 10
 
  The next step in learning how to count in German is mastering the tens or the multiples of 10\. Once you know these, you be able to apply the pattern and easily count to 100 on your own. It’s as easy as_eins, zwei, drei!_
@@ -82,11 +86,19 @@ Here are the multiples of 10 in German:
 ![count in german](https://edge.mondly.com/blog/wp-content/uploads/2022/08/count-in-german.png "German Numbers: Learn How To Count From 1 To 100 In German 2")
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to count from 1 to 100 in German
 
  Now that you have all the data (the numbers from 1 to 20 and multiples of 10), it’s time to explain how all the other numbers are formed. If you already know how to count in other languages, German numbers will be a piece of cake for you!
@@ -116,8 +128,12 @@ Now let’s look at some examples to make sure you got it:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### From 0 to 100 and beyond in German
 
  Do you want to go beyond numbers and [speak German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) fluently? Try Mondly, the award-winning language app that is serious about making learning German fun.
@@ -140,8 +156,6 @@ Now let’s look at some examples to make sure you got it:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -149,4 +163,24 @@ Now let’s look at some examples to make sure you got it:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-approaches.techidaily.com/updated-seamless-rotation-a-cameras-360-journey/"><u>[Updated] Seamless Rotation A Camera's 360 Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/articulate-ambition-engage-in-tongue-twister-quests/"><u>Articulate Ambition: Engage in Tongue Twister Quests</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daily-bulbarian-duo-study-and-play/"><u>Daily Bulbarian Duo: Study & Play</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effortless-bengali-learning-in-daily-sessions/"><u>Effortless Bengali Learning in Daily Sessions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-multilingualism-build-connections-in-virtual-reality/"><u>Embrace Multilingualism, Build Connections in Virtual Reality</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-tips-on-how-to-upgrade-your-intel-imac-system/"><u>Expert Tips on How to Upgrade Your Intel iMac System</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/free-online-converter-change-your-mov-files-into-high-quality-flac-format-with-ease/"><u>Free Online Converter: Change Your MOV Files Into High-Quality FLAC Format with Ease</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/hp-sound-card-compatibility-fixes-with-windows-1187-now-solved/"><u>HP Sound Card Compatibility Fixes with Windows 11/8/7 – Now Solved</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580961354-learn-anywhere-speak-everywhere-enjoy-a-major-discount-on-language-lessons/"><u>Learn Anywhere, Speak Everywhere – Enjoy a Major Discount on Language Lessons</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/mastering-chatgpt-a-step-by-step-guide-for-android-and-ios-users/"><u>Mastering ChatGPT: A Step-by-Step Guide for Android & iOS Users</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/merge-your-mkv-files-seamlessly-adding-both-audio-and-subtitle-support/"><u>Merge Your MKV Files Seamlessly: Adding Both Audio & Subtitle Support</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579778647-pace-yourself-learn-japans-counting-quickly/"><u>Pace Yourself, Learn Japan's Counting Quickly!</u></a></li>
+<li><a href="https://change-location.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-vivo-v29-pro-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Vivo V29 Pro? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577615074-save-big-on-mondlys-ultimate-offering/"><u>Save Big on Mondly's Ultimate Offering</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581481191-this-is-the-easiest-way-to-learn-latin-online/"><u>This Is the Easiest Way to Learn Latin Online</u></a></li>
+<li><a href="https://change-location.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-vivo-v27-pro-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Vivo V27 Pro | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/1726029763788-mp4/"><u>どんな形式の動画も劣化無しでMP4に変換する方法</u></a></li>
+</ul></div>
 

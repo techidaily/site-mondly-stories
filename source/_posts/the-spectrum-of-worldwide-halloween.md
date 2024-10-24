@@ -1,7 +1,7 @@
 ---
 title: The Spectrum of Worldwide Halloween
-date: 2024-08-23T00:29:42.233Z
-updated: 2024-08-24T00:29:42.233Z
+date: 2024-10-23T18:01:40.381Z
+updated: 2024-10-24T17:04:21.645Z
 tags:
   - speak
   - english
@@ -18,8 +18,6 @@ thumbnail: https://thmb.techidaily.com/c77f42fc64b6007637ed0af75d65eab3269f8768c
 
  The leaves have all turned yellow, red and brown. Everywhere in the neighborhood smells like pumpkin pie, roasted chestnuts and mulled wine. Everyone is wearing warmer clothes and brighter smiles. Kids are carrying their heavy schoolbags back home to a delicious lunch and scary jack-o’-lanterns have begun popping up here and there. It’s glaringly obvious:**Halloween is almost here!** Soon enough houses will be covered in black and orange decorations and children will shout excitedly:**“Trick or treat?! Give me something good to eat!”.**
 
-
-
 ## The Origins of Halloween
 
  Celebrated yearly on October 31, Halloween, Hallowe’en or All Hallows’ Eve is a world-old holiday whose origins date back to the ancient Celtic festival of Samhain that took place on the lands that are now Ireland, the United Kingdom, and northern France. For hundreds – or even thousands – of years, people have celebrated this holiday, but it was never as loved and as notorious as it is today.
@@ -29,8 +27,12 @@ thumbnail: https://thmb.techidaily.com/c77f42fc64b6007637ed0af75d65eab3269f8768c
 ## Halloween-like Traditions Worldwide
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Mexico: Día de Muertos (Day of the Dead)
 
  Inscribed in the UNESCO Representative List of the Intangible Cultural Heritage of Humanity,_Día de los Muertos_ is celebrated yearly on October 31, November 1, and November 2 to coincide with the celebration the Allhallowtide: All Saints’ Eve, All Saints’ Day, and All Souls’ Day.
@@ -40,15 +42,16 @@ thumbnail: https://thmb.techidaily.com/c77f42fc64b6007637ed0af75d65eab3269f8768c
 ![Colorful ofrendas and calaveras during Día de Muertos in Mexico](https://edge.mondly.com/blog/wp-content/uploads/2019/09/dia-de-muertos-960x639.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 6")
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  “Calaveras” by Valeria Almaraz©
 
  As you probably already know, the main symbols of [_Día de Muertos_](https://ich.unesco.org/en/RL/indigenous-festivity-dedicated-to-the-dead-00054) are [_ofrendas_](https://en.wikipedia.org/wiki/Ofrenda) (altars),[_calaveras_](https://en.wikipedia.org/wiki/Calavera) (representations of a human skull often applied to edible or decorative skulls) and people wearing the colorful_calaveras_ makeup known all over the world. During the Day of the Dead, families will visit the graves of their loved ones and bring gifts and the favorite foods and beverages of the departed.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ### China: The Hungry Ghost Festival
 
  The Ghost Festival, also known as the Hungry Ghost Festival, Zhongyuan Jie (中元節), or Gui Jie (鬼節) is a traditional Buddhist and Taoist celebration during which the deceased are believed to visit the living.
@@ -67,9 +70,6 @@ thumbnail: https://thmb.techidaily.com/c77f42fc64b6007637ed0af75d65eab3269f8768c
 
  Fourteen days after the festival, to make sure spirits will find their way back to hell, people set lotus flower-shaped lanterns on paper boats outside their homes. When these lanterns go out, it means the ghosts have found their way back.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Italy: Tutti i Morti / Giorno dei Morti (All Souls’ Day)
 
  Moving to Europe, we discover that although American Halloween is even more notorious here than in other parts of the world, people still have their own traditional ways of celebrating the afterlife. For example, Italy has_Tutti i Morti,_ a public day celebrated on the 1st and 2nd of November by remembering and praying for the deceased.
@@ -78,12 +78,16 @@ thumbnail: https://thmb.techidaily.com/c77f42fc64b6007637ed0af75d65eab3269f8768c
 
 ![halloween in different countries](https://edge.mondly.com/blog/wp-content/uploads/2019/09/neonbrand-A59lWOrZVnw-unsplash-1024x682.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 8")
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
  “Halloween party” by NeONBRAND©
 
  Contrary to what you may believe, pumpkins and asking for candy and gifts are traditions of the past that were popular in many Italian regions before the American Halloween became so notorious.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Romania: Saint Andrew’s Day
 
@@ -92,8 +96,12 @@ thumbnail: https://thmb.techidaily.com/c77f42fc64b6007637ed0af75d65eab3269f8768c
 ![dracula's castle](https://edge.mondly.com/blog/wp-content/uploads/2019/09/draculas-castle-1024x682.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 9")
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  “Dracula’s Castle in Romania” by Nomadic Julien©
 
  It is said that on St. Andrew’s Eve, ghosts roam freely between the living and people must protect their homes using garlic, a symbol that is now also related to scaring off vampires. Thus, to this day, especially old people from the countryside, rub the doors and the windows with garlic to keep the bad spirits away.
@@ -127,8 +135,6 @@ thumbnail: https://thmb.techidaily.com/c77f42fc64b6007637ed0af75d65eab3269f8768c
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -136,4 +142,16 @@ thumbnail: https://thmb.techidaily.com/c77f42fc64b6007637ed0af75d65eab3269f8768c
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-adepts-compendium-of-fullscreen-insights-in-premiere-pro/"><u>[New] In 2024, Adept's Compendium of Fullscreen Insights in Premiere Pro</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-melodies-for-millions-insta-music-secrets/"><u>[New] Melodies for Millions Insta Music Secrets</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-navigating-the-minefield-suddenly-banned-videos-on-social-media/"><u>[Updated] In 2024, Navigating the Minefield Suddenly Banned Videos on Social Media</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-compendium-of-popular-german-expressions-top-25/"><u>A Compendium of Popular German Expressions (Top 25)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-languages-with-mondly-the-leading-app-of-2022/"><u>Conquer Languages with Mondly - The Leading App of 2022</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/education-unplugged-mondlys-acclaim-in-2017-apps-guide/"><u>Education Unplugged: Mondly's Acclaim in 2017 Apps Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embarking-on-language-learning-post-forty-four-motivating-reasons-for-seniors/"><u>Embarking on Language Learning Post-Forty: Four Motivating Reasons for Seniors</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-hero5-black-in-action-essential-shooting-advice-for-amazing-results/"><u>In 2024, Hero5 Black in Action Essential Shooting Advice for Amazing Results</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-xiaomi-redmi-12-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock Xiaomi Redmi 12 Phone without Google Account?</u></a></li>
+</ul></div>
 

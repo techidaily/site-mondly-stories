@@ -1,7 +1,7 @@
 ---
 title: "Learning German Made Easy: The Ultimate 25 Idiom Collection Guide"
-date: 2024-10-17T23:49:46.559Z
-updated: 2024-10-18T16:47:02.035Z
+date: 2024-10-21T16:10:25.542Z
+updated: 2024-10-24T17:29:17.020Z
 tags:
   - speak
   - english
@@ -25,6 +25,13 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
 [Cambridge Dictionary](https://dictionary.cambridge.org/dictionary/english/idiom) defines ‘idiom’ as “a group of words in a fixed order that has a particular meaning that is different from the meanings of each word on its own.” For example, to be “over the moon” is an idiom that means you are extremely happy or delighted. In other words, idioms have figurative, non-literal meanings because you’re not**literally** “over the moon.”
 
  That being said, let’s see what such idioms Germans use the most in their daily interactions.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1._Um den heißen Brei herumreden_
 
@@ -59,10 +66,10 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
  As odd as this one sounds, it will come in very handy in those situations when you can’t believe what you’re hearing or seeing. The English equivalent could be “You’ve got to be kidding me!”.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **5.** _Seinen Senf dazugeben_
@@ -83,13 +90,6 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
 
  If you ever get carried away with excitement, German speakers may advise you_die Kirche im Dorf lassen_ , which means to “leave the church in the village.”
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **7.** _Tomaten auf den Augen haben_
 
 **Literal translation:** To have tomatoes on one’s eyes.
@@ -97,6 +97,13 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
 **Actual meaning:** To be oblivious to what’s going on around you.
 
  In Germany, when you are blind to what’s happening around you, people could say you have tomatoes on your eyes. Maybe you’re not up to date with the latest news, or you’re not seeing the truth staring you right in the face. Either way, tomatoes seem to affect your vision.
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **8.** _Ich verstehe nur Bahnhof_
 
@@ -113,13 +120,6 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
 **Actual meaning:** Don’t count your chickens before they hatch.
 
  This idiom is perfect for those who usually celebrate their victories prematurely. Its sentiment is similar to the English equivalent “Don’t count your chickens before they hatch. “
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **10.** _Da kannst du Gift drauf nehmen_
 
@@ -155,13 +155,6 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
 
 !['Common German idioms' by Gratisography©](https://edge.mondly.com/blog/wp-content/uploads/2022/09/common-german-idioms-960x640.jpg "Top 25 German Idioms To Speak Like A German 3")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052062/7443" target="_top" id="2052062">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052062" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052062/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **14.** _Das ist Schnee von gestern_
 
 **Literal translation:** That’s yesterday’s snow.
@@ -169,6 +162,19 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
 **Actual meaning:** To insist on something that has passed./To beat a dead horse.
 
  Is someone you know constantly talking about an issue that is over and decided? _Das ist Schnee von gestern_ is perfect in this context.
+
+<!-- affiliate ads begin -->
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **15.** _Ein Fisch auf dem Trockenen_
 
@@ -185,13 +191,6 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
 **Actual meaning:** Fingers crossed.
 
  Same story here. You already know in which situations it’s suitable to use this one.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **17.** _Du nimmst mich auf den Arm_
 
@@ -218,10 +217,10 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
  Sausages again! Even when they come up with witty remarks about life itself, Germans must make a reference to_wursts_ . We do feel inspired, but we must admit we’re also drooling at this point.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **20.** _Ich habe Schwein gehabt_
@@ -233,13 +232,6 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
  I guess it is inevitable. If there are German idioms about sausages, there must also be German idioms about pigs. Naturally, when someone says_Ich habe Schwein gehabt_ , it means they have been lucky without having done anything themselves to earn it.
 
 !['German expressions' by Picography©](https://edge.mondly.com/blog/wp-content/uploads/2022/09/german-expressions-960x640.jpg "Top 25 German Idioms To Speak Like A German 4")
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **21.** _Haare auf den Zähnen haben_
 
@@ -267,6 +259,13 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
 
  Sometimes we see a bad situation coming and we warn the parties involved, but they choose not to listen. Well, this idiom is perfect for the aftermath when all you want to say is: I told you so!
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **24.** _Einen Vogel haben_
 
 **Literal translation:** To have a bird.
@@ -279,13 +278,6 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
 
 It’s usually used as an insult, so be careful to who you are saying this.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
-  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **25.** _Jemandem ein Ohr abkauen_
 
 **Literal translation:** Chew off someone’s ear.
@@ -293,6 +285,13 @@ It’s usually used as an insult, so be careful to who you are saying this.
 **Actual meaning:** To talk someone’s ear off.
 
  Do you have someone in your life who just won’t stop talking? If you feel like your ear will fall off, this is the perfect example of _Jemandem ein Ohr abkauen_ .
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Why should you learn German idioms?**
 
@@ -311,6 +310,13 @@ _ [Tschüss](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=10
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Speak German like a fluent speaker fast
 
@@ -343,19 +349,22 @@ _ [Tschüss](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=10
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/updated-premium-vectors-leading-sites-in-quality-stock-for-2024/"><u>[Updated] Premium Vectors Leading Sites in Quality Stock for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-snatching-twitter-laughter-3-pc-techniques/"><u>[Updated] Snatching Twitter Laughter 3 PC Techniques</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-video-constructor-suite-for-2024/"><u>[Updated] Video Constructor Suite for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/conquer-dead-cells-the-comprehensive-breakdown-of-the-sturdy-beatit-bt-d11-jumpstarter/"><u>Conquer Dead Cells: The Comprehensive Breakdown of the Sturdy Beatit BT-D11 Jumpstarter</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/cutting-edge-video-processing-free-hd1080p-from-ff-videos-for-2024/"><u>Cutting Edge Video Processing Free HD/1080P From FF Videos for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/daily-dose-of-bengali-language/"><u>Daily Dose of Bengali Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exploring-the-distinctive-features-of-us-and-uk-english/"><u>Exploring the Distinctive Features of US and UK English</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-alphabets-to-characters-chinese-writing-101/"><u>From Alphabets to Characters: Chinese Writing 101</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/hangul-made-simple-the-quickest-way-to-asian-alphabets/"><u>Hangul Made Simple: The Quickest Way to Asian Alphabets</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-easy-guide-to-motorola-moto-g73-5g-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Motorola Moto G73 5G FRP Bypass With Best Methods</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-pinnacle-performance-comparison-hero5-black-and-hero4-silver/"><u>In 2024, Pinnacle Performance Comparison Hero5 Black and Hero4 Silver</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-the-role-of-background-melody-in-a-cinematic-commercial/"><u>In 2024, The Role of Background Melody in a Cinematic Commercial</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/world-teachers-day-a-collection-of-words-for-teacher-in-different-languages/"><u>World Teachers' Day: A Collection Of Words For Teacher In Different Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/worldwide-whipped-cream-30-chocolate-translations/"><u>Worldwide Whipped Cream: 30 Chocolate Translations</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-sculpting-visual-stories-editing-vertical-videos-for-ig-in-fcpx/"><u>[New] 2024 Approved Sculpting Visual Stories Editing Vertical Videos for IG in FCPX</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-the-compre-written-by-john-doe-phd-in-psychology-specializing-in-human-behavior-and-motivation-motivational-interviewing/"><u>[Updated] In 2024, The Compre Written By John Doe, PhD in Psychology, Specializing in Human Behavior and Motivation (Motivational Interviewing)</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-swift-strategies-for-instagram-reel-success/"><u>[Updated] Swift Strategies for Instagram Reel Success</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/capture-the-beauty-of-hummingbirds-with-this-innovative-smart-bird-feeder-latest-tech-reviewed/"><u>Capture the Beauty of Hummingbirds with This Innovative Smart Bird Feeder - Latest Tech Reviewed</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/comparing-digital-universes-meta-to-omni/"><u>Comparing Digital Universes Meta to Omni</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/guia-inicial-a-la-comprehension-del-tiempo-en-espanol/"><u>Guía Inicial a La Comprehensión Del Tiempo en Español</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-the-essential-guide-to-posting-vimeo-on-instagram/"><u>In 2024, The Essential Guide to Posting Vimeo on Instagram</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/johannes-honterus-inspiration-and-leadership-icon/"><u>Johannes Honterus: Inspiration & Leadership Icon</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-learn-how-everything-works-on-meizu-21-pro-drfone-by-drfone-virtual-android/"><u>Life360 Learn How Everything Works On Meizu 21 Pro | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multi-language-voice-commands-now-available-on-oculus-quest-via-mondly/"><u>Multi-Language Voice Commands Now Available on Oculus Quest via Mondly</u></a></li>
+<li><a href="https://driver-install.techidaily.com/multiplatform-opengl-framework-guide/"><u>Multiplatform OpenGL Framework Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rapid-immersion-learn-a-new-language-fast/"><u>Rapid Immersion: Learn a New Language Fast</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-timeless-quest-for-language-mastery/"><u>The Timeless Quest for Language Mastery</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/things-you-should-know-when-unlocking-total-wireless-of-apple-iphone-14-plus-by-drfone-ios/"><u>Things You Should Know When Unlocking Total Wireless Of Apple iPhone 14 Plus</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-francophone-countries-and-their-concentrated-language-user-base/"><u>Top Francophone Countries & Their Concentrated Language User Base</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/when-do-other-countries-commemorate-thanksgiving/"><u>When Do Other Countries Commemorate Thanksgiving?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/yearly-commitments-successful-realization-techniques/"><u>Yearly Commitments: Successful Realization Techniques</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Mastering Indonesian Salutations Quickly
-date: 2024-08-23T00:34:37.590Z
-updated: 2024-08-24T00:34:37.590Z
+date: 2024-10-19T17:46:21.201Z
+updated: 2024-10-24T16:41:24.788Z
 tags:
   - speak
   - english
@@ -41,17 +41,18 @@ thumbnail: https://thmb.techidaily.com/8b7337516e3ab4c7de40944c48ebe243474ab75d4
  On the other hand, if someone asks you how you are doing, you can say_kabar baik,_ which means “I am fine” or “I am well”. Here’s what a basic conversation in Indonesian sounds like:
 
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### ‘Hi’ in Indonesian
 
  Made some new friends during your trip to Bali? When you meet them, you can also use the more informal_hi,_ which is pronounced the same as the English “hi”.
 
 Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 ## Indonesian greetings for different times of day
 
  Like [most languages](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , Indonesian also has some specific greetings dedicated to different times of the day. While in English, we begin every such greeting with “good”, in Indonesian_selamat_ is the word we use to wish people a “happy”, “peaceful” or “safe” day.
@@ -65,8 +66,12 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 ![indonesian words](https://edge.mondly.com/blog/wp-content/uploads/2022/07/indonesian-words.png "Hello In Indonesian: A Quick Guide To Indonesian Greetings 2")
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  The same way we say “morning!’ in English, Indonesians sometimes drop the_selamat_ . This results in a very informal greeting that can be used with friends and family.
 
  Determining the correct time of the day during which you should use a certain greeting is somehow tricky. However, most people will agree that_selamat pagi_ is best used until 11 p.m. and_selamat siang_ until 3 p.m._Selamat sore_ and_selamat malam_ highly depend on the daylight so it’s best to adjust your greetings on the spot.
@@ -74,8 +79,12 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
  Naturally,_selamat tidur_ is only used when someone is retiring for the night.
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to say goodbye
 
  Similarly, you can use_selamat tinggal_ if you’re ready to say ‘goodbye’ and leave. If you’re the one staying, you should say_selamat jalan,_ which has no direct translation in English.
@@ -88,8 +97,12 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Start learning Indonesian today
 
  If learning how to say ‘hello’ in Indonesian made you realize you want to become fluent in Indonesian, this is your lucky day. Award-winning language app Mondly is one of the few solutions available that offers Indonesian courses made by experts.
@@ -112,8 +125,6 @@ Get Mondly today and learn Indonesian naturally with the following:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -121,4 +132,18 @@ Get Mondly today and learn Indonesian naturally with the following:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-probing-instagrams-max-video-length-rule/"><u>[New] 2024 Approved Probing Instagram's Max Video Length Rule</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-leveraging-fb-media-speeds-up-strategies/"><u>[New] Leveraging FB Media Speeds Up Strategies</u></a></li>
+<li><a href="https://windows11.techidaily.com/guiding-through-utorrent-sync-failures-on-windows-devices/"><u>Guiding Through uTorrent Sync Failures on Windows Devices</u></a></li>
+<li><a href="https://video-capture.techidaily.com/how-to-shrink-m2t-files-into-mp4-without-losing-high-definition-quality/"><u>How to Shrink M2T Files Into MP4 without Losing High-Definition Quality</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722962483256-intel-uhd-graphics-driver-download-and-update-windows-1011/"><u>Intel UHD Graphics Driver Download & Update – Windows 10/11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-leap-easy-to-master-global-tongues-list/"><u>Learning Leap: Easy-to-Master Global Tongues List</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579996797-ten-minute-tidbits-learn-bengali-fast/"><u>Ten-Minute Tidbits: Learn Bengali Fast!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-keyboard-conundrum-backspace-vs-escape/"><u>The Keyboard Conundrum: Backspace vs Escape</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transforming-language-education-why-mondly-emerges-as-a-champion/"><u>Transforming Language Education – Why Mondly Emerges as a Champion</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/ultimate-fix-for-when-your-laptops-speakers-arent-working/"><u>Ultimate Fix for When Your Laptop's Speakers Aren't Working</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579205386-unlocking-untapped-tongues-learn-abroad-at-home/"><u>Unlocking Untapped Tongues: Learn Abroad, at Home!</u></a></li>
+</ul></div>
 

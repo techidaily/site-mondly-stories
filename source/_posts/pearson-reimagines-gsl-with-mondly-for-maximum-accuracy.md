@@ -1,7 +1,7 @@
 ---
 title: Pearson Reimagines GSL with Mondly for Maximum Accuracy
-date: 2024-08-23T00:29:54.355Z
-updated: 2024-08-24T00:29:54.355Z
+date: 2024-10-23T18:16:03.800Z
+updated: 2024-10-24T18:16:12.404Z
 tags:
   - speak
   - english
@@ -30,6 +30,13 @@ thumbnail: https://thmb.techidaily.com/3de73e34857cd0f78a7df37ffea6db9e6fc87f29f
 
  Unlike other frameworks that describe language proficiency in broad bands, the GSE offers a finely-grained scale. It identifies what a learner can accomplish at each point across speaking, listening, reading, and writing skills. This unique approach motivates learners by offering a more detailed view of their progression.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Introducing the Global Scale of Languages (GSL)**
 
 Building on this solid foundation, **Pearson has now introduced the Global Scale of Languages (GSL).**
@@ -39,15 +46,16 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
  By placing languages on a common scale, underpinned by a common set of Learning Objectives, the GSL can ensure comparability across languages to bring greater clarity and simplicity to language learning.
 
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **How Pearson created the GSL**
 
  Building on the GSE, our research team at Pearson decided to prove that this scale could also be transferable to other languages. The study’s results were not only encouraging but groundbreaking. The research confirmed that the GSE is directly transferable to other languages, making it possible for Pearson to develop the new GSL framework.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 ### **Why the GSL stands out**
 
 * **Unparalleled insights:**  Going a step beyond traditional language measurement tools like the CEFR, the GSL provides a more detailed understanding of a learner’s skills through extensive global research.
@@ -55,8 +63,12 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 * **Personalized learning pathways:**  With clear objectives at each scale point, the GSL ensures a learning journey tailored to individual goals, making progression more efficient.
 
 <!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Why start with French, Spanish, and Italian?**
 
  These three languages, rich in history and culture, have always been popular choices among our learners. We believe that by integrating GSL with these languages first, we can enhance the learning experience for a larger number of our users.
@@ -66,8 +78,18 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
  As a Mondly user immersing in these languages, you can expect a fresh content approach, and a progressively structured layout.
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<span id="1975555">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Language learning backed by unparalleled global research**
 
  Our integration with the GSL reaffirms our commitment to providing an unmatched learning experience.
@@ -79,9 +101,6 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
-<!-- affiliate ads end -->
 ### **Fast-track your progress with Mondly by Pearson**
 
  Whether you’re passionate about French, Spanish, Italian or English, Mondly now offers an enhanced learning journey backed by the precision of the GSL. Celebrate this European Day of Languages by diving into the world of languages with newfound clarity and insight.
@@ -94,8 +113,6 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -103,4 +120,24 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-breaking-boundaries-top-6-artists-leading-nft-frontier-for-2024/"><u>[New] Breaking Boundaries Top 6 Artists Leading NFT Frontier for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-reclaim-lost-chatter-in-shared-tweeted-films/"><u>[New] In 2024, Reclaim Lost Chatter in Shared Tweeted Films</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-formulating-a-channels-automatic-subscribe-purl/"><u>[Updated] In 2024, Formulating a Channel’s Automatic Subscribe PURL</u></a></li>
+<li><a href="https://fox-useful.techidaily.com/windows-710-11/"><u>比較 Windows 7、10 及 11：升級到最新版本之前你需知道的事</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/alluring-arsenal-german-lingo-for-lovers/"><u>Alluring Arsenal: German Lingo for Lovers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprendizaje-intuitivo-del-reloj-digital-en-espanol/"><u>Aprendizaje Intuitivo Del Reloj Digital en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/break-the-ice-and-converse-professionally-in-english/"><u>Break The Ice & Converse Professionally in English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/byzantine-beats-tracing-greek-through-ages/"><u>Byzantine Beats: Tracing Greek Through Ages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/choosing-the-most-useful-european-language-germanfrench-dilemshift/"><u>Choosing the Most Useful European Language: German/French Dilemshift</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-the-complexity-of-german-studies/"><u>Decoding the Complexity of German Studies</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/dts-movietoweb/"><u>DTS 오프로드 바이트를 비용 부과 없이 가상 격리의 안내 - MovieToWeb</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/insider-advice-efficiently-amassing-stock-visuals-for-use/"><u>Insider Advice Efficiently Amassing Stock Visuals for Use</u></a></li>
+<li><a href="https://win-rankings.techidaily.com/secure-your-microsoft-project-and-visio-professionals-for-a-steal-only-20-avaliable-now-with-exclusive-deal-from-zdnet/"><u>Secure Your Microsoft Project and Visio Professionals for a Steal – Only $20 Avaliable Now with Exclusive Deal From ZDNet!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581157012-sign-up-now-enjoy-96-off-on-lifetime-mondly-access/"><u>Sign Up Now, Enjoy 96% OFF on Lifetime Mondly Access</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578016054-speak-slovak-flawlessly-in-10-min-doses-online/"><u>Speak Slovak Flawlessly in 10-Min Doses Online</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/top-tier-tone-transmitter-for-voice-artists/"><u>Top-Tier Tone Transmitter for Voice Artists</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/unlock-potential-in-your-screen-recording-with-obs/"><u>Unlock Potential in Your Screen Recording with OBS</u></a></li>
+</ul></div>
 

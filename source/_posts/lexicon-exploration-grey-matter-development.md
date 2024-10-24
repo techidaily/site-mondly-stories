@@ -1,7 +1,7 @@
 ---
 title: Lexicon Exploration, Grey Matter Development
-date: 2024-08-23T00:28:40.350Z
-updated: 2024-08-24T00:28:40.350Z
+date: 2024-10-22T17:53:27.427Z
+updated: 2024-10-24T18:43:08.986Z
 tags:
   - speak
   - english
@@ -36,6 +36,19 @@ thumbnail: https://thmb.techidaily.com/de7e32da454b1a64d1a9e174bd2f0af6c1c09ee74
 
  Albert Einstein
 
+<!-- affiliate ads begin -->
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Brain benefits of learning a new language
 
  There are several other reasons that you should be learning another language…
@@ -47,8 +60,18 @@ thumbnail: https://thmb.techidaily.com/de7e32da454b1a64d1a9e174bd2f0af6c1c09ee74
  So, what language will you learn? Will it be [French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , [Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , [Turkish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , or maybe [Bulgarian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ?
 
 <!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Here are some of the things that happen to your brain when you learn a new language
 
 1. **Grey matter increases**  : Grey matter is a substance that connects different sections of the brain. The volume of grey matter increases as a result of language learning. **Einstein**  had an abnormally large amount of grey matter.
@@ -65,8 +88,12 @@ thumbnail: https://thmb.techidaily.com/de7e32da454b1a64d1a9e174bd2f0af6c1c09ee74
  So, do these cognitive benefits of learning a second language seem like something you should strive for?
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## It’s never too late
 
  Research has managed to pinpoint the optimum age for language learning. Between the ages of **two and four years old**  the brain is at its most absorbent. The world-renowned linguist, **Noam Chomsky,**  states that children of this age can learn up to a **new word every hour** .
@@ -92,8 +119,6 @@ By the way, the [learning method](https://shop.mondly.com/affiliate.php?ACCOUNT=
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -101,4 +126,22 @@ By the way, the [learning method](https://shop.mondly.com/affiliate.php?ACCOUNT=
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-elevate-podcasting-quality-selecting-the-right-interface/"><u>[Updated] 2024 Approved Elevate Podcasting Quality Selecting the Right Interface</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-innovating-color-grading-with-new-lut-techniques-for-2024/"><u>[Updated] Innovating Color Grading with New LUT Techniques for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-pioneering-techniques-for-smooth-recording-in-virtual-sessions/"><u>2024 Approved Pioneering Techniques for Smooth Recording in Virtual Sessions</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/demystifying-espns-digital-revolution-inside-espnpluss-streaming-service-mechanism/"><u>Demystifying ESPN's Digital Revolution: Inside Espn+'s Streaming Service Mechanism</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/english-accents-from-queens-english-to-aussie/"><u>English Accents: From Queen’s English to Aussie</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-croatian-language-skills-for-a-seamless-travel-experience/"><u>Essential Croatian Language Skills for a Seamless Travel Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/experience-language-immersion-like-never-before-with-mondlyvr/"><u>Experience Language Immersion Like Never Before with MondlyVR</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/first-of-its-kind-augmented-reality-with-speech-recognition/"><u>First of Its Kind: Augmented Reality with Speech Recognition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/first-steps-in-learning-russian-figures/"><u>First Steps in Learning Russian Figures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-for-the-modern-world-saying-hello-in-the-21st-century/"><u>French for the Modern World: Saying Hello in the 21St Century</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-fondue-to-fluent-a-multilingual-journey-through-chocolate/"><u>From Fondue to Fluent: A Multilingual Journey Through 'Chocolate'</u></a></li>
+<li><a href="https://games-able.techidaily.com/galaxy-forger-unveiling-top-gaming-pcs/"><u>Galaxy Forger: Unveiling Top Gaming PCs</u></a></li>
+<li><a href="https://win-luxury.techidaily.com/guide-to-converting-zee5-media-files-into-multiple-formats-on-mac-and-windows/"><u>Guide to Converting ZEE5 Media Files Into Multiple Formats on Mac & Windows</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-xiaomi-redmi-note-12-pro-4g-drfone-by-drfone-virtual-android/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On Xiaomi Redmi Note 12 Pro 4G | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-videos-back-from-nokia-150-2023-by-fonelab-android-recover-video/"><u>Simple ways to get lost videos back from Nokia 150 (2023)</u></a></li>
+</ul></div>
 

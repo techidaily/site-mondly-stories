@@ -1,7 +1,7 @@
 ---
 title: Self-Taught French Strategies Unveiled
-date: 2024-10-15T22:15:34.605Z
-updated: 2024-10-18T22:19:26.298Z
+date: 2024-10-18T16:17:28.542Z
+updated: 2024-10-24T16:30:37.038Z
 tags:
   - speak
   - english
@@ -58,13 +58,6 @@ thumbnail: https://thmb.techidaily.com/e703390679e2e9d8302a199135d745cf8f0f1e644
 
  Start by identifying the words or [phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) that won’t stick and write them down on sticky notes (ironic!). Then put them by the bed, in the kitchen, in the bathroom or wherever you spend the most time during a day. Next thing you know, the same French words you used to forget will now follow you everywhere.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4\. Train your ears with French movies, music or videos
 
  Has it ever happened to you to spend time in another country and then hear people at home speak the foreign language you got used to although they weren’t doing so? Strangely enough, that was your brain after it got used to the language you kept hearing. After it accommodates, your brain changes its expectations regarding the sounds that surround you. Isn’t that amazing?
@@ -74,16 +67,10 @@ thumbnail: https://thmb.techidaily.com/e703390679e2e9d8302a199135d745cf8f0f1e644
  Need some French music ideas? Here’s one from [Mommy](https://www.imdb.com/title/tt3612616/) , a brilliant film partially spoken in French:
 
 <!-- affiliate ads begin -->
-<span id="1160850">
-					<video width="576" height="324" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. Talk to yourself in French
@@ -92,6 +79,13 @@ thumbnail: https://thmb.techidaily.com/e703390679e2e9d8302a199135d745cf8f0f1e644
 
  If you don’t have any fluent French friends to practice with, use your imagination! This will help you understand your limits and work more exactly where you need it.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Bonus tip: Stay positive and book a trip to France ASAP
 
  These methods will work ten times better if you remain positive. Now you know what’s the best way to learn French. The rest is up to you and you can do it! Start by saying_Je peux le faire! Je peux commencer à parler le français couramment!_ (“I can do it! I can start speaking French fluently!”).
@@ -99,10 +93,10 @@ thumbnail: https://thmb.techidaily.com/e703390679e2e9d8302a199135d745cf8f0f1e644
 ![best way to learn French online](https://edge.mondly.com/blog/wp-content/uploads/2019/10/best-way-to-learn-french-online-1024x554.jpg "The Best Way To Learn French At Home 4")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  “Valloire, France” by Marc Guellerin
@@ -117,10 +111,10 @@ thumbnail: https://thmb.techidaily.com/e703390679e2e9d8302a199135d745cf8f0f1e644
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Ready to get your French to the next level?
@@ -146,18 +140,22 @@ _Bonne chance!_
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-humor-hacks-a-compendium-of-top-meme-makers/"><u>[New] Humor Hacks A Compendium of Top Meme Makers</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-mastering-mp3-extraction-from-pinterest-vids/"><u>[Updated] Mastering MP3 Extraction From Pinterest Vids</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-top-streamers-choice-does-virusmix-or-wirecast-rule-the-game/"><u>[Updated] Top Streamers Choice Does VirusMix or WireCast Rule the Game?</u></a></li>
-<li><a href="https://video-capture.techidaily.com/1726030667062-islandtv/"><u>「ISLANDTVコンテンツを安全に保管するためのステップバイステップチュートリアル」</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/app-driven-romanian-local-insights-inside/"><u>App-Driven Romanian: Local Insights Inside</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/connect-and-learn-pearsons-interactive-classroom/"><u>Connect and Learn: Pearson's Interactive Classroom</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embrace-passion-italys-romantic-flirtations/"><u>Embrace Passion: Italy's Romantic Flirtations</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-from-tube-to-chat-sharing-video-content-from-youtube-and-twitter-directly/"><u>In 2024, From Tube to Chat Sharing Video Content From YouTube & Twitter Directly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/introducing-advanced-interactive-qanda-for-enhanced-support/"><u>Introducing Advanced Interactive Q&A for Enhanced Support</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/spotlight-on-top-8-authentic-youtube-growth-tactics-for-2024/"><u>Spotlight on Top 8 Authentic YouTube Growth Tactics for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/mlining-access-to-subscriber-information-for-2024/"><u>Streamlining Access to Subscriber Information for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/your-path-to-perfect-captures-the-complete-guide-to-netflix-on-mac-for-2024/"><u>Your Path to Perfect Captures The Complete Guide to Netflix on Mac for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/poiothta-eygnwmwn-synadelfia-gkreman/"><u>Ποιότητα Ευγνώμων Συνάδελφια Γκρεμάν</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-the-route-to-a-great-twitch-recording-journey/"><u>[Updated] 2024 Approved The Route to a Great Twitch Recording Journey</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-elevate-engagement-posting-youtube-video-on-fb/"><u>[Updated] In 2024, Elevate Engagement Posting YouTube Video on FB</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-mastering-picture-in-picture-feature-in-chrome-anywhere/"><u>[Updated] Mastering Picture In Picture Feature in Chrome, Anywhere</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/s-of-creators-guidelines-for-sharing-sounds-online/"><u>Chorus of Creators Guidelines for Sharing Sounds Online</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/file-format-and-extension-of-filename-dont-match-in-excel-2019-file-by-stellar-guide/"><u>File Format and Extension of filename dont Match in Excel 2019 File</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/know-your-japenese-salutations-for-every-scenario/"><u>Know Your Japenese Salutations for Every Scenario</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/los-fundamentos-del-sistema-de-colores/"><u>Los Fundamentos Del Sistema De Colores</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/mastering-skewed-imagery-texts/"><u>Mastering Skewed Imagery Texts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-gratis-ukrainian-lessons-galore/"><u>Mondly: Gratis Ukrainian Lessons Galore</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/premier-systems-empowering-grammar-enhancement/"><u>Premier Systems Empowering Grammar Enhancement</u></a></li>
+<li><a href="https://techidaily.com/some-mp4-won-t-play-on-my-huawei-by-aiseesoft-video-converter-play-mp4-on-android/"><u>Some MP4 won't play on my Huawei </u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-language-of-thankfulness-common-chinese-phrases/"><u>The Language of Thankfulness: Common Chinese Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-new-e-learning-standard-mondlys-german-linguistic-sovereignty/"><u>The New E-Learning Standard: Mondly’s German Linguistic Sovereignty</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/two-years-one-bold-dream-mondlylanguages-story/"><u>Two Years, One Bold Dream - MondlyLanguages Story</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unleashing-your-full-potential-in-english-via-mondly/"><u>Unleashing Your Full Potential in English via Mondly</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-2024-approved-compile-of-high-quality-sound-spectrum-templates-to-elevate-video-production-2023-update/"><u>Updated 2024 Approved Compile of High-Quality Sound Spectrum Templates to Elevate Video Production - 2023 Update</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/updated-2024-approved-easy-steps-to-make-a-talking-avatar-with-ai-from-any-photos/"><u>Updated 2024 Approved Easy Steps to Make a Talking Avatar with AI From Any Photos</u></a></li>
 </ul></div>
 

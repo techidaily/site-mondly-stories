@@ -1,7 +1,7 @@
 ---
 title: "Thankful Talk: Multilingual Manners and Phrases (155)"
-date: 2024-10-12T22:58:09.190Z
-updated: 2024-10-18T19:06:04.589Z
+date: 2024-10-21T17:18:55.231Z
+updated: 2024-10-24T17:38:58.376Z
 tags:
   - speak
   - english
@@ -59,10 +59,10 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
  “Thanks” by Hanny Naibaho©
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The origin of saying “thank you”
@@ -89,10 +89,10 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## From 0 to conversational in over 40 languages
@@ -125,18 +125,18 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-in-2024-viral-potential-top-15-easy-to-create-videos/"><u>[New] In 2024, Viral Potential Top 15 Easy-to-Create Videos</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-ringtone-repository-prime-picks-for-downloadable-calls/"><u>[New] Ringtone Repository Prime Picks for Downloadable Calls</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-the-soundtrack-strategy-elevating-facebook-videos-with-music/"><u>[Updated] 2024 Approved The Soundtrack Strategy Elevating Facebook Videos with Music</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-top-30-metaverse-meme-creation-tips-and-trends/"><u>[Updated] Top 30 Metaverse Meme Creation Tips & Trends</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/compreender-abrecos-e-saudacoes-em-diferentes-regioes/"><u>Compreender Abreços E Saudações Em Diferentes Regiões</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/das-deutsche-verabschiedungsworterbuch-prasentiert-sich/"><u>Das Deutsche Verabschiedungswörterbuch Präsentiert Sich</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/friendly-italy-discover-the-best-italian-ways-to-say-hello/"><u>Friendly Italy: Discover the Best Italian Ways to Say Hello</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-from-infinix-gt-10-pro-by-drfone-android/"><u>How to Bypass FRP from Infinix GT 10 Pro?</u></a></li>
-<li><a href="https://techidaily.com/how-to-downgrade-apple-iphone-xr-without-itunes-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade Apple iPhone XR without iTunes? | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/lg-smart-tv-tricks-hooking-up-and-watching-espn-plus-with-ease/"><u>LG Smart TV Tricks: Hooking Up and Watching ESPN Plus with Ease</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/make-urdu-easier-learn-for-10-minutes-daily/"><u>Make Urdu Easier: Learn for 10 Minutes Daily</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-lingua-love-connection-flirting-in-spanish/"><u>The Lingua-Love Connection: Flirting in Spanish</u></a></li>
-<li><a href="https://win-blog.techidaily.com/windows-11-govt-version-explained-key-insights-on-why-not-to-use-it/"><u>Windows 11 Govt Version Explained: Key Insights on Why Not to Use It</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-avoiding-pitfalls-smart-strategies-for-acquiring-youtubes/"><u>[New] 2024 Approved Avoiding Pitfalls Smart Strategies for Acquiring Youtubes</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-extensive-movement-analysis-2023/"><u>[New] Extensive Movement Analysis 2023</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-the-essential-tips-for-perfect-gopro-time-lapse-for-2024/"><u>[New] The Essential Tips for Perfect GoPro Time Lapse for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-innovative-use-of-instagram-filters-in-your-photo-posts/"><u>[Updated] 2024 Approved Innovative Use of Instagram Filters in Your Photo Posts</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-securesave-specialists-judgment/"><u>[Updated] 2024 Approved SecureSave Specialists Judgment</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-leverage-linked-profiles-to-amplify-fb-stories-for-2024/"><u>[Updated] Leverage Linked Profiles to Amplify FB Stories for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-ultimate-picture-narrative-craft-pro-edition/"><u>2024 Approved Ultimate Picture Narrative Craft - Pro Edition</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-part-of-the-touch-screen-not-working-on-oppo-reno-11-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Part of the Touch Screen Not Working on Oppo Reno 11 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-mastery-made-easy-mondly-launches-virtual-reality-for-learners/"><u>Language Mastery Made Easy: Mondly Launches Virtual Reality for Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-varieties-of-macaus-triad/"><u>Language Varieties of Macau's Triad</u></a></li>
+<li><a href="https://discover-answers.techidaily.com/optimales-festplattenbereinigen-mit-aomei-backupper-die-perfekte-losung/"><u>Optimales Festplattenbereinigen Mit AOMEI Backupper - Die Perfekte Lösung!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-rich-tapestry-of-farsi-history-and-its-learning-perks/"><u>The Rich Tapestry of Farsi History & Its Learning Perks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-learn-english-benefits-explored/"><u>Why Learn English? Benefits Explored</u></a></li>
 </ul></div>
 

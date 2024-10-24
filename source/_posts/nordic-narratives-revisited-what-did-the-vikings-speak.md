@@ -1,7 +1,7 @@
 ---
 title: "Nordic Narratives Revisited: What Did the Vikings Speak?"
-date: 2024-08-23T00:33:09.884Z
-updated: 2024-08-24T00:33:09.884Z
+date: 2024-10-19T17:25:49.956Z
+updated: 2024-10-24T16:58:22.115Z
 tags:
   - speak
   - english
@@ -44,9 +44,6 @@ thumbnail: https://thmb.techidaily.com/fd60f16bf20dda981eb260766dc085349ba6360b3
 
  In spite of everything,**Old Norse is still considered the primary Viking language.** If you watched_The Northman_ , you must have heard it in songs and ritual settings. Apparently, they didn’t have the budget to make the entire movie in Old Norse. It does sound fittingly Viking, doesn’t it?
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ### Old Norse: the Viking language
 
  By the 8th century, Proto-Norse (which was spoken in Scandinavia and its Nordic settlements) developed into Old Norse – also known as Old Nordic or Old Scandinavian. This was the phase in the evolution of North Germanic dialects that occurred prior to their ultimate divergence into the distinct Nordic languages we know today.
@@ -62,11 +59,19 @@ thumbnail: https://thmb.techidaily.com/fd60f16bf20dda981eb260766dc085349ba6360b3
 !['Viking language' by Hannah Grapp©](https://edge.mondly.com/blog/wp-content/uploads/2023/03/viking-language-960x640.jpg "What Language Did Vikings Speak? 4")
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## What language today is closest to Old Norse?
 
  **Modern Icelandic is widely regarded as the Nordic language that most closely resembles Old Norse.** In fact, the writing system is so similar that Icelandic speakers can read Old Norse texts with relative ease. Some specialists compare the likeness between modern Icelandic and Old Norse to that of Shakespearean English and present-day English. Old West Norse is the direct ancestor of Icelandic, and many surviving Old Norse manuscripts originated from Iceland. Consequently, Old West Norse is the most commonly taught variant of Old Norse at present.
@@ -74,8 +79,12 @@ thumbnail: https://thmb.techidaily.com/fd60f16bf20dda981eb260766dc085349ba6360b3
 So yeah, you can learn Old Norse if you want to.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
+  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Is Old Norse still spoken?
 
  Old Norse is not spoken as a living language today. However, there are people who study Old Norse and speak it fluently.
@@ -84,9 +93,6 @@ So yeah, you can learn Old Norse if you want to.
 
  Furthermore, Old Norse is still with us through the multitude of words that were borrowed into English. Some examples of Old Norse words in English are gift (_gift_), husband (_húsbóndi_), cake (_kaka_), egg (_egg_), anger (_angr_), arm (_armr_). And these are just a few. The list could go on for a while.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<!-- affiliate ads end -->
 ## What language did Vikings write in?
 
  Scandinavians used the Elder Futhark 24-letter alphabet to write their language until the 8th century. Then, as the Viking age began, they adopted the Young Futhark. This was a simplified runic alphabet consisting of just 16 letters.
@@ -101,9 +107,18 @@ So yeah, you can learn Old Norse if you want to.
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Learn the Scandinavian languages fast
 
  While the original language of the Vikings is not around anymore, you can always learn the modern Scandinavian languages. With Mondly, you can learn Danish, Swedish, Norwegian and more in record time.
@@ -126,8 +141,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -135,4 +148,23 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/-producers-roadmap-pioneering-high-quality-asmr-content-for-2024/"><u>[New] A Producer's Roadmap Pioneering High-Quality ASMR Content for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-optimal-cloud-audio-devices/"><u>[New] Optimal Cloud Audio Devices</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-smooth-path-from-instagram-visuals-to-mp3-sound/"><u>[Updated] Smooth Path From Instagram Visuals to Mp3 Sound</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-years-of-excellence-with-mondlyback-filters/"><u>10 Years of Excellence with MondlyBack Filters</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-hdr-tips-for-captivating-portrait-masterpieces/"><u>2024 Approved HDR Tips for Captivating Portrait Masterpieces</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-move-contacts-from-tecno-pova-6-pro-5g-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Move Contacts From Tecno Pova 6 Pro 5G to iPhone (13/14/15) | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/become-fluent-in-tagalog-fast-and-easy/"><u>Become Fluent in Tagalog Fast and Easy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/boost-your-tagalog-skills-10-minute-daily-sessions/"><u>Boost Your Tagalog Skills - 10-Minute Daily Sessions!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-8-exhilarating-advantages-of-studying-hindi-on-mondlycom/"><u>Discover 8 Exhilarating Advantages of Studying Hindi on Mondly.com</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/eduverse-a-new-dimension-for-linguistic-education/"><u>Eduverse: A New Dimension for Linguistic Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581890717-get-up-and-learn-urdu-10-minute-rule/"><u>Get Up & Learn Urdu – 10-Minute Rule!</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-frp-from-asus-by-drfone-android/"><u>How to Bypass FRP from Asus?</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/immediate-remedy-guide-resolving-os-based-office-faults/"><u>Immediate Remedy Guide: Resolving OS-Based Office Faults</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581592909-learn-tagalog-online-in-just-10-minutes-a-day/"><u>Learn Tagalog Online in Just 10 Minutes a Day</u></a></li>
+<li><a href="https://blog-min.techidaily.com/movavi-202n4-legvantasagi-bevezetesre-kello-felhasznaloi-setikonyv-osszekotesek-olaszul/"><u>Movavi 202N4 Legvántasági Bevezetésre Kellő Felhasználói Setikönyv Összekötések Olaszul</u></a></li>
+<li><a href="https://games-able.techidaily.com/vehicle-vanguard-the-battle-between-physical-and-virtual-inputs/"><u>Vehicle Vanguard: The Battle Between Physical and Virtual Inputs</u></a></li>
+</ul></div>
 

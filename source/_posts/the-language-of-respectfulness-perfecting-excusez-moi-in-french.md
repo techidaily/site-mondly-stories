@@ -1,7 +1,7 @@
 ---
 title: "The Language of Respectfulness: Perfecting 'Excusez-Moi' In French"
-date: 2024-08-23T00:27:54.792Z
-updated: 2024-08-24T00:27:54.792Z
+date: 2024-10-22T18:38:37.121Z
+updated: 2024-10-24T16:41:13.998Z
 tags:
   - speak
   - english
@@ -44,16 +44,17 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  But take notice! French speakers generally use it when they are saying goodbye, so you should follow their lead and avoid using it at the beginning of a conversation.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
 ## 4\. “Good evening” in French –_Bonsoir!_
 
  The same as the_clasique Bonjour_ ,_Bonsoir_ is a universal greeting suitable for most social contexts. The only restriction is the moment of the day. So once the twilight settles in, it is safe to switch from_Bonjour_ to_Bonsoir_ !
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
+  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 5\. “Good night” in French –_Bonne nuit!_
 
  Literally meaning “good night”,_Bonne nuit_ is used more as a “goodbye” than as a “hello”. So if you are spending time with your French friends,_Bonne nuit_ is a great way to let them them know you are retiring.
@@ -61,8 +62,18 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 ![french greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/11/french-greetings-scaled-722x960.jpg "How To Say Hello In French: 12 Useful French Greetings 2")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  “French fashion” by Charles 🇵🇭©
 
 ## 6\. Hello? –_Allô?_
@@ -71,13 +82,17 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  Usually expressed with the raising tone of a question,_Allô_ is what you could say over the phone to check whether the person you are talking to is still on the other end of the line or not:_Allô?_
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
+  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 7\. Excuse me? –_Excusez-moi?_
 
  Looking for a polite way to get someone’s attention in French? Maybe there’s someone blocking your way in the store or maybe you want to get noticed by the office clerk. In these situations, a classic greeting would be a bit redundant. So instead you could use this “question-like”_Excusez-moi?_ that has a double meaning and works as both a greeting and a way to get someone’s attention.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
-<!-- affiliate ads end -->
 ## 8\. “How are you” in French –_Comment ça va?_
 
  Almost equally as notorious as_Bonjour_ ,_Comment ça va?_ can be used the same way we use the English “how are you?”: directly on its own or together with another greeting. For example, you can simply say_Comment ça va?_ (“How are you?) or_Bonjour! Comment ça va?_ (”Hello! How are you?“).
@@ -87,21 +102,29 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
  Or you can play it simple, follow the lead of the French speakers and answer directly with_Et toi?_ (“And you?”) since the_Ça va bien_ (“I’m good”) answer is usually implied.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 9\. What’s up? –_Ça va?_
 
  The English translation of_Ça va?_ , the little and cooler brother of_Comment ça va?_ , is “how’s it going” or literally “does it go?” and it can be used exactly the same like in the previous examples.
 
  The only slight difference is the level for formality associated of each phrase:_Ça va?_ is obviously more suitable for informal interactions with friends and family.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 10\. What’s up? –_Quoi de neuf?_
 
  Want to spice up and diversify your “ça-va”s? Go with the informal_Quoi de neuf_ that translates to “what’s up?” or “what’s new?”.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 11\. The cute Bonjour:_Coucou!_
 
 _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It literally means “cuckoo” and it is used the same way we use “hey!” in English.
@@ -112,9 +135,6 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
 
  “Coucou! Is me! The Frenchie!” by Graham Holtshausen©
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 12\. How’s it going? –_Ça roule?_
 
  A last native touch to our list of ways to say “hello” in French is_Ça roule_ . Literally meaning “that rolls”,_Ça roule_ is yet another way of asking someone “how’s it going?” or “how are things?”.
@@ -144,8 +164,6 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -153,4 +171,21 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-lessons.techidaily.com/updated-a-deeper-dive-into-the-heart-of-mixed-reality/"><u>[Updated] A Deeper Dive Into the Heart of Mixed Reality</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/a-new-era-for-domestic-automation-ai-and-chatgpts-alliance/"><u>A New Era for Domestic Automation: AI and ChatGPT's Alliance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/endless-joy-for-mondly-premium-users/"><u>Endless Joy for Mondly Premium Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/engage-in-authentic-conversations-anywhere-mondly-vr-for-language-mastery/"><u>Engage in Authentic Conversations Anywhere - Mondly VR for Language Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/engage-in-worldwide-english-pearson-edition/"><u>Engage in Worldwide English: Pearson Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-ingredients-in-culinary-education-top-15-steps-to-gourmet-expertise/"><u>Essential Ingredients in Culinary Education: Top 15 Steps to Gourmet Expertise</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-language-essentials-for-travelers-getting-it-right-on-arrival/"><u>French Language Essentials for Travelers: Getting It Right on Arrival</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/future-of-schooling-mondly-and-apple-join-forces/"><u>Future of Schooling: Mondly & Apple Join Forces</u></a></li>
+<li><a href="https://techtrends.techidaily.com/guide-installing-and-running-android-applications-on-your-windows-10-pc/"><u>Guide: Installing and Running Android Applications on Your Windows 10 PC</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-show-wi-fi-password-on-tecno-spark-go-2024-by-drfone-android/"><u>How to Show Wi-Fi Password on Tecno Spark Go (2024)</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-spy-on-text-messages-from-computer-and-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>In 2024, How to Spy on Text Messages from Computer & Asus ROG Phone 8 | Dr.fone</u></a></li>
+<li><a href="https://win-answers.techidaily.com/master-the-art-of-smooth-gameplay-strategies-for-tackling-fps-drops-on-a-computer-system/"><u>Master the Art of Smooth Gameplay: Strategies for Tackling FPS Drops on a Computer System</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/unlock-iphone-8-plus-with-forgotten-passcode-different-methods-you-can-try-drfone-by-drfone-ios/"><u>Unlock iPhone 8 Plus With Forgotten Passcode Different Methods You Can Try | Dr.fone</u></a></li>
+<li><a href="https://win-news.techidaily.com/vorbereitung-und-kombination-mehrerer-vmware-disk-images-vmdk-effizient-sicherstellen/"><u>Vorbereitung Und Kombination Mehrerer VMware Disk Images (VMDK) Effizient Sicherstellen</u></a></li>
+</ul></div>
 

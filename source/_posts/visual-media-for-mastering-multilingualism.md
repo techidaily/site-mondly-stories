@@ -1,7 +1,7 @@
 ---
 title: Visual Media for Mastering Multilingualism
-date: 2024-08-23T00:27:24.049Z
-updated: 2024-08-24T00:27:24.049Z
+date: 2024-10-21T18:20:15.187Z
+updated: 2024-10-24T17:34:27.020Z
 tags:
   - speak
   - english
@@ -18,8 +18,6 @@ thumbnail: https://thmb.techidaily.com/0f399835ae801930fc09d856b55526ca68007b6aa
 
  Language learning through TV shows and films sounds like a scenario straight out of science fiction, doesn’t it? Yet, it’s not. You might be thinking, “Why should I even bother googling this? It can’t be true.” But here you are. To save you some time: yes, you can learn languages from TV. Context plays a vital role in comprehension and retention when it comes to language learning, and what textbook can provide a more immersive visual context than “The Lord of the Rings” or “Game of Thrones”? Probably none.
 
-
-
  I grew up in Eastern Europe in the ‘90s and learned most of my English by watching cartoons and later movies. If only learning French later in school had been as easy! Luckily, the movie industry isn’t going anywhere, and I can catch up on my French by watching “Lupin” on Netflix._Oui, monsieur!_
 
  But what about you? What language do you want to learn? Spanish or maybe Korean? By the way, do you know what these two languages have in common? Two very popular Netflix series that feature characters wearing [red coveralls](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . I’ll let you guess the answer.
@@ -29,6 +27,13 @@ thumbnail: https://thmb.techidaily.com/0f399835ae801930fc09d856b55526ca68007b6aa
 ## The power of TV and film in language learning
 
  Learning a language by watching TV shows and films works for two main reasons: visual context and addictiveness. There may be many more reasons behind this, but these two are the most important ones. Let’s see why.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
+  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Context is king
 
@@ -40,9 +45,6 @@ thumbnail: https://thmb.techidaily.com/0f399835ae801930fc09d856b55526ca68007b6aa
 
  For example, watching South American or Spanish soap operas is a great way to learn Spanish. Although they tend to be a bit overly dramatic, this will actually boost the learning process. It’s the out-of-the-ordinary that we tend to remember. The stuff people actually say outside the classroom.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 ### Binge-watching is study time
 
  There’s no denying that watching TV series and movies is addictive. While inch-thick textbooks can become dull after a while, a TV series you like will keep you glued to the screen until the end. That’s why it’s called binge-watching.
@@ -51,9 +53,6 @@ thumbnail: https://thmb.techidaily.com/0f399835ae801930fc09d856b55526ca68007b6aa
 
  The effectiveness of TV and film in language learning is in its power to help you learn new vocabulary naturally. You watch, you learn. The only condition is to pay extra attention.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How to learn languages from TV shows and movies
 
  It’s possible to learn languages through movies and TV shows. But don’t imagine you’ll wake up one day knowing French after watching a couple of [French movies](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
@@ -71,8 +70,12 @@ thumbnail: https://thmb.techidaily.com/0f399835ae801930fc09d856b55526ca68007b6aa
 ![learn languages from tv shows and movies](https://edge.mondly.com/blog/wp-content/uploads/2023/08/learn-languages-from-tv-shows-and-movies.jpg "Learn Languages From Tv Shows And Movies 4")
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Tips for improving pronunciation through movie dialogues
 
  Learning a language by watching TV will not only teach you the real language, it will also help you learn what’s the proper intonation and articulation for it. So here’s how to make the most of it:
@@ -100,9 +103,6 @@ thumbnail: https://thmb.techidaily.com/0f399835ae801930fc09d856b55526ca68007b6aa
 
  In the age of streaming services, where a plethora of international content is available at one’s fingertips, the impact of films and TV shows on language and culture understanding has never been more potent. It offers a window into the soul of different societies, enabling people to explore, learn, and grow without ever leaving their living rooms. Whether it’s delving into historical Japan from a Kurosawa classic or navigating modern-day South Korea through the work of Bong Joon Ho, these media provide valuable tools for language learning and cultural exploration.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Learn languages with Netflix and other streaming services
 
  Netflix has taken the world by storm in recent years. We can’t help but marvel at its success. It’s easy to use, it’s addictive, and it’s a great tool for anyone wanting to [learn a new language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Why? Because you have a lot of options for audio and subtitles – especially if you use a VPN.
@@ -113,16 +113,17 @@ thumbnail: https://thmb.techidaily.com/0f399835ae801930fc09d856b55526ca68007b6aa
 
 ![watching tv in Spanish](https://edge.mondly.com/blog/wp-content/uploads/2023/08/watching-tv-in-spanish.jpg "Learn Languages From Tv Shows And Movies 5")
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
  Another thing you can do is watch the movie with its original sound (if you’re unhappy with dubbed versions) and switch the subtitles to Spanish. You’ll do this for a long while, but the final level is to watch a movie in Spanish with no subtitles. Fingers crossed!
 
  Now, I’m not saying you shouldn’t use other streaming services as well, but Netflix seems to offer the most varied catalog of foreign language audios and subtitles. Just watch and learn!
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to choose the best movies and TV shows for language learning
 
 Grab the popcorn and hit play.
@@ -140,6 +141,13 @@ Grab the popcorn and hit play.
 ### Does watching TV in another language help?
 
  Yes, watching TV in another language can help with listening comprehension, vocabulary building, and exposure to natural speech patterns.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Should you use subtitles when learning a language?
 
@@ -159,8 +167,12 @@ Grab the popcorn and hit play.
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Where to go from here: Mondly
 
  While TV shows and movies are a great way to make language learning entertaining, they may not be enough. If you’re ready to dive in deeper, get Mondly, the award-winning language learning app.
@@ -183,8 +195,6 @@ With Mondly, you will learn languages naturally using:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -192,4 +202,26 @@ With Mondly, you will learn languages naturally using:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-free-meme-makers-the-ultimate-resource-guide/"><u>[New] In 2024, Free Meme Makers – The Ultimate Resource Guide</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-quantifying-videography-storage-needs-128gb/"><u>[Updated] Quantifying Videography Storage Needs, 128GB</u></a></li>
+<li><a href="https://android-frp.techidaily.com/about-samsung-galaxy-xcover-6-pro-tactical-edition-frp-bypass-by-drfone-android/"><u>About Samsung Galaxy XCover 6 Pro Tactical Edition FRP Bypass</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exclusive-unlimited-free-mondly-pro-up-to-96-off/"><u>Exclusive: Unlimited Free Mondly Pro - Up to 96% Off!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/experience-the-best-in-language-app-design-mondly/"><u>Experience the Best in Language App Design: Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expertise-amplified-pearsons-gsl-enhanced-with-mondly/"><u>Expertise Amplified - Pearson's GSL Enhanced with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploracion-completa-de-partes-vitales-en-espanol-de-la-boca-al-rinon/"><u>Exploración Completa De Partes Vitales: En Español, De La Boca Al Riñón</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-the-best-5-language-education-mobile-apps/"><u>Explore the Best 5 Language Education Mobile Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-the-world-of-hindi-mondlys-top-8-secrets/"><u>Explore the World of Hindi - Mondly's Top 8 Secrets!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/foundations-in-chinese-typography/"><u>Foundations in Chinese Typography</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gain-mastery-over-popular-language-korean-and-squid-game/"><u>Gain Mastery Over Popular Language: Korean & Squid Game</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-die-kunst-der-entschuldigung-lernen/"><u>German: Die Kunst Der Entschuldigung Lernen</u></a></li>
+<li><a href="https://os-tips.techidaily.com/get-ready-upcoming-iphone-tap-to-pay-functionality-through-external-app-developers/"><u>Get Ready! Upcoming iPhone Tap-to-Pay Functionality Through External App Developers</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/hero5-black-vs-yis-new-tech-action-cam-showdown-update/"><u>Hero5 Black Vs. Yi's New Tech Action Cam Showdown Update</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-remove-activation-lock-on-the-iphone-x-without-previous-owner-by-drfone-ios/"><u>How to Remove Activation Lock On the iPhone X Without Previous Owner?</u></a></li>
+<li><a href="https://common-error.techidaily.com/overcoming-the-challenge-a-guide-to-correcting-icue-device-detection-failures/"><u>Overcoming the Challenge: A Guide to Correcting 'ICUE' Device Detection Failures</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/remove-device-supervision-from-your-iphone-13-by-drfone-ios/"><u>Remove Device Supervision From your iPhone 13</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/smooth-transitions-and-precision-capture-analyzing-top-obs-recorders-for-2024/"><u>Smooth Transitions & Precision Capture Analyzing Top OBS Recorders for 2024</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/why-the-apple-ipad-pro-2018-11-inches-stands-out-as-a-leading-tablet-device/"><u>Why the Apple iPad Pro (2018, 11 Inches) Stands Out as a Leading Tablet Device</u></a></li>
+</ul></div>
 
