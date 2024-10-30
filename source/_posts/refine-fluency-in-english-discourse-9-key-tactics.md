@@ -1,7 +1,7 @@
 ---
 title: Refine Fluency in English Discourse – 9 Key Tactics
-date: 2024-08-23T00:24:48.127Z
-updated: 2024-08-24T00:24:48.127Z
+date: 2024-10-26T10:52:47.131Z
+updated: 2024-10-29T18:37:29.483Z
 tags:
   - speak
   - english
@@ -35,21 +35,28 @@ That being said… let’s get you fluent!
  Both podcasts and audiobooks are incredibly useful when you want to**improve your spoken English at home** . You’ll do one thing while helping yourself in two ways. Firstly, you’ll get your hearing used to the English language and secondly – you’ll enrich your mind with useful information on certain topics such as technology, life, Brexit, music or – again –_Harry Potter!_  Or   _The Lord of the Rings, The Great Gatsby, War and Peace, One Hundred Years of Solitude_ and so on. The people that record audiobooks usually have amazing American English or British English accents (take Jim Dale for example) and hearing them will bring you closer to the accent you always wanted to have.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 3\. Improve your spoken English online or using smart tech
 
  In recent years, technology has come a long way and language learning **apps such as Mondly make it possible for you to talk to a chatbot that understands voice input and replies with a human voice** . Its goal is to provide fun and adaptive lessons that encourage learners like yourself to practice the language they are learning in everyday scenarios, such as ordering in a restaurant or making a reservation. This all sounds like an SF scenario, but chatbots can already recognize millions of inputs. Suddenly, Spike Jonze’s masterpiece –[“Her”](https://www.imdb.com/title/tt1798709/) – isn’t as unlikely as you thought, isn’t it?
 
 ![spoken english conversation](https://edge.mondly.com/blog/wp-content/uploads/2019/02/spoken-english-conversation-1-350x600.jpg "Top 9 Tips And Tricks That Will Help Improve Your Spoken English 3")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  “The Mondly Chatbot”  
  Spanish with target language English
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 4\. How to learn spoken English the easy way
 
  Speaking is actually the easy way of improving your spoken English. Easy, but at the same time the hard way. If you don’t have the possibility of traveling to an English-speaking country or the good fortune of having an English-speaking friend, this method is not an option for you.
@@ -68,9 +75,6 @@ That being said… let’s get you fluent!
 
  Oh! How I liked singing this piece when I started studying English. Loved it! Start with nursery songs, continue with tongue twisters and finish your training with Eminem songs. When you’ll manage to master Eminem,**your spoken English will be flawless.**
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 6\. Give yourself spoken English lessons
 
  As mentioned before, thinking in English can really help you improve your speaking skills. But more than thinking in English, you can act as both tutor and student. Remember the times when you did grammar exercises by yourself? Here’s what you could do now: listen to audios in English – it can be a podcast, audiobook or even a Youtube video of Jimmy Fallon – then record yourself while trying to repeat the exact same words. Comparing the two versions of the same audio will help you easily identify your mistakes and correct them.
@@ -80,9 +84,12 @@ That being said… let’s get you fluent!
 If the problem is your accent, diction could also help you improve.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 7\. Watch movies and study spoken English conversations
 
  The best thing about movies is that they can be both fun and educative. After exploring the previous tips you probably already know how you can use movies to your own advantage.
@@ -90,15 +97,16 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 ![how to learn spoken english](https://edge.mondly.com/blog/wp-content/uploads/2019/02/how-to-learn-spoken-english-1024x682.jpg "Top 9 Tips And Tricks That Will Help Improve Your Spoken English 5")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  “Scary” by Ludovic Toinel©
 
  From vocabulary to accents and intonation, movies can offer a great deal of information you can use to create your own syllabus and start training. Just choose your list and begin your research! You’ll soon find out that movie dialogues are easily digestible even for an ESL speaker.
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 8\. Learn common idioms, sayings, and expressions
 
  This technique is an absolute boost for your**English vocabulary** ! Learning common English sayings and expressions will spice up your conversations and make you fluent fast.
@@ -130,8 +138,6 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -139,4 +145,17 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-critical-asmr-video-elements-to-note/"><u>[New] In 2024, Critical ASMR Video Elements to Note</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-regulatory-views-on-screenshots-from-youtube-streaming-for-2024/"><u>[Updated] Regulatory Views on Screenshots From YouTube Streaming for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/complete-compilation-of-playstation-5s-unique-game-titles/"><u>Complete Compilation of PlayStation 5'S Unique Game Titles</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/conversione-rapida-online-trasformare-file-mpe-a-formato-m4a-gratuitamente-con-movavi/"><u>Conversione Rapida Online: Trasformare File MPE a Formato M4A Gratuitamente Con Movavi</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/easy-guide-transforming-mp4-files-into-wmv-format-without-a-hitch/"><u>Easy Guide: Transforming MP4 Files Into WMV Format Without a Hitch</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-french-sounds-a-beginners-resource/"><u>Navigating French Sounds: A Beginner's Resource</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-confidently-in-korean-choosing-the-top-6-learning-websites/"><u>Speak Confidently in Korean: Choosing the Top 6 Learning Websites</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spinning-yarns-in-a-buccaneer-written-form/"><u>Spinning Yarns in a Buccaneer’ Written Form</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/top-11-unbeatable-discounts-on-apple-watches-in-june-july-2-your-ultimate-guide/"><u>Top 11 Unbeatable Discounts on Apple Watches in June-July 2#: Your Ultimate Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sygkentrwsh-eyxhs-kalwn-piatoys-gkreman/"><u>Συγκέντρωση Ευχής Καλών Πιατούς Γκρεμάν</u></a></li>
+</ul></div>
 

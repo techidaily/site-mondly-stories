@@ -1,7 +1,7 @@
 ---
 title: "Thankful Talk: Multilingual Manners and Phrases (155)"
-date: 2024-10-21T17:18:55.231Z
-updated: 2024-10-24T17:38:58.376Z
+date: 2024-10-25T05:55:02.956Z
+updated: 2024-10-30T07:10:31.973Z
 tags:
   - speak
   - english
@@ -59,10 +59,10 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
  “Thanks” by Hanny Naibaho©
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The origin of saying “thank you”
@@ -89,10 +89,10 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## From 0 to conversational in over 40 languages
@@ -125,18 +125,20 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-avoiding-pitfalls-smart-strategies-for-acquiring-youtubes/"><u>[New] 2024 Approved Avoiding Pitfalls Smart Strategies for Acquiring Youtubes</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-extensive-movement-analysis-2023/"><u>[New] Extensive Movement Analysis 2023</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-the-essential-tips-for-perfect-gopro-time-lapse-for-2024/"><u>[New] The Essential Tips for Perfect GoPro Time Lapse for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-innovative-use-of-instagram-filters-in-your-photo-posts/"><u>[Updated] 2024 Approved Innovative Use of Instagram Filters in Your Photo Posts</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-securesave-specialists-judgment/"><u>[Updated] 2024 Approved SecureSave Specialists Judgment</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-leverage-linked-profiles-to-amplify-fb-stories-for-2024/"><u>[Updated] Leverage Linked Profiles to Amplify FB Stories for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-ultimate-picture-narrative-craft-pro-edition/"><u>2024 Approved Ultimate Picture Narrative Craft - Pro Edition</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-fix-part-of-the-touch-screen-not-working-on-oppo-reno-11-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Part of the Touch Screen Not Working on Oppo Reno 11 5G | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-mastery-made-easy-mondly-launches-virtual-reality-for-learners/"><u>Language Mastery Made Easy: Mondly Launches Virtual Reality for Learners</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-varieties-of-macaus-triad/"><u>Language Varieties of Macau's Triad</u></a></li>
-<li><a href="https://discover-answers.techidaily.com/optimales-festplattenbereinigen-mit-aomei-backupper-die-perfekte-losung/"><u>Optimales Festplattenbereinigen Mit AOMEI Backupper - Die Perfekte Lösung!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-rich-tapestry-of-farsi-history-and-its-learning-perks/"><u>The Rich Tapestry of Farsi History & Its Learning Perks</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/why-learn-english-benefits-explored/"><u>Why Learn English? Benefits Explored</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-unlock-flawless-mac-screen-record-through-keyboard-expertise/"><u>[New] Unlock Flawless Mac Screen Record Through Keyboard Expertise</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/1716069114604-updated-2024-approved-top-ios-psp-games-and-emulators-revealed/"><u>[Updated] 2024 Approved Top iOS PSP Games & Emulators Revealed!</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-overcoming-the-barriers-to-distance-podcasting/"><u>2024 Approved Overcoming the Barriers to Distance Podcasting</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/first-steps-in-arabic-language-learning/"><u>First Steps in Arabic Language Learning</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/from-zero-to-hero-how-an-iphone-16-case-can-transform-your-phones-protection-zdnet-insights/"><u>From Zero to Hero: How an iPhone 16 Case Can Transform Your Phone's Protection | ZDNET Insights</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-from-zero-to-hero-youtube-tech-required/"><u>In 2024, From Zero to Hero YouTube Tech Required</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-pinnacle-teaser-film-assortment/"><u>In 2024, Pinnacle Teaser Film Assortment</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-oneplus-ace-2v-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For OnePlus Ace 2V | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/masks-and-mayhem-in-diverse-cultures/"><u>Masks & Mayhem in Diverse Cultures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578498456-norwegian-mastery-in-short-daily-segments/"><u>Norwegian Mastery in Short Daily Segments!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pirate-parlance-primer-navigating-20-key-expressions/"><u>Pirate Parlance Primer: Navigating 20 Key Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/redefining-user-agreement-with-transparency/"><u>Redefining User Agreement - With Transparency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sizzling-syntax-the-subtleties-of-seductive-sentences-in-spanish/"><u>Sizzling Syntax: The Subtleties of Seductive Sentences in Spanish</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/solving-blue-screen-errors-storahcisys-troubleshooting-guide/"><u>Solving Blue Screen Errors: Storahci.sys Troubleshooting Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/translingual-impact-on-the-fabric-of-eng/"><u>Translingual Impact on the Fabric of ENG</u></a></li>
 </ul></div>
 

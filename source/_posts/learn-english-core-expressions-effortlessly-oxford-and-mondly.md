@@ -1,7 +1,7 @@
 ---
 title: Learn English Core Expressions Effortlessly - Oxford & Mondly
-date: 2024-08-15T17:46:58.860Z
-updated: 2024-08-16T17:46:58.860Z
+date: 2024-10-26T10:25:04.272Z
+updated: 2024-10-30T10:18:59.278Z
 tags:
   - speak
   - english
@@ -35,8 +35,12 @@ thumbnail: https://thmb.techidaily.com/90c2e01727fc918de7950373ab7790d2b6bd79b92
  Since its inception, the Oxford 3000 has been revised to reflect the language in daily use that has changed a lot due to the growth of the internet and social media.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## The most important words in English and their relation to CEFR levels
 
  As the paper [_Oxford 3000 and Oxford 5000: The Most Important Words to Learn in English_](https://elt.oup.com/feature/global/expert/oxford-3000?cc=ro&selLanguage=en) shows, “vocabulary size is one of the most useful indicators of overall language level”. So here’s exactly how the Common European Framework of Reference (CEFR) levels look in relation to the 5000 most frequent words:
@@ -79,8 +83,6 @@ thumbnail: https://thmb.techidaily.com/90c2e01727fc918de7950373ab7790d2b6bd79b92
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -88,4 +90,26 @@ thumbnail: https://thmb.techidaily.com/90c2e01727fc918de7950373ab7790d2b6bd79b92
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-elevating-engagement-with-innovative-techniques-in-fb-lives/"><u>[New] 2024 Approved Elevating Engagement with Innovative Techniques in FB Lives</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-cutting-edge-capture-tips-for-professional-sound-recording/"><u>[New] In 2024, Cutting Edge Capture Tips for Professional Sound Recording</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-secrets-to-streamlining-lone-broadcasts-a-practical-guide/"><u>[New] In 2024, Secrets to Streamlining Lone Broadcasts A Practical Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apples-daily-pick-the-global-favorite/"><u>Apple's Daily Pick: The Global Favorite</u></a></li>
+<li><a href="https://facebook.techidaily.com/does-blog-anonymity-persist/"><u>Does Blog Anonymity Persist?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/early-risers-late-sleepers-good-morning-in-10-different-languages/"><u>Early Risers, Late Sleepers: Good Morning In 10 Different Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/edunets-showcase-at-mansion-house-london/"><u>Edunet's Showcase at Mansion House, London</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-language-accessibility-mondly-enhances-oculus-quest-vr/"><u>Global Language Accessibility: Mondly Enhances Oculus Quest VR</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/how-does-googles-new-gemini-ai-compare-to-microsofts-chatgpt-an-in-depth-analysis/"><u>How Does Google's New Gemini AI Compare to Microsoft's ChatGPT: An In-Depth Analysis?</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-4-most-known-ways-to-find-someone-on-tinder-for-motorola-edge-40-neo-by-name-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Most-Known Ways to Find Someone on Tinder For Motorola Edge 40 Neo by Name | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-vivo-y78plus-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Vivo Y78+ | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-unlock-software-for-tecno-camon-20-premier-5g-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>In 2024, The Best Android Unlock Software For Tecno Camon 20 Premier 5G Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/italian-travelers-100plus-helpful-italian-phrases-for-your-trip/"><u>Italian Travelers: 100+ Helpful Italian Phrases For Your Trip</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-the-art-of-business-interaction-and-conversation/"><u>Mastering the Art of Business Interaction and Conversation</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/secure-your-pc-with-a-tailored-lock-pattern-on-windows-11/"><u>Secure Your PC with a Tailored Lock Pattern on Windows 11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transformative-tech-education-supported-by-mondly-and-apples/"><u>Transformative Tech Education Supported by Mondly and Apples</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-the-local-speak-key-russian-expressions-explained/"><u>Unlock the Local Speak: Key Russian Expressions Explained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/what-is-commonly-spoken-by-israelis/"><u>What Is Commonly Spoken by Israelis?</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/3gpgif-movavi/"><u>オンラインで自由に変更: 3GPファイルからGIFへの無料変換 - Movavi</u></a></li>
+</ul></div>
 

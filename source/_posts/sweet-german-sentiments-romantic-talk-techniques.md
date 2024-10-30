@@ -1,7 +1,7 @@
 ---
 title: "Sweet German Sentiments: Romantic Talk Techniques"
-date: 2024-08-15T17:47:43.452Z
-updated: 2024-08-16T17:47:43.452Z
+date: 2024-10-29T09:56:00.271Z
+updated: 2024-10-30T13:32:37.961Z
 tags:
   - speak
   - english
@@ -34,8 +34,12 @@ thumbnail: https://thmb.techidaily.com/6060180ff020afbbd02ae1895cf9d82d0058a11f9
 **The number one rule for German pick up lines** is to deliver them in a fun and playful manner.[Pick up lines](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) can generally be quite cheesy, so it’s important to be careful not to alienate the person you’re trying to flirt with. Your chances of success will increase if you deliver the pick up lines well, adopting a tongue-in-cheek approach. The goal is to make them smile or even laugh, not roll their eyes in annoyance.
 
 <!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Cheesy Pick Up Lines in German
 
 * _Ich hatte einen schlechten Tag. Möchtest du einen Kaffee mit mir trinken und meinen Tag retten?_  (“I had a bad day. Would you like to drink a coffee with me and save my day?”)
@@ -51,9 +55,6 @@ thumbnail: https://thmb.techidaily.com/6060180ff020afbbd02ae1895cf9d82d0058a11f9
 
  Using a 100% cheesy pick up line in German? Your delivery becomes even more crucial. Consider testing the waters first to see if humor is appreciated. If the response is positive, then go ahead and use it!
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Smooth German Pick Up Lines
 
 * _Denkst du, wir haben einen gemeinsamen Freund, der uns einander vorstellen könnte?_  (“Do you think that we have a mutual friend who could introduce us to each other?”)
@@ -68,8 +69,18 @@ thumbnail: https://thmb.techidaily.com/6060180ff020afbbd02ae1895cf9d82d0058a11f9
 * _Kennen wir uns nicht irgendwoher?_  (“Don’t we know each other?”)
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Memorable Pick-Up Lines In German For Every Occasion 2")
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ##### Learn German fast
@@ -79,8 +90,12 @@ thumbnail: https://thmb.techidaily.com/6060180ff020afbbd02ae1895cf9d82d0058a11f9
 [Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-10001&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-10001&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-10001&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-10001&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-10001%26mt%3D8)
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Pick Up Lines to Use on Guys in Germany
 
 * _Wäre ich ein Auto, wärst du meine Autobahn – ohne Geschwindigkeitsbegrenzung direkt zu meinem Herzen._  (“If I were a car, you’d be my autobahn – with no speed limit straight to my heart.”)
@@ -97,9 +112,6 @@ thumbnail: https://thmb.techidaily.com/6060180ff020afbbd02ae1895cf9d82d0058a11f9
 
  On the other hand, if they do like football and you decide to use a football-themed pick up line on them, you may just score a goal!
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Best Pick Up Lines for Girls in Germany
 
 * _Bist du ein Berliner Pfannkuchen? Denn du machst mein Leben süßer._  (“Are you a Berliner doughnut? Because you make my life sweeter.”)
@@ -123,8 +135,12 @@ That being said, we wish you happy flirting! 😏
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Learn German for the one you love
 
  Did you use one of these pick up lines in German and successfully broke the ice? Nice job. Or maybe you just want to learn more? Get Mondly now and enrich your German flirting vocabulary with a dedicated category on “Romance”.
@@ -143,8 +159,6 @@ That being said, we wish you happy flirting! 😏
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -152,4 +166,23 @@ That being said, we wish you happy flirting! 😏
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-revel-in-the-best-of-both-worlds-10-meme-feeds-for-chuckles-and-sobs-for-2024/"><u>[New] Revel in the Best of Both Worlds 10 Meme Feeds for Chuckles & Sobs for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-secrets-for-successful-live-streams-on-youtube-with-a-tiny-fanbase-for-2024/"><u>[New] Secrets for Successful Live Streams on YouTube with a Tiny Fanbase for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-decoding-the-economic-riches-of-mr-beast-for-2024/"><u>[Updated] Decoding the Economic Riches of Mr. Beast for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accelerate-language-learning-at-home-french-focus/"><u>Accelerate Language Learning: At-Home French Focus</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/accelerated-approach-eliminating-signatures-quickly/"><u>Accelerated Approach Eliminating Signatures Quickly</u></a></li>
+<li><a href="https://fake-location.techidaily.com/best-10-mock-location-apps-worth-trying-on-nokia-c12-drfone-by-drfone-virtual-android/"><u>Best 10 Mock Location Apps Worth Trying On Nokia C12 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-french-idioms-elevating-your-speech-quality/"><u>Dive Into French Idioms: Elevating Your Speech Quality</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dubai-2020-linguistlabs-the-new-era-of-multilingualism/"><u>Dubai 2020 LinguistLabs: The New Era of Multilingualism</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-italy-fluently-essential-phrases-and-vocabulary-guide/"><u>Explore Italy Fluently: Essential Phrases and Vocabulary Guide</u></a></li>
+<li><a href="https://win-answers.techidaily.com/how-to-overcome-graphics-rendering-issues-tackling-errgfxd3dinit-in-grand-theft-auto-v/"><u>How to Overcome Graphics Rendering Issues: Tackling ERR_GFX_D3D_INIT in Grand Theft Auto V</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-sony-xperia-1-v-without-the-home-button-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Sony Xperia 1 V Without the Home Button | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/monday-to-domingo-learn-the-days-of-the-week-in-spanishback-buttonfilter-button/"><u>Monday To Domingo - Learn The Days Of The Week In SpanishBack ButtonFilter Button</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-starts-small-from-preschoolers-to-fifth-graders/"><u>Spanish Starts Small: From Preschoolers To Fifth Graders</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/step-by-step-on-setting-individual-views-for-directories-and-nested-folders/"><u>Step-by-Step on Setting Individual Views for Directories and Nested Folders</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-ultimate-solution-to-the-cant-find-msvcr71dll-problem-on-your-pc/"><u>The Ultimate Solution to the Can't Find msvcr71.dll Problem on Your PC</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/viking-vernacular-a-linguistic-map-of-norse-history/"><u>Viking Vernacular: A Linguistic Map of Norse History</u></a></li>
+</ul></div>
 

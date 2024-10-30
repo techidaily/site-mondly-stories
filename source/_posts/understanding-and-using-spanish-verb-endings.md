@@ -1,7 +1,7 @@
 ---
 title: Understanding and Using Spanish Verb Endings
-date: 2024-10-18T16:15:03.999Z
-updated: 2024-10-24T17:04:03.253Z
+date: 2024-10-27T13:42:06.498Z
+updated: 2024-10-30T08:27:04.910Z
 tags:
   - speak
   - english
@@ -65,10 +65,10 @@ Spanish verbs conjugations make sense now, don’t they?
  Before moving on to irregular Spanish verbs and more examples, let’s also explore**the past and future of regular Spanish verbs** . What do you think? Wouldn’t that be useful?
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Spanish Preterite Tense – Regular Preterite Verb Endings
@@ -115,10 +115,10 @@ And the conjugation of comer will look like this:
  Keep in mind the fact that the first person singular (_yo_), third person singular (_él, ella_), and second person formal singular (_usted_) forms use tildes on the final letters of the verb endings. And one little tilde can make all the difference in the world! If you don’t know yet how accents work, take a look at our article on **[Spanish accents and how to master them all](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .**
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Spanish Simple Future Tense – Regular Simple Future Verb Endings
@@ -153,18 +153,18 @@ And the conjugation of comer will look like this:
 * _Vosotros / Vosotras escrib**iréis**_
 * _Ellos / Ellas / Ustedes escrib**irán**_
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Spanish verbs: how to master irregular Spanish verbs
 
  Remember how you managed to learn**irregular English verbs** ? Well, there are tricks that you can use, but the truth is that, in time,**irregular Spanish verbs** will just… come to you. No joke. Once you get used to the language and use it all the time, your brain will start making connections.
 
  As you already know,**irregular verbs** are “rebel” verbs that follow no regular set of rules. Statistically, in Spanish, almost all verbs ending in_\-ar_ are regular, almost all verbs ending in_\-er_ are irregular and less than half of all verbs ending in_\-ir_ are irregular. So, let’s disentangle this complicated situation of**irregular Spanish verbs** and look for some patterns to help us learn faster.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. Stem-Changing Verbs in Spanish
 
@@ -221,10 +221,10 @@ And the conjugation of comer will look like this:
 _Adquirir_ (to acquire) and_inquirir_ (to inquire) are just as rebellious because to the final letter “i” of their stem, we will need to add an “e”. Thus, “I acquire” will be “Yo adquiero”.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Spanish verbs with an irregular “yo” form
@@ -342,19 +342,22 @@ Well… this is it! This is our full lesson on**Spanish verbs.**
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/updated-content-creator-acclaim-through-subscriber-recognition-for-2024/"><u>[Updated] Content Creator Acclaim Through Subscriber Recognition for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-best-mac-capture-software-excluding-traditional-bandicam/"><u>2024 Approved Best Mac Capture Software Excluding Traditional Bandicam</u></a></li>
-<li><a href="https://games-able.techidaily.com/extending-visual-scope-of-xbox-series-xs-with-secondary-screening/"><u>Extending Visual Scope of Xbox Series X|S with Secondary Screening</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/gran-guia-del-cuerpo-humano-la-historia-desde-el-cabello-a-los-pies/"><u>Gran Guía Del Cuerpo Humano: La Historia Desde El Cabello A Los Pies</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-honor-x50i-without-the-home-button-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Honor X50i Without the Home Button | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-8-plus-to-other-iphone-11-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 8 Plus to other iPhone 11 devices? | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-poco-c55-mirror-screen-to-pc-drfone-by-drfone-android/"><u>In 2024, How Poco C55 Mirror Screen to PC? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/loves-universal-language-beyond-verbal-expressions/"><u>Love's Universal Language: Beyond Verbal Expressions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-dominates-2022-premier-language-learning-app/"><u>Mondly Dominates 2022: Premier Language Learning App</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/tales-of-arise-resolved-issues-and-bug-fixes/"><u>Tales of Arise: Resolved Issues and Bug Fixes</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/top-10-international-technology-experts-share-their-thoughts-on-artifice-intelligence/"><u>Top 10 International Technology Experts Share Their Thoughts on Artifice Intelligence</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/transform-your-talking-ability-now-at-half-the-usual-rate/"><u>Transform Your Talking Ability - Now at Half the Usual Rate</u></a></li>
-<li><a href="https://win-remarkable.techidaily.com/trasforma-i-tuoi-file-3gp-in-animazioni-flash-swf-senza-costo-con-movavi/"><u>Trasforma I Tuoi File .3GP in Animazioni Flash SWF Senza Costo Con Movavi</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-japans-language-of-respect-and-friendship/"><u>Unlocking Japan's Language of Respect & Friendship</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-no-money-no-problem-guide-to-flying-solo-in-google-meet/"><u>[New] 2024 Approved No Money? No Problem! Guide to Flying Solo in Google Meet</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-your-guide-to-instantaneously-add-closed-captions-to-youtube-clips/"><u>[New] 2024 Approved Your Guide to Instantaneously Add Closed Captions to YouTube Clips</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-mastering-srt-editing-on-macos-a-comprehensive-guide-for-2024/"><u>[New] Mastering SRT Editing on macOS A Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtube-masterclass-the-10-best-trimming-software/"><u>[New] YouTube Masterclass The 10 Best Trimming Software</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-clearview-recorder-xtreme-win10/"><u>[Updated] 2024 Approved ClearView Recorder Xtreme (Win10)</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-dynamic-iphone-photography-the-key-to-capturing-motion-blur/"><u>[Updated] In 2024, Dynamic iPhone Photography The Key to Capturing Motion Blur</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-how-to-uncover-agencies-with-superior-cinematic-crews/"><u>[Updated] In 2024, How to Uncover Agencies with Superior Cinematic Crews</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daily-dose-of-bengali-language/"><u>Daily Dose of Bengali Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-limitless-possibilities-get-free-mondly-pro-for-life-today/"><u>Discover Limitless Possibilities - Get Free Mondly Pro for Life Today!</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/discover-the-best-ai-tools-for-automated-professional-quality-slideshows/"><u>Discover the Best AI Tools for Automated, Professional-Quality Slideshows</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-greetings-101-saying-hello-in-the-language-of-love/"><u>French Greetings 101: Saying Hello in the Language of Love</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-alphabets-to-characters-chinese-writing-101/"><u>From Alphabets to Characters: Chinese Writing 101</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hangul-made-simple-the-quickest-way-to-asian-alphabets/"><u>Hangul Made Simple: The Quickest Way to Asian Alphabets</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-8-without-swiping-up-6-ways-by-drfone-ios/"><u>How To Unlock iPhone 8 Without Swiping Up? 6 Ways</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/nations-with-thanksgiving-customs-and-rituals/"><u>Nations with Thanksgiving Customs and Rituals</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/world-teachers-day-a-collection-of-words-for-teacher-in-different-languages/"><u>World Teachers' Day: A Collection Of Words For Teacher In Different Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-whipped-cream-30-chocolate-translations/"><u>Worldwide Whipped Cream: 30 Chocolate Translations</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Ukranian in a Flash, One Minute a Day (65 Chars) - Note: Adjusted for Brevity"
-date: 2024-08-23T00:25:13.138Z
-updated: 2024-08-24T00:25:13.138Z
+date: 2024-10-24T19:32:41.070Z
+updated: 2024-10-30T03:21:32.068Z
 tags:
   - speak
   - english
@@ -26,6 +26,13 @@ thumbnail: https://thmb.techidaily.com/c01f488742f525379e15c90538d56863d27988360
 
  Additionally, Ukrainian’s vocabulary also includes a large number of words borrowed from [Polish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) during the Polish rule from the 13th to the 17th centuries.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Is Ukrainian hard to learn?
 
  Due to being a Slavic language, Ukrainian is one of the hardest languages to learn by native English speakers. In fact, according to [the FSI](https://www.state.gov/foreign-language-training/) (Foreign Service Institute) of the US government, an English speaker would need about 1100 class hours or 44 weeks of practice to become fluent in Ukrainian. This makes Ukrainian as hard to learn as Polish, Icelandic or Finnish. However, you don’t have to get discouraged. Japanese, Chinese and Korean are still much harder to learn than Ukrainian.
@@ -33,8 +40,12 @@ thumbnail: https://thmb.techidaily.com/c01f488742f525379e15c90538d56863d27988360
  Besides, choosing the right [Ukrainian course](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6604&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6604?mother%5Flang=en%5Fus?target%5Flang=ua&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6604?mother%5Flang=en%5Fus?target%5Flang=ua) can work wonders. Read on to discover what is the best way to learn Ukrainian fast.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Start with the Ukrainian alphabet
 
  One of the reasons why Ukrainian is a little bit harder to learn is its alphabet. As you probably already know, the Ukrainian language uses the same alphabet as Russian – the Cyrillic alphabet.
@@ -46,8 +57,18 @@ thumbnail: https://thmb.techidaily.com/c01f488742f525379e15c90538d56863d27988360
  And you know what’s the best thing about it? Almost all the words in Ukrainian can be pronounced the same way they are written. As soon as you will know how to pronounce each individual Ukrainian letter, you will also be able to read out loud in Ukrainian.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 10 basic Ukrainian words and phrases you can learn right now
 
  Are you excited to learn Ukrainian? Let’s start small. Here are the top 10 basic Ukrainian words and phrases that everyone should know:
@@ -66,8 +87,12 @@ thumbnail: https://thmb.techidaily.com/c01f488742f525379e15c90538d56863d27988360
  Here’s a glimpse of how some of these Ukrainian words sound when spoken by a fluent speaker:
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to learn Ukrainian fast with Mondly
 
  Now let’s discuss the real reason why you’re here: how to learn Ukrainian fast.
@@ -97,8 +122,6 @@ thumbnail: https://thmb.techidaily.com/c01f488742f525379e15c90538d56863d27988360
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -106,4 +129,22 @@ thumbnail: https://thmb.techidaily.com/c01f488742f525379e15c90538d56863d27988360
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-capture-the-skyline-horizontal-photos-in-a-phone-for-2024/"><u>[New] Capture the Skyline Horizontal Photos in a Phone for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-direct-download-and-conversion-best-youtube-to-mp3-software-for-2024/"><u>[New] Direct Download & Conversion Best YouTube to MP3 Software for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-be-inspired-today-the-essentials-of-stunning-photos-on-ig-for-2024/"><u>[Updated] Be Inspired Today! The Essentials of Stunning Photos on IG for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210714897-9798822908178-everything-i-learned-about-prostate-cancer-began-at-sixty-five/"><u>Everything I Learned about Prostate Cancer Began at Sixty-Five | Free Book</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/google-and-mondly-team-up-for-your-linguistic-endeavors/"><u>Google and Mondly Team Up for Your Linguistic Endeavors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/italian-journey-companion-phrases-for-a-seamless-visit/"><u>Italian Journey Companion: Phrases for a Seamless Visit</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-american-versus-old-world-portuguese-buttons/"><u>Latin American Versus Old World Portuguese Buttons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-english-contractions-a-comprehensive-walkthrough/"><u>Mastering English Contractions: A Comprehensive Walkthrough</u></a></li>
+<li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-motorola-razr-40-drfone-by-drfone-virtual-android/"><u>Methods to Change GPS Location On Motorola Razr 40 | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/professional-tips-rotate-and-flip-iphone-imagery/"><u>Professional Tips Rotate and Flip iPhone Imagery</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/streamlining-workflow-with-pre-made-excel-tables-a-guide-on-enhancing-productivity-via-google-sheets-tools/"><u>Streamlining Workflow with Pre-Made Excel Tables: A Guide on Enhancing Productivity via Google Sheets Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-100-spelling-pitfalls-avoiding-the-most-frequent-mistakes/"><u>Top 100 Spelling Pitfalls: Avoiding the Most Frequent Mistakes</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/top-ranking-laptop-picks-for-2e24-comprehensive-tests-and-reviews-by-tech-gurus/"><u>Top-Ranking Laptop Picks for 2E24: Comprehensive Tests & Reviews by Tech Gurus</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-multilingual-magic-of-saint-nick/"><u>Unveiling The Multilingual Magic of Saint Nick</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/poiothta-eygnwmwn-klisma-gkreman/"><u>Ποιότητα Ευγνώμων Κλίσμα Γκρεμάν</u></a></li>
+</ul></div>
 

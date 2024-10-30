@@ -1,7 +1,7 @@
 ---
 title: "Speaking Up: The Initial AR Language Companion"
-date: 2024-10-17T16:40:18.370Z
-updated: 2024-10-24T17:59:03.454Z
+date: 2024-10-27T18:44:03.415Z
+updated: 2024-10-29T23:46:12.459Z
 tags:
   - speak
   - english
@@ -43,16 +43,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 > _We started working on Mondly AR in August 2017 and by the time [Blade Runner 2049](http://www.imdb.com/title/tt1856101/) was released, we already had a working demo. Watching Blade Runner 2049 made me realize that we were beginning to build the future. To me, Joi (the holographic companion of officer K) looked like a super advanced version of Mondly – the character we were creating. They can both understand speech, reply with a human voice and change outfits. Of course, Mondly is not as smart and realistic as Joi. Yet. But she can teach you 7 languages. And this is just the beginning._
 
 <!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Here’s what you should know about Mondly AR
@@ -71,10 +65,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facts and figures about Mondly
@@ -91,10 +85,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 * [Mondly Press Kit](https://www.dropbox.com/sh/vo4j5214zvwdxy5/AAC20VxIgpuiEe7ED2%5F37VNEa?dl=0)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Media mentions about Mondly
@@ -126,14 +120,24 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/ed-creatives-making-marvel-virtual-worlds-vivid/"><u>[Updated] Creatives Making Marvel Virtual Worlds Vivid</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-revolutionize-zoom-videos-with-key-conversion-methods/"><u>In 2024, Revolutionize Zoom Videos with Key Conversion Methods</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-the-premier-7-apps-transforming-mobile-video-streaming-on-youtube/"><u>In 2024, The Premier 7 Apps Transforming Mobile Video Streaming on YouTube</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/introduction-to-the-german-phonetic-system/"><u>Introduction to The German Phonetic System</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/master-the-art-of-english-mondlys-blueprint/"><u>Master the Art of English: Mondly's Blueprint</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-latin-the-least-complicated-method-online/"><u>Mastering Latin: The Least Complicated Method Online</u></a></li>
-<li><a href="https://games-able.techidaily.com/microsofts-new-trial-an-ai-powered-assistant-for-xbox-support-explained-insights-from-zdnet/"><u>Microsoft's New Trial: An AI-Powered Assistant for Xbox Support Explained - Insights From ZDNet</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-fuses-with-pearson-knowledge-collective/"><u>Mondly Fuses with Pearson Knowledge Collective</u></a></li>
-<li><a href="https://solve-lab.techidaily.com/top-free-recording-software-para-windows-11-convertir-mp4-mkv-y-mov-a-dvd-sin-coste-descubre-el-mejor-programa-de-2020/"><u>Top Free Recording Software Para Windows 11: Convertir MP4, MKV Y MOV a DVD Sin Coste - ¡Descubre El Mejor Programa De 2020!</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-easy-steps-to-activate-a-full-screen-grid-on-google-meet/"><u>[New] 2024 Approved Easy Steps to Activate a Full-Screen Grid on Google Meet</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/codec-comparison-are-we-better-with-av1-or-vp9-in-2024/"><u>Codec Comparison Are We Better With AV1 or VP9, In 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-francophone-literature-20-best-books-for-beginners/"><u>Dive Into Francophone Literature: 20 Best Books for Beginners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enlightening-education-artificial-intelligences-role-unveiled/"><u>Enlightening Education: Artificial Intelligence's Role Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/entender-todas-as-variedades-do-portuguese-em-gritos-de-ola/"><u>Entender Todas as Variedades Do Portuguese Em Gritos De Olá</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-online-practices-for-rapid-language-proficiency/"><u>Essential Online Practices for Rapid Language Proficiency</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-nokia-c32-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Nokia C32 to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-iphone-15-pro-asking-for-passcode-after-ios-1714-update-what-to-do-by-drfone-ios/"><u>In 2024, iPhone 15 Pro Asking for Passcode after iOS 17/14 Update, What to Do?</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-milliseconds-and-megabits-deconstructing-20mb-videos/"><u>In 2024, Milliseconds & Megabits Deconstructing 20MB Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-morning-chatter-expressing-good-morning-in-10-languages/"><u>International Morning Chatter: Expressing Good Morning in 10 Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/la-gran-exploracion-del-corazon-humano-en-espanol-de-las-narices-al-subterraneo/"><u>La Gran Exploración Del Corazón Humano en Español: De Las Narices Al Subterráneo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/macaus-language-diversity-on-display/"><u>Macau’s Language Diversity on Display</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/paso-a-paso-lectura-de-horas-y-segundos-en-espanol/"><u>Paso a Paso: Lectura De Horas Y Segundos en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/perfecting-punctuation-an-insight-into-english-contraction-usage/"><u>Perfecting Punctuation: An Insight Into English Contraction Usage</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/pioneering-profit-navigating-the-path-to-money-making-on-vimeo-for-2024/"><u>Pioneering Profit Navigating the Path to Money-Making on Vimeo for 2024</u></a></li>
+<li><a href="https://win-bits.techidaily.com/step-by-step-guide-restore-your-usb-without-resorting-to-format/"><u>Step-by-Step Guide: Restore Your USB Without Resorting to Format</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/step-by-step-instructions-for-correcting-hp-officejet-pro-6978-printer-drivers/"><u>Step-by-Step Instructions for Correcting HP OfficeJet Pro 6978 Printer Drivers</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/stream-quality-which-is-superior-obs-or-fraps-in-2024/"><u>Stream Quality Which Is Superior, OBS or Fraps, In 2024</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/taming-troublesome-buffer-underruns/"><u>Taming Troublesome Buffer Underruns</u></a></li>
 </ul></div>
 

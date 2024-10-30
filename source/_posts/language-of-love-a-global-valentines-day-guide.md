@@ -1,7 +1,7 @@
 ---
 title: "Language of Love: A Global Valentine’s Day Guide"
-date: 2024-08-23T00:25:06.295Z
-updated: 2024-08-24T00:25:06.295Z
+date: 2024-10-23T11:06:20.695Z
+updated: 2024-10-30T14:10:41.412Z
 tags:
   - speak
   - english
@@ -107,6 +107,13 @@ Here are some more ways to say “I love you” in other languages:
 
 **Here’s a short recap with only the correct pronunciations:**
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## “I love you” in sign language
 
  To sign “I love you”, put up your thumb, index finger and pinkie finger while keeping your ring finger and your middle finger down. Like this:
@@ -114,22 +121,27 @@ Here are some more ways to say “I love you” in other languages:
 ![I love you in sign language](https://edge.mondly.com/blog/wp-content/uploads/2018/10/i-love-you-sign-language.jpg "Say It Like You Mean It: How To Say “I Love You” In 32 Different Languages 4")
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## The perfect Valentine’s Day gift: 365 gifts for 365 days
 
  Now that you know how to say “I love you” in so many languages, here’s a sweet present idea you could use for your next anniversary or Valentine’s Day. All you need to buy is a big jar – big enough for all your love. The rest of it comes from the bottom of your heart. The first step is to prepare 365 pieces of paper of different colors and sizes and write “I love you” in different languages on the first 32 of them. Go wildly romantic with the rest of them: you could write love quotes for him or love quotes for her, poems or songs that you both like. Next step? Decorate the jar with tiny lights, pieces of lace or stickers.
 
 ![i love you in spanish by Diego PH©](https://edge.mondly.com/blog/wp-content/uploads/2018/10/i-love-you-in-spanish-scaled-480x600.jpg "Say It Like You Mean It: How To Say “I Love You” In 32 Different Languages 5")
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
  When it’s ready, tell your lover to read one piece of paper every day. Even when you are not around. That’s how they’ll smile and know that your heart always belongs to them.
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### A love poem for your loved one
 
  Look no further if you need a love poem or a love song for your jar. It doesn’t necessarily need to be original. It just has to come from the heart. Here’s**a love song for your love jar:**
@@ -183,9 +195,12 @@ _With you, my heart will forever blend._
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
+<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### From “I love you” to conversational fast
 
  Do you want to go the extra mile and learn a new language for someone you love? Try Mondly, the award-winning language app that can help you master languages in record time.
@@ -208,8 +223,6 @@ _With you, my heart will forever blend._
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -217,4 +230,26 @@ _With you, my heart will forever blend._
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-troubleshooting-techniques-for-sudden-facebook-live-freezes/"><u>[New] Troubleshooting Techniques for Sudden Facebook Live Freezes</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-unleashing-creativity-in-instagram-photography-through-border-use-for-2024/"><u>[New] Unleashing Creativity in Instagram Photography Through Border Use for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024s-guide-to-superior-soundtracks-adding-srt-to-mp4-files/"><u>2024’S Guide to Superior Soundtracks – Adding SRT to MP4 Files</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/6-methods-to-share-apple-iphone-12-screen-with-pc-drfone-by-drfone-ios/"><u>6 Methods to Share Apple iPhone 12 Screen with PC | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-glossary-the-ultimate-vr-lexicon-experience/"><u>Global Glossary: The Ultimate VR Lexicon Experience</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-on-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Fake Snapchat Location on Apple iPhone 15 Plus | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-lock-apps-on-motorola-moto-g84-5g-to-protect-your-individual-information-by-drfone-android/"><u>In 2024, How to Lock Apps on Motorola Moto G84 5G to Protect Your Individual Information</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/influential-communication-learning-new-languages-for-success/"><u>Influential Communication: Learning New Languages for Success</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/is-chatgpt-response-size-restricted-by-characterswords/"><u>Is ChatGPT Response Size Restricted by Characters/Words?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/keywords-made-simple-oxford-and-mondlys-way/"><u>Keywords Made Simple: Oxford & Mondly's Way</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-mastery-top-50-classics-from-the-romance-language/"><u>Language Mastery - Top 50 Classics From the Romance Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-and-practice-10-basic-spanish-greetings-for-perfect-communication/"><u>Learn & Practice 10 Basic Spanish Greetings For Perfect Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-identity-of-israelis-revealed/"><u>Linguistic Identity of Israelis Revealed?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastery-in-motion-102plus-expressions-to-ease-your-france-journey/"><u>Mastery in Motion: 102+ Expressions to Ease Your France Journey</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-steps-to-launch-minecraft-successfully-on-windows-systems/"><u>Troubleshooting Steps to Launch Minecraft Successfully on Windows Systems</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/ultimate-guide-to-getting-rutube-videos-for-free-with-our-premier-selection-of-streaming-tools-and-downloaders/"><u>Ultimate Guide to Getting Rutube Videos for Free with Our Premier Selection of Streaming Tools and Downloaders</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unlocking-web-potential-with-cutting-edge-ai-search-engines-your-ultimate-guide/"><u>Unlocking Web Potential with Cutting-Edge AI Search Engines: Your Ultimate Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/voices-from-valhalla-languages-of-ancient-scandinavians/"><u>Voices From Valhalla: Languages of Ancient Scandinavians</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/your-guide-to-multilingualism-with-google-chosen-mondly/"><u>Your Guide to Multilingualism with Google-Chosen Mondly</u></a></li>
+</ul></div>
 

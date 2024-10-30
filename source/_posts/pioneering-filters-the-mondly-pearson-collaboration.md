@@ -1,7 +1,7 @@
 ---
 title: "Pioneering Filters: The Mondly-Pearson Collaboration"
-date: 2024-10-17T18:09:30.211Z
-updated: 2024-10-24T18:17:37.573Z
+date: 2024-10-25T08:50:36.892Z
+updated: 2024-10-29T18:13:34.122Z
 tags:
   - speak
   - english
@@ -40,10 +40,10 @@ thumbnail: https://thmb.techidaily.com/3f22ae9e837b10e05053cf12480b5c15e8d166c20
  At Pearson, our purpose is simple: to add life to a lifetime of learning. We believe that every learning opportunity is a chance for a personal breakthrough. That’s why our c.20,000 Pearson employees are committed to creating vibrant and enriching learning experiences designed for real-life impact. We are the world’s leading learning company, serving customers in more than 200 countries with digital content, assessments, qualifications, and data. For us, learning isn’t just what we do. It’s who we are. Visit us at pearsonplc.com
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **About Mondly**
@@ -67,17 +67,22 @@ thumbnail: https://thmb.techidaily.com/3f22ae9e837b10e05053cf12480b5c15e8d166c20
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/updated-a-guide-to-coloring-composition-with-confidence-for-2024/"><u>[Updated] A Guide to Coloring Composition with Confidence for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-venture-into-virtual-worlds-a-close-look-at-lgs-360-tech/"><u>2024 Approved Venture Into Virtual Worlds A Close Look at LG's 360 Tech</u></a></li>
-<li><a href="https://techidaily.com/complete-steps-for-disabling-the-voice-assistant-in-windows-11/"><u>Complete Steps for Disabling the Voice Assistant in Windows 11</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/current-drone-functions-a-glimpse-into-future-possibilities/"><u>Current Drone Functions A Glimpse Into Future Possibilities</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-bypassing-google-account-with-vnrom-bypass-for-motorola-moto-g-stylus-2023-by-drfone-android/"><u>In 2024, Bypassing Google Account With vnROM Bypass For Motorola Moto G Stylus (2023)</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/in-2024-enhancing-experience-best-audio-sources-for-unpack-videos/"><u>In 2024, Enhancing Experience Best Audio Sources for Unpack Videos</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/new-mavericks-video-editing-software-easily-edit-mp4-files-for-2024/"><u>New Mavericks Video Editing Software Easily Edit MP4 Files for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/perfect-pronunciation-prowess-navigating-hard-language-terms/"><u>Perfect Pronunciation Prowess: Navigating Hard Language Terms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-like-locals-learn-romanian-fast/"><u>Speak Like Locals, Learn Romanian Fast</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/traveling-tips-top-100plus-basic-russian-verbs-and-nouns/"><u>Traveling Tips: Top 100+ Basic Russian Verbs & Nouns</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/understanding-uks-colloquialisms-vs-usas-vernacular/"><u>Understanding UK's Colloquialisms vs USA's Vernacular</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/vielfaltig-sein-10-alternative-deutsche-begrussungen/"><u>Vielfältig Sein: 10 Alternative Deutsche Begrüßungen</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-live-tv-saving-made-simple-with-free-software-tools/"><u>[New] In 2024, Live TV Saving Made Simple with Free Software Tools</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-mastering-media-integration-adding-online-yt-videos-to-ppts-for-2024/"><u>[Updated] Mastering Media Integration Adding Online YT Videos to PPTs for 2024</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-tiktoks-legal-boundaries-understanding-pre-upload-rights/"><u>[Updated] TikTok's Legal Boundaries Understanding Pre-Upload Rights</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722801164304-experience-ultimate-clarity-with-lgs-c9-a-comprehensive-65-oled-television-showcase/"><u>Experience Ultimate Clarity with LG's C9 - A Comprehensive 65 OLED Television Showcase!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fine-tune-your-tongue-top-100-accent-boosting-twisters/"><u>Fine-Tune Your Tongue: Top 100 Accent-Boosting Twisters</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/fresh-face-finds-budget-friendly-platforms-to-purchase-for-2024/"><u>Fresh Face Finds Budget-Friendly Platforms to Purchase for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grasping-english-grammar-nuances-top-9-strategies-from-a-lifelong-esl-learner/"><u>Grasping English Grammar Nuances: Top 9 Strategies From a Lifelong ESL Learner</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-apple-iphone-13-to-computer-drfone-by-drfone-ios/"><u>In 2024, How to Stream Apple iPhone 13 to Computer? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-ispoofer-update-on-vivo-y100i-drfone-by-drfone-virtual-android/"><u>In 2024, Will iSpoofer update On Vivo Y100i | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-through-vietnam-with-key-phrases-compiled/"><u>Journey Through Vietnam with Key Phrases Compiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-chat-essential-17-spontaneous-spanish-phrases/"><u>Master Chat: Essential 17 Spontaneous Spanish Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/no-more-walls-mondly-bridges-linguistic-gaps-in-ukraine/"><u>No More Walls: Mondly Bridges Linguistic Gaps in Ukraine</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revolutionize-language-skills-7-reasons-for-afrikaans-on-mondly/"><u>Revolutionize Language Skills: 7 Reasons for Afrikaans on Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saying-thanks-in-30-languages-an-intercultural-companion-154/"><u>Saying Thanks in 30 Languages: An Intercultural Companion (154)</u></a></li>
+<li><a href="https://common-error.techidaily.com/solution-found-non-functional-toshiba-keyboard-fixed-now/"><u>Solution Found: Non-Functional Toshiba Keyboard Fixed Now</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/unlock-your-creativity-fast-crafting-melodies-in-minutes-with-microsoft-copilots-ai-assistance/"><u>Unlock Your Creativity Fast: Crafting Melodies in Minutes with Microsoft Copilot's AI Assistance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/words-without-borders-explore-cultures-in-virtual-reality/"><u>Words Without Borders: Explore Cultures in Virtual Reality</u></a></li>
 </ul></div>
 

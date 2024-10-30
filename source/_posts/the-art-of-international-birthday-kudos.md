@@ -1,7 +1,7 @@
 ---
 title: The Art of International Birthday Kudos
-date: 2024-10-19T17:50:54.967Z
-updated: 2024-10-24T17:46:52.745Z
+date: 2024-10-25T10:56:59.616Z
+updated: 2024-10-29T18:43:50.546Z
 tags:
   - speak
   - english
@@ -27,15 +27,22 @@ Have you ever thought about how people from other cultures sing birthday songs? 
 **Feliz Cumpleaños** are the [Spanish words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) for **“Happy Completed Years”** or simply **“Happy Birthday”** since birthdays are considered a big day of celebration in most Spanish countries. “Feliz Cumpleaños amigo” is a commonly used phrase for wishing a happy birthday to your friends. The same as in Mexico, their popular unique birthday song is “Las Mañanitas“ meaning “Little Mornings“. The best and funniest part is that the birthday boy or girl must eat the first bite of the cake without using any utensils or hands. They have no custom of blowing out candles or making a wish. Yet, the party cannot ever finish without the famous piñata!
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Happy Birthday in French: Bon Anniversaire**
 
 ![Happy Birthday in French Bon Anniversaire](https://edge.mondly.com/blog/wp-content/uploads/2018/12/Happy-Birthday-in-French-Bon-Anniversaire.png "How To Say &Quot;Happy Birthday&Quot; In Different Languages 2")
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Image source: <http://www.manutention-dauphine.fr>
 
@@ -47,13 +54,6 @@ Chinese culture has an interesting concept of birthday celebrations. Depending o
 
 If you’ll check the literal meaning of Shēngrì Kuàilè, you’ll see that it translates to “Birthday is Happy.”
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
-  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Happy Birthday in Russian: С днем рождения (S Dnem Rozhdeniya)**
 
 ![happy birthday in russian](https://edge.mondly.com/blog/wp-content/uploads/2018/12/happy-birthday-in-russian.jpg "How To Say &Quot;Happy Birthday&Quot; In Different Languages 3")
@@ -62,22 +62,15 @@ Image source: <https://tops.ua>
 
 If you want to say “happy birthday” in Russian, you say “S Dnem Rozhdeniya”. And if you feel like memorizing a longer phrase, add “pozdravlyayu” in the start and it will transform to “I congratulate you on your birthday”. Russians have a funny tradition of celebrating. The guests pull the celebrated’s ears for a number of times equal to his or her age. The phrase “Grow up – don’t be noodles,” is considered as a sign of good omen for the growth of children. It means the child will grow up strong and healthy. Birthday songs are not common am0ng them, but if the person has survived after a severe accident, that day is celebrated as another birthday.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Happy Birthday in Dutch: Gefeliciteerd Met Je Verjaardag**
 
 “Gefeliciteerd Met Je Verjaardag” means “Congratulations on your birthday!” in the Netherlands. An interesting custom here is that they mark their calendars for everyone’s birthday and keep that calendar by their toilet. It acts as a reminder for birthdays since forgetting one’s birthday is a major offense to your loved ones. The 50th birthday is celebrated with full bliss and cheer because it is thought that at the age of 50, men see Abraham and women see Sarah – the biblical couple who gave birth to a child at a very old age.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Happy Birthday in Swedish: Grattis På Födelsedagen**
@@ -87,6 +80,13 @@ If you want to say “happy birthday” in Russian, you say “S Dnem Rozhdeniya
 Image source: <https://trivselkort.com>
 
 “Grattis På Födelsedagen” is translated to “Birthday congratulations!” in Swedish. The Swedish culture has a lot of love for celebrating birthdays. They often surprise the celebrated with birthday gifts and breakfast in bed while singing “Ja, ma du leva” meaning “Yes, may you live”. Their traditional party has a cake coated in green marzipan with gifts wrapped in blue and gold sheets – the colors of the Swedish flag.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Happy Birthday in Hindi: जन्मदिन की शुभकामनाएं (Janmadin Kee Shubhakaamanaen)
 
@@ -129,18 +129,20 @@ Start using Mondly for free on your computer or tablet or, better yet, download 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://discord-videos.techidaily.com/new-in-2024-from-novice-to-expert-with-discord/"><u>[New] In 2024, From Novice to Expert with Discord</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-tricks-to-upgrade-streaming-quality-on-mobile-apps-like-facebook-for-2024/"><u>[New] Tricks to Upgrade Streaming Quality on Mobile Apps Like Facebook for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-social-media-shifts-yearly-data-visualization-guide/"><u>2024 Approved Social Media Shifts Yearly Data Visualization Guide</u></a></li>
-<li><a href="https://solve-lab.techidaily.com/dvd-apple-mobile-mac-dvd-iphoneapple-tvitunes-mp4mov/"><u>DVD 转换为 Apple Mobile设备 - Mac上复制任意 DVD 并将其转换成iPhone/Apple TV/iTunes MP4/MOV格式的最佳软件解决方案</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-chatter-leaders-the-fifteen/"><u>Global Chatter Leaders – The Fifteen</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/globally-recognized-day-of-thanksgiving/"><u>Globally Recognized Day of Thanksgiving</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/gsl-perfectionism-evolved-through-pearson-and-mondly/"><u>GSL Perfectionism Evolved Through Pearson and Mondly</u></a></li>
-<li><a href="https://article-helps.techidaily.com/in-2024-effortless-motion-pictures-time-lapse-on-samsung-galaxy/"><u>In 2024, Effortless Motion Pictures Time-Lapse on Samsung Galaxy</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/in-2024-optimize-your-workday-with-io-screen-capture-expertise/"><u>In 2024, Optimize Your Workday with IO Screen Capture Expertise</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/in-2024-tailoring-tutorials-for-square-shaped-video-sharing/"><u>In 2024, Tailoring Tutorials for Square-Shaped Video Sharing</u></a></li>
-<li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-vivo-s17t-drfone-by-drfone-virtual-android/"><u>Methods to Change GPS Location On Vivo S17t | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-anywhere-now-leading-trio-of-language-learning-aids/"><u>Speak Anywhere, Now: Leading Trio of Language Learning Aids</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-german-skills-with-netflixs-dark-favorite/"><u>Unlock German Skills with Netflix's Dark Favorite</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-deconstructing-the-limits-to-longer-instagram-videos/"><u>[New] Deconstructing the Limits to Longer Instagram Videos</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-enabling-successful-video-sharing-in-messenger-for-ios-and-android-users/"><u>[Updated] 2024 Approved Enabling Successful Video Sharing in Messenger for iOS and Android Users</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-full-review-of-logitechs-ultimate-4k-professional-cam/"><u>[Updated] 2024 Approved Full Review of Logitech's Ultimate 4K Professional Cam</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-revolutionize-your-virtual-engagements-with-advanced-google-meet-customization/"><u>[Updated] In 2024, Revolutionize Your Virtual Engagements with Advanced Google Meet Customization</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/articulate-your-way-to-fluency-engaging-100-twisters/"><u>Articulate Your Way to Fluency: Engaging 100 Twisters</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-vpna-to-fake-gps-location-on-huawei-p60-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use VPNa to Fake GPS Location On Huawei P60 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fundamental-russian-speech-for-globetrotters/"><u>Fundamental Russian Speech for Globetrotters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-vs-french-usability-in-international-business/"><u>German Vs French Usability in International Business</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-change-credit-card-on-your-iphone-12-pro-max-apple-id-and-apple-pay-by-drfone-ios/"><u>How to Change Credit Card on Your iPhone 12 Pro Max Apple ID and Apple Pay</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/languagequest-immersive-vr-for-linguistic-journeys/"><u>LanguageQuest: Immersive VR for Linguistic Journeys</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-multi-player-spanish-skills-and-social-growth/"><u>Mondly's Multi-Player: Spanish Skills & Social Growth</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/passionate-prose-the-bella-notte-way/"><u>Passionate Prose: The Bella Notte Way</u></a></li>
+<li><a href="https://games-able.techidaily.com/rhythm-beat-mouse-vs-stylus-efficiency/"><u>Rhythm Beat: Mouse Vs. Stylus Efficiency</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/streamlined-techniques-for-rapid-mac-screen-recording-for-2024/"><u>Streamlined Techniques for Rapid Mac Screen Recording for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-the-power-of-multilingualism-with-mondlys-latest-vr-app/"><u>Unlock the Power of Multilingualism with Mondly's Latest VR App</u></a></li>
 </ul></div>
 

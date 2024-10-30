@@ -1,7 +1,7 @@
 ---
 title: "Speech Recognition: Revolutionizing Augmented Interaction"
-date: 2024-08-15T17:51:40.983Z
-updated: 2024-08-16T17:51:40.983Z
+date: 2024-10-24T18:22:18.122Z
+updated: 2024-10-29T19:35:20.639Z
 tags:
   - speak
   - english
@@ -43,8 +43,12 @@ Alex Iliescu, our CEO, spoke about the launch:
 > _We started working on Mondly AR in August 2017 and by the time [Blade Runner 2049](http://www.imdb.com/title/tt1856101/) was released, we already had a working demo. Watching Blade Runner 2049 made me realize that we were beginning to build the future. To me, Joi (the holographic companion of officer K) looked like a super advanced version of Mondly – the character we were creating. They can both understand speech, reply with a human voice and change outfits. Of course, Mondly is not as smart and realistic as Joi. Yet. But she can teach you 7 languages. And this is just the beginning._
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Here’s what you should know about Mondly AR
 
 * Is available on [Google Play](https://play.google.com/store/apps/details?id=com.atistudios.mondlyar.languages&hl=en)
@@ -61,8 +65,12 @@ Alex Iliescu, our CEO, spoke about the launch:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Facts and figures about Mondly
 
 * 30 million downloads, in over 190 countries
@@ -77,9 +85,12 @@ Alex Iliescu, our CEO, spoke about the launch:
 * [Mondly Press Kit](https://www.dropbox.com/sh/vo4j5214zvwdxy5/AAC20VxIgpuiEe7ED2%5F37VNEa?dl=0)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<a href="https://appsumo.8odi.net/c/5597632/2052062/7443" target="_top" id="2052062">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052062" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052062/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Media mentions about Mondly
 
 * **INC.com** – “The New Way to Learn Languages”
@@ -100,8 +111,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -109,4 +118,20 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/liminating-grey-edges-on-video-a-youtube-fix-guide/"><u>[New] Eliminating Grey Edges on Video A YouTube Fix Guide</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-how-to-design-an-eye-catching-logo-for-podcasts/"><u>[New] How to Design an Eye-Catching Logo for Podcasts</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/webm-flv-movavi/"><u>無限制免費 WEBM 到 FLV 媒體格式翻譯 - 使用 Movavi 影像編輯工具</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/charting-new-languages-mondlylanguages-2-year-odyssey/"><u>Charting New Languages - MondlyLanguages' 2 Year Odyssey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-guide-for-learning-turkish-language-with-ease/"><u>Essential Guide for Learning Turkish Language with Ease</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-beans-to-bars-heres-chocolate-in-30-languages/"><u>From Beans to Bars, Here's Chocolate in 30 Languages!</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/funimate-android-gameplay-apk-to-victory-guide-for-2024/"><u>Funimate Android Gameplay - APK to Victory Guide for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-to-enhance-your-iphones-display-with-custom-font-downloads/"><u>How to Enhance Your iPhone’s Display with Custom Font Downloads</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/in-2024-cut-and-trim-videos-for-free-the-best-software/"><u>In 2024, Cut and Trim Videos for Free The Best Software</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-discovering-the-leading-6-head-mounted-gopro-systems-for-capturing-life/"><u>In 2024, Discovering the Leading 6 Head-Mounted GOPRO Systems for Capturing Life</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-lustrous-android-video-techniques-for-every-user/"><u>In 2024, Lustrous Android Video Techniques for Every User</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-next-chapter-innovative-strategies-for-modern-language-learning/"><u>The Next Chapter: Innovative Strategies for Modern Language Learning</u></a></li>
+<li><a href="https://win11.techidaily.com/unlocking-artistic-freedom-starting-microsoft-paint-on-windows-11/"><u>Unlocking Artistic Freedom: Starting Microsoft Paint on Windows 11</u></a></li>
+</ul></div>
 

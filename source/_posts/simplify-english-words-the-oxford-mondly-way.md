@@ -1,7 +1,7 @@
 ---
 title: "Simplify English Words: The Oxford-Mondly Way"
-date: 2024-08-15T17:48:48.601Z
-updated: 2024-08-16T17:48:48.601Z
+date: 2024-10-27T05:20:52.147Z
+updated: 2024-10-30T04:22:45.562Z
 tags:
   - speak
   - english
@@ -35,8 +35,12 @@ thumbnail: https://thmb.techidaily.com/3ea30a94da7c5f3b672bf32659821fab72659fd65
  Since its inception, the Oxford 3000 has been revised to reflect the language in daily use that has changed a lot due to the growth of the internet and social media.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
+  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## The most important words in English and their relation to CEFR levels
 
  As the paper [_Oxford 3000 and Oxford 5000: The Most Important Words to Learn in English_](https://elt.oup.com/feature/global/expert/oxford-3000?cc=ro&selLanguage=en) shows, “vocabulary size is one of the most useful indicators of overall language level”. So here’s exactly how the Common European Framework of Reference (CEFR) levels look in relation to the 5000 most frequent words:
@@ -79,8 +83,6 @@ thumbnail: https://thmb.techidaily.com/3ea30a94da7c5f3b672bf32659821fab72659fd65
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -88,4 +90,24 @@ thumbnail: https://thmb.techidaily.com/3ea30a94da7c5f3b672bf32659821fab72659fd65
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-captivating-content-incorporate-these-20-magic-words/"><u>[New] Captivating Content Incorporate These 20 Magic Words</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-online-platforms-embedding-video-playlists-from-youtube/"><u>[New] Online Platforms Embedding Video Playlists From YouTube</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-effortless-transformation-of-your-youtube-content-into-webm-for-2024/"><u>[Updated] Effortless Transformation of Your YouTube Content Into WebM for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-optimize-remote-work-with-smart-zoom-scheduling/"><u>[Updated] In 2024, Optimize Remote Work with Smart Zoom Scheduling</u></a></li>
+<li><a href="https://win-marvelous.techidaily.com/1728486764535-windows-11/"><u>間違い電:Windows 11環境下で失われたファイルを取り戻せるテクニック</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-new-language-a-new-perspective-key-methods-for-deep-engagement/"><u>A New Language, A New Perspective: Key Methods for Deep Engagement</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cutting-through-brit-stereotypes-one-phrase-at-a-time/"><u>Cutting Through Brit Stereotypes, One Phrase at a Time</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95909951-9781623171223-discovering-your-spirit-animal/"><u>Discovering Your Spirit Animal | Free Book</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-restore-backspace-capability-on-your-device/"><u>How to Restore Backspace Capability on Your Device</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/huaweis-appgallery-upgraded-with-mondly/"><u>Huawei's AppGallery Upgraded with Mondly</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-from-realme-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock from Realme Devices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-wishes-for-your-special-day/"><u>International Wishes for Your Special Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jumpstart-your-latvian-language-learning-today/"><u>Jumpstart Your Latvian Language Learning Today!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-legends-best-practices-for-effective-conversation/"><u>Linguistic Legends: Best Practices for Effective Conversation</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/razer-blade-stealth-13-laptop-analysis-unprecedented-advancements-in-thin-and-light-computing/"><u>Razer Blade Stealth 13 Laptop Analysis: Unprecedented Advancements in Thin & Light Computing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/separating-fact-from-fiction-in-polyglots-journey/"><u>Separating Fact From Fiction in Polyglots' Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/this-is-the-best-way-to-learn-lithuanian-online/"><u>This Is the Best Way to Learn Lithuanian Online</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Unleashing Potential with Johannes Honterus
-date: 2024-08-23T00:25:02.904Z
-updated: 2024-08-24T00:25:02.904Z
+date: 2024-10-23T08:30:01.109Z
+updated: 2024-10-30T10:55:47.325Z
 tags:
   - speak
   - english
@@ -26,6 +26,13 @@ thumbnail: https://thmb.techidaily.com/0244557d86d8e1a27dc054dedba4a1385b1696e50
 
  In our journey to help those who need it most, we draw inspiration from Honterus and pledge to give students the tools to succeed and the opportunity to learn in ways they never could have imagined. This is why we unveiled multiple state-of-the-art [iMac labs](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) at the Transilvania University of Brașov and several other high schools. In total, there are now 60 brand new iMacs helping young minds innovate in schools all over Brașov.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Rudimenta Cosmographica, the first European-wide manual
 
  After graduating from the University of Vienna between 1520 and 1525 with a_magister artium_ title, Honterus moved to Poland to teach at the Kraków’s Jagiellonian University. During his stay, he published two of his most important works: a Latin grammar and_Rudimenta Cosmographica_ , a cosmography manual. Then, he moved to Basel and practiced printing, publishing and wood engraving. This is where he came into contact with printers Heinrich Petri, Johann Bebel and Michael Isengrin. His connections with all four printing workshops in Basel at that time prove to be especially relevant when he returns to native Transylvania and decides to set up a printing press.
@@ -34,13 +41,24 @@ thumbnail: https://thmb.techidaily.com/0244557d86d8e1a27dc054dedba4a1385b1696e50
 
 ![honterus map](https://edge.mondly.com/blog/wp-content/uploads/2020/06/honterus-map-600x467.jpeg "Great Personalities Who Inspire Us: Johannes Honterus 2")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The map of the world by Johannes Honterus
 
  Additionally,_Rudimenta Cosmographica_ contained 13 maps of all known parts of the world engraved by Honterus himself. The book proved to be so successful that there were printed 39 editions of it in Brașov, Basel, Prague, Zürich, Antwerp and Cologne. Many consider_Rudimenta Cosmographica_ to be the first European-wide manual and the first Minor Atlas in Central and South-Eastern Europe.
 
 <!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Draw inspiration from the best
 
  Everything Johannes Honterus did throughout his life is an inspiration for us at Mondly. He literally put Romania on the map before the unified nation was even born and our ambition is to continue his endeavor.
@@ -65,15 +83,17 @@ thumbnail: https://thmb.techidaily.com/0244557d86d8e1a27dc054dedba4a1385b1696e50
 Get Mondly now and speak any language like you never dreamed you would ![Get Mondly now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-5187&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-5187%26utm%5Fsource%3Dblog-post-id-5187&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-5187%26utm%5Fsource%3Dblog-post-id-5187&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-5187%26utm%5Fsource%3Dblog-post-id-5187&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-5187%26mt%3D8 "Get Mondly now")
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -82,4 +102,26 @@ Get Mondly now and speak any language like you never dreamed you would ![Get Mon
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-decode-the-mystery-top-7-tiktok-emojis-explored/"><u>[New] 2024 Approved Decode the Mystery Top 7 TikTok Emojis Explored</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-windows-11-game-recordings-the-ultimate-guide-to-successful-techniques/"><u>[New] In 2024, Windows 11 Game Recordings The Ultimate Guide to Successful Techniques</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-rogues-peak-top-ten-titles-reviewed-for-2024/"><u>[New] Rogue's Peak Top Ten Titles Reviewed for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-navigating-the-world-of-video-capturing-on-diverse-devices/"><u>[Updated] Navigating the World of Video Capturing on Diverse Devices</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-fix-auto-lock-greyed-out-on-apple-iphone-15-pro-max-by-drfone-ios/"><u>In 2024, How To Fix Auto Lock Greyed Out on Apple iPhone 15 Pro Max</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-top-10-airplay-apps-in-tecno-spark-20-for-streaming-drfone-by-drfone-android/"><u>In 2024, Top 10 AirPlay Apps in Tecno Spark 20 for Streaming | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leading-asian-languages-quick-filter-last-access/"><u>Leading Asian Languages: Quick Filter, Last Access</u></a></li>
+<li><a href="https://win-dash.techidaily.com/master-the-skill-of-running-vlc-in-full-screen-permanently-a-comprehensive-tutorial/"><u>Master the Skill of Running VLC in Full Screen Permanently – A Comprehensive Tutorial</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/most-popular-immigrant-languages-educated-in-us/"><u>Most Popular Immigrant Languages Educated In U.S</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/must-know-french-jargon-to-master-on-parisian-escapades/"><u>Must-Know French Jargon to Master on Parisian Escapades</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-through-basic-german-letters-and-sounds/"><u>Navigating Through Basic German Letters & Sounds</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-transform-your-footage-expert-techniques-for-creating-breathtaking-movies/"><u>New Transform Your Footage Expert Techniques for Creating Breathtaking Movies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/soviet-speech-patterns-in-uk-and-rus-languages/"><u>Soviet Speech Patterns in Uk & Rus Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speed-up-your-understanding-of-numerical-japan/"><u>Speed-Up Your Understanding of Numerical Japan</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-francophiles-treasure-chest-of-104plus-travel-phrases/"><u>The Francophile's Treasure Chest of 104+ Travel Phrases</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/the-ultimate-guide-to-fixing-squad-microphone-problems/"><u>The Ultimate Guide to Fixing Squad Microphone Problems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-voyagers-handbook-deciphering-vietnams-language/"><u>The Voyager’s Handbook: Deciphering Vietnam's Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-language-trends-globally/"><u>Top Language Trends Globally</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/update-short-form-video-coverage/"><u>Update Short-Form Video Coverage</u></a></li>
+</ul></div>
 

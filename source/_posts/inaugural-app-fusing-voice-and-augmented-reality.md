@@ -1,7 +1,7 @@
 ---
 title: Inaugural App Fusing Voice & Augmented Reality
-date: 2024-10-19T16:58:56.359Z
-updated: 2024-10-24T17:04:41.037Z
+date: 2024-10-25T01:03:14.723Z
+updated: 2024-10-30T09:18:15.363Z
 tags:
   - speak
   - english
@@ -43,10 +43,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 > _We started working on Mondly AR in August 2017 and by the time [Blade Runner 2049](http://www.imdb.com/title/tt1856101/) was released, we already had a working demo. Watching Blade Runner 2049 made me realize that we were beginning to build the future. To me, Joi (the holographic companion of officer K) looked like a super advanced version of Mondly – the character we were creating. They can both understand speech, reply with a human voice and change outfits. Of course, Mondly is not as smart and realistic as Joi. Yet. But she can teach you 7 languages. And this is just the beginning._
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Here’s what you should know about Mondly AR
@@ -65,10 +65,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facts and figures about Mondly
@@ -85,10 +85,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 * [Mondly Press Kit](https://www.dropbox.com/sh/vo4j5214zvwdxy5/AAC20VxIgpuiEe7ED2%5F37VNEa?dl=0)
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Media mentions about Mondly
@@ -120,18 +120,18 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/kyrocket-views-implementing-these-proven-youtube-growth-methods-for-2024/"><u>[New] Skyrocket Views Implementing These Proven YouTube Growth Methods for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-best-global-music-stream-service-for-2024/"><u>[Updated] Best Global Music Stream Service for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-how-to-do-transitions-on-inshot-video-editor/"><u>[Updated] How to Do Transitions on Inshot Video Editor?</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-proiphone-techniques-capturing-perfect-close-up-and-macro-shots/"><u>[Updated] Proiphone Techniques Capturing Perfect Close-Up and Macro Shots</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-unveiling-your-digital-destiny-the-art-of-creating-and-launching-a-youtube-chanel/"><u>[Updated] Unveiling Your Digital Destiny The Art of Creating and Launching a YouTube Chanel</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-show-wi-fi-password-on-lava-blaze-2-by-drfone-android/"><u>How to Show Wi-Fi Password on Lava Blaze 2</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/hustle-and-learn-japanese-numbers-made-easy/"><u>Hustle and Learn: Japanese Numbers Made Easy</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-5-ways-to-track-samsung-galaxy-a25-5g-without-app-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Ways to Track Samsung Galaxy A25 5G without App | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-xiaomi-mix-fold-3-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Xiaomi Mix Fold 3 to Outlook | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/international-instructors-day-language-diverse-tribute/"><u>International Instructors' Day: Language-Diverse Tribute</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/romantic-revelries-in-rue-saint-michel/"><u>Romantic Revelries in Rue Saint-Michel</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/the-science-of-oleds-an-in-depth-look-at-operation-and-design/"><u>The Science of OLEDs: An In-Depth Look at Operation and Design</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/time-honored-tongues-ancient-language-guide/"><u>Time-Honored Tongues: Ancient Language Guide</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-exclusive-12-video-hourly-livestream-service-for-2024/"><u>[New] Exclusive 12 Video Hourly Livestream Service for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-top-5-must-know-aspects-of-using-tiktok-macos-for-2024/"><u>[New] Top 5 Must-Know Aspects of Using TikTok (macOS) for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-ten-essential-cam-covers-to-upgrade-your-security/"><u>[Updated] Ten Essential Cam Covers to Upgrade Your Security</u></a></li>
+<li><a href="https://location-fake.techidaily.com/10-best-fake-gps-location-spoofers-for-vivo-v27e-drfone-by-drfone-virtual-android/"><u>10 Best Fake GPS Location Spoofers for Vivo V27e | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580138450-103-crucial-croatian-expressions-your-translator-on-the-go/"><u>103 Crucial Croatian Expressions: Your Translator On-the-Go</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578225003-best-family-app-of-year-on-google-play-mondly-kids-with-smart-controls/"><u>Best Family App of Year on Google Play: Mondly Kids with Smart Controls</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/boost-your-fluency-explore-top-6-strategies-to-mastering-portuguese/"><u>Boost Your Fluency - Explore Top 6 Strategies to Mastering Portuguese</u></a></li>
+<li><a href="https://program-issues.techidaily.com/1723010180606-cant-play-vanguard-boosting-cpu-capabilities-might-be-the-answer/"><u>Can't Play Vanguard? Boosting CPU Capabilities Might Be the Answer!</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/failed-to-play-mov-movies-on-razr-40-ultra-by-aiseesoft-video-converter-play-mov-on-android/"><u>Failed to play MOV movies on Razr 40 Ultra</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ten-minute-bulgaria-language-learning-fast/"><u>Ten-Minute Bulgaria: Language Learning Fast</u></a></li>
+<li><a href="https://driver-error.techidaily.com/troubleshooting-tips-for-killer-wifi-bluetooth-connectivity-problems-with-windows-11/"><u>Troubleshooting Tips for Killer WiFi Bluetooth Connectivity Problems with Windows 11</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/unlock-international-conversations-with-these-top-5-free-calling-solutions/"><u>Unlock International Conversations with These Top 5 Free Calling Solutions</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-capture-your-best-moments-3-simple-video-game-recording-solutions/"><u>Updated In 2024, Capture Your Best Moments 3 Simple Video Game Recording Solutions</u></a></li>
 </ul></div>
 

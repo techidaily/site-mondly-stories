@@ -1,7 +1,7 @@
 ---
 title: "Language Learning Journey: How Long Does It Take To Master A New Language?"
-date: 2024-10-17T17:34:10.999Z
-updated: 2024-10-24T18:14:10.920Z
+date: 2024-10-23T07:24:38.325Z
+updated: 2024-10-29T19:37:21.024Z
 tags:
   - speak
   - english
@@ -43,13 +43,6 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
 * **Knowing more than one language helps —** languages with shared features with English are generally easier to learn, while those with significant cultural and linguistic differences may take longer to learn;
 * **The time spent learning depends on you** **—** The time it takes to learn a new language varies greatly depending on your motivation and dedication to the task.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Interagency Language Roundtable scale or the IRL scale
 
  The Interagency Language Roundtable is a grading scale used by the US government to scale [employees](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and diplomats working for the FSI (Foreign Service Institute). You’ll find this scale to be the most accurate when it comes to native English speakers learning a foreign language. Basically, what this scale does is establish the language difficulty.
@@ -65,13 +58,6 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
  **Fluency is practically reached at level 3 (professional working proficiency),** so this will be our main benchmark.
 
  But first, we need to clarify a certain aspect of learning foreign languages as a native English speaker: some languages are more difficult to learn than others. Why? Because English and some other languages haven’t been in contact with one another for thousands of years and have evolved in a totally different way. But studying languages that are completely different from English is not impossible. It takes longer, but you’ll eventually get there.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Easiest language to learn for English speakers
 
@@ -111,6 +97,13 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
 * comparable stress and intonation patterns;
 * already share a number of vocabulary words.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **Tier 2:** Similar to English
 
 | Language | Time needed to reach fluency |
@@ -124,10 +117,10 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
 !["Fastest way to learn a language" by RF._.studio©](https://edge.mondly.com/blog/wp-content/uploads/2018/04/fastest-way-to-learn-a-language-960x641.jpg "How Long Does It Take In Hours To Learn A Language? 4")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **Tier 3:** Languages that may have cultural and linguistic differences compared to English
@@ -142,10 +135,10 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
 [Learn with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-1364&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-1364&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-1364)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657396/16446" target="_top" id="1657396">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657396" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657396/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **Tier 4:** Languages that are profoundly different from English
@@ -173,6 +166,13 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
 | Vietnamese      | 1100 hours or 44 weeks       |
 
  The languages above are just a part of the European languages classified as tier 4 by the FSI. The list goes on with other languages from all over the world, like Mongolian, Nepali, Thai, Xhosa, Zulu or Hebrew. All of them take about 1100 hours or 44 weeks to become fluent in. Thus, when it comes to the difficulty of languages, this list does indeed include hard languages to learn, but not the hardest.
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Hardest language to learn for English speakers
 
@@ -232,22 +232,18 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-transform-your-edits-how-to-negate-distracting-surroundings-using-affinity-photo-for-2024/"><u>[New] Transform Your Edits How to Negate Distracting Surroundings Using Affinity Photo for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-rapid-techniques-to-separate-genuine-from-fake-on-insta/"><u>[Updated] 2024 Approved Rapid Techniques to Separate Genuine From Fake on Insta</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-go-live-on-youtube-from-a-phone-no-need-for-huge-fans-yet-for-2024/"><u>[Updated] Go Live on YouTube From a Phone, No Need for Huge Fans Yet for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/expert-tips-for-efficient-youtube-to-mpeg-transcoding-for-2024/"><u>Expert Tips for Efficient YouTube-to-MPEG Transcoding for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/google-play-services-wont-update-12-fixes-are-here-on-xiaomi-redmi-12-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Play Services Wont Update? 12 Fixes are Here on Xiaomi Redmi 12 5G | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-reset-gmail-password-on-sony-xperia-10-v-devices-by-drfone-android/"><u>How to Reset Gmail Password on Sony Xperia 10 V Devices</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-pairing-video-cameras-with-desktop-captures/"><u>In 2024, Pairing Video Cameras with Desktop Captures</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-tecno-spark-10-pro-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>In 2024, Tecno Spark 10 Pro ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
-<li><a href="https://fox-sure.techidaily.com/mastering-the-art-of-email-campaigns-insights-with-massmail-software/"><u>Mastering the Art of Email Campaigns: Insights with MassMail Software</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-inclusive-mission-expanding-education-reach-to-70-millionplus/"><u>Mondly's Inclusive Mission: Expanding Education Reach to 70 Million+</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/networking-the-worldwide-education-community-at-bett/"><u>Networking the Worldwide Education Community at BETT</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/new-dawn-in-polyglot-journey-never-too-late/"><u>New Dawn in Polyglot Journey - Never Too Late</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/simultaneous-speech-scholarship/"><u>Simultaneous Speech Scholarship</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-like-a-local-the-most-useful-german-sayings-countdown/"><u>Speak Like a Local: The Most Useful German Sayings Countdown</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-must-know-16-phrases-for-gratitude-in-german-culture/"><u>The Must-Know 16 Phrases for Gratitude in German Culture</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-speech-perfection-english-tongue-twister-workout/"><u>Unlocking Speech Perfection: English Tongue Twister Workout</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/why-choose-german-for-your-career-top-10-reasons/"><u>Why Choose German for Your Career: Top 10 Reasons</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-in-2024-boost-your-tiktok-game-best-free-edits-for-mac-users-top-10/"><u>[New] In 2024, Boost Your TikTok Game - Best Free Edits for Mac Users (Top 10)</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-professionals-guide-to-adding-youtube-content-to-powerpoint-slides/"><u>[Updated] The Professional's Guide to Adding YouTube Content to PowerPoint Slides</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-pinpointing-your-signature-style-and-marketplace-role/"><u>2024 Approved Pinpointing Your Signature Style & Marketplace Role</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-selecting-sacred-sounds-for-smartphone-ringtones/"><u>2024 Approved Selecting Sacred Sounds for Smartphone Ringtones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/6-essential-scandinavian-flicks-for-danish-learning/"><u>6 Essential Scandinavian Flicks for Danish Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/afrikaans-on-mondly-the-ultimate-guide-to-learning-with-ease-and-reason/"><u>Afrikaans on Mondly: The Ultimate Guide to Learning with Ease & Reason</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-samsung-galaxy-s23-ultra-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Samsung Galaxy S23 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/conquer-the-digital-landscape-10-steps-towards-dominating-smm/"><u>Conquer the Digital Landscape 10 Steps Towards Dominating SMM</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-each-korean-day-your-quick-reference/"><u>Discovering Each Korean Day: Your Quick Reference</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/free-sound-card-driver-downloads-compatible-with-all-windows-systems/"><u>Free Sound Card Driver Downloads: Compatible with All Windows Systems</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/grow-picture-dimensions-maintain-fidelity-for-2024/"><u>Grow Picture Dimensions, Maintain Fidelity for 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/trouble-free-techniques-for-adding-mkv-videos-into-sony-vegas/"><u>Trouble-Free Techniques for Adding MKV Videos Into Sony Vegas</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581230819-what-language-is-spoken-in-croatia/"><u>What Language Is Spoken In Croatia?</u></a></li>
 </ul></div>
 

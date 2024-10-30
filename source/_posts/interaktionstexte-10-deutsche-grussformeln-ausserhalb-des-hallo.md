@@ -1,7 +1,7 @@
 ---
 title: "Interaktionstexte: 10 Deutsche Grußformeln Außerhalb Des 'Hallo'"
-date: 2024-10-17T18:11:26.848Z
-updated: 2024-10-24T18:21:03.702Z
+date: 2024-10-28T02:27:44.244Z
+updated: 2024-10-29T21:48:03.129Z
 tags:
   - speak
   - english
@@ -29,10 +29,10 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
  First, some good news! As it turns out, Germans use_hi_ too. Careful though: as you already know,_hi_ is more informal than_hallo_ so you should keep this one between friends.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. Hallöchen – ‘Hello’ (lit. ‘little hello’)
@@ -42,13 +42,6 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
  Kidding, but you did get the point. This tiny, little hello is reserved for very informal situations.
 
  Since we’re discussing diminutives, let’s also mention that_tschüss_ (‘bye’) can become_tschüssi_ . How cute!
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 3\. Guten Tag – “Hello” or “Good day”
 
@@ -65,6 +58,13 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 * _Morgen!_
 * _Tag!_
 * _Abend!_
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 4\. Wie geht es dir? – “How’s it going?”
 
@@ -88,9 +88,23 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 
 !['German greetings' by Angelo Abear©](https://edge.mondly.com/blog/wp-content/uploads/2022/05/german-greetings-960x640.jpg "Hello In German: 10+ German Greetings Beyond Hallo 2")
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Regional German greetings
 
  Now that you have enough greetings to get by in the entire German-speaking world, it’s time to get into specifics. These next greetings are generally used in just a few regions.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. Na – “Hey, how are you?”
 
@@ -109,13 +123,6 @@ _– Na._ (“Fine. Thanks!”)
 
 **Localization:** mostly northern Germany.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Moin moin – “Hi”
 
  The ‘harsh’ German language strikes again. Imagine you’re in Hamburg and people are cheerfully saying_moin_ or_moin moin_ or even_moinsten_ to you. What do you do? You say_moin_ back, of course!
@@ -123,13 +130,6 @@ _– Na._ (“Fine. Thanks!”)
  Although its origins are tied to_Morgen_ (“morning”),_moin_ can be used to greet people all day long.
 
 **Localization:** northern Germany, especially in and around Hamburg.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Grüezi – “Hello”
 
@@ -193,17 +193,16 @@ _Tschüss!_ (‘Goodbye!’)
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-elevate-your-content-incorporating-exact-timestamps-in-videos/"><u>[New] In 2024, Elevate Your Content Incorporating Exact Timestamps in Videos</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/erfect-asmr-recording-top-mic-choices-unveiled-for-2024/"><u>[New] Perfect ASMR Recording Top Mic Choices Unveiled for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-budget-friendly-video-grabber-selections/"><u>[Updated] 2024 Approved Budget-Friendly Video Grabber Selections</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-emojis-and-icons-on-the-social-networking-frontier/"><u>Decoding Emojis and Icons on the Social Networking Frontier</u></a></li>
-<li><a href="https://android-location.techidaily.com/getting-the-pokemon-go-gps-signal-not-found-11-error-in-poco-c55-drfone-by-drfone-virtual/"><u>Getting the Pokemon Go GPS Signal Not Found 11 Error in Poco C55 | Dr.fone</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/gratis-webbaserad-vidoverforare-mp4-till-wav-movavis-vidkonverteringskonstablerande/"><u>Gratis Webbaserad Vidoverförare: MP4 Till WAV - Movavi's Vidkonverteringskonstablerande</u></a></li>
-<li><a href="https://android-frp.techidaily.com/how-to-bypass-frp-on-nokia-130-music-by-drfone-android/"><u>How to Bypass FRP on Nokia 130 Music?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/how-to-say-hello-in-spanish-10-different-spanish-greetings/"><u>How To Say Hello In Spanish: 10 Different Spanish Greetings</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/impress-with-these-top-50-classics-in-latin-language/"><u>Impress with These Top 50 Classics in Latin Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-vr-networking-expand-your-spanish-proficiency/"><u>Mondly VR Networking: Expand Your Spanish Proficiency</u></a></li>
-<li><a href="https://app-tips.techidaily.com/ultimate-top-10-best-mobile-slow-motion-video-tools-compatible-with-ios-and-android-devices/"><u>Ultimate Top 10 Best Mobile Slow Motion Video Tools Compatible with iOS & Android Devices</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unleash-the-power-of-love-in-different-languages-discover-more-ways-to-say-i-love-you-this-valentines-day/"><u>Unleash The Power Of Love In Different Languages! Discover More Ways To Say I Love You This Valentine's Day</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-enhance-your-meetings-top-5-live-stream-recording-tools-for-2024/"><u>[Updated] Enhance Your Meetings Top 5 Live Stream Recording Tools for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-the-seamless-guide-to-saving-gifs-on-iphonesandroids/"><u>[Updated] The Seamless Guide to Saving GIFs on iPhones/Androids</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprender-y-leer-la-hora-el-primer-paso-en-espanol/"><u>Comprender Y Leer La Hora: El Primer Paso en Español</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/convertidor-wma-gratuito-guia-para-transformar-archivos-wma-sin-costo/"><u>Convertidor WMA Gratuito: Guía Para Transformar Archivos WMA Sin Costo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-the-heart-of-uk-vernacular/"><u>Discovering the Heart of UK Vernacular</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/fix-a-broken-android-camera-discover-the-top-11-tips-and-tricks/"><u>Fix a Broken Android Camera: Discover the Top 11 Tips and Tricks</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-facts-you-need-to-know-about-screen-mirroring-vivo-y27s-drfone-by-drfone-android/"><u>In 2024, 3 Facts You Need to Know about Screen Mirroring Vivo Y27s | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-unraveling-youtubes-highest-peaks-post-vidcon/"><u>In 2024, Unraveling Youtube's Highest Peaks (Post-VidCon)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576640752-learn-slovak-swiftly-with-our-quick-10-minute-online-methods/"><u>Learn Slovak Swiftly with Our Quick 10-Minute Online Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-days-of-the-week-in-korean/"><u>The Days of the Week in Korean</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/unveiling-high-tech-solutions-with-tom-the-hardware-enthusiast/"><u>Unveiling High-Tech Solutions with Tom - The Hardware Enthusiast</u></a></li>
 </ul></div>
 

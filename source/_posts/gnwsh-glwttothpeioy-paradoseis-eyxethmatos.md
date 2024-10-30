@@ -1,7 +1,7 @@
 ---
 title: Γνώση Γλωττοτηπειού Παραδόσεις Ευχετήματος
-date: 2024-10-20T18:24:53.508Z
-updated: 2024-10-24T16:52:56.196Z
+date: 2024-10-25T13:03:48.535Z
+updated: 2024-10-29T20:30:47.702Z
 tags:
   - speak
   - english
@@ -31,10 +31,10 @@ thumbnail: https://thmb.techidaily.com/dcfda18db33cd62e49e998a15226cf50935f63715
  A funny but very good mnemonic for remembering how to say_efcharistó_ is to think of it as ‘ef-harry’s-toe’.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The informal ‘thank you’ in Greek
@@ -44,6 +44,13 @@ thumbnail: https://thmb.techidaily.com/dcfda18db33cd62e49e998a15226cf50935f63715
  However, if you want to say more than just ‘thanks’, **you can say σ’ ευχαριστώ_(s’ efcharistó)_ which is ‘thank you’ in Greek.** Although informal_, s’ efcharistó_ is more similar to ‘thank you’ and can be used safely when giving thanks to friends or colleagues.
 
  If you are especially thankful to them, you can also say ευχαριστώ πολύ_(efcharistó poli)_ which means ‘thanks a lot’. Or even ευχαριστώ πάρα πολύ_(efcharistó para poli)_ meaning ‘thank you very much’.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
+  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The formal ‘thank you’ in Greek
 
@@ -69,10 +76,10 @@ thumbnail: https://thmb.techidaily.com/dcfda18db33cd62e49e998a15226cf50935f63715
 * Το εκτιμώ. _(To ektimó.)_ – I appreciate it.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
+  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to say ‘please’ and ‘you’re welcome’ in Greek
@@ -84,10 +91,10 @@ thumbnail: https://thmb.techidaily.com/dcfda18db33cd62e49e998a15226cf50935f63715
  But let’s not get ahead of ourselves and forget about the formal variation. To address someone older or a group of people, you should use the formal σας παρακαλούμε_(sas parakaloúme)_ . Did you recognize the_σας (sas)_ particle? If yes, then congratulations! That means you’re on the right track.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## When should you say ‘thank you’ in Greek?
@@ -98,13 +105,6 @@ thumbnail: https://thmb.techidaily.com/dcfda18db33cd62e49e998a15226cf50935f63715
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## From 0 to conversational in Greek
 
@@ -136,20 +136,17 @@ thumbnail: https://thmb.techidaily.com/dcfda18db33cd62e49e998a15226cf50935f63715
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-polar-pinnacles-beijing-2022-olympic-spotlight/"><u>[New] 2024 Approved Polar Pinnacles Beijing 2022 Olympic Spotlight</u></a></li>
-<li><a href="https://some-tips.techidaily.com/new-pros-picks-5-best-low-frame-rate-recorders/"><u>[New] Pros' Picks 5 Best Low Frame Rate Recorders</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-fix-slowly-loading-youtube-content-on-mobile-for-2024/"><u>[Updated] Fix Slowly Loading YouTube Content on Mobile for 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/2024-approved-toolwiz-revolutionizes-camera-use-a-comprehensive-review-for-photographers/"><u>2024 Approved Toolwiz Revolutionizes Camera Use - A Comprehensive Review for Photographers</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/break-away-from-grouped-icons-in-win-11/"><u>Break Away From Grouped Icons in Win 11</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-motorola-razr-40-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Motorola Razr 40 | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/la-semaine-francaise-comprendre-les-mots/"><u>La Semaine Française: Comprendre Les Mots</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-to-perfectly-articulate-ru-letters/"><u>Learn to Perfectly Articulate RU Letters</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-turkish-writing-and-speech-quick-guide-to-its-phonetics/"><u>Mastering Turkish Writing & Speech: Quick Guide to Its Phonetics</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speed-in-language-acquisition-theoretical-and-practical-views/"><u>Speed in Language Acquisition: Theoretical & Practical Views</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-language-labyrinth-journey-through-the-verbal-cosmos-of-star-wars/"><u>The Language Labyrinth: Journey Through the Verbal Cosmos of Star Wars</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-cut-vlc-videos-on-mac-without-compromise-top-trimming-method/"><u>Updated In 2024, Cut VLC Videos on Mac Without Compromise Top Trimming Method</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/updated-the-best-places-to-download-games-online-for-2024/"><u>Updated The Best Places to Download Games Online for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/where-fiction-meets-reality-meta-quest-3/"><u>Where Fiction Meets Reality - Meta Quest 3</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/synapseis-eyxes-politikhs-gkreman/"><u>Συνάψεις Ευχές Πολιτικής Γκρεμάν</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-how-to-create-and-change-an-igtv-cover-photo-thumbnail-in-2024/"><u>[New] How to Create and Change an IGTV Cover Photo (Thumbnail), In 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-how-to-harness-iphones-full-potential-for-landscapes/"><u>[New] In 2024, How to Harness iPhone's Full Potential for Landscapes</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-top-10-hilarious-tiktok-skits-unveiled-for-2024/"><u>[New] Top 10 Hilarious TikTok Skits Unveiled for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-skype-recording-excellence-the-years-leading-tools/"><u>[Updated] Skype Recording Excellence The Year's Leading Tools</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/1726226721576-cr2-jpeg-movavi/"><u>免費在網站上 CR2 變更成 JPEG - Movavi 編譯器</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridge-cultures-effortlessly-mondlys-revamped-phrase-compendium/"><u>Bridge Cultures Effortlessly: Mondly’s Revamped Phrase Compendium</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/career-advancement-through-fluency-across-languages/"><u>Career Advancement Through Fluency Across Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comparative-study-on-english-grammar-patterns/"><u>Comparative Study on English Grammar Patterns</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ver-the-power-of-10-second-beats-in-youtube-music/"><u>Discover the Power of 10-Second Beats in YouTube Music</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dominant-dialects-of-croatia/"><u>Dominant Dialects of Croatia</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-to-get-and-update-brother-mfc-l2740dw-windows-drivers-for-free/"><u>How to Get and Update Brother MFC-L2740DW Windows Drivers for Free</u></a></li>
+<li><a href="https://games-able.techidaily.com/top-5-streamlined-methods-for-collecting-twitch-content/"><u>Top 5 Streamlined Methods for Collecting Twitch Content</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Learn the Language of Respectful Communication in Japan
-date: 2024-10-19T17:20:12.487Z
-updated: 2024-10-24T16:16:55.676Z
+date: 2024-10-24T22:50:34.123Z
+updated: 2024-10-29T22:03:51.943Z
 tags:
   - speak
   - english
@@ -45,6 +45,13 @@ thumbnail: https://thmb.techidaily.com/32a49341dcd2e3ff58b1a58ec7c331011d71244cd
 
  Curious about why there are multiple types of characters in Japanese? Here’s everything there is to know about the [Japanese writing system](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **How to say “hello” on the phone in Japanese: moshi moshi (もしもし)**
 
  Unlike English, which uses the same “hello” for a lot of different social contexts, the Japanese language has a dedicated “hello” for answering the phone:**moshi moshi (もしもし).** Doesn’t that sound cute?
@@ -66,20 +73,13 @@ This greeting is used both as a “hello” and as a “goodbye”.
 ![hi in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-japanese-960x639.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 3")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  “Meguro River, Matsuno, Japan” by Sora Sagano©
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 3.“Goodbye” in Japanese
 
@@ -98,7 +98,21 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![goodbye in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/goodbye-in-japanese-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 4")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  “See you soon, human” by Alain Pham©
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 4\. “Thank you” in Japanese and other polite phrases that you should know
 
@@ -142,13 +156,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
  – 45-degree bows are used for greetings only if you meet a very important person like the Emperor or the Prime Minister.
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Bonus: basic conversation in Japanese
 
  If you don’t want to stop at just**“thank you” or “hello” in Japanese,** here are a few more**Japanese phrases** that are fairly easy to remember and will definitely make all the difference for your trip to Japan:
@@ -169,13 +176,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
 * No problem. – _Daijōbudesu._
 
 ![sayonara](https://edge.mondly.com/blog/wp-content/uploads/2019/08/sayonara-1024x680.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 6")
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  “Tenryu-ji Temple, Kyōto-shi, Japan” by Masaaki Komori©
 
@@ -209,21 +209,22 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-the-significance-of-analytics-in-youtube-rank-enhancement/"><u>[New] 2024 Approved The Significance of Analytics in YouTube Rank Enhancement</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-easywebcamusage-recordingtipsandtricks/"><u>[New] EasyWebCamUsage RecordingTipsAndTricks</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-from-analog-to-digital-srt-conversion-into-modern-audio-standards/"><u>[New] From Analog to Digital SRT Conversion Into Modern Audio Standards</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-silly-screens-top-youtube-humorists-worth-your-time/"><u>[Updated] Silly Screens Top YouTube Humorists Worth Your Time</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-unveiling-the-secrets-of-adobe-cloud-and-alternative-storage-solutions/"><u>[Updated] Unveiling the Secrets of Adobe Cloud & Alternative Storage Solutions</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-the-path-to-youtube-wealth-top-revenue-tactics/"><u>2024 Approved The Path to YouTube Wealth Top Revenue Tactics</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/cut-to-the-chase-efficient-screen-recording-methods-for-hp-users/"><u>Cut to the Chase Efficient Screen Recording Methods for HP Users</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-guiding-viewers-eyes-leading-lines-for-iphone-photography/"><u>In 2024, Guiding Viewers' Eyes Leading Lines for iPhone Photography</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-infusing-energy-youtube-music-in-film-and-media-projects/"><u>In 2024, Infusing Energy YouTube Music in Film and Media Projects</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-english-pronunciation-via-intense-tongue-twisters/"><u>Mastering English Pronunciation via Intense Tongue Twisters</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-language-exams-top-certifications-and-exam-preparation-guide/"><u>Mastering Language Exams: Top Certifications And Exam Preparation Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-the-art-of-croatian-conversation-travels-must-have-skillset/"><u>Mastering the Art of Croatian Conversation: Travel's Must-Have Skillset</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/superior-systems-enhancing-vocab-learning/"><u>Superior Systems Enhancing Vocab Learning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ultimate-linguists-roadmap-certification-and-study-tactics/"><u>The Ultimate Linguist’s Roadmap: Certification & Study Tactics</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/transformative-experience-with-mondly-mastery/"><u>Transformative Experience with Mondly Mastery</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/virtual-vernacular-expand-language-horizons-effortlessly/"><u>Virtual Vernacular: Expand Language Horizons Effortlessly</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/outube-editing-competitors-ranked-top-5-non-youtube-sites-list/"><u>[New] YouTube Editing Competitors Ranked Top 5 Non-YouTube Sites List</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-unique-content-creation-the-ultimate-guide-to-6-video-types/"><u>[Updated] 2024 Approved Unique Content Creation The Ultimate Guide to 6 Video Types</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-creating-impact-with-high-converting-youtube-advertising-banners-for-2024/"><u>[Updated] Creating Impact with High-Converting YouTube Advertising Banners for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/100plus-french-travel-phrases-youll-need-to-fall-in-love-with-paris/"><u>100+ French Travel Phrases You’ll Need to Fall in Love with Paris</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/3-most-popular-asian-dialects-archive-for-fast-recall/"><u>3 Most Popular Asian Dialects: Archive for Fast Recall</u></a></li>
+<li><a href="https://win-blog.techidaily.com/banish-black-screens-in-far-cry-6-expert-solutions-revealed/"><u>Banish Black Screens in Far Cry 6 – Expert Solutions Revealed!</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/best-batch-eight-websites-where-text-meets-gleaming-3d/"><u>Best Batch Eight Websites Where Text Meets Gleaming 3D</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/break-language-barriers-with-mondlys-freshest-phrasebook/"><u>Break Language Barriers with Mondly's Freshest Phrasebook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/chinese-writing-fundamentals/"><u>Chinese Writing Fundamentals</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/descobrindo-o-portugues-saudacoes-para-todos-os-tempos/"><u>Descobrindo O Português: Saudações Para Todos Os Tempos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/find-your-voice-flawlessly-choose-mondly/"><u>Find Your Voice Flawlessly – Choose Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/heres-how-you-can-learn-japanese-on-your-own-online-and-for-free/"><u>Here’s How You Can Learn Japanese on Your Own, Online & for Free</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unpacking-the-sequencing-of-a-20mb-file/"><u>In 2024, Unpacking the Sequencing of a 20MB File</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/streamlining-lenovo-capture-features/"><u>Streamlining Lenovo Capture Features</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-body-parts-in-spanish-from-head-to-toe/"><u>The Body Parts in Spanish – From Head to Toe</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/this-years-breakthrough-in-vr-gaming-technology/"><u>This Year's Breakthrough in VR Gaming Technology</u></a></li>
+<li><a href="https://win-answers.techidaily.com/top-9-unpaid-flac-format-transformers-the-ultimate-guide/"><u>Top 9 Unpaid FLAC Format Transformers: The Ultimate Guide</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Unlocking New Linguistic Worlds Through Research-Based Melodies
-date: 2024-08-15T17:52:31.313Z
-updated: 2024-08-16T17:52:31.313Z
+date: 2024-10-27T22:32:08.353Z
+updated: 2024-10-30T10:16:18.227Z
 tags:
   - speak
   - english
@@ -43,8 +43,12 @@ Music and language go together like Beyoncé and Jay-Z for many reasons:
  In a compelling [study](https://www.researchgate.net/publication/307917016%5FLanguage%5FLearning%5FEnhanced%5Fby%5FMusic%5Fand%5FSong) carried out at Nelson Mandela University in South Africa, the strategic use of song and music was found to boost the motivation of English language learners significantly. The study participants, most of whom had only a rudimentary understanding of English, remarkably demonstrated their ability to dissect contemporary music lyrics as if they were poetry, all thanks to the engaging medium of music.
 
 !['Listening to music in Spanish' by Nicholas Githiri©](https://edge.mondly.com/blog/wp-content/uploads/2023/05/listening-to-music-in-spanish-960x640.jpg "The Power Of Music When Learning A New Language – Sing That Language! 2")
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
+  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Another [study](https://www.researchgate.net/publication/249966411%5FSinging%5Fcan%5Ffacilitate%5Fforeign%5Flanguage%5Flearning) published in the journal Memory & Cognition demonstrates that melodies can help in learning and recalling new phrases in a foreign language. This is because music and language share neural pathways in the brain, particularly in areas responsible for auditory processing and memory. The process of attaching words to a rhythmic pattern or melody helps reinforce memory retention of those words.
@@ -61,6 +65,19 @@ Music and language go together like Beyoncé and Jay-Z for many reasons:
 
 [Start Now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-8155&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-8155&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-8155&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-8155&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-8155%26mt%3D8)
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Music for language learning: good study songs and more
 
  If you’re ready to [learn Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , Italian, French or any other language using music, you need some tips before you get started. Listening to music in Spanish is one search away, but there are o couple of things you should remember.
@@ -75,9 +92,6 @@ Music and language go together like Beyoncé and Jay-Z for many reasons:
 * **Songs with translated lyrics:** For those keen to grasp the meaning of the lyrics and learn new words and phrases, songs with translated lyrics can be beneficial.
 
 !['Music language' by Jamakassi©](https://edge.mondly.com/blog/wp-content/uploads/2023/05/music-language-960x640.jpg "The Power Of Music When Learning A New Language – Sing That Language! 4")
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 
 ## Learning a new language with songs: tips and tricks
 
@@ -97,8 +111,12 @@ Music and language go together like Beyoncé and Jay-Z for many reasons:
  The bottom line is this: learning a language through music is possible. Especially if you’re only starting to learn the language and**can’t live without Spotify** . All you have to do is enjoy the process and learn what you can from it. Now let’s recap a few things.
 
 ![music language](https://media.giphy.com/media/l2QDLujtcAvAr2gRa/giphy.gif "The Power Of Music When Learning A New Language – Sing That Language! 5")
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to learn a language by listening to music?
@@ -106,8 +124,12 @@ Music and language go together like Beyoncé and Jay-Z for many reasons:
  One way to learn a language through music is to listen to songs in the target language and try to follow along with the lyrics. You can also look up the lyrics and translations online to better understand the meaning of the words. Another way is to just listen to concentration music while studying the language.
 
 <!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### How to learn a language by studying music lyrics?
 
  Studying music lyrics involves analyzing the structure and meaning of the lyrics and using that knowledge to improve your language skills. This can include learning new vocabulary, grammar rules, and pronunciation.
@@ -116,12 +138,16 @@ Music and language go together like Beyoncé and Jay-Z for many reasons:
 
  Listening to music helps you learn a language by exposing you to native speakers and commonly used words, improving your listening skills, and providing you with a fun and engaging way to practice your language skills.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
-<!-- affiliate ads end -->
 ### Who said “to learn music is to learn a whole new language”?
 
 This quote is often attributed to Plato.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to learn a language from music?
 
@@ -132,9 +158,6 @@ This quote is often attributed to Plato.
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Sing your way to a new language
 
  Drop the grammar book and pick up Mondly! It’s time to have fun learning languages.
@@ -157,8 +180,6 @@ This quote is often attributed to Plato.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -166,4 +187,26 @@ This quote is often attributed to Plato.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/teps-to-manage-video-watcher-restrictions-on-youtube-for-2024/"><u>[New] Steps to Manage Video Watcher Restrictions on Youtube for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-a-beginners-guide-to-music-in-online-video-footage-fb-for-2024/"><u>[Updated] A Beginner's Guide to Music in Online Video Footage (FB) for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-meme-monster-maestro/"><u>2024 Approved Meme Monster Maestro</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/21st-century-communication-revolutionizing-the-way-we-talk/"><u>21St Century Communication: Revolutionizing the Way We Talk</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-cultures-top-10-reasons-to-dive-into-another-tongue/"><u>Bridging Cultures: Top 10 Reasons to Dive Into Another Tongue</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-motorola-moto-g23-drfone-by-drfone-virtual-android/"><u>Does Airplane Mode Turn off GPS Location On Motorola Moto G23? | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/evenings-reassessment-alternate-vision-for-2024/"><u>Evening's Reassessment Alternate Vision for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fluent-french-made-easy-with-essential-proverbs-and-sayings/"><u>Fluent French Made Easy with Essential Proverbs & Sayings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-language-lore-best-quotations-and-proverbs-of-ancient-rome/"><u>Latin Language Lore: Best Quotations & Proverbs of Ancient Rome</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719574684003-learn-slovak-online-in-just-10-minutes-a-day/"><u>Learn Slovak Online In Just 10 Minutes A Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-kids-app-named-superlative-google-play-best-of-2017/"><u>Mondly Kids App Named Superlative Google Play Best of 2017</u></a></li>
+<li><a href="https://win-forum.techidaily.com/navigating-the-big-four-of-social-networking-insights-on-facebook-twitter-instagram-and-youtube/"><u>Navigating the Big Four of Social Networking: Insights on Facebook, Twitter, Instagram & YouTube</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/play-store-stuck-on-downloading-of-realme-12plus-5g-7-ways-to-resolve-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Stuck on Downloading Of Realme 12+ 5G? 7 Ways to Resolve | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/solving-the-problem-why-your-mac-doesnt-recognize-outside-monitors/"><u>Solving the Problem: Why Your Mac Doesn't Recognize Outside Monitors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-straight-ahead-top-10-simple-language-selections/"><u>Speak Straight Ahead: Top 10 Simple Language Selections</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/step-by-step-tutorial-for-turning-on-windows-11s-quick-start/"><u>Step-by-Step Tutorial for Turning On Windows 11'S Quick Start</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-revolutionary-impact-of-chatgpt-harnessing-the-potential-of-next-gen-conversational-artificial-intelligence/"><u>The Revolutionary Impact of ChatGPT: Harnessing the Potential of Next-Gen Conversational Artificial Intelligence</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vocal-interaction-redefined-in-the-augmented-realm/"><u>Vocal Interaction Redefined in the Augmented Realm</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/weekday-essentials-in-korea-an-accessible-guide/"><u>Weekday Essentials in Korea: An Accessible Guide</u></a></li>
+</ul></div>
 

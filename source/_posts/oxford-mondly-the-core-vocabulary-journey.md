@@ -1,7 +1,7 @@
 ---
 title: "Oxford-Mondly: The Core Vocabulary Journey"
-date: 2024-08-15T17:46:56.620Z
-updated: 2024-08-16T17:46:56.620Z
+date: 2024-10-29T03:30:27.288Z
+updated: 2024-10-29T21:46:01.168Z
 tags:
   - speak
   - english
@@ -35,8 +35,12 @@ thumbnail: https://thmb.techidaily.com/1d642682ec5cb6a6ea7cd33f84c3c6bed241d468d
  Since its inception, the Oxford 3000 has been revised to reflect the language in daily use that has changed a lot due to the growth of the internet and social media.
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## The most important words in English and their relation to CEFR levels
 
  As the paper [_Oxford 3000 and Oxford 5000: The Most Important Words to Learn in English_](https://elt.oup.com/feature/global/expert/oxford-3000?cc=ro&selLanguage=en) shows, “vocabulary size is one of the most useful indicators of overall language level”. So here’s exactly how the Common European Framework of Reference (CEFR) levels look in relation to the 5000 most frequent words:
@@ -79,8 +83,6 @@ thumbnail: https://thmb.techidaily.com/1d642682ec5cb6a6ea7cd33f84c3c6bed241d468d
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -88,4 +90,19 @@ thumbnail: https://thmb.techidaily.com/1d642682ec5cb6a6ea7cd33f84c3c6bed241d468d
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-how-to-add-music-to-youtubevideo-with-youtube-video-editor/"><u>[New] 2024 Approved How to Add Music to YouTubeVideo with YouTube Video Editor</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-grid-artistry-at-its-peak-the-definitive-10-for-insta-posts/"><u>[New] Grid Artistry at Its Peak The Definitive 10 for Insta Posts</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-hourly-headliners-the-leading-yt-videos-in-the-last-24-hours-for-2024/"><u>[New] Hourly Headliners The Leading YT Videos in the Last 24 Hours for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/android-safe-mode-how-to-turn-off-safe-mode-on-oppo-reno-11-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Safe Mode - How to Turn off Safe Mode on Oppo Reno 11 5G? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deutsch-eine-auswahl-an-verabschiedungsformen/"><u>Deutsch: Eine Auswahl an Verabschiedungsformen</u></a></li>
+<li><a href="https://win11.techidaily.com/fixing-common-issues-with-microsoft-store-logins/"><u>Fixing Common Issues with Microsoft Store Logins</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/hp-deskjet-ink-advantage-3752e-printer-software-download-latest-version/"><u>HP Deskjet Ink Advantage 3752E Printer Software Download – Latest Version</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-making-an-impact-on-youtube-tips-on-banners-and-art-dimensions/"><u>In 2024, Making an Impact on YouTube Tips on Banners and Art Dimensions</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/motorola-g24-power-not-connecting-to-wi-fi-12-quick-ways-to-fix-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Motorola G24 Power Not Connecting to Wi-Fi? 12 Quick Ways to Fix | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-british-lexicon-explorer-learn-quickly-and-easily/"><u>The British Lexicon Explorer: Learn Quickly & Easily</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essence-free-knowledge-every-day/"><u>The Essence: Free Knowledge Every Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-japons-language-with-key-salutations/"><u>Unlocking Japon's Language with Key Salutations</u></a></li>
+</ul></div>
 

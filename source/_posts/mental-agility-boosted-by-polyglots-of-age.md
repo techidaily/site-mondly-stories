@@ -1,7 +1,7 @@
 ---
 title: Mental Agility Boosted by Polyglots of Age
-date: 2024-08-15T17:48:16.136Z
-updated: 2024-08-16T17:48:16.136Z
+date: 2024-10-26T08:34:55.941Z
+updated: 2024-10-30T08:43:52.625Z
 tags:
   - speak
   - english
@@ -29,8 +29,12 @@ thumbnail: https://thmb.techidaily.com/25b0e40b25535b4355b8cca4194992e02cab9c78a
  Although this is advantageous, Costa adds that it is much more difficult for seniors to master accents. The good news is, there are game-like tutorials that can teach males and females ages 6 to 90 or over to speak a new language of their choosing. These games include voiceovers that teach participants how to [pronounce](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) certain words.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Bilingualism Improves Cognition**
 
  Bilingualism is beneficial to brain health, according to researchers at Edinburgh University. After examining medical records of 648 patients with Alzheimer’s disease in Hyderabad, the researchers found that monolingual patients developed dementia earlier than those who spoke two languages. The lead researcher, Thomas Bak, notes that learning a new language later in life is beneficial because it helps exercise the brain.
@@ -38,8 +42,12 @@ thumbnail: https://thmb.techidaily.com/25b0e40b25535b4355b8cca4194992e02cab9c78a
  Experts in senior health agree with Bak. The brain needs exercise and learning a new word every day or a new language can structurally and functionally alter the brain. It can make it more efficient and more flexible. Playing brain games that keep the mind young is also advisable. This includes crossword puzzles, card games, and Scrabble. Seniors can also improve their problem-solving skills by building something. If you have always wanted to build a birdhouse, for example, starting this project will help you exercise your brain. Experts also suggest that you carry cash for your daily purchases. Counting your change and remembering simple mathematical computations is a good brain exercise. With regular exercise, the brain will be better at focusing on remembering lists, directions, and sequences.
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Learning keeps the brain young**
 
  York University and the American Academy of Neurology also conducted their own studies about bilingualism and dementia. Both institutions found that switching from one language to the other activates areas of the brain responsible for executive functioning. This involves the same area that is responsible for completing tasks.
@@ -47,8 +55,18 @@ thumbnail: https://thmb.techidaily.com/25b0e40b25535b4355b8cca4194992e02cab9c78a
  According to the studies, utilizing this part of the brain often can decrease cognitive decline and can delay the initial effects of dementia. It must be noted that a third language is not required unless you are already bilingual. For multilingual individuals, learning a new language when you reach the age of 50 is a good way to improve brain health.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **More Than Just Medical Benefits**
 
  Bilingualism does not only help keep your brain active, but it can also increase your social interactions. The Gerontological Society of America notes that socialization can help improve an older individual’s general well-being.
@@ -70,8 +88,6 @@ _– written by Jane Sandwood, contributor at Mondly_
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -79,4 +95,19 @@ _– written by Jane Sandwood, contributor at Mondly_
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-the-simple-steps-to-embed-youtube-playlists-on-any-website/"><u>[New] 2024 Approved The Simple Steps to Embed YouTube Playlists on Any Website</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-how-to-leverage-phantoms-retrograde-footage-tech/"><u>[New] In 2024, How to Leverage Phantom’s Retrograde Footage Tech</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-innovative-videography-for-sims-playtime/"><u>[New] Innovative Videography for Sims Playtime</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/adopting-english-boosts-your-career-trajectory/"><u>Adopting English: Boosts Your Career Trajectory</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-communication-gaps-with-mondlys-languages/"><u>Bridging Communication Gaps with Mondly's Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hello-in-spanish-and-other-basic-spanish-greetings-you-need-to-know/"><u>Hello in Spanish and Other Basic Spanish Greetings You Need to Know</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-your-nokia-c12-pro-lock-screen-password-by-drfone-android/"><u>In 2024, How to Reset your Nokia C12 Pro Lock Screen Password</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/tips-for-gradual-decrease-of-audio-loudness-in-fl-studio-for-2024/"><u>Tips for Gradual Decrease of Audio Loudness in FL Studio for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-apex-legends-solve-your-voice-chat-issues-now/"><u>Troubleshooting Apex Legends: Solve Your Voice Chat Issues Now</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshooting-performance-hitches-in-forza-horizon-5-solutions-included/"><u>Troubleshooting Performance Hitches in Forza Horizon 5 - Solutions Included</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/unlocking-potential-how-macos-15-upgrades-boost-performance-on-your-apple-macbook-insights-from-zdnet/"><u>Unlocking Potential: How macOS 15 Upgrades Boost Performance on Your Apple MacBook | Insights From ZDNet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/your-first-steps-into-mastering-french-pronunciation/"><u>Your First Steps Into Mastering French Pronunciation</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Science Behind Mondly's Learning
-date: 2024-10-23T18:06:10.508Z
-updated: 2024-10-24T17:48:14.719Z
+date: 2024-10-25T09:49:09.316Z
+updated: 2024-10-30T10:26:55.382Z
 tags:
   - speak
   - english
@@ -43,10 +43,10 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
  Basically, what happens in the app is that new and more difficult words or phrases will be shown together with older and less difficult ones. But as you progress, the old information will be shown less and less frequently than the new one. This technique makes sure that the information you learned is well-cemented in your brain before moving on to new concepts.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Lexical coverage: focus on the most common words
@@ -58,16 +58,10 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 ![lexical coverage](https://edge.mondly.com/blog/wp-content/uploads/2021/10/lexical-coverage-960x761.png "The Learning Method Behind Mondly 5")
 
 <!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lexical coverage overview
@@ -82,10 +76,10 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Take Mondly for a test drive
@@ -113,22 +107,19 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-how-to-convert-jpg-and-png-images-to-pdf-on-an-iphone/"><u>[New] In 2024, How to Convert JPG and PNG Images to PDF on an iPhone</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-proper-techniques-for-exporting-photos-from-phone-to-snapchat-for-2024/"><u>[Updated] Proper Techniques for Exporting Photos From Phone to Snapchat for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-ranked-the-best-7-android-adblockers-for-screen-freedom-for-2024/"><u>[Updated] Ranked The Best 7 Android AdBlockers for Screen Freedom for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-music-from-galaxy-a05-by-fonelab-android-recover-music/"><u>Best Android Data Recovery - Undelete Lost Music from Galaxy A05</u></a></li>
-<li><a href="https://network-issues.techidaily.com/conquering-the-chaos-of-nvidias-rtx-3080-in-games/"><u>Conquering the Chaos of Nvidia's RTX 3080 in Games</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-anything-from-samsung-galaxy-a54-5g-to-apple-tv-drfone-by-drfone-android/"><u>In 2024, How To Stream Anything From Samsung Galaxy A54 5G to Apple TV | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/initiating-your-adventure-with-hanzi/"><u>Initiating Your Adventure with Hanzi</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learning-polish-accelerated-approach/"><u>Learning Polish: Accelerated Approach</u></a></li>
-<li><a href="https://media-tips.techidaily.com/live-coverage-of-the-2023-us-open-tennis-championships-top-apple-tv-streaming-options-for-fans/"><u>Live Coverage of the 2023 U.S. Open Tennis Championships: Top Apple TV Streaming Options for Fans</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lure-and-lovesickness-through-french-phrases/"><u>Lure and Lovesickness Through French Phrases</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pearsons-advance-in-education-the-gsl-mondly-combo/"><u>Pearson’s Advance in Education: The GSL-Mondly Combo</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/remedying-windows-1110s-recurring-error-with-audacity/"><u>Remedying Windows 11/10'S Recurring Error with Audacity</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/step-into-the-future-meet-an-advanced-ai-partner/"><u>Step Into the Future: Meet an Advanced AI Partner</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-best-language-app-mondlys-acclaimed-journey/"><u>The Best Language App : Mondly’s Acclaimed Journey</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/timeless-lines-everyday-words-from-the-bards-vocabulary/"><u>Timeless Lines: Everyday Words From the Bard's Vocabulary</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unraveling-the-lengthiest-lexicon-legend/"><u>Unraveling the Lengthiest Lexicon Legend</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/update-announced-basic-peripheral-driver-availability-restored-on-windows/"><u>Update Announced: Basic Peripheral Driver Availability Restored on Windows</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-action-in-full-hd-top-7-camcorders-for-thrills/"><u>[New] In 2024, Action in Full HD Top 7 Camcorders for Thrills</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-stream-with-clarity-ranking-the-best-6-microphones-today/"><u>[New] Stream with Clarity Ranking the Best 6 Microphones Today</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-precision-in-visuals-how-to-blur-backgrounds-on-teamblend-for-2024/"><u>[Updated] Precision in Visuals How to Blur Backgrounds on Teamblend for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-unboxing-mastery-the-soundtrack-selection-guidebook/"><u>[Updated] Unboxing Mastery The Soundtrack Selection Guidebook</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-best-tools-to-hard-reset-tecno-spark-20-pro-drfone-by-drfone-reset-android-reset-android/"><u>3 Best Tools to Hard Reset Tecno Spark 20 Pro | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bangla-easy-routine-10-mins/"><u>Bangla Easy Routine (10 Mins)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/chinese-expression-of-gratitude-beyond-xiexie/"><u>Chinese Expression of Gratitude: Beyond Xièxiè</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprendre-lanatomie-fondamentale-parts-of-the-body-in-french-156-characters/"><u>Comprendre L'Anatomie Fondamentale: Parts of the Body in French (156 Characters)</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/digital-companion-in-natures-unpredictability/"><u>Digital Companion in Nature's Unpredictability</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/diving-into-pt-buttons-brazilians-vs-europeans/"><u>Diving Into PT Buttons: Brazilians Vs. Europeans</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dynamic-discoveries-with-lively-language-lessons/"><u>Dynamic Discoveries with Lively Language Lessons</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-a-lost-honor-magic-5-pro-for-free-drfone-by-drfone-virtual-android/"><u>How to Track a Lost Honor Magic 5 Pro for Free? | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-tecno-spark-20-propluswithwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Tecno Spark 20 Pro+with/without a PC</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210722505-9781797224367-luminous-dreams/"><u>Luminous Dreams | Free Book</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Polite Pleasers: How to Show Thankfulness in 30 Different Tongues (157) [Trimmed to Fit]"
-date: 2024-08-15T17:52:14.861Z
-updated: 2024-08-16T17:52:14.861Z
+date: 2024-10-29T05:48:09.483Z
+updated: 2024-10-30T03:19:48.081Z
 tags:
   - speak
   - english
@@ -59,8 +59,12 @@ thumbnail: https://thmb.techidaily.com/4916a6d483134297a5c5a01cc889f69aabd6291d8
  “Thanks” by Hanny Naibaho©
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## The origin of saying “thank you”
 
  The mere act of expressing gratitude sits at the core of human interaction, so it should be interesting to analyze it a bit more. As the [Oxford Dictionaries](https://en.oxforddictionaries.com/definition/thank%5Fyou) explain, “thank you” is “a polite expression used when acknowledging a gift, service, or compliment, or accepting or refusing an offer”. “Thank you” is basically the general expression of gratitude or politeness to someone for an act of kindness that he or she has done.
@@ -85,8 +89,12 @@ thumbnail: https://thmb.techidaily.com/4916a6d483134297a5c5a01cc889f69aabd6291d8
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## From 0 to conversational in over 40 languages
 
  Do you want to speak Spanish fluently fast? Or maybe French? Get [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6274&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6274&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6274) , the award-winning language learning app that will help you speak up to 41 languages.
@@ -108,8 +116,6 @@ thumbnail: https://thmb.techidaily.com/4916a6d483134297a5c5a01cc889f69aabd6291d8
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -117,4 +123,17 @@ thumbnail: https://thmb.techidaily.com/4916a6d483134297a5c5a01cc889f69aabd6291d8
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-elevate-your-online-sound-experience-with-these-5-steps/"><u>[New] Elevate Your Online Sound Experience with These 5 Steps</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-essential-skills-for-proficient-use-of-gdoc-transcription-service/"><u>[Updated] In 2024, Essential Skills for Proficient Use of GDoc Transcription Service</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/comprehensive-review-iphone-14-strikes-a-balance-between-quality-and-affordability-cnet/"><u>Comprehensive Review: IPhone 14 Strikes a Balance Between Quality & Affordability | CNET</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enriching-life-in-golden-years-through-multilingualism/"><u>Enriching Life in Golden Years Through Multilingualism</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/incidence-rate-of-combustion-in-battery-powered-autos-a-closer-look/"><u>Incidence Rate of Combustion in Battery-Powered Autos: A Closer Look</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolving-lack-of-touchpen-responsiveness-on-displays/"><u>Resolving Lack of Touch/Pen Responsiveness on Displays</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tap-into-the-full-potential-with-mondly/"><u>Tap Into the Full Potential with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-comprehensible-guide-to-formal-and-informal-french-greetings/"><u>The Comprehensible Guide to Formal & Informal French Greetings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-evolution-of-my-speaking-skills-through-mondly-the-top-10-key-factors/"><u>The Evolution of My Speaking Skills Through Mondly: The Top 10 Key Factors</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-10-fast-track-tricks-for-newcomers-on-the-x-platform/"><u>Top 10 Fast-Track Tricks for Newcomers on the X Platform</u></a></li>
+</ul></div>
 

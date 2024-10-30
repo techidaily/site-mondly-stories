@@ -1,7 +1,7 @@
 ---
 title: "The Secrets of Speed: Learn Czech with Digital Aids"
-date: 2024-08-15T17:53:38.472Z
-updated: 2024-08-16T17:53:38.472Z
+date: 2024-10-27T16:56:31.410Z
+updated: 2024-10-29T16:00:19.371Z
 tags:
   - speak
   - english
@@ -29,8 +29,12 @@ thumbnail: https://thmb.techidaily.com/b9c87935bcb636b8006c11267defd1b13d4f0a546
  The**oldest records of the Czech language** are glosses appearing in German and Latin texts in**the 12th century.** Thus it’s not a surprise to find out that the Czech vocabulary is extensively influenced by Latin and German.
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Czech – the most common language spoken at home in the US?
 
  A little-known fact about the Czech language is that it is very well represented in the United States. Czech people immigrated from Europe to the United States primarily from 1848 to 1914, so Czech became a [Less Commonly Taught Language](https://en.wikipedia.org/wiki/Less%5FCommonly%5FTaught%5FLanguages) in U.S. schools and is nowadays taught at Czech heritage centers.
@@ -38,15 +42,22 @@ thumbnail: https://thmb.techidaily.com/b9c87935bcb636b8006c11267defd1b13d4f0a546
  Furthermore, in the 2000 United States Census,**Czech was reported as the most common language spoken at home** **(besides English)** in three counties from Nebraska and one from Kansas. Additionally, Czech was the second most common [language spoken at home](https://en.wikipedia.org/wiki/Language%5FSpoken%5Fat%5FHome) (after Spanish) in more than a dozen additional counties in Nebraska, Kansas, Texas, North Dakota and Minnesota.
 
 ![czech republic prague](https://edge.mondly.com/blog/wp-content/uploads/2022/02/czech-republic-prague-960x640.jpg "The Easiest Way To Study Czech Online 2")
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  ‘Prague, Czech Republic’ by Ouael Ben Salah©
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Czech vs Slovak – how similar are they?
 
  If you didn’t already know, the sister language of Czech is [Slovak](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) (also available to [learn with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6512&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6512?mother%5Flang=en%5Fus?target%5Flang=sk&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6512?mother%5Flang=en%5Fus?target%5Flang=sk) ) because of their very high degree of mutual intelligibility. This means that if you already know Slovak you will have an easier time learning Czech.
@@ -54,8 +65,12 @@ thumbnail: https://thmb.techidaily.com/b9c87935bcb636b8006c11267defd1b13d4f0a546
  Czech and Slovak shared a common history long before the creation of Czechoslovakia in 1918 (a state which peacefully split in 1993), so it’s no surprise that literary Slovak is so similar to Czech. How similar though? Well, think of British English and American English then tone down the level a bit. We’re talking about slightly different vocabulary, false cognates, varied syntax, localized idioms, and different vocabulary and slang. But all in all,**Czech and Slovak are very much alike.**
 
 <!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 10 basic Czech words you can learn right now
 
  Excited to study Czech? Let’s start small. Here are the top 10 basic Czech words and phrases that will come in handy in virtually any interaction with a fluent Czech speaker:
@@ -74,12 +89,12 @@ thumbnail: https://thmb.techidaily.com/b9c87935bcb636b8006c11267defd1b13d4f0a546
 Here’s a glimpse of how some of these Czech words sound:
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## The easiest way to study Czech online with Mondly
 
  Now let’s discuss the real reason why you’re here: the easiest way to study Czech online.
@@ -109,8 +124,6 @@ No advertising on the website.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -118,4 +131,18 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-guidance.techidaily.com/new-quick-steps-to-capture-ios-audio-files/"><u>[New] Quick Steps to Capture iOS Audio Files</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-remove-a-previously-synced-google-account-from-your-motorola-moto-g14-by-drfone-android/"><u>How to Remove a Previously Synced Google Account from Your Motorola Moto G14</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-12-to-other-iphone-11-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 12 to other iPhone 11 devices? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-lg-watch-style-examination-a-comprehensive-guide-to-the-traditional-wear-os-20-experience/"><u>In-Depth LG Watch Style Examination: A Comprehensive Guide to the Traditional Wear OS 2.0 Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/inspire-ischia-italians-mastering-over-20-local-expressions/"><u>Inspire Ischia Italians: Mastering Over 20 Local Expressions</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/live-streaming-made-easy-discover-the-power-of-manycam-your-ultimate-virtual-webcam-solution/"><u>Live Streaming Made Easy: Discover the Power of ManyCam - Your Ultimate Virtual Webcam Solution</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seamless-korean-learning-the-premier-6-online-resources-guide/"><u>Seamless Korean Learning: The Premier 6 Online Resources Guide</u></a></li>
+<li><a href="https://win-blog.techidaily.com/solving-lag-issues-in-avatar-frontiers-of-pandora-fixes-for-frame-rate-drops-and-jitter/"><u>Solving Lag Issues in 'Avatar: Frontiers of Pandora' - Fixes for Frame Rate Drops & Jitter</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-formality-expressing-bonjour-in-french-culture/"><u>The Art of Formality: Expressing 'Bonjour' In French Culture</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-eerie-origins-of-halloween-customs/"><u>The Eerie Origins of Halloween Customs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-and-mastering-russian-alphabet-pronunciation/"><u>Understanding and Mastering Russian Alphabet Pronunciation</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Cultural Wealth of Farsi & Its Rewards
-date: 2024-10-19T17:05:27.566Z
-updated: 2024-10-24T16:11:30.343Z
+date: 2024-10-24T05:39:14.108Z
+updated: 2024-10-30T05:00:25.026Z
 tags:
   - speak
   - english
@@ -29,10 +29,10 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
  In other words, the confusion arises from the fact that there’s currently no country on Earth named Persia in the same way there’s no language we can call the ‘Iranian language’. Persian does belong to the Iranian languages, but the Iranian languages are a branch of the Indo-Iranian languages in the Indo-European language family. So they are not an individual language.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Persian language – history and facts
@@ -51,13 +51,6 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
 
 !["Ferdowsi Shahnameh" by McGill Library©](https://edge.mondly.com/blog/wp-content/uploads/2022/09/mcgill-library-AH42Li7NKUc-unsplash-960x629.jpg "Persian Language: History &Amp; Benefits Of Learning Farsi/Persian 2")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Persian Literary History: Ferdowsi’s ‘Shahnameh’ — Siyavush in Sudaba’s private quarters.
 
  Today, there still are a significant number of [Arabic words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) in Persian, but not as many as there could have been.
@@ -68,6 +61,13 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
 
  As a matter of fact, there are even some English words of Persian origin. Some of them came directly into English from Persian, but most of them came indirectly into English via a different language. Some examples include bronze, jackal, lemon, mogul, mummy, scarlet, serendipity, shawl, tulip, turban, typhoon, khaki, caravan, and paradise. Probably the most interesting borrowing is the word “checkmate,” which comes from the Persian_Shah Mat_ , meaning “the king is dead”.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Persian vs Farsi: Is Farsi the same as Persian?
 
  The short answer is yes, Farsi and Persian are the same language. The confusion comes from the fact that ‘Persian’ is the term used by English speakers and ‘Farsi’ is the term used by Iranian speakers to refer to Persian, the official language of Iran.
@@ -77,13 +77,6 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
  Over the course of history, the word ‘Farsi’ developed from the terms the natives used to refer to Old Persian, Middle Persian, and New Persian, which are_Parsa, Parsik_ or_Parsig_ and_Fars_ , respectively.
 
  According to the [Academy of Persian Language and Literature](https://iranicaonline.org/articles/farhangestan) , the endonym ‘Farsi’ should be avoided in foreign languages. Instead, ‘Persian’ should be the appropriate designation in English, as it has the longest tradition in western languages and is better suited to convey the language’s role as a national and cultural continuity symbol.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Persian vs Arabic: Is Persian similar to Arabic?
 
@@ -96,6 +89,13 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
  Here are two videos of numbers from 1 to 10 in Persian and in Arabic so you can see the difference:
 
  All in all, Persian and Arabic can’t be considered mutually intelligible. A speaker of either Persian or Arabic with no knowledge of the other could recognize some basic words in writing, but conversations are a whole other story.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The benefits of learning Farsi/Persian
 
@@ -118,10 +118,10 @@ Other benefits of learning Persian include:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Learn Persian online with Mondly
@@ -155,20 +155,16 @@ Other benefits of learning Persian include:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-netflix-picture-in-picture-how-to-use-the-netflix-floating-window-feature/"><u>[New] In 2024, Netflix Picture-in-Picture - How to Use the Netflix Floating Window Feature</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-beyond-reality-comparing-vr-augmented-and-mixed-tech/"><u>2024 Approved Beyond Reality Comparing VR, Augmented & Mixed Tech</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/discover-these-top-5-iphone-friendly-podcast-services/"><u>Discover These Top 5 iPhone-Friendly Podcast Services</u></a></li>
-<li><a href="https://android-frp.techidaily.com/easy-guide-to-lava-yuva-2-frp-bypass-with-best-methods-by-drfone-android/"><u>Easy Guide to Lava Yuva 2 FRP Bypass With Best Methods</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-can-oneplus-12mirror-share-to-pc-drfone-by-drfone-android/"><u>How Can OnePlus 12Mirror Share to PC? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguistic-lightning-strike-fast-track-language-guide/"><u>Linguistic Lightning Strike: Fast-Track Language Guide</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/market-dominance-keyphrases-for-successful-advertising/"><u>Market Dominance Keyphrases for Successful Advertising</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/methods-for-easing-endless-prompts-after-login-attempts/"><u>Methods for Easing Endless Prompts After Login Attempts</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/o-poder-da-palavra-em-portugues-melhores-expressoes-para-amigos/"><u>O Poder Da Palavra Em Português: Melhores Expressões Para Amigos</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/phonetic-finesse-navigating-complex-lexical-forms/"><u>Phonetic Finesse: Navigating Complex Lexical Forms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/quick-tagalog-progress-daily-practice-weekly-successes/"><u>Quick Tagalog Progress: Daily Practice, Weekly Successes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-your-mind-embrace-free-language-with-mondly/"><u>Speak Your Mind: Embrace FREE Language with Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speaking-volumes-how-mondly-became-the-leading-app/"><u>Speaking Volumes: How Mondly Became the Leading App</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/transcending-language-gaps-for-lasting-bonds/"><u>Transcending Language Gaps for Lasting Bonds</u></a></li>
-<li><a href="https://techtrends.techidaily.com/windows-10-sync-settings-greyed-out-solved/"><u>Windows 10 Sync Settings Greyed Out [Solved]</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-simplified-guide-from-camera-roll-capture-to-snapchat-posting/"><u>[New] In 2024, Simplified Guide From Camera Roll Capture to Snapchat Posting</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/step-by-step-tutorial-effortless-download-and-installation-of-wacom-intuos-pro-drivers-windows-10/"><u>[Step-by-Step Tutorial]: Effortless Download & Installation of Wacom Intuos Pro Drivers (Windows 10)</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-social-stream-snippets-yearly-update-for-2024/"><u>[Updated] Social Stream Snippets, Yearly Update for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-intriguing-motivations-for-studying-german/"><u>10 Intriguing Motivations for Studying German</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/anatomie-introductive-divisions-corporelles-en-francais/"><u>Anatomie Introductive: Divisions Corporelles en Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dawn-of-dialectics-the-greek-linguistic-saga/"><u>Dawn of Dialectics: The Greek Linguistic Saga</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dominant-foreign-languages-in-american-academic-settings/"><u>Dominant Foreign Languages in American Academic Settings</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/expert-tips-eliminate-a-401-unauthorized-webpage-mistake-quickly/"><u>Expert Tips: Eliminate a 401 Unauthorized Webpage Mistake Quickly</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-through-the-upgrade-decision-process/"><u>Navigating Through the Upgrade Decision Process</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-dangers-of-opening-up-to-unknown-facebook-friends/"><u>The Hidden Dangers of Opening Up to Unknown Facebook Friends</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/ultimate-tutorial-for-viewing-movie-file-contents-from-videots-folders-across-windows-11-macos-ios-and-android-platforms/"><u>Ultimate Tutorial for Viewing Movie File Contents From Video_TS Folders Across Windows 11, macOS, iOS, and Android Platforms</u></a></li>
 </ul></div>
 
