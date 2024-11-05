@@ -1,7 +1,7 @@
 ---
 title: Kommunikative Vergebung in Deutsch
-date: 2024-09-26T18:41:24.346Z
-updated: 2024-10-02T00:25:58.705Z
+date: 2024-11-03T16:42:50.291Z
+updated: 2024-11-04T21:25:40.050Z
 tags:
   - speak
   - english
@@ -27,10 +27,10 @@ thumbnail: https://thmb.techidaily.com/e317ee1375b71965ab23395d09818c610ccf5d2d8
  However, this is not strictly a German thing. It’s true Germans say sorry once in a blue moon, but there are some other countries like France or Russia where over-apologizing can be regarded as insincere as well.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to apologize in German
@@ -46,10 +46,10 @@ Here are some practical examples of apologies in German:
 * _Tut mir leid, ich mag die Suppe nicht._ – Sorry, I don’t like the soup.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to say sorry in German – the “Excuse me” sorry
@@ -61,10 +61,10 @@ Here are some practical examples of apologies in German:
  Hear the formal_Entschuldigen Sie_ in action in this basic conversation in German:
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Other ways to say sorry in German
@@ -110,10 +110,10 @@ Here are some practical examples of apologies in German:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### From 0 to conversational in German
@@ -147,21 +147,16 @@ Here are some practical examples of apologies in German:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-achieve-high-rankings-on-youtube-with-top-seo-tips-1-11/"><u>[New] In 2024, Achieve High Rankings on YouTube with Top SEO Tips (1-11)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/building-bonds-through-the-right-japanese-greeting/"><u>Building Bonds Through the Right Japanese Greeting</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/conquering-complex-speech-overcoming-difficult-word-enunciation/"><u>Conquering Complex Speech: Overcoming Difficult Word Enunciation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/croatian-national-language/"><u>Croatian National Language</u></a></li>
-<li><a href="https://location-social.techidaily.com/does-find-my-friends-work-on-honor-magic-6-drfone-by-drfone-virtual-android/"><u>Does find my friends work on Honor Magic 6 | Dr.fone</u></a></li>
-<li><a href="https://win-dash.techidaily.com/download-and-update-essential-lenovo-t430-drivers-for-seamless-performance-on-windows-11-8-or-easily-upgrade-to-windows-7/"><u>Download & Update: Essential Lenovo T430 Drivers for Seamless Performance on Windows 11, 8 or Easily Upgrade to Windows 7</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/elevate-language-acquisition-through-melodic-evidence-based-approaches/"><u>Elevate Language Acquisition Through Melodic, Evidence-Based Approaches</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-citizenship-through-non-native-english-learning/"><u>Global Citizenship Through Non-Native English Learning</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-complete-guide-for-iphone-xs-lock-screen-by-drfone-ios/"><u>In 2024, Complete Guide For iPhone XS Lock Screen</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-what-are-luts-and-how-they-change-your-photo/"><u>In 2024, What Are LUTs and How They Change Your Photo</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-realme-v30t-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Realme V30T? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/introduction-to-correct-french-vowel-and-consonant-sounds/"><u>Introduction to Correct French Vowel and Consonant Sounds</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/master-facial-recognition-easily-manage-your-android-device-with-just-a-look/"><u>Master Facial Recognition: Easily Manage Your Android Device with Just a Look</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/oppo-find-n3-stuck-on-screen-finding-solutions-for-stuck-on-boot-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Oppo Find N3 Stuck on Screen – Finding Solutions For Stuck on Boot | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/simplified-czech-studies-on-digital-platforms/"><u>Simplified Czech Studies on Digital Platforms</u></a></li>
-<li><a href="https://common-error.techidaily.com/troubleshooting-windows-10-cast-to-device-problems-solutions-included/"><u>Troubleshooting Windows # 10 Cast To Device Problems - Solutions Included</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-mastering-unlimited-data-keep-essential-lists/"><u>[New] In 2024, Mastering Unlimited Data Keep Essential Lists</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-pioneering-marketing-top-20-strategies-for-impactful-fb-video-ads/"><u>[Updated] Pioneering Marketing Top 20 Strategies for Impactful FB Video Ads</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-entering-the-fullscreen-realm-choosing-a-cms/"><u>2024 Approved Entering the Fullscreen Realm Choosing a CMS</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/5-steps-to-become-fluent-in-french-at-home/"><u>5 Steps to Become Fluent in French at Home</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/5yq55p6c55qe44gq5oml44ow44os44o844kr44o844gu44ot44oh44kq5zyn57iu44og44kv44ol44od44kv77ya44k544ob44ol44ov44o844oj44k344kn44ki44cn/"><u>効果的な手ブレーカーのビデオ圧縮テクニック：スチュワードシェア」</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/babelburst-at-expo-dubai-2020-language-learnings-next-step/"><u>BabelBurst at Expo Dubai 2020: Language Learning's Next Step</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/1722859234573-code-28-hiccups-on-your-pc-heres-how-to-fix-them/"><u>Code 28 Hiccups on Your PC? Here's How to Fix Them!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581148025-daily-slices-of-success-learn-slovak-online-10-minutes-each/"><u>Daily Slices of Success: Learn Slovak Online, 10 Minutes Each!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/genom-att-svida-visa-till-sverige/"><u>Genom Att Svida: Visa Till Sverige</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-iphone-14-pro-passcode-without-itunes-without-knowing-passcode-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 14 Pro Passcode without iTunes without Knowing Passcode?</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-in-2024-the-gopro-editors-handbook-mac-edition/"><u>New In 2024, The GoPro Editors Handbook Mac Edition</u></a></li>
 </ul></div>
 

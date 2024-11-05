@@ -1,7 +1,7 @@
 ---
 title: Vermeidung Von Falschen Deutschen Entschuldigungen
-date: 2024-10-28T06:02:07.727Z
-updated: 2024-10-29T19:49:08.637Z
+date: 2024-10-30T00:27:28.290Z
+updated: 2024-11-05T00:07:05.886Z
 tags:
   - speak
   - english
@@ -27,10 +27,16 @@ thumbnail: https://thmb.techidaily.com/3119c4d644ca38982b7a0f68d251b6e048a299751
  However, this is not strictly a German thing. It’s true Germans say sorry once in a blue moon, but there are some other countries like France or Russia where over-apologizing can be regarded as insincere as well.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to apologize in German
@@ -46,16 +52,10 @@ Here are some practical examples of apologies in German:
 * _Tut mir leid, ich mag die Suppe nicht._ – Sorry, I don’t like the soup.
 
 <!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to say sorry in German – the “Excuse me” sorry
@@ -67,10 +67,10 @@ Here are some practical examples of apologies in German:
  Hear the formal_Entschuldigen Sie_ in action in this basic conversation in German:
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Other ways to say sorry in German
@@ -116,10 +116,10 @@ Here are some practical examples of apologies in German:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### From 0 to conversational in German
@@ -153,17 +153,21 @@ Here are some practical examples of apologies in German:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-the-perfect-frame-a-guide-to-polishing-videos-with-instagram-edits/"><u>[New] 2024 Approved The Perfect Frame A Guide to Polishing Videos with Instagram Edits</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-cultivating-excellence-the-top-7-stardew-mods-ranked-7-14/"><u>[New] Cultivating Excellence - The Top 7 Stardew Mods (Ranked #7-14)</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-streaming-smarts-engaging-viewers-on-multiple-networks/"><u>[Updated] Streaming Smarts Engaging Viewers on Multiple Networks</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/acquiring-a-new-language-speed-vs-patience/"><u>Acquiring a New Language: Speed Vs. Patience</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/age-no-barrier-to-multilingual-mastery/"><u>Age-No Barrier to Multilingual Mastery</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/clear-speech-path-hone-your-pronunciation-with-twisters/"><u>Clear Speech Path: Hone Your Pronunciation with Twisters</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/defeating-ps4-network-errors-an-in-depth-stepwise-strategy-for-nat-success/"><u>Defeating PS4 Network Errors: An In-Depth Stepwise Strategy for NAT Success</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expressing-affection-in-diverse-languages/"><u>Expressing Affection in Diverse Languages</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/navigating-through-the-latest-in-computer-gear-with-toms-technology-insights/"><u>Navigating Through the Latest in Computer Gear with Tom's Technology Insights</u></a></li>
-<li><a href="https://change-location.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-xiaomi-13-ultra-drfone-by-drfone-virtual-android/"><u>Preparation to Beat Giovani in Pokemon Go For Xiaomi 13 Ultra | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/the-path-to-precision-audio-a-no-mic-approach-for-2024/"><u>The Path to Precision Audio A No-Mic Approach for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-urdu-proficiency-with-minutes/"><u>Unlocking Urdu Proficiency with Minutes</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-unlocking-the-realm-of-free-photo-frame-video-downloads/"><u>[New] 2024 Approved Unlocking the Realm of Free Photo Frame Video Downloads</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-simplifying-screen-views-during-google-meet-chats/"><u>[Updated] Simplifying Screen Views During Google Meet Chats</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/elon-musk-unveils-price-hike-the-tesla-cybertruck-cost-soars/"><u>Elon Musk Unveils Price Hike: The Tesla Cybertruck Cost Soars</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-vivo-y78plus-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Vivo Y78+ Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-unveiled-with-googled-editors-choice-mondly/"><u>Language Learning Unveiled with Googled Editors' Choice - Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-spectrum-of-the-maritime-city/"><u>Language Spectrum of the Maritime City</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lingua-franca-of-the-holy-land/"><u>Lingua Franca of the Holy Land?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-liberation-via-mondly-for-ukrainians/"><u>Linguistic Liberation via Mondly for Ukrainians</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/precision-techniques-in-spinning-and-fusing-android-videography/"><u>Precision Techniques in Spinning & Fusing Android Videography</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210165861-9781646289172-race-traitors-2/"><u>Race Traitors 2 | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguarding-social-networks-the-effect-of-faceprint-deletion-on-security/"><u>Safeguarding Social Networks: The Effect of Faceprint Deletion on Security</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unclogging-saturation-issue-gpt-in-windows/"><u>Unclogging Saturation Issue: GPT in Windows</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-advanced-english-skills-with-mondly/"><u>Unlocking Advanced English Skills with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-mysteries-of-affection-in-hungarian-tongue/"><u>Unveiling the Mysteries of Affection in Hungarian Tongue</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-top-6-free-online-video-mergers-for-2024/"><u>Updated Top 6 Free Online Video Mergers for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/welcome-an-ai-companion-revolutionizing-chat/"><u>Welcome an AI Companion Revolutionizing Chat</u></a></li>
 </ul></div>
 

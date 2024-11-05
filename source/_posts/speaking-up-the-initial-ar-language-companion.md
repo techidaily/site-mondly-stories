@@ -1,7 +1,7 @@
 ---
 title: "Speaking Up: The Initial AR Language Companion"
-date: 2024-10-27T18:44:03.415Z
-updated: 2024-10-29T23:46:12.459Z
+date: 2024-11-03T18:47:20.479Z
+updated: 2024-11-05T05:34:22.734Z
 tags:
   - speak
   - english
@@ -43,10 +43,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 > _We started working on Mondly AR in August 2017 and by the time [Blade Runner 2049](http://www.imdb.com/title/tt1856101/) was released, we already had a working demo. Watching Blade Runner 2049 made me realize that we were beginning to build the future. To me, Joi (the holographic companion of officer K) looked like a super advanced version of Mondly – the character we were creating. They can both understand speech, reply with a human voice and change outfits. Of course, Mondly is not as smart and realistic as Joi. Yet. But she can teach you 7 languages. And this is just the beginning._
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Here’s what you should know about Mondly AR
@@ -65,10 +65,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facts and figures about Mondly
@@ -85,10 +85,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 * [Mondly Press Kit](https://www.dropbox.com/sh/vo4j5214zvwdxy5/AAC20VxIgpuiEe7ED2%5F37VNEa?dl=0)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Media mentions about Mondly
@@ -120,24 +120,24 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-easy-steps-to-activate-a-full-screen-grid-on-google-meet/"><u>[New] 2024 Approved Easy Steps to Activate a Full-Screen Grid on Google Meet</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/codec-comparison-are-we-better-with-av1-or-vp9-in-2024/"><u>Codec Comparison Are We Better With AV1 or VP9, In 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dive-into-francophone-literature-20-best-books-for-beginners/"><u>Dive Into Francophone Literature: 20 Best Books for Beginners</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enlightening-education-artificial-intelligences-role-unveiled/"><u>Enlightening Education: Artificial Intelligence's Role Unveiled</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/entender-todas-as-variedades-do-portuguese-em-gritos-de-ola/"><u>Entender Todas as Variedades Do Portuguese Em Gritos De Olá</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-online-practices-for-rapid-language-proficiency/"><u>Essential Online Practices for Rapid Language Proficiency</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-nokia-c32-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Nokia C32 to Other Android Devices? | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-iphone-15-pro-asking-for-passcode-after-ios-1714-update-what-to-do-by-drfone-ios/"><u>In 2024, iPhone 15 Pro Asking for Passcode after iOS 17/14 Update, What to Do?</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-milliseconds-and-megabits-deconstructing-20mb-videos/"><u>In 2024, Milliseconds & Megabits Deconstructing 20MB Videos</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/international-morning-chatter-expressing-good-morning-in-10-languages/"><u>International Morning Chatter: Expressing Good Morning in 10 Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/la-gran-exploracion-del-corazon-humano-en-espanol-de-las-narices-al-subterraneo/"><u>La Gran Exploración Del Corazón Humano en Español: De Las Narices Al Subterráneo</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/macaus-language-diversity-on-display/"><u>Macau’s Language Diversity on Display</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/paso-a-paso-lectura-de-horas-y-segundos-en-espanol/"><u>Paso a Paso: Lectura De Horas Y Segundos en Español</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/perfecting-punctuation-an-insight-into-english-contraction-usage/"><u>Perfecting Punctuation: An Insight Into English Contraction Usage</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/pioneering-profit-navigating-the-path-to-money-making-on-vimeo-for-2024/"><u>Pioneering Profit Navigating the Path to Money-Making on Vimeo for 2024</u></a></li>
-<li><a href="https://win-bits.techidaily.com/step-by-step-guide-restore-your-usb-without-resorting-to-format/"><u>Step-by-Step Guide: Restore Your USB Without Resorting to Format</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/step-by-step-instructions-for-correcting-hp-officejet-pro-6978-printer-drivers/"><u>Step-by-Step Instructions for Correcting HP OfficeJet Pro 6978 Printer Drivers</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/stream-quality-which-is-superior-obs-or-fraps-in-2024/"><u>Stream Quality Which Is Superior, OBS or Fraps, In 2024</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/taming-troublesome-buffer-underruns/"><u>Taming Troublesome Buffer Underruns</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-from-novice-to-viewer-keeper-top-10-basic-yet-captivating-video-ideas/"><u>[New] In 2024, From Novice to Viewer-Keeper Top 10 Basic Yet Captivating Video Ideas</u></a></li>
+<li><a href="https://discover-answers.techidaily.com/get-your-favorite-songs-from-mp3ru-downloaded-as-mp3-wav-aac-or-wma-on-windowsmac-systems/"><u>Get Your Favorite Songs From MP3.RU Downloaded as MP3, WAV, AAC, or WMA on Windows/Mac Systems</u></a></li>
+<li><a href="https://howto.techidaily.com/gmail-not-working-on-nokia-c02-7-common-problems-and-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Gmail Not Working on Nokia C02 7 Common Problems & Fixes | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/how-to-disable-or-reset-your-login-pin-in-windows-11-easily/"><u>How to Disable or Reset Your Login PIN in Windows 11 Easily</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-say-happy-birthday-in-different-languages/"><u>How to Say “Happy Birthday” In Different Languages</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-sync-the-time-correctly-on-a-kindle-paperwhite-quick-tips/"><u>How to Sync the Time Correctly on a Kindle Paperwhite: Quick Tips</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-poco-c51-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Poco C51 to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/kingston-sd-3/"><u>Kingston SDメモリカード復元策: 信頼性と速さを追求した3つの選び方</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-languages-childhood-charm/"><u>Learning Languages: Childhood Charm</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/mastering-acoustic-transitions-in-audacity-pro-suite-for-2024/"><u>Mastering Acoustic Transitions in Audacity Pro Suite for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/nordic-narratives-revisited-what-did-the-vikings-speak/"><u>Nordic Narratives Revisited: What Did the Vikings Speak?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/peeking-into-mondlys-instructional-design/"><u>Peeking Into Mondly’s Instructional Design</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-nokia-c12-plus-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Nokia C12 Plus | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/preparing-for-interaction-with-an-advanced-ai-ally/"><u>Preparing for Interaction with an Advanced AI Ally</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-up-discovering-american-australian-and-scottish-pronunciations/"><u>Speak Up!: Discovering American, Australian, and Scottish Pronunciations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-9-hardest-languages-to-learn/"><u>The 9 Hardest Languages to Learn</u></a></li>
+<li><a href="https://fox-that.techidaily.com/troubleshoot-imessage-problems-effortlessly-top-7-solutions-for-apple-devices/"><u>Troubleshoot iMessage Problems Effortlessly: Top 7 Solutions for Apple Devices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-full-featured-mondly-pro-save-up-to-96/"><u>Unlock Full-Featured Mondly Pro, Save Up To 96%</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-observance-of-thanksgiving-holiday/"><u>Worldwide Observance of Thanksgiving Holiday</u></a></li>
 </ul></div>
 

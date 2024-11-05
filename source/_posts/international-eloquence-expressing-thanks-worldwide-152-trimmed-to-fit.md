@@ -1,7 +1,7 @@
 ---
 title: "International Eloquence: Expressing Thanks Worldwide (152) [Trimmed to Fit]"
-date: 2024-10-27T05:53:02.184Z
-updated: 2024-10-30T04:30:50.706Z
+date: 2024-11-02T01:40:30.997Z
+updated: 2024-11-05T01:38:50.083Z
 tags:
   - speak
   - english
@@ -59,10 +59,10 @@ thumbnail: https://thmb.techidaily.com/ebdad2a840dec3c1268566b70a55752afebf36210
  “Thanks” by Hanny Naibaho©
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The origin of saying “thank you”
@@ -89,10 +89,10 @@ thumbnail: https://thmb.techidaily.com/ebdad2a840dec3c1268566b70a55752afebf36210
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## From 0 to conversational in over 40 languages
@@ -125,21 +125,16 @@ thumbnail: https://thmb.techidaily.com/ebdad2a840dec3c1268566b70a55752afebf36210
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-master-screen-grabber-list-1-8-for-2024/"><u>[New] Master Screen Grabber List #1-8 for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-exclusive-screenflow-examination-for-mac-users-for-2024/"><u>[Updated] Exclusive ScreenFlow Examination for Mac Users for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-the-ultimate-mobile-cinema-showcase-apples-best-freepluspaid-film-watchers-guide/"><u>[Updated] In 2024, The Ultimate Mobile Cinema Showcase Apple's Best FREE+Paid Film Watchers Guide</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-perfect-your-igtv-shooting-skills-tips-for-smartphonedslr-cameras/"><u>[Updated] Perfect Your IGTV Shooting Skills Tips for Smartphone/DSLR Cameras</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bangla-for-beginners-daily/"><u>Bangla for Beginners (Daily)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/daring-to-dream-mondlylanguages-celebrates-2-years/"><u>Daring to Dream: MondlyLanguages Celebrates 2 Years</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-croatian-speaking-skills-for-effortless-international-expeditioning/"><u>Essential Croatian Speaking Skills for Effortless International Expeditioning</u></a></li>
-<li><a href="https://blog-min.techidaily.com/free-online-conversion-transforming-3gpp-files-into-avi-format-with-ease/"><u>Free Online Conversion: Transforming 3GPP Files Into AVI Format with Ease</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-a-complete-guide-to-oem-unlocking-on-infinix-note-30-5g-by-drfone-android/"><u>In 2024, A Complete Guide To OEM Unlocking on Infinix Note 30 5G</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-crafting-spectacular-time-lapses-with-gopro-hero5-black/"><u>In 2024, Crafting Spectacular Time-Lapses with GoPro Hero5 Black</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-tracking-apps-to-track-itel-p55-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Tracking Apps to Track Itel P55 5G without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/mastering-the-installation-of-arm-based-windows-11-from-iso/"><u>Mastering the Installation of ARM-Based Windows 11 From ISO</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/nautical-nobilitys-verbiage-top-20-sea-terms/"><u>Nautical Nobility's Verbiage: Top 20 Sea Terms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/playful-poetry-prose-for-pursuit-in-spanish-flirting/"><u>Playful Poetry: Prose for Pursuit in Spanish Flirting</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/swiftlearnbangla-master-language-with-minutes/"><u>SwiftLearnBangla: Master Language with Minutes!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/transparent-update-on-usage-policies/"><u>Transparent Update on Usage Policies</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-disable-youtubes-automatic-video-playback-trigger-for-2024/"><u>[New] Disable YouTube's Automatic Video Playback Trigger for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/levate-your-brand-with-ai-enhanced-naming-solutions/"><u>[New] Elevate Your Brand with AI-Enhanced Naming Solutions</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/extract-srt-from-zip-simple-subtitle-file-creation-tips/"><u>Extract SRT From ZIP Simple Subtitle File Creation Tips</u></a></li>
+<li><a href="https://change-location.techidaily.com/home-button-not-working-on-xiaomi-13-ultra-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on Xiaomi 13 Ultra? Here Are Real Fixes | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-spy-on-text-messages-from-computer-and-nokia-150-2023-drfone-by-drfone-virtual-android/"><u>How to Spy on Text Messages from Computer & Nokia 150 (2023) | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-commencing-your-google-meet-experience/"><u>In 2024, Commencing Your Google Meet Experience</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-journey-to-digital-mastery-explore-best-10-android-drawing-apps/"><u>In 2024, Journey to Digital Mastery Explore Best 10 Android Drawing Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/passionate-phrases-the-heart-of-french-charm/"><u>Passionate Phrases: The Heart of French Charm</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/symphonic-syntax-rhythmic-techniques-for-language-acquisition/"><u>Symphonic Syntax: Rhythmic Techniques for Language Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-appreciation-multilingual-thank-you-expressions-156/"><u>The Art of Appreciation: Multilingual Thank You Expressions (156)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-your-minds-capabilities-with-7-reasons-to-study-afrikaans-on-mondly/"><u>Unlock Your Mind's Capabilities with 7 Reasons to Study Afrikaans on Mondly</u></a></li>
 </ul></div>
 

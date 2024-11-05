@@ -1,7 +1,7 @@
 ---
 title: Unlock Swedish Phonetics with Flair & Speed
-date: 2024-10-27T19:30:20.038Z
-updated: 2024-10-29T20:11:00.384Z
+date: 2024-11-02T05:23:47.023Z
+updated: 2024-11-05T01:08:26.188Z
 tags:
   - speak
   - english
@@ -28,6 +28,19 @@ thumbnail: https://thmb.techidaily.com/cd918524a7d7688c6ef6414ad8dfa9dc1bddfeb0b
 
  The current alphabet is considered modern because it arrived in Sweden together with the Christianization of Scandinavia that took place between the 8th and the 12th centuries. As a matter of fact, the translation of the New Testament into Swedish in 1526 actually marks the beginning of modern Swedish.
 
+<!-- affiliate ads begin -->
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How was Swedish written before the Latin script?
 
  **Swedish used runes before the arrival of the Latin script in Scandinavia.** The [runic alphabet](https://www.britannica.com/topic/runic-alphabet) , also known as Futhark, was the first writing system the Norse and other Germanic people used for centuries. As it happens, isolated communities in a remote part of Sweden only [stopped using runes](https://sciencenordic.com/language-linguistics-runes/isolated-people-in-sweden-only-stopped-using-runes-100-years-ago/1418110) 100 years ago. To this day, the runic alphabet is considered a writing system of uncertain origin as scholars cannot find solid proof to support its ancestry.
@@ -38,16 +51,16 @@ thumbnail: https://thmb.techidaily.com/cd918524a7d7688c6ef6414ad8dfa9dc1bddfeb0b
 
  “Swedish runes” by petr sidorov©
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## The Swedish language in a nutshell
 
  Known in Swedish as**Svenska,** the [Swedish language](https://www.britannica.com/topic/Swedish-language) belongs to the East Scandinavian group of North Germanic languages and is the official language of Sweden and Finland. According to Ethnologue, the total number of Swedish speakers worldwide is over 13 million (both native and non-native speakers).
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Mutual intelligibility with the other Scandinavian languages
 
@@ -58,10 +71,10 @@ thumbnail: https://thmb.techidaily.com/cd918524a7d7688c6ef6414ad8dfa9dc1bddfeb0b
  Similar to the transformation the [Romance languages](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) went through over time, Old East Norse dialects were influenced by numerous factors. For example, between 800 and 1100 AD, Runic Swedish was only slightly different from Runic Danish, but they began to diverge during the 12th century. However, some aspects stayed the same. That’s why is easier to learn Swedish when you already know Danish and vice versa.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Pronunciation rules and usage
@@ -73,10 +86,16 @@ thumbnail: https://thmb.techidaily.com/cd918524a7d7688c6ef6414ad8dfa9dc1bddfeb0b
  Would you like to have access to more content like this? Get Mondly and master the Swedish pronunciation in no time with real-life conversations recorded by fluent voice actors.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Uncommon letters
@@ -86,13 +105,6 @@ thumbnail: https://thmb.techidaily.com/cd918524a7d7688c6ef6414ad8dfa9dc1bddfeb0b
  Q, W, and Z will only appear in some loanwords such as queer, squash, web, or zon (zone).
 
  Though officially in the Swedish alphabet, there are two other letters you’ll probably see in Swedish: ü and è. But again, these letters are only common in some loanwords.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
-  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### General pronunciation rules
 
@@ -144,17 +156,24 @@ thumbnail: https://thmb.techidaily.com/cd918524a7d7688c6ef6414ad8dfa9dc1bddfeb0b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/updated-capturing-games-in-plain-sight-choose-between-obs-and-shadowplay/"><u>[Updated] Capturing Games in Plain Sight Choose Between OBS and ShadowPlay</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-isolate-subject-a-step-by-step-guide-to-clear-borders/"><u>[Updated] Isolate Subject – A Step-by-Step Guide to Clear Borders</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enhancing-executive-speech-and-articulation-in-companies/"><u>Enhancing Executive Speech & Articulation in Companies</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-realme-gt-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Realme GT 5 Pro? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/in-depth-analysis-top-online-tactics-for-language-acquisition/"><u>In-Depth Analysis: Top Online Tactics for Language Acquisition</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/inside-ai-vulnerabilities-understanding-the-science-behind-prompt-injection-attacks/"><u>Inside AI Vulnerabilities: Understanding the Science Behind Prompt Injection Attacks</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lectura-temporal-en-espanol-todos-los-pasos/"><u>Lectura Temporal en Español: Todos Los Pasos</u></a></li>
-<li><a href="https://win-forum.techidaily.com/mastering-the-most-popular-online-interaction-sites-facebook-twitter-instagram-youtube/"><u>Mastering the Most Popular Online Interaction Sites: Facebook, Twitter, Instagram, Youtube</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/phonetic-mastery-demystifying-tough-lexical-items/"><u>Phonetic Mastery: Demystifying Tough Lexical Items</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/three-ways-to-sim-unlock-honor-100-pro-by-drfone-android/"><u>Three Ways to Sim Unlock Honor 100 Pro</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshooting-the-notorious-ce-34878-0-problem-with-your-ps4-device/"><u>Troubleshooting the Notorious CE-34878-0 Problem with Your PS4 Device</u></a></li>
-<li><a href="https://win-blog.techidaily.com/wsappx-overview-identifying-the-reasons-behind-heavy-system-resource-usage-and-remedies/"><u>WSAPPX Overview – Identifying the Reasons Behind Heavy System Resource Usage & Remedies</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-quick-guide-to-concisely-editing-youtube-videos/"><u>[New] In 2024, Quick Guide to Concisely Editing YouTube Videos</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-the-ultimate-mix-of-youtube-and-instagram-feeds-for-2024/"><u>[Updated] The Ultimate Mix of YouTube & Instagram Feeds for 2024</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/come-collegare-il-tuo-portatile-e-computer-fisso-su-windows-1011/"><u>Come Collegare Il Tuo Portatile E Computer Fisso Su Windows 10/11</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211166628-9781837822386-dreams-of-awakening-revised-edition/"><u>Dreams of Awakening (Revised Edition) | Free Book</u></a></li>
+<li><a href="https://win-bits.techidaily.com/el-programa-mas-eficiente-para-realizar-clones-y-respaldo-completo-en-windows-10-aomei-backupper/"><u>El Programa Más Eficiente Para Realizar Clones Y Respaldo Completo en Windows 10 - AOMEI Backupper</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-vs-french-which-language-is-more-useful-to-learn/"><u>German Vs French: Which Language Is More Useful To Learn</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-gifts-of-love-a-valentines-international-guide/"><u>Global Gifts of Love: A Valentine’s International Guide</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-fake-gps-location-apps-on-android-of-your-vivo-y78-5g-drfone-by-drfone-virtual/"><u>In 2024, 10 Fake GPS Location Apps on Android Of your Vivo Y78 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-ultimate-audio-capture-guide-best-ten-for-spotify-enthusiasts/"><u>In 2024, Ultimate Audio Capture Guide Best Ten for Spotify Enthusiasts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/la-lengua-diaria-domingo-al-lunes-en-espanol/"><u>La Lengua Diaria: Domingo Al Lunes en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-differences-in-macau/"><u>Language Differences in Macau</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/les-organe-du-corps-un-voyage-anatomique-en-francais/"><u>Les Organe Du Corps: Un Voyage Anatomique en Français</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/mastering-nintendo-switch-screen-screenshots-how-to-do-and-share-them/"><u>Mastering Nintendo Switch Screen Screenshots - How to Do and Share Them</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-free-wmv-video-cutter-tools-top-picks/"><u>New 2024 Approved Free WMV Video Cutter Tools Top Picks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tempting-tones-the-seduction-symphony-in-italy/"><u>Tempting Tones: The Seduction Symphony in Italy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-unheard-advantages-of-aging-bilinguals/"><u>The Unheard Advantages of Aging Bilinguals</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/toms-computer-hardware-reviews-and-guides/"><u>Tom's Computer Hardware Reviews & Guides</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/universal-message-of-peace-for-easter/"><u>Universal Message of Peace for Easter</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-koreas-secrets-squid-game-edition/"><u>Unlocking Korea's Secrets: Squid Game Edition</u></a></li>
 </ul></div>
 

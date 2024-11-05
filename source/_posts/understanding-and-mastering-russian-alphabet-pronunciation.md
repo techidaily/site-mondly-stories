@@ -1,7 +1,7 @@
 ---
 title: Understanding and Mastering Russian Alphabet Pronunciation
-date: 2024-10-13T00:08:42.333Z
-updated: 2024-10-18T17:14:52.722Z
+date: 2024-11-01T03:29:43.117Z
+updated: 2024-11-04T21:47:16.461Z
 tags:
   - speak
   - english
@@ -28,6 +28,13 @@ thumbnail: https://thmb.techidaily.com/d00d489dab3eb54e89c3ca7ade1be65a3363127e6
 
  Russian has been greatly influenced by Old Church Slavonic and – since the westernizing policies of Tsar Peter I the Great in the 18 century – by the [languages of western Europe](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Then, the 19th-century poet Aleksandr Pushkin determined the further development of the [Russian language we know](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) today. His writings, in which he combined the colloquial and Church Slavonic styles, were decisive in establishing the best style for literary use.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### The Cyrillic script
 
 [The Cyrillic script](https://en.wikipedia.org/wiki/Cyrillic%5Fscript) is the national script in various Slavic-, Turkic- and Iranic-speaking countries in Eastern Europe, the Caucasus, Central Asia, and Northern Asia.
@@ -37,6 +44,19 @@ thumbnail: https://thmb.techidaily.com/d00d489dab3eb54e89c3ca7ade1be65a3363127e6
  **The Cyrillic script used in Russia was heavily reformed in the early 18 century by Peter the Great.** Several archaic letters were completely removed and others were personally designed by Peter the Great himself. Thus, the updated letters became closer to those of the Latin alphabet.
 
 ![russian letters](https://edge.mondly.com/blog/wp-content/uploads/2020/03/russian-letters-600x480.jpg "Master The Russian Alphabet Pronunciation 2")
+
+<!-- affiliate ads begin -->
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  “Red Square, Moscow, Russia” by Aurelien Romain©
 
@@ -58,10 +78,10 @@ thumbnail: https://thmb.techidaily.com/d00d489dab3eb54e89c3ca7ade1be65a3363127e6
 * **Т т** sounds like “t” in “top” or “task”.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Russian letters that sound the same as in English (but look different)
@@ -83,13 +103,6 @@ thumbnail: https://thmb.techidaily.com/d00d489dab3eb54e89c3ca7ade1be65a3363127e6
 * **Ю ю** sounds like “you” or “use”,
 * **Я я** sounds like “yu” in yummy or “ya” in “yard”.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Russian letters that look the same as in English (but sound different)
 
 * **В в** sounds like “v” in “van” or “voice”,
@@ -101,13 +114,6 @@ thumbnail: https://thmb.techidaily.com/d00d489dab3eb54e89c3ca7ade1be65a3363127e6
 * **Ч ч** sounds like “ch” in “chat” or “church“,
 * **Х х** sounds like “ch” in “loch”,
 * **Ы ы** sounds like “i” in “ill” but with a “rounder” pronunciation (said with your tongue slightly back in your mouth).
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Russian letter with no English equivalent
 
@@ -121,19 +127,6 @@ thumbnail: https://thmb.techidaily.com/d00d489dab3eb54e89c3ca7ade1be65a3363127e6
 ![russian alphabet pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2020/03/russian-alphabet-pronunciation-1-431x600.jpg "Master The Russian Alphabet Pronunciation 3")
 
  Russian alphabet pronunciation
-
-<!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Russian lesson no. 1: rules
 
@@ -154,6 +147,13 @@ thumbnail: https://thmb.techidaily.com/d00d489dab3eb54e89c3ca7ade1be65a3363127e6
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Study Russian in just 10 minutes a day
 
@@ -180,24 +180,24 @@ thumbnail: https://thmb.techidaily.com/d00d489dab3eb54e89c3ca7ade1be65a3363127e6
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-the-art-of-elegant-appearance-for-2024/"><u>[New] The Art of Elegant Appearance for 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/2024-approved-streamlined-approaches-for-zoom-utility-on-chromebook/"><u>2024 Approved Streamlined Approaches for Zoom Utility on Chromebook</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/childrens-superiority-in-acquiring-second-languages/"><u>Children's Superiority in Acquiring Second Languages</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/eradicate-the-zero-error-on-new-win11-systems/"><u>Eradicate the Zero Error on New Win11 Systems</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exploring-linguistic-evolution-beyond-grammatrancial-boundaries/"><u>Exploring Linguistic Evolution Beyond Grammatrancial Boundaries</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fluency-for-all-ages-dont-wait/"><u>Fluency For All Ages - Don't Wait!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/foundational-urdu-vocabulary-for-novices/"><u>Foundational Urdu Vocabulary for Novices</u></a></li>
-<li><a href="https://win-blog.techidaily.com/framerate-stabilization-in-cyberpunk-2077-a-critical-issue-now-solved/"><u>Framerate Stabilization in Cyberpunk 2077 - A Critical Issue Now Solved!</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-free-tailor-made-templates-for-concluding-audio/"><u>In 2024, Free, Tailor-Made Templates for Concluding Audio</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-netflix-location-to-get-more-country-version-on-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Netflix Location to Get More Country Version On Poco M6 5G | Dr.fone</u></a></li>
-<li><a href="https://solve-lab.techidaily.com/is-it-possible-to-use-xbox-one-with-a-dvd-player-step-by-step-guide/"><u>Is It Possible to Use Xbox One with a DVD Player? Step-by-Step Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-hindi-like-a-native-speaker-explore-7-compelling-benefits-from-mondly-online-study/"><u>Learn Hindi Like a Native Speaker: Explore 7 Compelling Benefits From Mondly Online Study</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lettura-di-numeri-italiani-la-via-da-1-a-1000/"><u>Lettura Di Numeri Italiani: La Via Da 1 a 1000</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/maximizing-productivity-with-auditory-storytelling-for-2024/"><u>Maximizing Productivity with Auditory Storytelling for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/spanish-numbering-1-10-the-basics-made-simple/"><u>Spanish Numbering 1-10: The Basics Made Simple</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-like-a-pro-unlocking-squid-game-dialogues-in-korean/"><u>Speak Like a Pro: Unlocking Squid Game Dialogues in Korean</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/spotlight-on-9-fraudulent-ai-apps-masquerading-as-chatgpt-endangering-user-data/"><u>Spotlight on 9 Fraudulent AI Apps Masquerading as ChatGPT, Endangering User Data</u></a></li>
-<li><a href="https://discover-cheats.techidaily.com/step-by-step-guide-to-recording-sound-with-macos-el-capitan/"><u>Step-by-Step Guide to Recording Sound with macOS El Capitan</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/young-learners-and-their-quick-language-fluency/"><u>Young Learners and Their Quick Language Fluency</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-steady-snapstreaks-tips-to-never-miss-a-snap-for-2024/"><u>[New] Steady Snapstreaks Tips to Never Miss a Snap for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-ultimate-android-3d-player-showcase/"><u>[New] Ultimate Android 3D Player Showcase</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-masterful-media-management-dynamic-video-scaling-on-mac/"><u>[Updated] In 2024, Masterful Media Management Dynamic Video Scaling on Mac</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-stay-ahead-of-the-curve-with-iphone-and-androids-best-photo-sticker-apps/"><u>[Updated] Stay Ahead of the Curve with iPhone and Android's Best Photo Sticker Apps</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-unleash-your-creativity-the-best-10-igtv-techniques-to-skyrocket-your-brand-for-2024/"><u>[Updated] Unleash Your Creativity The Best 10 IGTV Techniques to Skyrocket Your Brand for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-improve-office-productivity-with-speech-to-text-conversion-in-microsoft-word/"><u>2024 Approved Improve Office Productivity with Speech to Text Conversion in Microsoft Word</u></a></li>
+<li><a href="https://win11.techidaily.com/cleaning-slates-in-windows-the-3-reset-routes/"><u>Cleaning Slates in Windows: The 3 Reset Routes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/get-down-under-with-aussie-slang-definitions/"><u>Get Down Under With Aussie Slang Definitions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-speaking-sovereigns-ranked-1-15/"><u>Global Speaking Sovereigns: Ranked 1-15</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-lava-blaze-pro-5g-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Lava Blaze Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/interaktionstexte-10-deutsche-grussformeln-ausserhalb-des-hallo/"><u>Interaktionstexte: 10 Deutsche Grußformeln Außerhalb Des 'Hallo'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-eloquence-expressing-thanks-worldwide-152-trimmed-to-fit/"><u>International Eloquence: Expressing Thanks Worldwide (152) [Trimmed to Fit]</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/milestone-achievements-mondlyback-buttonfilters/"><u>Milestone Achievements: MondlyBack ButtonFilters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pantheons-progeny-ancestral-greek-influence-today/"><u>Pantheon's Progeny: Ancestral Greek Influence Today</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/resolving-stuttering-issues-while-gaming-on-systems-with-high-frames-per-second-fps/"><u>Resolving Stuttering Issues While Gaming on Systems with High Frames Per Second (FPS)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seamless-syntax-system/"><u>Seamless Syntax System</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-vs-english-grammar-understanding-por-que-and-why/"><u>Spanish Vs. English Grammar: Understanding 'Por Que' And 'Why'.</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/step-by-step-guide-to-streamlining-your-interactions-with-chatgpt-using-folder-techniques/"><u>Step-by-Step Guide to Streamlining Your Interactions with ChatGPT Using Folder Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/morfa-eygnwmwn-gkreman-systhma/"><u>Μόρφα Ευγνώμων Γκρεμάν Συστήμα</u></a></li>
 </ul></div>
 

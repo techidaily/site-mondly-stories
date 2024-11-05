@@ -1,7 +1,7 @@
 ---
 title: Wie Man Sich Im Deutschen Verantwortlich Zeigt
-date: 2024-08-15T17:46:21.617Z
-updated: 2024-08-16T17:46:21.617Z
+date: 2024-10-29T18:59:05.332Z
+updated: 2024-11-05T05:20:54.714Z
 tags:
   - speak
   - english
@@ -27,8 +27,12 @@ thumbnail: https://thmb.techidaily.com/66f3cf36e141a02ee3ef4f8fc90997bfb9adc3902
  However, this is not strictly a German thing. It’s true Germans say sorry once in a blue moon, but there are some other countries like France or Russia where over-apologizing can be regarded as insincere as well.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to apologize in German
 
 _**Es tut mir leid**_ is the standard sorry or the apologetic sorry. It’s the kind of sorry you say when you messed up and you want to apologize for what you did. The expression conveys a sense of responsibility it is kind of a formal apology.
@@ -42,8 +46,12 @@ Here are some practical examples of apologies in German:
 * _Tut mir leid, ich mag die Suppe nicht._ – Sorry, I don’t like the soup.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to say sorry in German – the “Excuse me” sorry
 
  If you bump into someone on the street or cause a mishap, the most common way to say “sorry” in German is_**Entschuldigung**_ which literally means “apology!”. This is basically the “sorry” or the “excuse me” you say for a minor inconvenience. In other words, we’re talking about a slight bump or barely touching that person. If you knock them over, a cool_Entschuldigung_ won’t do, so you should probably apologize sincerely.
@@ -53,8 +61,12 @@ Here are some practical examples of apologies in German:
  Hear the formal_Entschuldigen Sie_ in action in this basic conversation in German:
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Other ways to say sorry in German
 
  As you very well know, there can also be other situations where you need to say “sorry” in German. For example, the “can you repeat that?” sorry is quite common. Of course, you can always say_“Entschuldigung?”_ together with the proper facial expression, but sometimes that might not be enough.
@@ -98,8 +110,12 @@ Here are some practical examples of apologies in German:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### From 0 to conversational in German
 
  Do you want to stop apologizing for your pronunciation? Get Mondly, the award-winning language app that will help you [speak German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) from day 1.
@@ -122,8 +138,6 @@ Here are some practical examples of apologies in German:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -131,4 +145,26 @@ Here are some practical examples of apologies in German:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/new-elite-flight-stability-drones-best-gimbals-for-2024/"><u>[New] Elite Flight Stability Drone's Best Gimbals for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-elevating-video-quality-incorporating-bb-and-lc-elements-in-fb/"><u>[Updated] 2024 Approved Elevating Video Quality Incorporating BB and LC Elements in FB</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576468399-2022-start-fluently-with-a-95-off-language-quest/"><u>2022: Start Fluently with a 95% Off Language Quest!</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-investment-requirements-for-video-promotion/"><u>2024 Approved Investment Requirements for Video Promotion</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-step-up-your-game-mastering-the-art-of-capturing-playthroughs/"><u>2024 Approved Step Up Your Game Mastering the Art of Capturing Playthroughs</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-ultimate-speed-boost-for-vimeo-videos/"><u>2024 Approved Ultimate Speed Boost for Vimeo Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/50-years-of-europes-voices-celebrating-linguistic-babel/"><u>50 Years of Europe’s Voices - Celebrating Linguistic Babel</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cantonese/"><u>聖誕快樂 (Cantonese)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/advantages-in-two-languages-the-top-6/"><u>Advantages in Two Languages: The Top 6</u></a></li>
+<li><a href="https://facebook.techidaily.com/americas-new-legal-framework-curtailing-big-techs-power/"><u>America's New Legal Framework: Curtailing Big Tech's Power</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breaking-language-barriers-with-essential-german-phonetic-skills/"><u>Breaking Language Barriers with Essential German Phonetic Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-influences-on-american-vs-british-slang/"><u>Cultural Influences on American vs British Slang</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/efficient-polish-education-techniques/"><u>Efficient Polish Education Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embarking-on-a-phonetic-adventure-the-essentials-of-german-sounds/"><u>Embarking on a Phonetic Adventure: The Essentials of German Sounds</u></a></li>
+<li><a href="https://win11.techidaily.com/how-to-fix-the-brightness-function-key-not-working-in-windows-11/"><u>How to Fix the Brightness Function Key Not Working in Windows 11</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-rootjunky-apk-to-bypass-google-frp-lock-for-huawei-p60-by-drfone-android/"><u>In 2024, Rootjunky APK To Bypass Google FRP Lock For Huawei P60</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-top-10-airplay-apps-in-realme-10t-5g-for-streaming-drfone-by-drfone-android/"><u>In 2024, Top 10 AirPlay Apps in Realme 10T 5G for Streaming | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/install-epson-wf-7710-drivers-on-your-pc-with-windows-108187-step-by-step-guide/"><u>Install Epson WF-7710 Drivers on Your PC with Windows 10/8.1/8/7 - Step by Step Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581809690-simplified-terms-for-users-today/"><u>Simplified Terms for Users Today!</u></a></li>
+</ul></div>
 

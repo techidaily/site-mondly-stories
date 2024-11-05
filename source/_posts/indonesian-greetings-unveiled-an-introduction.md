@@ -1,7 +1,7 @@
 ---
 title: "Indonesian Greetings Unveiled: An Introduction"
-date: 2024-10-26T20:08:37.232Z
-updated: 2024-10-30T14:11:33.449Z
+date: 2024-11-03T00:32:47.012Z
+updated: 2024-11-05T07:34:45.737Z
 tags:
   - speak
   - english
@@ -32,13 +32,6 @@ thumbnail: https://thmb.techidaily.com/7ba02d2067d54837e1bd869f645984fb69141a6a3
 
  Last but not least, if someone greets you using the_wai_ gesture (slight bow with the palms put together in front of the chest), you can show respect towards their culture by returning the same gesture.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to say ‘hello’ in Indonesian
 
  **If you want to say ‘hello’ in Indonesian, you can simply say_halo_ .** It’s short, sweet and almost identical to the English ‘hello’ you already know and use. Besides, it’s friendly and works great in most social situations.
@@ -48,16 +41,10 @@ thumbnail: https://thmb.techidaily.com/7ba02d2067d54837e1bd869f645984fb69141a6a3
  On the other hand, if someone asks you how you are doing, you can say_kabar baik,_ which means “I am fine” or “I am well”. Here’s what a basic conversation in Indonesian sounds like:
 
 <!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ‘Hi’ in Indonesian
@@ -65,6 +52,13 @@ thumbnail: https://thmb.techidaily.com/7ba02d2067d54837e1bd869f645984fb69141a6a3
  Made some new friends during your trip to Bali? When you meet them, you can also use the more informal_hi,_ which is pronounced the same as the English “hi”.
 
 Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Indonesian greetings for different times of day
 
@@ -78,24 +72,18 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 
 ![indonesian words](https://edge.mondly.com/blog/wp-content/uploads/2022/07/indonesian-words.png "Hello In Indonesian: A Quick Guide To Indonesian Greetings 2")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The same way we say “morning!’ in English, Indonesians sometimes drop the_selamat_ . This results in a very informal greeting that can be used with friends and family.
 
  Determining the correct time of the day during which you should use a certain greeting is somehow tricky. However, most people will agree that_selamat pagi_ is best used until 11 p.m. and_selamat siang_ until 3 p.m._Selamat sore_ and_selamat malam_ highly depend on the daylight so it’s best to adjust your greetings on the spot.
 
  Naturally,_selamat tidur_ is only used when someone is retiring for the night.
-
-<!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to say goodbye
 
@@ -109,10 +97,10 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
+  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Start learning Indonesian today
@@ -146,14 +134,24 @@ Get Mondly today and learn Indonesian naturally with the following:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://mondly-stories.techidaily.com/4-reasons-why-you-should-learn-a-language-in-your-fiftiesback-buttonfilter-button/"><u>4 Reasons Why You Should Learn A Language In Your FiftiesBack ButtonFilter Button</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/augmenting-education-mondlys-ar-language-technique/"><u>Augmenting Education: Mondly’s AR Language Technique</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/boost-your-portuguese-skills-with-these-six-essential-techniques/"><u>Boost Your Portuguese Skills with These Six Essential Techniques</u></a></li>
-<li><a href="https://discover-bytes.techidaily.com/essential-tips-and-techniques-every-aspiring-portrait-photographer-must-learn/"><u>Essential Tips and Techniques Every Aspiring Portrait Photographer Must Learn</u></a></li>
-<li><a href="https://change-location.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-samsung-galaxy-f15-5g-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Samsung Galaxy F15 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-discover-these-popular-periscope-alternatives-on-smartphones/"><u>In 2024, Discover These Popular Periscope Alternatives on Smartphones</u></a></li>
-<li><a href="https://win11.techidaily.com/mastering-projector-screens-without-pin-in-win11/"><u>Mastering Projector Screens Without PIN in Win11</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719576409380-sneak-in-some-slovak-today-daily-10-minute-language-dive/"><u>Sneak in Some Slovak Today: Daily 10-Minute Language Dive!</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/the-ultimate-playbook-for-facebook-videos-to-attract-more-viewers/"><u>The Ultimate Playbook for Facebook Videos to Attract More Viewers</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-the-art-of-preservation-innovative-techniques-to-capture-the-magic-of-living-with-sims/"><u>[New] In 2024, The Art of Preservation Innovative Techniques to Capture the Magic of Living with Sims</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-embark-on-virtual-adventures-youtubes-premier-selections-for-2024/"><u>[Updated] Embark on Virtual Adventures Youtube's Premier Selections for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-serenity-through-stories-a-review-of-parent-driven-narrative-vids/"><u>[Updated] Serenity Through Stories A Review of Parent-Driven Narrative Vids</u></a></li>
+<li><a href="https://extra-information.techidaily.com/achieving-proficiency-comprehensive-photoshop-hdr-tutorial/"><u>Achieving Proficiency Comprehensive Photoshop HDR Tutorial</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/cutting-edge-strategies-for-real-time-green-screen-applications/"><u>Cutting-Edge Strategies for Real-Time Green Screen Applications</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-reset-your-samsung-galaxy-a14-4g-lock-screen-password-by-drfone-android/"><u>How to Reset your Samsung Galaxy A14 4G Lock Screen Password</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-upgrade-iphone-x-without-losing-any-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade iPhone X without Losing Any Data? | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721451728240-iphone-not-connecting-to-the-cellular-network-discover-10-reliable-fixes/"><u>IPhone Not Connecting to the Cellular Network? Discover 10 Reliable Fixes!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learnings-new-era-mondly-at-seven-years/"><u>Learning's New Era: Mondly at Seven Years</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/perfect-your-german-etiquette-with-these-top-16-thank-yous/"><u>Perfect Your German Etiquette with These Top 16 Thank Yous</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/persian-language-heritage-unveiled-learn-today/"><u>Persian Language Heritage Unveiled: Learn Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-language-acquisition-with-oxford-3000-mondly-style/"><u>Quick Language Acquisition with Oxford 3000, Mondly Style</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/solving-your-problem-with-intel-dptf-driver-error-during-installation/"><u>Solving Your Problem with Intel DPTF Driver Error During Installation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-smart-succeed-premier-communication-courses/"><u>Speak Smart, Succeed: Premier Communication Courses</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-spanish-with-peers-in-virtually-shared-realities/"><u>Speaking Spanish with Peers in Virtually Shared Realities</u></a></li>
+<li><a href="https://howto.techidaily.com/spotify-keeps-crashing-a-complete-list-of-fixes-you-can-use-on-xiaomi-14-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Spotify Keeps Crashing A Complete List of Fixes You Can Use on Xiaomi 14 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-first-vocal-command-center-for-ar-worlds/"><u>The First Vocal Command Center for AR Worlds</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-truth-behind-the-lies-debunking-language-learning-myths/"><u>The Truth Behind the Lies: Debunking Language Learning Myths</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/whispered-words-conversational-confessions-in-deutsch/"><u>Whispered Words: Conversational Confessions in Deutsch</u></a></li>
 </ul></div>
 

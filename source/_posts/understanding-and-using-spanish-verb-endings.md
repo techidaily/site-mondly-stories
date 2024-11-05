@@ -1,7 +1,7 @@
 ---
 title: Understanding and Using Spanish Verb Endings
-date: 2024-10-27T13:42:06.498Z
-updated: 2024-10-30T08:27:04.910Z
+date: 2024-11-04T03:33:39.757Z
+updated: 2024-11-05T05:52:52.295Z
 tags:
   - speak
   - english
@@ -65,10 +65,10 @@ Spanish verbs conjugations make sense now, don’t they?
  Before moving on to irregular Spanish verbs and more examples, let’s also explore**the past and future of regular Spanish verbs** . What do you think? Wouldn’t that be useful?
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Spanish Preterite Tense – Regular Preterite Verb Endings
@@ -114,13 +114,6 @@ And the conjugation of comer will look like this:
 
  Keep in mind the fact that the first person singular (_yo_), third person singular (_él, ella_), and second person formal singular (_usted_) forms use tildes on the final letters of the verb endings. And one little tilde can make all the difference in the world! If you don’t know yet how accents work, take a look at our article on **[Spanish accents and how to master them all](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .**
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Spanish Simple Future Tense – Regular Simple Future Verb Endings
 
  In Spanish, there are two ways to form the future tense:**the informal future tense** (the verb_ir_ \+ a + infinitive ->_voy a comer_) and**the simple future tense,** which we will illustrate in this article.
@@ -154,10 +147,10 @@ And the conjugation of comer will look like this:
 * _Ellos / Ellas / Ustedes escrib**irán**_
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Spanish verbs: how to master irregular Spanish verbs
@@ -165,6 +158,13 @@ And the conjugation of comer will look like this:
  Remember how you managed to learn**irregular English verbs** ? Well, there are tricks that you can use, but the truth is that, in time,**irregular Spanish verbs** will just… come to you. No joke. Once you get used to the language and use it all the time, your brain will start making connections.
 
  As you already know,**irregular verbs** are “rebel” verbs that follow no regular set of rules. Statistically, in Spanish, almost all verbs ending in_\-ar_ are regular, almost all verbs ending in_\-er_ are irregular and less than half of all verbs ending in_\-ir_ are irregular. So, let’s disentangle this complicated situation of**irregular Spanish verbs** and look for some patterns to help us learn faster.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. Stem-Changing Verbs in Spanish
 
@@ -220,13 +220,6 @@ And the conjugation of comer will look like this:
 
 _Adquirir_ (to acquire) and_inquirir_ (to inquire) are just as rebellious because to the final letter “i” of their stem, we will need to add an “e”. Thus, “I acquire” will be “Yo adquiero”.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Spanish verbs with an irregular “yo” form
 
  This category includes two types of verbs:  
@@ -250,6 +243,13 @@ _Adquirir_ (to acquire) and_inquirir_ (to inquire) are just as rebellious becaus
  –_salir_ (to exit) –_Yo salgo_ ,_Tú sales_
  –_dar_ (to give) –_Yo doy_ ,_Tú das_
  –_ver_ (to see) –_Yo veo_ ,_Tú ves_
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Spanish verbs conjugation examples –_ser, estar, ir_
 
@@ -342,22 +342,19 @@ Well… this is it! This is our full lesson on**Spanish verbs.**
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-no-money-no-problem-guide-to-flying-solo-in-google-meet/"><u>[New] 2024 Approved No Money? No Problem! Guide to Flying Solo in Google Meet</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-your-guide-to-instantaneously-add-closed-captions-to-youtube-clips/"><u>[New] 2024 Approved Your Guide to Instantaneously Add Closed Captions to YouTube Clips</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-mastering-srt-editing-on-macos-a-comprehensive-guide-for-2024/"><u>[New] Mastering SRT Editing on macOS A Comprehensive Guide for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-youtube-masterclass-the-10-best-trimming-software/"><u>[New] YouTube Masterclass The 10 Best Trimming Software</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-clearview-recorder-xtreme-win10/"><u>[Updated] 2024 Approved ClearView Recorder Xtreme (Win10)</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-dynamic-iphone-photography-the-key-to-capturing-motion-blur/"><u>[Updated] In 2024, Dynamic iPhone Photography The Key to Capturing Motion Blur</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-how-to-uncover-agencies-with-superior-cinematic-crews/"><u>[Updated] In 2024, How to Uncover Agencies with Superior Cinematic Crews</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/daily-dose-of-bengali-language/"><u>Daily Dose of Bengali Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discover-limitless-possibilities-get-free-mondly-pro-for-life-today/"><u>Discover Limitless Possibilities - Get Free Mondly Pro for Life Today!</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/discover-the-best-ai-tools-for-automated-professional-quality-slideshows/"><u>Discover the Best AI Tools for Automated, Professional-Quality Slideshows</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/french-greetings-101-saying-hello-in-the-language-of-love/"><u>French Greetings 101: Saying Hello in the Language of Love</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-alphabets-to-characters-chinese-writing-101/"><u>From Alphabets to Characters: Chinese Writing 101</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/hangul-made-simple-the-quickest-way-to-asian-alphabets/"><u>Hangul Made Simple: The Quickest Way to Asian Alphabets</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-8-without-swiping-up-6-ways-by-drfone-ios/"><u>How To Unlock iPhone 8 Without Swiping Up? 6 Ways</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/nations-with-thanksgiving-customs-and-rituals/"><u>Nations with Thanksgiving Customs and Rituals</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/world-teachers-day-a-collection-of-words-for-teacher-in-different-languages/"><u>World Teachers' Day: A Collection Of Words For Teacher In Different Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/worldwide-whipped-cream-30-chocolate-translations/"><u>Worldwide Whipped Cream: 30 Chocolate Translations</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-snapsavvy-ai-revolutionizing-edit-processes-for-2024/"><u>[New] SnapSavvy AI Revolutionizing Edit Processes for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-the-ultimate-playlist-tweaking-on-youtube/"><u>[Updated] The Ultimate Playlist Tweaking on YouTube</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/best-5-ai-voice-generators-online-supports-all-browsers-for-2024/"><u>Best 5 AI Voice Generators Online (Supports All Browsers) for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-video-files-on-honor-100-pro-by-fonelab-android-recover-video/"><u>Complete guide for recovering video files on Honor 100 Pro</u></a></li>
+<li><a href="https://facebook.techidaily.com/cross-platform-connectivity-share-your-fb-memories-anywhere/"><u>Cross-Platform Connectivity: Share Your Fb Memories Anywhere.</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722960669536-get-the-m-audio-fast-track-ultra-driver-for-free-elevate-your-sound-today/"><u>Get the M-Audio Fast Track Ultra Driver For Free – Elevate Your Sound Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/happy-birthdays-a-global-linguistic-journey/"><u>Happy Birthdays: A Global Linguistic Journey</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-8-solutions-to-fix-find-my-friends-location-not-available-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>In 2024, 8 Solutions to Fix Find My Friends Location Not Available On Realme GT Neo 5 SE | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-fix-oem-unlock-missing-on-realme-narzo-60-pro-5g-by-drfone-android/"><u>In 2024, How To Fix OEM Unlock Missing on Realme Narzo 60 Pro 5G?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polite-pleasers-how-to-show-thankfulness-in-30-different-tongues-157-trimmed-to-fit/"><u>Polite Pleasers: How to Show Thankfulness in 30 Different Tongues (157) [Trimmed to Fit]</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/premier-5-language-pedagogy-applications/"><u>Premier 5 Language Pedagogy Applications</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-slovak-flawlessly-in-10-min-doses-online/"><u>Speak Slovak Flawlessly in 10-Min Doses Online!</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/still-using-pattern-locks-with-tecno-phantom-v-flip-tips-tricks-and-helpful-advice-by-drfone-android/"><u>Still Using Pattern Locks with Tecno Phantom V Flip? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-the-role-of-artificial-intelligence-in-education-and-language-learning/"><u>Understanding the Role of Artificial Intelligence in Education & Language Learning</u></a></li>
 </ul></div>
 

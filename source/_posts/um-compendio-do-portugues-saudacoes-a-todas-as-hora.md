@@ -1,7 +1,7 @@
 ---
 title: "Um Compêndio Do Português: Saudações a Todas as Hora"
-date: 2024-10-11T19:42:41.459Z
-updated: 2024-10-18T22:36:40.982Z
+date: 2024-10-31T06:09:15.755Z
+updated: 2024-11-05T08:16:12.199Z
 tags:
   - speak
   - english
@@ -36,6 +36,13 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ![hi in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-portuguese-1024x658.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 2")
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  “Lisbon, Portugal” by Diego García©
 
 ### “How are you” in Portuguese – Tudo bem?
@@ -53,13 +60,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 * **_Quanto tempo!_ – Long time no see!** – Used the same as in English.
 * **_Como foi o seu dia?_ – How’s your day?** – Used the same as in English.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2\. “Bom dia!” and other Portuguese greetings for certain moments of the day
 
 ![good morning in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/good-morning-in-portuguese-1024x642.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 3")
@@ -75,16 +75,10 @@ _Olá_ is the best choice for most social situations regardless of the person yo
  All three of these are safe to use in any kind of interaction (formal or informal).
 
 <!-- affiliate ads begin -->
-<span id="1982570">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3.“Goodbye” in Portuguese – Adeus
@@ -101,20 +95,19 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ![portuguese greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/08/portuguese-greetings-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 4")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “Ruínas da Fortaleza de Arrifana, Aljezur, Portugal” by Ferhat Deniz Fors©
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982499">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Bonus: other basic Portuguese phrases that you should know
@@ -148,6 +141,13 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Here’s how to speak Portuguese in 10 minutes a day
 
  Do you want to practice what you’ve learned and maybe learn some more Portuguese? **Check Mondly, the revolutionary language learning platform that makes language learning fun, fast and easy!**
@@ -179,24 +179,18 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-exploring-advanced-recording-alternatives-to-fbx-frameworks/"><u>[New] Exploring Advanced Recording Alternatives to FBX Frameworks</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-elevate-your-content-game-studio-aptitude-essentials-for-2024/"><u>[Updated] Elevate Your Content Game Studio Aptitude Essentials for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/complete-list-of-top-100-commonly-misspelled-words-in-english/"><u>Complete List Of Top 100 Commonly Misspelled Words In English</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/conquer-languages-confidently-with-mondlys-ar-technology/"><u>Conquer Languages Confidently With Mondly's AR Technology</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/data-protection-strategy-updated/"><u>Data Protection Strategy Updated</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/elgato-hd60-sync-problems-fast-fixes-and-simple-solutions/"><u>Elgato HD60 Sync Problems: Fast Fixes and Simple Solutions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/forsok-till-swedish-valkommen-pa-sverige/"><u>Försök Till Swedish: Välkommen På Sverige</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-monolingual-to-polylingual-a-century-for-europe-day/"><u>From Monolingual to Polylingual: A Century for Europe Day</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-apple-iphone-x-without-passcode-4-easy-methods-by-drfone-ios/"><u>How To Unlock Apple iPhone X Without Passcode? 4 Easy Methods</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-infinix-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Infinix</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-amplifying-your-videos-music-integration-on-win11/"><u>In 2024, Amplifying Your Videos Music Integration on Win11</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/local-tongue-mastery-uk-phrases-and-sayings/"><u>Local Tongue Mastery: UK Phrases & Sayings</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-text-in-motion-the-best-tracking-and-animation-tools/"><u>New 2024 Approved Text in Motion The Best Tracking and Animation Tools</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/powerful-outdoor-beaming-tool-reviewed-the-unstoppable-romer-charge-free-flashlight/"><u>Powerful Outdoor Beaming Tool Reviewed: The Unstoppable Romer Charge-Free Flashlight</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579854344-saying-i-love-you-in-over-50-countries-today/"><u>Saying 'I Love You' In Over 50 Countries Today!</u></a></li>
-<li><a href="https://games-able.techidaily.com/the-simple-steps-to-erase-and-restore-your-ps4/"><u>The Simple Steps to Erase & Restore Your PS4</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/unveiling-the-least-memory-hungry-browsers-on-windows-platforms/"><u>Unveiling the Least Memory-Hungry Browsers on Windows Platforms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/viking-verbal-legacy-the-echoes-of-old-norse-speech/"><u>Viking Verbal Legacy: The Echoes of Old Norse Speech</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pista-logia-eygnwmwn-gkreman/"><u>Πιστά Λόγια Ευγνώμων Γκρεμάν</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/latform-profitability-showdown-dailymovements-standards-vs-youtube-for-2024/"><u>[New] Platform Profitability Showdown DailyMovement's Standards Vs Youtube for 2024</u></a></li>
+<li><a href="https://driver-error.techidaily.com/solved-device-manager-error-unfolds/"><u>[SOLVED]: Device Manager Error Unfolds</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-moto-z2-masterclass-smartphone-smarts-explored/"><u>2024 Approved Moto Z2 Masterclass Smartphone Smarts Explored</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/danish-film-selection-enhancing-linguistic-competence/"><u>Danish Film Selection: Enhancing Linguistic Competence</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/easy-introduction-to-hangul-asian-script-at-your-fingertips/"><u>Easy Introduction to Hangul: Asian Script at Your Fingertips</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-kisses-to-clusters-saying-chocolate-everywhere-you-go/"><u>From Kisses to Clusters: Saying 'Chocolate' Everywhere You Go</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/in-2024-how-to-become-a-youtube-partner/"><u>In 2024, How to Become A YouTube Partner</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-the-evolution-continues-iphone-xs-photographic-advancements/"><u>In 2024, The Evolution Continues IPhone X's Photographic Advancements</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/love-in-deutsch-effective-pick-up-lines/"><u>Love in Deutsch: Effective Pick-Up Lines</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/masterclass-in-image-detail-removing-obscuring-elements-with-photopea/"><u>Masterclass in Image Detail Removing Obscuring Elements with Photopea</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/navigating-with-ease-a-review-of-mobvois-ticwatch-pro-and-its-long-lasting-battery-thanks-to-innovative-dual-screen-technology/"><u>Navigating with Ease: A Review of Mobvoi's TicWatch Pro Ⅲ and Its Long-Lasting Battery, Thanks to Innovative Dual Screen Technology</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-the-mysteries-of-honshus-writing/"><u>Unlocking the Mysteries of Honshū's Writing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/woo-with-wit-curated-collection-of-engaging-phrases/"><u>Woo with Wit: Curated Collection of Engaging Phrases</u></a></li>
 </ul></div>
 

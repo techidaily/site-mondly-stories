@@ -1,7 +1,7 @@
 ---
 title: Understanding the Science of Second Language Acquisition
-date: 2024-08-08T09:33:41.043Z
-updated: 2024-08-09T09:33:41.043Z
+date: 2024-10-29T19:31:52.005Z
+updated: 2024-11-04T19:51:48.640Z
 tags:
   - speak
   - english
@@ -20,38 +20,49 @@ thumbnail: https://thmb.techidaily.com/82e91f7db84fddd0d0cd74fd53de4decc4bc8c46a
 
  Here are the most common myths and the way in which reality comes to the rescue:
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 ## 1\. Not everyone can learn a foreign language
 
  False! Everyone with the right motivation can learn a foreign language. The amount of effort and time invested is different for experienced learners and beginners, but the fact remains that anyone can do it. Once you ‘learn how to learn’, certain patterns become visible, especially with grammar, and this makes learning much faster.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 2\. Language learning requires a high IQ
 
  So untrue! There are so many smart people who only speak one language. This is because a high IQ doesn’t make anyone a natural-born [polyglot](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . An average IQ combined with persuasiveness, sensitivity and lots of practice is a much better recipe for becoming fluent in another language.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 3\. Failing to learn a language in school makes the student incompetent
 
  There are so many stories of students who left school thinking that they were incapable of learning French or Spanish, and later in life, they became fluent within a few months of living in Latin countries. The reason why students fail to learn a language in school is mostly due to the professor’s incompetence.
 
 <!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 4\. Grammar is difficult
 
  Here’s a fun fact: grammar is a language’s least difficult element and it takes the least time to master. Every language, no matter how remote, is built on clear grammar rules and the experienced learner can easily figure out patterns that he or she can use to accelerate the learning process.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 ## 5\. Conversations require fluency
 
  When it comes to mastering a foreign language, fluency means knowing around 5000 words. That’s a lot, considering that it takes quite some time to build such a vocabulary. Here’s the good news – having a conversation with someone from another country requires only a basic command of the language, which is around 1500 words. And here’s the even better news – very basic needs such as courtesy and traveling require an even smaller set of words and phrases, and anyone can learn these on a flight to a foreign country.
@@ -75,18 +86,26 @@ Thank YOU, Alan!
 
  Start using Mondly for free on your computer or tablet or, better yet, download the Mondly app on your iOS or Android device and learn Spanish, French, German and more anytime, anywhere.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
 Get Mondly now and speak any language like you never dreamed you would ![Learn a new language](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-72&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-72%26utm%5Fsource%3Dblog-post-id-72&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-72%26utm%5Fsource%3Dblog-post-id-72&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-72%26utm%5Fsource%3Dblog-post-id-72&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-72%26mt%3D8 "Learn a new language")
+
+<!-- affiliate ads begin -->
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -95,4 +114,26 @@ Get Mondly now and speak any language like you never dreamed you would ![Learn a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-best-value-in-4k-cameras-for-under-1000/"><u>[New] 2024 Approved Best Value in 4K Cameras for Under $1,000</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-laughoutloud-maker-get-funny-faces-on-the-web/"><u>[New] LaughOutLoud Maker Get Funny Faces on the Web</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-cross-platform-guide-extracting-facebook-video-content/"><u>[Updated] 2024 Approved Cross-Platform Guide Extracting Facebook Video Content</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-masterclass-emulation-best-ps3-clones-on-your-computer/"><u>2024 Approved Masterclass Emulation Best PS3 Clones on Your Computer</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-watch-unseen-selective-tools-for-insta-enthusiasts/"><u>2024 Approved Watch Unseen Selective Tools for Insta Enthusiasts</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/choose-the-ultimate-smartwatch-for-your-needs-in-depth-analysis-of-2024s-finest-models-zdnet/"><u>Choose the Ultimate Smartwatch for Your Needs: In-Depth Analysis of 2024'S Finest Models | ZDNet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-how-the-lg-ultrauhd-49-tv-model-um7n-stacks-up-in-budget-friendly-4k-viewing-experience/"><u>Discover How the LG UltraUHD 49 TV Model UM7n Stacks Up in Budget-Friendly 4K Viewing Experience</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-the-latest-epson-v39-scanner-drivers-for-windows-7-8-and-10/"><u>Download the Latest Epson V39 Scanner Drivers for Windows 7, 8 & 10</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/exciting-online-gaming-options-a-list-of-7-kid-friendly-titles/"><u>Exciting Online Gaming Options: A List of 7 Kid-Friendly Titles</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-love-languages-discovering-more-i-love-you-words/"><u>Global Love Languages: Discovering More 'I Love You' Words</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-best-ways-to-bypass-icloud-activation-lock-on-iphone-se-2022ipadipod-by-drfone-ios/"><u>In 2024, Best Ways to Bypass iCloud Activation Lock on iPhone SE (2022)/iPad/iPod</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-the-ultimate-guide-to-non-xbox-screen-recording-software/"><u>In 2024, The Ultimate Guide to Non-Xbox Screen Recording Software</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leveraging-internet-tools-best-practices-for-language-learning/"><u>Leveraging Internet Tools: Best Practices for Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/persian-language-heritage-and-its-learning-advantages/"><u>Persian Language Heritage & Its Learning Advantages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-italian-voyagers-handbook-key-expressions-and-vocabulary-guide/"><u>The Italian Voyager’s Handbook: Key Expressions and Vocabulary Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-list-of-multilingual-movie-magic/"><u>The Ultimate List of Multilingual Movie Magic</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/triple-the-talent-essential-brain-workouts-to-master-new-tongues/"><u>Triple the Talent: Essential Brain Workouts to Master New Tongues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-farsis-past-and-modern-day-advantages/"><u>Unlocking Farsi’s Past and Modern-Day Advantages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/valkommen-till-sverige-svensk-visa/"><u>Välkommen Till Sverige: Svensk Visa</u></a></li>
+</ul></div>
 

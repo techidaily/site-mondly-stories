@@ -1,7 +1,7 @@
 ---
 title: The Eloquent Enthusiast's Handbook to French Greeting Expressions
-date: 2024-10-20T18:18:00.961Z
-updated: 2024-10-24T18:22:28.121Z
+date: 2024-10-28T17:08:19.245Z
+updated: 2024-11-04T21:46:48.686Z
 tags:
   - speak
   - english
@@ -32,38 +32,17 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  Meaning “hi”, “hello” or sometimes even “bye”,_Salut_ is the informal French greeting you can use with family and friends but not with your boss or teacher.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2\. “Good morning” in French –_Bon matin!_
 
  European French doesn’t have an equivalent for “good morning”. So it’s good to know that while in France you shouldn’t use Bon matin. But if you happen to spend a charming morning in Paris, you can safely use – you guessed it –_Bonjour!_
 
  However, if you are in Quebec, you are free to use_Bon matin_ until 10 or 11 AM.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3\. “Good afternoon” in French –_Bon après-midi!_
 
  While it’s used less often than its brothers,_Bon après-midi_ is a nice twist to_Bonjour_ .
 
  But take notice! French speakers generally use it when they are saying goodbye, so you should follow their lead and avoid using it at the beginning of a conversation.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 4\. “Good evening” in French –_Bonsoir!_
 
@@ -75,14 +54,14 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
 ![french greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/11/french-greetings-scaled-722x960.jpg "How To Say Hello In French: 12 Useful French Greetings 2")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “French fashion” by Charles 🇵🇭©
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 6\. Hello? –_Allô?_
 
@@ -102,6 +81,13 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  Or you can play it simple, follow the lead of the French speakers and answer directly with_Et toi?_ (“And you?”) since the_Ça va bien_ (“I’m good”) answer is usually implied.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 9\. What’s up? –_Ça va?_
 
  The English translation of_Ça va?_ , the little and cooler brother of_Comment ça va?_ , is “how’s it going” or literally “does it go?” and it can be used exactly the same like in the previous examples.
@@ -112,6 +98,13 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  Want to spice up and diversify your “ça-va”s? Go with the informal_Quoi de neuf_ that translates to “what’s up?” or “what’s new?”.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 11\. The cute Bonjour:_Coucou!_
 
 _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It literally means “cuckoo” and it is used the same way we use “hey!” in English.
@@ -120,13 +113,20 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
 
 ![bonjour](https://edge.mondly.com/blog/wp-content/uploads/2019/11/bonjour-scaled-960x641.jpg "How To Say Hello In French: 12 Useful French Greetings 3")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  “Coucou! Is me! The Frenchie!” by Graham Holtshausen©
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 12\. How’s it going? –_Ça roule?_
@@ -167,24 +167,17 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-how-can-i-watch-facebook-videos-on-my-apple-tv-in-2024/"><u>[New] How Can I Watch Facebook Videos on My Apple TV, In 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-perfect-hdr-portraits-with-our-expert-techniques/"><u>[New] Perfect HDR Portraits with Our Expert Techniques</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-from-beginner-to-expert-the-ultimate-guide-to-hp-screen-recording-for-2024/"><u>[Updated] From Beginner to Expert The Ultimate Guide to HP Screen Recording for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-quick-record-and-publish-screen-images-for-macpc-and-youtube-for-2024/"><u>[Updated] Quick Record & Publish Screen Images for Mac/PC and YouTube for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-the-ultimate-guide-to-cost-effective-media-providers-online/"><u>2024 Approved The Ultimate Guide to Cost-Effective Media Providers Online</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-lava-storm-5g-android-system-webview-crash-2024-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Lava Storm 5G Android System Webview Crash 2024 Issue | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/hone-your-tagalog-skills-in-just-15-minutes-daily/"><u>Hone Your Tagalog Skills in Just 15 Minutes Daily</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/jumpstart-your-urdu-learning-now/"><u>Jumpstart Your Urdu Learning Now</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-acquisition-quest/"><u>Language Acquisition Quest</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lifelong-language-acquisition-late-bloomers-triumph/"><u>Lifelong Language Acquisition: Late Bloomers Triumph</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-level-up-your-video-editing-skills-6-must-know-adobe-premiere-secrets/"><u>New In 2024, Level Up Your Video Editing Skills 6 Must-Know Adobe Premiere Secrets</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/simple-10-minute-daily-bangla-lesson/"><u>Simple 10-Minute Daily Bangla Lesson</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/spanish-count-basics-starting-with-number-one/"><u>Spanish Count Basics: Starting with Number One</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-3-linguistic-hubs-swift-multilingual-mastery-awaits/"><u>Top 3 Linguistic Hubs: Swift Multilingual Mastery Awaits!</u></a></li>
-<li><a href="https://ai-video-translation.techidaily.com/translate-videos-and-subtitles-with-veedio-for-2024/"><u>Translate Videos and Subtitles with Veed.io for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/uniting-worlds-love-without-a-common-tongue/"><u>Uniting Worlds: Love Without a Common Tongue</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/updated-in-2024-organize-your-videos-with-ease-top-8-mac-metadata-editors/"><u>Updated In 2024, Organize Your Videos with Ease Top 8 Mac Metadata Editors</u></a></li>
-<li><a href="https://solve-info.techidaily.com/zwei-simplere-methoden-zum-verschieben-von-windows-11-auf-einen-neuen-ssd/"><u>Zwei Simplere Methoden Zum Verschieben Von Windows 11 Auf Einen Neuen SSD</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/kalwn-morfwn-eygnwmwn-gia-ta-eyxes-gkreman/"><u>Καλών Μορφών Ευγνώμων Για Τα Ευχές Γκρεμάν</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-srt-to-sub-pivotal-approaches-for-content-transformation/"><u>[New] 2024 Approved SRT to SUB Pivotal Approaches for Content Transformation</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-navigating-to-platforms-for-youtube-influencer-partnerships/"><u>[New] Navigating to Platforms for YouTube Influencer Partnerships</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/google-and-mondly-team-up-for-your-linguistic-endeavors/"><u>Google and Mondly Team Up for Your Linguistic Endeavors</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-can-realme-11-promirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Realme 11 ProMirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-lock-apps-on-nubia-z50s-pro-to-protect-your-individual-information-by-drfone-android/"><u>How to Lock Apps on Nubia Z50S Pro to Protect Your Individual Information</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-tecno-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For Tecno Phones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-american-versus-old-world-portuguese-buttons/"><u>Latin American Versus Old World Portuguese Buttons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/perfezionamento-dei-numeri-italiani-1-mille-e-oltre/"><u>Perfezionamento Dei Numeri Italiani: 1 - Mille E Oltre</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/quick-fix-how-to-get-your-sandisk-solid-state-drive-up-and-running/"><u>Quick Fix: How to Get Your SanDisk Solid State Drive Up and Running</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/russian-cyrillic-sounds-a-practical-guide/"><u>Russian Cyrillic Sounds: A Practical Guide</u></a></li>
+<li><a href="https://article-tips.techidaily.com/the-mystery-of-off-facebook-activity-what-to-know-and-do-for-2024/"><u>The Mystery of Off-Facebook Activity What to Know & Do for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-multilingual-magic-of-saint-nick/"><u>Unveiling The Multilingual Magic of Saint Nick</u></a></li>
 </ul></div>
 

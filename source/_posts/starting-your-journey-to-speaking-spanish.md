@@ -1,7 +1,7 @@
 ---
 title: Starting Your Journey to Speaking Spanish
-date: 2024-09-30T17:28:34.660Z
-updated: 2024-10-01T20:44:35.644Z
+date: 2024-11-02T21:58:10.652Z
+updated: 2024-11-05T07:44:57.005Z
 tags:
   - speak
   - english
@@ -37,10 +37,16 @@ thumbnail: https://thmb.techidaily.com/3d0c7b28b7640277a83e56148652cb264b53fd3e0
 **Good to know:** _uno_becomes an article and changes to_un_if it’s in front of a noun. For example,_un cerdo_translates to “a pig” in English.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Spanish numbers to 40
@@ -78,10 +84,10 @@ thumbnail: https://thmb.techidaily.com/3d0c7b28b7640277a83e56148652cb264b53fd3e0
  As you can see, up to 30 (“thirty”), the numbers are bound together, but from there on they part ways to make counting in Spanish even easier for you. Basically, you won’t say “thirty-one”, but “thirty**and** one”:_treinta y uno_ .
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Count to 100 in Spanish
@@ -114,10 +120,10 @@ thumbnail: https://thmb.techidaily.com/3d0c7b28b7640277a83e56148652cb264b53fd3e0
 * 98 –_noventa y ocho_
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Spanish numbers to 1000 and beyond
@@ -158,10 +164,10 @@ Here are some more examples:
 ![count in Spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/07/count-in-spanish-960x663.jpg "Spanish Numbers: How To Count Numbers In Spanish 4")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Barcelona, Spain
@@ -213,21 +219,24 @@ Here are some more examples:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-2024-approved-introduction-to-interactive-graphic-design/"><u>[New] 2024 Approved Introduction to Interactive Graphic Design</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-game-modders-and-tutorial-content-leaders/"><u>2024 Approved Game Modders & Tutorial Content Leaders</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/agoras-articulation-greek-language-through-ages/"><u>Agora's Articulation: Greek Language Through Ages</u></a></li>
-<li><a href="https://article-helps.techidaily.com/discovering-your-iphones-top-free-photo-arrangement-and-editing-tools/"><u>Discovering Your iPhone's Top Free Photo Arrangement & Editing Tools</u></a></li>
-<li><a href="https://extra-information.techidaily.com/elevate-your-media-experience-with-top-phone-videos/"><u>Elevate Your Media Experience with Top Phone Videos</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-8-best-free-3d-video-player-for-window-and-mac/"><u>In 2024, 8 Best Free 3D Video Player for Window and Mac</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-capturing-authenticity-voice-overs-that-resonate-with-audiences/"><u>In 2024, Capturing Authenticity Voice Overs That Resonate with Audiences</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Watch Hulu Outside US On Apple iPhone 6s Plus | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/key-danish-films-to-elevate-your-danish-comprehension/"><u>Key Danish Films to Elevate Your Danish Comprehension</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lingual-interactions-international-contribution-to-english/"><u>Lingual Interactions: International Contribution to English</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/salutations-francaises-la-reponse-idyllique/"><u>Salutations Françaises: La Réponse Idyllique</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/spell-success-the-most-common-english-language-gaffes-listed/"><u>Spell Success! The Most Common English Language Gaffes Listed</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/strategies-for-perfecting-igtv-video-titles-for-2024/"><u>Strategies for Perfecting IGTV Video Titles for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-9-insights-on-english-grammar-by-a-pro-esl-speaker/"><u>Top 9 Insights on English Grammar by a Pro ESL Speaker</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unveiling-the-mysteries-of-spanish-accents-and-types/"><u>Unveiling the Mysteries of Spanish Accents and Types</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/mplify-your-online-presence-top-5-effective-youtube-strategies/"><u>[New] Amplify Your Online Presence Top 5 Effective YouTube Strategies</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-10-masterpieces-in-job-market-insight-for-2024/"><u>[Updated] 10 Masterpieces in Job Market Insight for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-master-your-own-passport-photos-with-these-10-tools-for-2024/"><u>[Updated] Master Your Own Passport Photos with These 10 Tools for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-top-5-mac-software-for-mkv-files/"><u>2024 Approved Top 5 Mac Software for MKV Files</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-change-location-on-facebook-marketplace-for-nokia-c32-drfone-by-drfone-virtual-android/"><u>3 Ways to Change Location on Facebook Marketplace for Nokia C32 | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ving-youtube-live-prominence-with-pro-level-tips-for-2024/"><u>Achieving YouTube Live Prominence with Pro-Level Tips for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridge-cultures-master-more-languages/"><u>Bridge Cultures: Master More Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/charting-new-languages-mondlylanguages-2-year-odyssey/"><u>Charting New Languages - MondlyLanguages' 2 Year Odyssey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-daily-gesture-lingo-in-italy/"><u>Decoding Daily Gesture Lingo in Italy</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/dive-into-high-end-slow-motion-filming-a-guide-for-aspiring-tiktok-stars-for-2024/"><u>Dive Into High-End Slow Motion Filming A Guide for Aspiring TikTok Stars for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-and-update-pl2303-driver-for-your-windows-computer/"><u>Download & Update PL2303 Driver for Your Windows Computer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-guide-for-learning-turkish-language-with-ease/"><u>Essential Guide for Learning Turkish Language with Ease</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-beans-to-bars-heres-chocolate-in-30-languages/"><u>From Beans to Bars, Here's Chocolate in 30 Languages!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gsl-accuracy-enhanced-pearson-and-mondly-collaborate/"><u>GSL Accuracy Enhanced - Pearson & Mondly Collaborate</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-oneplus-nord-n30-5g-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from OnePlus Nord N30 5G to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-next-chapter-innovative-strategies-for-modern-language-learning/"><u>The Next Chapter: Innovative Strategies for Modern Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-spelling-blunder-index-for-english-proficiency/"><u>The Ultimate Spelling Blunder Index for English Proficiency</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/through-a-photographers-eye-our-best-10-lenses-list-for-2024/"><u>Through a Photographer's Eye Our Best 10 Lenses List for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/uncovering-the-realities-behind-effective-language-education/"><u>Uncovering the Realities Behind Effective Language Education</u></a></li>
 </ul></div>
 

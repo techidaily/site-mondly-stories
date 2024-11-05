@@ -1,7 +1,7 @@
 ---
 title: The Simplicity of Babel's Next Generation Learners
-date: 2024-08-08T09:38:34.010Z
-updated: 2024-08-09T09:38:34.010Z
+date: 2024-10-29T00:50:47.720Z
+updated: 2024-11-05T01:08:00.523Z
 tags:
   - speak
   - english
@@ -22,16 +22,10 @@ thumbnail: https://thmb.techidaily.com/3a57b1ddb74892f92e7ea8db98be1fa90b1375e9f
 
 Fascinating, isn’t it? Let’s find out more.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ![kids congnitive advantages](https://edge.mondly.com/blog/wp-content/uploads/2019/10/kids-cognitive-advantages-1024x682.jpg "How Do Children Learn Foreign Languages So Easily? 2")
 
  “Little girl reading” by Jonathan Borba©
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How do toddlers learn languages?
 
  Babies aren’t born British, American, Portuguese, French, Spanish, or Turkish. I mean… they practically are, but, in fact, they aren’t. Being born in Germany doesn’t make you [fluent in German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . But thanks to your brain’s architecture, **you gradually familiarize yourself with the language you were born into.** You may not remember this process, but you learned your native language. You were not born knowing in.
@@ -44,17 +38,17 @@ Fascinating, isn’t it? Let’s find out more.
 
  All these incredible processes are possible thanks to the brain and the amazing changes that happen inside it. To give you a glimpse of how important it is, hear this: during the first few years of your life, more than 1 million new neural connections are formed in the brain every single second.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![critical period learning kids](https://edge.mondly.com/blog/wp-content/uploads/2019/10/critical-period-learning-kids-1024x819.jpg "How Do Children Learn Foreign Languages So Easily? 3")
 
  “Discovering the world” by Colin Maynard©
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Understanding the process: the cognitive advantages of kids
 
  All around this whole wide world, there are many kids who learn two languages at the same time starting from the first or second year of their life. Studies have shown that they can distinguish between the two languages they learn even before they speak the first word namely because they begin life with a tendency for [phonology](https://en.wikipedia.org/wiki/Phonology) acquisition. That’s incredible!
@@ -69,16 +63,23 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  Furthermore, as we already discussed, **the brain’s plasticity and structure change completely by the time we reach puberty.** We become more skilled at complex thought and intellectual learning and we begin to process information differently. Our brain doesn’t focus on language learning as much as it did a few years back. Instead, it developed in other ways and language learning is now processed through mechanisms intended for general learning.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 ![brain stimulation in children](https://edge.mondly.com/blog/wp-content/uploads/2019/10/brain-stimulation-in-children-1024x684.jpg "How Do Children Learn Foreign Languages So Easily? 4")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  “Reading with dad” by Picsea©
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Stimulation and environment
 
@@ -94,8 +95,12 @@ No advertising on the website.
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### You can now learn a new language as fast as a toddler
 
  It can be really tricky to learn a new language in your adult years. But **with Mondly, the award-winning language learning app, you can learn any language just like a kid** with practical topics and authentic conversations recorded by fluent voice artists so you can tackle day-to-day situations.
@@ -114,8 +119,6 @@ No advertising on the website.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -123,4 +126,22 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-tips-for-successful-video-game-broadcasting-for-2024/"><u>[New] Tips for Successful Video Game Broadcasting for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-how-to-convert-youtube-to-mp3-without-compromising-security-3-tips/"><u>[Updated] 2024 Approved How to Convert YouTube to MP3 Without Compromising Security - 3 Tips</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/americas-leading-foreign-language-curriculum-choices/"><u>Americas Leading Foreign Language Curriculum Choices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apple-and-mondly-a-dynamic-duo-on-worlds-educational-pedestal/"><u>Apple & Mondly: A Dynamic Duo on World’s Educational Pedestal</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprende-la-hora-en-aplicaciones-con-botones/"><u>Aprende La Hora en Aplicaciones Con Botones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/british-vernacular-essentials-speak-with-local-flair/"><u>British Vernacular Essentials: Speak with Local Flair</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cosmic-communication-chronicles-an-odyssey-through-star-wars-dialogues/"><u>Cosmic Communication Chronicles: An Odyssey Through Star Wars' Dialogues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/efficient-ukrainian-learning-the-ten-minute-strategy-87-chars/"><u>Efficient Ukrainian Learning: The Ten-Minute Strategy (87 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578963934-explore-the-world-of-hindi-mondlys-top-8-secrets/"><u>Explore the World of Hindi - Mondly's Top 8 Secrets</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/fix-facebook-videos-not-playing-on-androidiphonechrome-for-2024/"><u>Fix Facebook Videos Not Playing on Android/iPhone/Chrome for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211261030-9798990307919-flip-the-script/"><u>Flip the Script | Free Book</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-top-4-sim-location-trackers-to-easily-find-your-lost-nokia-105-classic-device-by-drfone-android/"><u>In 2024, Top 4 SIM Location Trackers To Easily Find Your Lost Nokia 105 Classic Device</u></a></li>
+<li><a href="https://win-dash.techidaily.com/new-fixes-installed-enjoy-seamless-connectivity-with-latest-v1535-killer-wireless-drivers/"><u>New Fixes Installed! Enjoy Seamless Connectivity with Latest v1535 Killer Wireless Drivers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ring-tags-to-achieve-six-figures-in-views-for-2024/"><u>Tailoring #Tags to Achieve Six Figures in Views for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/tech-giants-unite-the-future-of-high-capacity-cpu-cooling-with-intels-2kw-tdp-xeon-processors-and-exxonmobils-innovative-liquid-techniques/"><u>Tech Giants Unite: The Future of High-Capacity CPU Cooling with Intel's 2kW TDP Xeon Processors and ExxonMobil's Innovative Liquid Techniques</u></a></li>
+</ul></div>
 

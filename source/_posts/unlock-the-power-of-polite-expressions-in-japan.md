@@ -1,7 +1,7 @@
 ---
 title: Unlock the Power of Polite Expressions in Japan
-date: 2024-10-16T21:15:08.248Z
-updated: 2024-10-19T00:22:17.911Z
+date: 2024-10-29T16:46:52.998Z
+updated: 2024-11-04T19:03:29.911Z
 tags:
   - speak
   - english
@@ -49,19 +49,6 @@ thumbnail: https://thmb.techidaily.com/2ba6e093c71356d417ecac5da46572ca39801b84e
 
  Unlike English, which uses the same “hello” for a lot of different social contexts, the Japanese language has a dedicated “hello” for answering the phone:**moshi moshi (もしもし).** Doesn’t that sound cute?
 
-<!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2\. Good morning in Japanese and other relevant greetings
 
 **Good morning in Japanese**   **– O_hayō gozaimasu_**  (おはよう ございます) is the best choice for greeting someone in the early morning hours (before 10:00 a.m.). Unlike_Konnichiwa_ ,   **O_hayō gozaimasu_**  a little more formal, so it’s safe to use it with people you don’t know or when you are meeting people in a position of authority (such as your boss or your teacher).
@@ -77,6 +64,13 @@ This greeting is used both as a “hello” and as a “goodbye”.
 **Bonus tip:** Morning and evening are more carefully delimited in the Japanese culture than in the West. So it’s important to know your**_Konnichiwa_** and never use it instead of**_Konbanwa_** or**_Oyasuminasai._**
 
 ![hi in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-japanese-960x639.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 3")
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  “Meguro River, Matsuno, Japan” by Sora Sagano©
 
@@ -98,20 +92,13 @@ This greeting is used both as a “hello” and as a “goodbye”.
 ![goodbye in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/goodbye-in-japanese-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 4")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  “See you soon, human” by Alain Pham©
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 4\. “Thank you” in Japanese and other polite phrases that you should know
 
@@ -137,13 +124,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![arigato](https://edge.mondly.com/blog/wp-content/uploads/2019/08/arigato-1024x706.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 5")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “Kyoto, Japan” by Andre Benz©
 
 ## Don’t forget about the Japanese bow
@@ -161,6 +141,13 @@ This greeting is used both as a “hello” and as a “goodbye”.
  – 30-degree bows are for people you just met or are of a higher social status than you;
 
  – 45-degree bows are used for greetings only if you meet a very important person like the Emperor or the Prime Minister.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Bonus: basic conversation in Japanese
 
@@ -182,6 +169,13 @@ This greeting is used both as a “hello” and as a “goodbye”.
 * No problem. – _Daijōbudesu._
 
 ![sayonara](https://edge.mondly.com/blog/wp-content/uploads/2019/08/sayonara-1024x680.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 6")
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  “Tenryu-ji Temple, Kyōto-shi, Japan” by Masaaki Komori©
 
@@ -215,22 +209,17 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://win-answers.techidaily.com/guide-stop-halo-3-from-suddenly-closing-pc-gaming-fixes-at-hand/"><u>[Guide] Stop Halo 3 From Suddenly Closing – PC Gaming Fixes at Hand</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-professional-photographers-pick-of-edits/"><u>[New] 2024 Approved Professional Photographers' Pick of Edits</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-easy-steps-to-audit-your-favorite-tiktok-sessions-for-2024/"><u>[New] Easy Steps to Audit Your Favorite TikTok Sessions for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-depth-premiere-pro-fs-view-techniques/"><u>[New] In-Depth Premiere Pro FS View Techniques</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-cutting-edge-methods-to-record-and-save-lectures-on-imac/"><u>[Updated] 2024 Approved Cutting-Edge Methods to Record and Save Lectures on iMac</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/advance-your-teaching-with-these-top-5-language-apps/"><u>Advance Your Teaching with These Top 5 Language Apps</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/echoes-in-english-the-ever-present-bards-speech/"><u>Echoes in English: The Ever-Present Bard's Speech</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/german-vs-french-assessing-linguistic-practicality/"><u>German vs French: Assessing Linguistic Practicality</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-show-wi-fi-password-on-vivo-y78plus-by-drfone-android/"><u>How to Show Wi-Fi Password on Vivo Y78+</u></a></li>
-<li><a href="https://common-error.techidaily.com/master-the-art-of-reactivating-bluetooth-in-windows-11-effective-tips-inside/"><u>Master the Art of Reactivating Bluetooth in Windows 11: Effective Tips Inside!</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/mastering-the-openai-api-a-comprehhemous-tutorial-for-infinite-applications/"><u>Mastering the OpenAI API: A Comprehhemous Tutorial for Infinite Applications</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/multilingual-cupids-arrow-say-i-love-you-more-ways/"><u>Multilingual Cupid’s Arrow: Say 'I Love You' More Ways!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/nombre-de-bichos-en-espanol-60-puntos-clave/"><u>Nombre De Bichos en Español: 60 Puntos Clave</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/shattering-myths-the-path-to-genuine-multilingual-skills/"><u>Shattering Myths: The Path to Genuine Multilingual Skills</u></a></li>
-<li><a href="https://howto.techidaily.com/tecno-spark-go-2023-camera-not-working-unexpected-error-fix-it-now-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Tecno Spark Go (2023) Camera Not Working Unexpected Error? Fix It Now | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/turkish-korean-conversation-mysteries-unraveled/"><u>Turkish-Korean Conversation Mysteries Unraveled</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/two-anniversary-mondlylanguages-unforgettable-aspirations/"><u>Two Anniversary: MondlyLanguages, Unforgettable Aspirations</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-easy-peel-mac-screenshots-for-no-cost/"><u>[New] Easy-Peel Mac Screenshots for No Cost</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-androids-premier-gaming-application-decoding-the-kinemaster-experience/"><u>[Updated] In 2024, Android's Premier Gaming Application - Decoding the KineMaster Experience</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-total-domination-a-ranking-of-the-7-best-war-based-titans/"><u>[Updated] In 2024, Total Domination A Ranking of the 7 Best War-Based Titans</u></a></li>
+<li><a href="https://fox-place.techidaily.com/1728487051342-3/"><u>轻松消除资源回收桶中的不必要数据：3个简单办法</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/handling-stuck-google-chrome-sessions-how-to-force-relaunch-effectively/"><u>Handling Stuck Google Chrome Sessions: How to Force Relaunch Effectively</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-crafting-vivid-instagram-profile-previews/"><u>In 2024, Crafting Vivid Instagram Profile Previews</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/korean-calendar-decoded-a-weekly-overview/"><u>Korean Calendar Decoded: A Weekly Overview</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-landscape-exploring-uk-us-and-aussie-accent-differences/"><u>Linguistic Landscape: Exploring UK, U.S., and Aussie Accent Differences</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlyvr-experience-language-learning-beyond-boundaries/"><u>MondlyVR: Experience Language Learning Beyond Boundaries</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-language-learning-for-norge-proficiency/"><u>Quick Language Learning for Norge Proficiency!</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/staying-relevant-adapting-to-periscope-trends-for-2024/"><u>Staying Relevant Adapting to Periscope Trends for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-15-apps-to-hack-wifi-password-on-samsung-galaxy-s23-ultra-by-drfone-android/"><u>Top 15 Apps To Hack WiFi Password On Samsung Galaxy S23 Ultra</u></a></li>
 </ul></div>
 

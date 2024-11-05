@@ -1,7 +1,7 @@
 ---
 title: "Mondly Language Expedition: Two Years, Grand Ambitions"
-date: 2024-08-08T09:34:40.750Z
-updated: 2024-08-09T09:34:40.750Z
+date: 2024-11-03T06:07:25.376Z
+updated: 2024-11-04T18:23:47.500Z
 tags:
   - speak
   - english
@@ -20,10 +20,6 @@ thumbnail: https://thmb.techidaily.com/dd7a824e4ab8b6d6473fb0116a606a013dd12f046
 
  Two years ago we made that dream come true. We built a great language learning app and we made it our mission to offer everyone lessons in as many languages as possible.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ## On May 28 2014, Mondly
 
  We started small, but kept thinking big at every step of the way. Our developers, designers, language experts and translators all worked together to build a language learning app that’s easy to use, fun to learn with, and effective in real life situations.
@@ -34,9 +30,6 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 
  With this in mind, we give you an infographic about where Mondly stands today. From here on, sky’s the limit.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
-<!-- affiliate ads end -->
 Thank you for being a part of our journey ![Mondly - 2 Years Infografic](https://edge.mondly.com/blog/wp-content/uploads/2016/05/2years-Infographic-v3-scaled.png "2 Years Of Mondly Languages 2") ](https://edge.mondly.com/blog/wp-content/uploads/2016/05/2years-Infographic-v3.png)
 
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fhappy-2nd-birthday%2F&t=2+Years+of+Mondly+Languages "Share on Facebook")
@@ -52,8 +45,6 @@ Thank you for being a part of our journey ![Mondly - 2 Years Infografic](https:/
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -61,4 +52,33 @@ Thank you for being a part of our journey ![Mondly - 2 Years Infografic](https:/
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-clearshot-smoother-mobile-film-gadgetry-for-2024/"><u>[New] ClearShot Smoother - Mobile Film Gadgetry for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-essential-guide-top-10-steps-for-instructors-on-youtube-channels/"><u>[New] Essential Guide Top 10 Steps for Instructors on YouTube Channels</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-augment-your-cams-with-top-accessory-picks/"><u>2024 Approved Augment Your Cams with Top Accessory Picks</u></a></li>
+<li><a href="https://howto.techidaily.com/cellular-network-not-available-for-voice-calls-on-oneplus-12r-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Cellular Network Not Available for Voice Calls On OnePlus 12R | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-xiaomi-redmi-note-12-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Xiaomi Redmi Note 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-top-10-airplay-apps-in-honor-play-8t-for-streaming-drfone-by-drfone-android/"><u>In 2024, Top 10 AirPlay Apps in Honor Play 8T for Streaming | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introduccion-al-control-de-reloj-digital-en-espanol/"><u>Introducción Al Control De Reloj Digital en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jumpstart-on-japanese-number-acumen-today/"><u>Jumpstart on Japanese Number Acumen Today!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-lineage-unraveling-brazilian-and-eu-linguistic-roots/"><u>Language Lineage: Unraveling Brazilian & EU Linguistic Roots</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/majority-language-of-israeli-culture/"><u>Majority Language of Israeli Culture?</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-the-ultimate-mp4-video-editing-tutorial-mac-and-windows-edition/"><u>New The Ultimate MP4 Video Editing Tutorial Mac and Windows Edition</u></a></li>
+<li><a href="https://extra-support.techidaily.com/next-gen-spaceholders-unveiling-the-quintessential-cloud-providers-for-2024/"><u>Next-Gen Spaceholders Unveiling the Quintessential Cloud Providers for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oxford-3000-modern-mobile-learning-for-vocabulary-growth/"><u>Oxford 3000: Modern, Mobile Learning for Vocabulary Growth</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-videos-from-motorola-moto-g14-by-fonelab-android-recover-video/"><u>Possible solutions to restore deleted videos from Motorola Moto G14</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-inspirational-journey-of-johannes-honterus/"><u>The Inspirational Journey of Johannes Honterus</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-tapestry-of-english-threads-from-abroad/"><u>The Tapestry of English: Threads From Abroad</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-nye-goals-attainability-strategies/"><u>Top NYE Goals: Attainability Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/turkish-and-korean-linguistic-journey/"><u>Turkish and Korean Linguistic Journey</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlock-your-vivo-v29e-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>Unlock Your Vivo V29e Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Ukranian Proficiency in Piecemeal Daily Doses (105 Chars)
-date: 2024-08-15T17:45:33.857Z
-updated: 2024-08-16T17:45:33.857Z
+date: 2024-10-30T00:16:35.226Z
+updated: 2024-11-05T00:33:31.518Z
 tags:
   - speak
   - english
@@ -27,17 +27,12 @@ thumbnail: https://thmb.techidaily.com/f495fdc30704bb5311bdcea6bec28c308373dbaff
  Additionally, Ukrainian’s vocabulary also includes a large number of words borrowed from [Polish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) during the Polish rule from the 13th to the 17th centuries.
 
 <!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Is Ukrainian hard to learn?
 
  Due to being a Slavic language, Ukrainian is one of the hardest languages to learn by native English speakers. In fact, according to [the FSI](https://www.state.gov/foreign-language-training/) (Foreign Service Institute) of the US government, an English speaker would need about 1100 class hours or 44 weeks of practice to become fluent in Ukrainian. This makes Ukrainian as hard to learn as Polish, Icelandic or Finnish. However, you don’t have to get discouraged. Japanese, Chinese and Korean are still much harder to learn than Ukrainian.
@@ -45,8 +40,12 @@ thumbnail: https://thmb.techidaily.com/f495fdc30704bb5311bdcea6bec28c308373dbaff
  Besides, choosing the right [Ukrainian course](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6604&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6604?mother%5Flang=en%5Fus?target%5Flang=ua&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6604?mother%5Flang=en%5Fus?target%5Flang=ua) can work wonders. Read on to discover what is the best way to learn Ukrainian fast.
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Start with the Ukrainian alphabet
 
  One of the reasons why Ukrainian is a little bit harder to learn is its alphabet. As you probably already know, the Ukrainian language uses the same alphabet as Russian – the Cyrillic alphabet.
@@ -58,8 +57,12 @@ thumbnail: https://thmb.techidaily.com/f495fdc30704bb5311bdcea6bec28c308373dbaff
  And you know what’s the best thing about it? Almost all the words in Ukrainian can be pronounced the same way they are written. As soon as you will know how to pronounce each individual Ukrainian letter, you will also be able to read out loud in Ukrainian.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 10 basic Ukrainian words and phrases you can learn right now
 
  Are you excited to learn Ukrainian? Let’s start small. Here are the top 10 basic Ukrainian words and phrases that everyone should know:
@@ -78,8 +81,12 @@ thumbnail: https://thmb.techidaily.com/f495fdc30704bb5311bdcea6bec28c308373dbaff
  Here’s a glimpse of how some of these Ukrainian words sound when spoken by a fluent speaker:
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to learn Ukrainian fast with Mondly
 
  Now let’s discuss the real reason why you’re here: how to learn Ukrainian fast.
@@ -109,8 +116,6 @@ thumbnail: https://thmb.techidaily.com/f495fdc30704bb5311bdcea6bec28c308373dbaff
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -118,4 +123,24 @@ thumbnail: https://thmb.techidaily.com/f495fdc30704bb5311bdcea6bec28c308373dbaff
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-cutting-edge-ps2-games-simulation-for-ios-users/"><u>[New] Cutting-Edge PS2 Games Simulation for iOS Users</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-sound-of-success-audio-tips-to-elevate-your-youtube-experience/"><u>[New] The Sound of Success Audio Tips to Elevate Your YouTube Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578225825-2022-speak-anywhere-for-a-bargain-priced-language-bundle/"><u>2022: Speak Anywhere for a Bargain-Priced Language Bundle!</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-step-by-step-guide-to-brightening-gopro-footage/"><u>2024 Approved Step-by-Step Guide to Brightening GoPro Footage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beginners-primer-on-turkey-written-and-spoken-language-patterns/"><u>Beginner's Primer on Turkey' Written & Spoken Language Patterns</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/boost-your-tagalog-skills-10-minute-study-sessions/"><u>Boost Your Tagalog Skills - 10-Minute Study Sessions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/chinese-alphabet-introduction-to-chinese-letters/"><u>Chinese Alphabet: Introduction To Chinese Letters</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/comparing-youtube-policies-with-creative-commons/"><u>Comparing YouTube Policies with Creative Commons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-japanese-online-paths-for-independent-and-free-learning/"><u>Conquer Japanese: Online Paths for Independent and Free Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/descubrimiento-divertido-del-cuerpo-humano-en-espanol-del-pelo-al-rinon/"><u>Descubrimiento Divertido Del Cuerpo Humano en Español: Del Pelo Al Riñón</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/die-deutsche-sprache-zur-reue-nutzen/"><u>Die Deutsche Sprache Zur Reue Nutzen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/difficulty-levels-studying-german/"><u>Difficulty Levels: Studying German</u></a></li>
+<li><a href="https://program-issues.techidaily.com/fixing-the-re5-launch-problem-on-your-windows-machine-solutions-inside/"><u>Fixing the RE5 Launch Problem on Your Windows Machine - Solutions Inside</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-life360-shows-wrong-location-on-motorola-razr-40-ultra-drfone-by-drfone-virtual-android/"><u>How to Fix Life360 Shows Wrong Location On Motorola Razr 40 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-expert-tips-capturing-high-quality-whatsapp-voice-transcripts/"><u>In 2024, Expert Tips Capturing High-Quality WhatsApp Voice Transcripts</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-superior-choices-4k-screen-recorder-programs/"><u>In 2024, Superior Choices 4K Screen Recorder Programs</u></a></li>
+<li><a href="https://blog-min.techidaily.com/remote-access-setup-with-rdc-for-windows-11-users-essential-tips-and-tricks/"><u>Remote Access Setup with RDC for Windows 11 Users: Essential Tips and Tricks</u></a></li>
+</ul></div>
 

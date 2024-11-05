@@ -1,7 +1,7 @@
 ---
 title: The Science Behind Mondly's Learning
-date: 2024-10-25T09:49:09.316Z
-updated: 2024-10-30T10:26:55.382Z
+date: 2024-11-01T04:13:09.001Z
+updated: 2024-11-04T21:12:11.715Z
 tags:
   - speak
   - english
@@ -43,10 +43,16 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
  Basically, what happens in the app is that new and more difficult words or phrases will be shown together with older and less difficult ones. But as you progress, the old information will be shown less and less frequently than the new one. This technique makes sure that the information you learned is well-cemented in your brain before moving on to new concepts.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993645">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Lexical coverage: focus on the most common words
@@ -58,10 +64,10 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 ![lexical coverage](https://edge.mondly.com/blog/wp-content/uploads/2021/10/lexical-coverage-960x761.png "The Learning Method Behind Mondly 5")
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
+  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lexical coverage overview
@@ -76,10 +82,10 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Take Mondly for a test drive
@@ -107,19 +113,18 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-action-in-full-hd-top-7-camcorders-for-thrills/"><u>[New] In 2024, Action in Full HD Top 7 Camcorders for Thrills</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-stream-with-clarity-ranking-the-best-6-microphones-today/"><u>[New] Stream with Clarity Ranking the Best 6 Microphones Today</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-precision-in-visuals-how-to-blur-backgrounds-on-teamblend-for-2024/"><u>[Updated] Precision in Visuals How to Blur Backgrounds on Teamblend for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-unboxing-mastery-the-soundtrack-selection-guidebook/"><u>[Updated] Unboxing Mastery The Soundtrack Selection Guidebook</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/3-best-tools-to-hard-reset-tecno-spark-20-pro-drfone-by-drfone-reset-android-reset-android/"><u>3 Best Tools to Hard Reset Tecno Spark 20 Pro | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bangla-easy-routine-10-mins/"><u>Bangla Easy Routine (10 Mins)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/chinese-expression-of-gratitude-beyond-xiexie/"><u>Chinese Expression of Gratitude: Beyond Xièxiè</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/comprendre-lanatomie-fondamentale-parts-of-the-body-in-french-156-characters/"><u>Comprendre L'Anatomie Fondamentale: Parts of the Body in French (156 Characters)</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/digital-companion-in-natures-unpredictability/"><u>Digital Companion in Nature's Unpredictability</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/diving-into-pt-buttons-brazilians-vs-europeans/"><u>Diving Into PT Buttons: Brazilians Vs. Europeans</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dynamic-discoveries-with-lively-language-lessons/"><u>Dynamic Discoveries with Lively Language Lessons</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-a-lost-honor-magic-5-pro-for-free-drfone-by-drfone-virtual-android/"><u>How to Track a Lost Honor Magic 5 Pro for Free? | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-tecno-spark-20-propluswithwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Tecno Spark 20 Pro+with/without a PC</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210722505-9781797224367-luminous-dreams/"><u>Luminous Dreams | Free Book</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-chart-a-course-to-6-figure-growth-with-powerful-tags/"><u>[New] In 2024, Chart a Course to 6-Figure Growth with Powerful #Tags</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-essential-tips-for-crop-and-export-videos-for-instagram/"><u>[Updated] In 2024, Essential Tips for Crop & Export Videos for Instagram</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-innovative-techniques-for-enhancing-youtube-audio/"><u>[Updated] Innovative Techniques for Enhancing YouTube Audio</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-sierra-sovereign-dvd-and-media-cutting-tools/"><u>2024 Approved Sierra Sovereign Dvd & Media Cutting Tools</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/jpeg-file-converter-websites-edit-photos-at-no-cost-with-top-services/"><u>JPEG File Converter Websites: Edit Photos at No Cost with Top Services</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revolutionary-applications-for-rapid-vocabulary-growth/"><u>Revolutionary Applications for Rapid Vocabulary Growth</u></a></li>
+<li><a href="https://win-answers.techidaily.com/say-goodbye-to-arma-3-game-freezes-innovative-fixes-and-optimization-tips-released/"><u>Say Goodbye to Arma 3 Game Freezes: Innovative Fixes & Optimization Tips Released</u></a></li>
+<li><a href="https://win-reviews.techidaily.com/ssdhdd-windows-10-os/"><u>SSDへのスムーズなHDDからの Windows 10 OS 転送手順を学ぶ！</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/start-the-year-smart-savings-alert-on-mondly-premium-up-to-96-off/"><u>Start the Year Smart - Savings Alert on Mondly Premium, Up to 96% Off!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essentials-of-polite-expression-learning-xiexie/"><u>The Essentials of Polite Expression: Learning Xièxiè</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/the-lightweight-contender-a-comprehensive-review-of-the-lenovo-thinkpad-x1-nano/"><u>The Lightweight Contender - A Comprehensive Review of the Lenovo ThinkPad X1 Nano</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-spanish-verb-conjugations/"><u>The Ultimate Guide to Spanish Verb Conjugations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlimited-unbeatable-mondly-savings/"><u>Unlimited, Unbeatable Mondly Savings</u></a></li>
 </ul></div>
 

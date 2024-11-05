@@ -1,7 +1,7 @@
 ---
 title: Mondly Collaborates with Pearson Back on Filter Feature
-date: 2024-10-12T00:29:39.593Z
-updated: 2024-10-18T18:29:29.990Z
+date: 2024-10-28T17:14:58.896Z
+updated: 2024-11-04T18:40:55.119Z
 tags:
   - speak
   - english
@@ -40,10 +40,10 @@ thumbnail: https://thmb.techidaily.com/fa206782af9b714e31a62f7ae5d0a20ed9b793265
  At Pearson, our purpose is simple: to add life to a lifetime of learning. We believe that every learning opportunity is a chance for a personal breakthrough. That’s why our c.20,000 Pearson employees are committed to creating vibrant and enriching learning experiences designed for real-life impact. We are the world’s leading learning company, serving customers in more than 200 countries with digital content, assessments, qualifications, and data. For us, learning isn’t just what we do. It’s who we are. Visit us at pearsonplc.com
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **About Mondly**
@@ -67,17 +67,17 @@ thumbnail: https://thmb.techidaily.com/fa206782af9b714e31a62f7ae5d0a20ed9b793265
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-boost-your-online-presence-tips-and-techniques-for-exceptional-fb-profiles/"><u>[New] Boost Your Online Presence Tips and Techniques for Exceptional FB Profiles</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/he-economics-of-t-series-a-deep-dive-into-youtube-earnings/"><u>[New] The Economics of T-Series A Deep Dive Into YouTube Earnings</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-exploring-snapchats-top-stories/"><u>[Updated] 2024 Approved Exploring Snapchat's Top Stories</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-how-to-access-government-recorded-content-for-free-online/"><u>2024 Approved How to Access Government-Recorded Content for Free Online</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/age-defying-linguistic-skills-post-fifty-milestone/"><u>Age-Defying Linguistic Skills Post-Fifty Milestone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/communicate-with-command-ultimate-training-techniques/"><u>Communicate with Command: Ultimate Training Techniques</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/euro-dialects-revealed-europes-language-festival-today/"><u>Euro-Dialects Revealed – Europe's Language Festival Today</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/exploring-the-power-of-minimalism-with-xbox-series-s-a-review-of-its-unmatched-performance-and-size-advantage/"><u>Exploring the Power of Minimalism with Xbox Series S: A Review of Its Unmatched Performance and Size Advantage</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/french-pronunciation-basics-for-first-timers/"><u>French Pronunciation Basics for First-Timers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/profiling-highest-numbers-of-speakers-in-each-country-written-in-french/"><u>Profiling Highest Numbers of Speakers in Each Country' Written In French</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/simplifying-the-process-of-enabling-virtual-screen-on-meet-for-2024/"><u>Simplifying the Process of Enabling Virtual Screen on Meet for 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/step-by-step-solution-to-get-valorant-running-smoothly-on-your-computer-2024-edition/"><u>Step-by-Step Solution to Get Valorant Running Smoothly on Your Computer - 2024 Edition</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-snapchat-selfie-aspect-ratios/"><u>[New] 2024 Approved Snapchat Selfie Aspect Ratios</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/isable-unsolicited-youtube-video-listings/"><u>[New] Disable Unsolicited YouTube Video Listings</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-a-treasure-trove-of-premium-youtube-images-from-6-websites/"><u>[Updated] 2024 Approved A Treasure Trove of Premium YouTube Images From 6 Websites</u></a></li>
+<li><a href="https://howto.techidaily.com/6-solutions-to-fix-error-505-in-google-play-store-on-zte-blade-a73-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Solutions to Fix Error 505 in Google Play Store on ZTE Blade A73 5G | Dr.fone</u></a></li>
+<li><a href="https://program-issues.techidaily.com/enhanced-stability-now-in-disco-elysium-for-a-smoother-pc-experience/"><u>Enhanced Stability Now in Disco Elysium for a Smoother PC Experience</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/explore-these-7-virtual-playgrounds-the-ultimate-game-selection-for-kids/"><u>Explore These 7 Virtual Playgrounds: The Ultimate Game Selection for Kids</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-why-is-ipogo-not-working-on-apple-iphone-11-pro-max-fixed-drfone-by-drfone-virtual-ios/"><u>In 2024, Why is iPogo not working On Apple iPhone 11 Pro Max? Fixed | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leap-into-latin-top-online-educational-platforms/"><u>Leap Into Latin: Top Online Educational Platforms</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/reliable-user-guide-to-fix-motorola-g24-power-running-slow-and-freezing-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reliable User Guide to Fix Motorola G24 Power Running Slow and Freezing | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-fundamentals-of-fluent-russian-communication/"><u>The Fundamentals of Fluent Russian Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-worldwide-hispanic-voice-network/"><u>The Worldwide Hispanic Voice Network</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/valkommen-till-sverige-svensk-valkomman/"><u>Välkommen Till Sverige: Svensk Välkomman</u></a></li>
 </ul></div>
 

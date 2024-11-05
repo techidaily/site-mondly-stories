@@ -1,7 +1,7 @@
 ---
 title: "Step-By-Step Guide: Easy Online Latino Study"
-date: 2024-08-08T09:33:46.806Z
-updated: 2024-08-09T09:33:46.806Z
+date: 2024-10-29T00:03:51.031Z
+updated: 2024-11-05T02:44:23.805Z
 tags:
   - speak
   - english
@@ -20,18 +20,12 @@ _Vox populi_ (“the voice of the people”) has spoken! Due to popular demand,*
 
 _Ergo_ (“therefore”), the easiest way to learn Latin online is now literally at your fingertips with Mondly. So what are you waiting for? **C_arpe diem_ (“seize the day”)** and start mastering the Latin language right now!
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![latin courses](https://edge.mondly.com/blog/wp-content/uploads/2020/02/latin-courses-277x600.jpg "This Is The Easiest Way To Learn Latin Online 2")
 
  Learn Latin with Mondly
 
  If you are wondering why Latin, a dead language, was added to Mondly’s language portfolio and – most importantly – what are the reasons to learn Latin, continue reading the following paragraphs and your questions shall be answered._Mihi crede‌_ (“trust me”).
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ## The Latin language, the core of Romance languages
 
  Originally spoken in Rome, the Latin language has then spread together with the increase of the Roman empire and later developed into the Romance languages we all know today: Italian, French, Portuguese, Romanian, Catalan and Spanish.
@@ -40,9 +34,6 @@ _Ergo_ (“therefore”), the easiest way to learn Latin online is now literally
 
  Additionally,**Latin has also highly influenced English** through ecclesiastical usage and writers who borrowed words that we still use today.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
 ![latin language](https://edge.mondly.com/blog/wp-content/uploads/2020/02/latin-language-600x450.jpg "This Is The Easiest Way To Learn Latin Online 3")
 
  “Hercules furens” by Seneca.
@@ -50,8 +41,12 @@ _Ergo_ (“therefore”), the easiest way to learn Latin online is now literally
 _Ergo_ , history makes Latin the backbone of many present-day languages and studying it could help you gain valuable insight into the infrastructure of many other languages.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Latin grammar and the Latin alphabet
 
  The Latin alphabet that many languages use today evolved from the visually similar Etruscan alphabet, which – in turn – evolved from the Cumaean Greek version of the Greek alphabet, which was itself descended from the Phoenician alphabet that derived from Egyptian hieroglyphics. As a result of Etruscans ruling early Rome, over time, their alphabet developed into the Latin alphabet that many centuries later became the writing system we all know today.
@@ -61,8 +56,12 @@ A fascinating origin story, isn’t it?
  With three distinct genders, up to seven noun cases, five declensions, four verb conjugations, six tenses, three persons, three moods, two voices, two or three aspects and two numbers, Latin grammar may seem complicated. But once you start your Latin classes with Mondly and learn to read Latin, you’ll be surprised how fast you can actually master this language due to the knowledge you already possess.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Common Latin phrases and expressions we still use today
 
  **Far from being a dead language, Latin is very much alive in our day-to-day conversations.** _Carpe diem_ ,_et cetera_ ,_et alii_ ,_habemus papam_ ,_in vitro_ ,_magna cum laude_ ,_curriculum vitae_ and_mea culpa_ are just a few of the [Latin phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) we still use today.
@@ -90,8 +89,12 @@ A fascinating origin story, isn’t it?
 * _amor vincit omnia_ – love conquers all (is also the name of a painting by the Italian Baroque artist Caravaggio)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Reasons to learn Latin
 
  Forget about the Latin dictionary and the countless hours of studying Latin grammar. **The best way to learn Latin is online,[for free with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4492&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4492?mother%5Flang=en%5Fus?target%5Flang=la&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4492?mother%5Flang=en%5Fus?target%5Flang=la) .**
@@ -109,6 +112,13 @@ A fascinating origin story, isn’t it?
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Start learning Latin today
 
  The Latin language is no longer is secret code meant only for scholars or the Catholic Church. Starting right now, you can learn Latin with Mondly using bite-sized lessons and practical topics to help you discover how Romans conversed in their day-to-day life.
@@ -123,8 +133,6 @@ A fascinating origin story, isn’t it?
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -132,4 +140,19 @@ A fascinating origin story, isn’t it?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-pro-mac-photography-discovering-the-best-5-screen-shots-ways/"><u>[New] Pro Mac Photography Discovering the Best 5 Screen Shots Ways</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/beginning-virtual-conversations-zoom-meeting-setup-for-android-users/"><u>Beginning Virtual Conversations Zoom Meeting Setup for Android Users</u></a></li>
+<li><a href="https://driver-install.techidaily.com/digital-signatures-missing-case-closed/"><u>Digital Signatures Missing, Case Closed</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/raw-to-refined-mastering-the-art-of-pc-video-editing-on-windows/"><u>From Raw to Refined Mastering the Art of PC Video Editing on Windows</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/gpt-powered-text-interaction-for-paper-files/"><u>GPT-Powered Text Interaction for Paper Files</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-multiple-tongues-with-black-fridays-ultimate-sale/"><u>Master Multiple Tongues with Black Friday's Ultimate Sale</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pc-gaming-troubles-why-is-my-rec-room-mic-not-working-fixes-and-tips-latest-guide/"><u>PC Gaming Troubles: Why Is My Rec Room Mic Not Working? Fixes & Tips (Latest Guide)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/say-gday-like-a-true-blue-aussie/"><u>Say 'G'day!' Like a True Blue Aussie</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/top-6-ways-to-transfer-text-messages-from-xiaomi-redmi-a2plus-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 6 Ways to Transfer Text Messages from Xiaomi Redmi A2+ to Other Android Devices | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-japans-language-of-respect-and-friendship/"><u>Unlocking Japan's Language of Respect & Friendship</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ling-the-hidden-treasures-youtubes-top-makeup-talents/"><u>Unveiling the Hidden Treasures YouTube's Top Makeup Talents</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/zestfully-mastering-latin-through-games/"><u>Zestfully Mastering Latin Through Games</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Le Ciel Et Terre: Les Mots Du Week-End"
-date: 2024-08-08T09:32:51.723Z
-updated: 2024-08-09T09:32:51.723Z
+date: 2024-10-29T21:34:58.871Z
+updated: 2024-11-04T20:56:34.491Z
 tags:
   - speak
   - english
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/c8dbce1c74281f36fde9f94890a2f512f0b16b026
 
  If “a day” is_un jour_ in French and “a week” is_une semaine_ , it may also be useful to know that “the days of the week” is “_les jours de la semaine”_ . Now let’s see how fast you can learn all seven days of the week_en français_ .
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Days of the week in French
 
 The days of the week in French are:
@@ -77,8 +74,12 @@ The days of the week in French are:
  Planning to spend an entire week in France? Dont stop at_les jours de la semaine en français_ . French people are known to be proud of their language and heritage. Surprise them with your French skills and go beyond “Friday” in French with these [100+ French travel phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . You’ll thank me later.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Usage rules
 
  One more thing before you go. To make sure you are using your newly acquired French days of the week correctly, don’t forget that:
@@ -114,8 +115,6 @@ The days of the week in French are:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -123,4 +122,26 @@ The days of the week in French are:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-behind-the-scenes-of-making-memes-funny-for-2024/"><u>[New] Behind-the-Scenes of Making Memes Funny for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-essentials-of-youtube-mastery-free-online-course-series/"><u>[New] In 2024, Essentials of YouTube Mastery Free Online Course Series</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-unveiling-the-secrets-how-to-save-your-google-meet/"><u>[New] Unveiling the Secrets How to Save Your Google Meet</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-linklister-video-grab-from-fb-groups-for-2024/"><u>[Updated] LinkLister Video Grab From FB Groups for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/cutting-edge-ai-engagement-ultimate-course-guide/"><u>Cutting-Edge AI Engagement: Ultimate Course Guide</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/improve-your-audio-setup-with-free-behringer-usb-driver-download/"><u>Improve Your Audio Setup with Free Behringer USB Driver Download</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-free-location-spoofers-to-fake-gps-location-on-your-realme-gt-5-240w-drfone-by-drfone-virtual/"><u>In 2024, 10 Free Location Spoofers to Fake GPS Location on your Realme GT 5 (240W) | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-capturing-the-cloud-techniques-for-digital-show-archives/"><u>In 2024, Capturing the Cloud Techniques for Digital Show Archives</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-out-loud-crafting-humorous-video-ideas-for-short-films/"><u>Laugh Out Loud Crafting Humorous Video Ideas for Short Films</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/launching-the-next-gen-faq-platform-with-mondly/"><u>Launching the Next-Gen FAQ Platform with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lundi-semaine-francais/"><u>Lundi Semaine Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-seizes-spot-on-apples-top-10-ed-tech-leaders-board/"><u>Mondly Seizes Spot on Apple’s Top 10 Ed-Tech Leaders Board</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/parallel-phrase-perfection/"><u>Parallel Phrase Perfection</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rune-carved-rhetoric-the-voice-of-vikings-unveiled/"><u>Rune-Carved Rhetoric: The Voice of Vikings Unveiled</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/syma-x5c-rc-quadcopter-evaluation-exceptional-entry-level-performance-at-a-reasonable-price-point/"><u>SYMA X5C R/C Quadcopter Evaluation - Exceptional Entry-Level Performance at a Reasonable Price Point</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-elder-speeches-of-humanitys-heritage/"><u>The Elder Speeches of Humanity’s Heritage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-oldest-languages-a-global-comparison/"><u>The Oldest Languages: A Global Comparison</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-the-power-of-basic-russian-salutations/"><u>Unlocking the Power of Basic Russian Salutations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/word-warriors-in-search-of-greatest-lexicon-gigantic/"><u>Word Warriors in Search of Greatest Lexicon Gigantic</u></a></li>
+</ul></div>
 

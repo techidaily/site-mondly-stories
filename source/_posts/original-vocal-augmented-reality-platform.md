@@ -1,7 +1,7 @@
 ---
 title: Original Vocal Augmented Reality Platform
-date: 2024-10-17T18:44:43.475Z
-updated: 2024-10-18T20:18:55.164Z
+date: 2024-10-30T08:22:36.836Z
+updated: 2024-11-04T23:29:03.238Z
 tags:
   - speak
   - english
@@ -43,10 +43,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 > _We started working on Mondly AR in August 2017 and by the time [Blade Runner 2049](http://www.imdb.com/title/tt1856101/) was released, we already had a working demo. Watching Blade Runner 2049 made me realize that we were beginning to build the future. To me, Joi (the holographic companion of officer K) looked like a super advanced version of Mondly – the character we were creating. They can both understand speech, reply with a human voice and change outfits. Of course, Mondly is not as smart and realistic as Joi. Yet. But she can teach you 7 languages. And this is just the beginning._
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Here’s what you should know about Mondly AR
@@ -65,10 +65,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facts and figures about Mondly
@@ -85,16 +85,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 * [Mondly Press Kit](https://www.dropbox.com/sh/vo4j5214zvwdxy5/AAC20VxIgpuiEe7ED2%5F37VNEa?dl=0)
 
 <!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Media mentions about Mondly
@@ -126,17 +120,17 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-cutting-edge-methods-backing-up-iphone-photos-to-snapchat/"><u>[New] Cutting-Edge Methods Backing Up iPhone Photos to Snapchat</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-in-2024-day-after-evaluation-new-approaches/"><u>[New] In 2024, Day After Evaluation New Approaches</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/a-guide-xiaomi-mix-fold-3-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>A Guide Xiaomi Mix Fold 3 Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/brussels-chatter-multilingualism-at-work/"><u>Brussels Chatter: Multilingualism at Work</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/honoring-the-legacy-of-a-school-for-life/"><u>Honoring the Legacy of a School for Life</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-xiaomi-mix-fold-3-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Xiaomi Mix Fold 3 | Dr.fone</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-how-to-choose-between-filmora-and-democreator/"><u>In 2024, How to Choose Between Filmora and Democreator</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-windows-best-video-talks-ranked-1-8/"><u>In 2024, Windows' Best Video Talks Ranked #1-8</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/jour-de-la-france-jour-de-la-semaine/"><u>Jour De La France, Jour De La Semaine</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-nippons-script-a-comprehensive-handbook/"><u>Mastering Nippon's Script: A Comprehensive Handbook</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719578605036-norwegian-prosperity-in-quick-regular-doses/"><u>Norwegian Prosperity in Quick, Regular Doses</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/ultimate-solution-for-idt-hd-sound-card-compatibility-with-windows-11-drivers/"><u>Ultimate Solution for IDT HD Sound Card Compatibility with Windows 11 Drivers</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-5-prime-fb-video-extractor-guide/"><u>[Updated] 2024 Approved 5 Prime FB Video Extractor Guide</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-ideal-microphone-logging-software-on-mac-devices-compile-the-best-5-for-2024/"><u>[Updated] Ideal Microphone Logging Software on Mac Devices Compile the Best 5 for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-efficient-methods-for-video-to-dvd-conversion-in-macos/"><u>2024 Approved Efficient Methods for Video-to-DVD Conversion in MacOS</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/choosing-between-ipad-pro-and-ipad-air-the-ultimate-comparison-for-your-perfect-apple-tablet-insights-from-zdnet/"><u>Choosing Between iPad Pro and iPad Air: The Ultimate Comparison for Your Perfect Apple Tablet - Insights From ZDNet</u></a></li>
+<li><a href="https://games-able.techidaily.com/combating-steams-inability-to-validate-games/"><u>Combating Steam's Inability to Validate Games</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/germany-embraces-mondly-the-ultimate-language-portal/"><u>Germany Embraces Mondly - The Ultimate Language Portal</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-motorola-moto-e13-in-5-easy-ways-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Motorola Moto E13 in 5 Easy Ways | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jingle-bells-around-the-world-santas-tongue/"><u>Jingle Bells Around the World - Santa's Tongue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-button-new-ways-mondly-enriches-oculus-quest-interactions/"><u>New Button, New Ways: Mondly Enriches Oculus Quest Interactions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revolutionize-your-language-journey-with-mondlys-immersive-vr-solutions/"><u>Revolutionize Your Language Journey with Mondly's Immersive VR Solutions</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/toms-comprehensive-hardware-analysis-and-expert-advice/"><u>Tom's Comprehensive Hardware Analysis and Expert Advice</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-easter-greetings-across-languages/"><u>Worldwide Easter Greetings Across Languages</u></a></li>
 </ul></div>
 

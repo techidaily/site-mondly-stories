@@ -1,7 +1,7 @@
 ---
 title: Get Set to Engage with the Newest AI Discussion Partner
-date: 2024-08-08T09:37:00.831Z
-updated: 2024-08-09T09:37:00.831Z
+date: 2024-11-01T23:16:55.682Z
+updated: 2024-11-05T07:27:25.197Z
 tags:
   - speak
   - english
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/d2b7e4746fe693895b4178e4d3a3d7272df65f201
 
  Ever wished for a tutor that’s available 24/7 and helps you build your confidence when speaking English? We’ve got good news for you. **Soon you’ll have the opportunity to practice your English language skills with your new AI Conversation Partner.** The waitlist is now open and you can register to be among the first learners to meet LUNA.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Get Ready To Meet Your New Ai Conversation Partner 2")
 
 ##### Join the waitlist now
@@ -39,9 +36,6 @@ thumbnail: https://thmb.techidaily.com/d2b7e4746fe693895b4178e4d3a3d7272df65f201
 
  Mondly by Pearson’s new AI conversation partner changes all of this. An innovative new way to take you one step closer to achieving your language goals. Say hello to LUNA.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Why LUNA?
 
 * LUNA is powered by AI. So she will not judge you, speak over you, try to complete your sentence, or get bored. She will listen, respond, help you understand when you don’t get it 100% right, and she will do that as many times as you need to build your confidence.
@@ -57,8 +51,12 @@ thumbnail: https://thmb.techidaily.com/d2b7e4746fe693895b4178e4d3a3d7272df65f201
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### About Mondly by Pearson
 
  Mondly by Pearson is a leading online language learning platform that enables over 100 million learners from 190 countries to learn 41 languages. Launched in 2014, it quickly became a household name in the mobile space, reaching the #1 position in Education in most European countries, LATAM and Asia. Mondly is also a pioneer in VR Education, with its most recent launch on Meta Quest being in the top 10 VR apps worldwide.
@@ -73,8 +71,6 @@ thumbnail: https://thmb.techidaily.com/d2b7e4746fe693895b4178e4d3a3d7272df65f201
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -82,4 +78,20 @@ thumbnail: https://thmb.techidaily.com/d2b7e4746fe693895b4178e4d3a3d7272df65f201
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-drive-more-traffic-effective-strategies-for-youtube-outros-for-2024/"><u>[New] Drive More Traffic Effective Strategies for YouTube Outros for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-picsart-in-detail-the-ultimate-guide-to-2024-updates/"><u>[New] PicsArt in Detail The Ultimate Guide to 2024 Updates</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/1-official-release-the-ultimate-macxdvd-suite-hd-dvd-ripping-and-video-editing-tools-for-free/"><u>1. [Official Release] The Ultimate MacXDVD Suite: HD DVD Ripping & Video Editing Tools for Free</u></a></li>
+<li><a href="https://win-answers.techidaily.com/beat-installation-hurdles-steps-to-get-minecraft-up-and-running-on-windows-11-systems/"><u>Beat Installation Hurdles: Steps to Get Minecraft Up and Running on Windows 11 Systems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/break-barriers-learn-languages-anywhere-mondlys-vr-language-program/"><u>Break Barriers, Learn Languages Anywhere - Mondly's VR Language Program</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/crafting-personalized-intelligent-agents-gpt-driven-chatgpt/"><u>Crafting Personalized Intelligent Agents: GPT-Driven ChatGPT</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevate-conversations-with-these-top-50-latin-quotables/"><u>Elevate Conversations with These Top 50 Latin Quotables</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embarking-on-the-most-suitable-new-language-learning-adventure/"><u>Embarking On The Most Suitable New Language Learning Adventure</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-7-to-other-iphone-12-pro-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 7 To Other iPhone 12 Pro devices? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581366510-huaweis-appgallery-unveils-new-player-mondly/"><u>Huawei's AppGallery Unveils New Player, Mondly!</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/mastering-time-management-the-ultimate-guide-to-4-favorite-free-internet-calendars/"><u>Mastering Time Management: The Ultimate Guide to 4 Favorite Free Internet Calendars</u></a></li>
+<li><a href="https://fox-info.techidaily.com/rhythm-made-simple-top-online-analyzers-to-try-now-for-free-for-2024/"><u>Rhythm Made Simple Top Online Analyzers to Try Now for Free for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/tackling-invalid-profile-error-windows-xpvista7-solution/"><u>Tackling Invalid Profile Error: Windows XP/Vista/7 Solution</u></a></li>
+</ul></div>
 

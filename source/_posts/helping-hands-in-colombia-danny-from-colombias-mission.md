@@ -1,7 +1,7 @@
 ---
 title: "Helping Hands in Colombia: Danny From Colombia’s Mission"
-date: 2024-08-08T09:32:52.735Z
-updated: 2024-08-09T09:32:52.735Z
+date: 2024-10-29T02:58:17.399Z
+updated: 2024-11-04T18:04:32.217Z
 tags:
   - speak
   - english
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/cf02c6036067d0c7d674a2cb9ff43dfe3d71cfa78
 
  **One of the causes dearest to our heart is [Fundación Danny](http://www.fundaciondanny.org/) from Colombia to whom we donated 150 Premium subscriptions in an effort to help them make language learning accessible for Colombian children.**
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![fundacion danny mondly](https://edge.mondly.com/blog/wp-content/uploads/2020/03/fundacion-danny-mondly-600x450.jpg "Helping Those Who Need It Most: Fundación Danny From Colombia 2")
 
  Colombian children attending the Danny Foundation courses.
@@ -33,16 +30,10 @@ thumbnail: https://thmb.techidaily.com/cf02c6036067d0c7d674a2cb9ff43dfe3d71cfa78
 
  **DANNY stands for Developing Aptitudes for a New Nation and Youth.**
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Unlocking the power of social good
 
  When Andrés Rodríguez, the director of Danny Foundation, first came for our help, we knew right away we had to do it. For the children and adolescents that attend the foundations’ courses, language learning is not just a hobby, but the key to success. This is why we wanted to give them the opportunity to experience the transformational power of learning English with Mondly.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ![danny foundation mondly](https://edge.mondly.com/blog/wp-content/uploads/2020/03/danny-foundation-mondly-468x600.jpg "Helping Those Who Need It Most: Fundación Danny From Colombia 3")
 
  Graduation at the Danny Foundation.
@@ -61,8 +52,12 @@ thumbnail: https://thmb.techidaily.com/cf02c6036067d0c7d674a2cb9ff43dfe3d71cfa78
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Learn a new language in just 10 minutes a day
 
  If the story of the Colombian children from the Danny Foundation inspired you to invest in yourself, you can start learning a new language right now with Mondly.
@@ -81,8 +76,6 @@ thumbnail: https://thmb.techidaily.com/cf02c6036067d0c7d674a2cb9ff43dfe3d71cfa78
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -90,4 +83,21 @@ thumbnail: https://thmb.techidaily.com/cf02c6036067d0c7d674a2cb9ff43dfe3d71cfa78
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-enduring-seamlessness-direct-profile-url-insertion-guide/"><u>[New] Enduring Seamlessness Direct Profile URL Insertion Guide</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-sims-4-gametime-the-recorders-handbook-for-2024/"><u>[New] Sims 4 Gametime The Recorder's Handbook for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nderstanding-youtubes-earnings-structure/"><u>[New] Understanding YouTube's Earnings Structure</u></a></li>
+<li><a href="https://common-error.techidaily.com/handled-problem-unsuccessful-writing-attempt-at-0xpointed-out-memory-spot/"><u>Handled Problem: Unsuccessful Writing Attempt at 0XPointed-Out Memory Spot</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-exceptional-book-video-examples/"><u>In 2024, Exceptional Book Video Examples</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-reimagining-art-top-6-influencers-shaping-nft-culture/"><u>In 2024, Reimagining Art Top 6 Influencers Shaping NFT Culture</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/innovate-with-ai-navigating-the-features-and-capabilities-of-the-openai-platform/"><u>Innovate with AI: Navigating the Features and Capabilities of the OpenAI Platform</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-simplifies-global-dialogue-with-new-words/"><u>Mondly Simplifies Global Dialogue with New Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navegacion-basica-del-reloj-digital-en-espanol/"><u>Navegación Básica Del Reloj Digital en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/perfect-pronunciation-and-expression-essential-french-phrases-for-proficiency/"><u>Perfect Pronunciation & Expression: Essential French Phrases for Proficiency</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolve-windows-11s-unresponsive-hdmi-tv-detection-with-these-easy-fixes/"><u>Resolve Windows 11'S Unresponsive HDMI TV Detection with These Easy Fixes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-comparative-voice-analyzing-spanish-vs-portuguese-dialects/"><u>The Comparative Voice: Analyzing Spanish Vs. Portuguese Dialects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/translate-intrigue-become-fluent-in-squid-games-language/"><u>Translate Intrigue: Become Fluent in Squid Game's Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-multilingual-potential-duration-matters/"><u>Unlocking Multilingual Potential: Duration Matters</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Latest Notice: Data Handling Guidelines"
-date: 2024-08-08T09:36:12.128Z
-updated: 2024-08-09T09:36:12.128Z
+date: 2024-11-01T02:32:23.130Z
+updated: 2024-11-05T01:12:19.859Z
 tags:
   - speak
   - english
@@ -16,9 +16,6 @@ thumbnail: https://thmb.techidaily.com/50da58587d7473ccea973193c5c4bacc32476fa35
 
 ## Latest Notice: Data Handling Guidelines
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
-<!-- affiliate ads end -->
 ## Mondly Languages Privacy Policy
 
  This privacy policy explains how personal data will be used by Mondly in relation to the language learning products and services that link to this policy.
@@ -179,17 +176,12 @@ We use Google, Facebook, TikTok and LinkedIn cookies.
 **How does our site handle Do Not Track signals?** Currently, we don’t honor “Do Not Track” signals.
 
 <!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Terms of use – Mondly App
 
 **1\. Scope**
@@ -282,8 +274,6 @@ We use Google, Facebook, TikTok and LinkedIn cookies.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -291,4 +281,26 @@ We use Google, Facebook, TikTok and LinkedIn cookies.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-skills.techidaily.com/new-perfect-panning-top-techniques-for-cricket-live-views/"><u>[New] Perfect Panning Top Techniques for Cricket Live Views</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-obs-tutorial-for-instagram-live-streams-your-ultimate-reference/"><u>[Updated] In 2024, OBS Tutorial for Instagram Live Streams Your Ultimate Reference</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/engaging-spanish-learning-for-kids-games-songs-and-activities/"><u>Engaging Spanish Learning for Kids: Games, Songs, and Activities</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-and-engage-with-fun-latin-lessons/"><u>Explore & Engage with Fun Latin Lessons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-with-ease-google-play-best-app-mondly-kids-experience/"><u>Explore with Ease! Google Play Best App: Mondly Kids Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressive-shades-in-french-quickly-learned/"><u>Expressive Shades in French Quickly Learned</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/film-based-learning-strategies-for-eloquent-communication/"><u>Film-Based Learning: Strategies for Eloquent Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/freedom-to-learn-honoring-1500-fee-free-lessons-daily/"><u>Freedom to Learn: Honoring 1500 Fee-Free Lessons Daily</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-confusion-to-clarity-understanding-english-contraction-rules/"><u>From Confusion to Clarity: Understanding English Contraction Rules</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/frying-fundamentals-for-the-ultimate-fried-egg-experience-87-characters/"><u>Frying Fundamentals for the Ultimate Fried Egg Experience (87 Characters)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/future-lexicons-shaping-tomorrows-language-landscapes/"><u>Future Lexicons: Shaping Tomorrow's Language Landscapes</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/hassle-free-photo-and-video-upload-ios-device/"><u>Hassle-Free Photo & Video Upload IOS Device</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-broken-video-files-of-oppo-find-x7-ultra-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair Broken video files of Oppo Find X7 Ultra?</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-in-2024-unbiased-comparison-final-cut-pro-and-lumafusion-for-video-editors/"><u>New In 2024, Unbiased Comparison Final Cut Pro and LumaFusion for Video Editors</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-your-pictures-after-sony-xperia-5-v-has-been-deleted-by-fonelab-android-recover-pictures/"><u>Recover your pictures after Sony Xperia 5 V has been deleted.</u></a></li>
+<li><a href="https://windows11.techidaily.com/step-by-step-to-supercharged-vram-on-windows-10-and-11/"><u>Step-by-Step to Supercharged VRAM on Windows 10 & 11</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-ultimate-guide-10-superior-image-replacement-for-videos/"><u>The Ultimate Guide 10 Superior Image Replacement for Videos</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/ultimate-guide-fixing-fifa-20-pc-game-crashes-step-by-step-solutions/"><u>Ultimate Guide: Fixing FIFA 20 PC Game Crashes - Step-by-Step Solutions</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/ultimate-step-by-step-guide-for-macx-iphone-connectivity-transforming-iphone-into-external-hd/"><u>Ultimate Step-by-Step Guide for MacX iPhone Connectivity - Transforming iPhone Into External HD</u></a></li>
+</ul></div>
 

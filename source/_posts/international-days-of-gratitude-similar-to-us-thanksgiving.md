@@ -1,7 +1,7 @@
 ---
 title: International Days of Gratitude Similar to US Thanksgiving
-date: 2024-10-12T16:03:55.790Z
-updated: 2024-10-18T16:49:56.842Z
+date: 2024-11-01T16:22:21.548Z
+updated: 2024-11-05T01:30:44.119Z
 tags:
   - speak
   - english
@@ -38,6 +38,13 @@ thumbnail: https://thmb.techidaily.com/a6603b4c8e64882a75258ea91034b33184d3edc31
 
  Other sources trace the Canadian Thanksgiving to the French settlers who came to North America in the 17th century and held feasts to celebrate their successful harvests.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Germany, Austria, and Switzerland
 
  In Europe, the idea of Thanksgiving generally involves the celebration of the autumn harvests. Largely religious in nature, the celebration occurs around the time of the main harvest – early October in this situation. In German-speaking countries, the event is called Erntedankfest.
@@ -50,13 +57,6 @@ thumbnail: https://thmb.techidaily.com/a6603b4c8e64882a75258ea91034b33184d3edc31
 
  The interesting thing is that the Thanksgiving celebration in Leiden has everything to do with the United States celebration. According to the [Smithsonian Magazine](https://www.smithsonianmag.com/smart-news/they-celebrate-american-thanksgiving-in-the-netherlands-140671441/) , the well-known Pilgrims that feasted with the Wampanoags in 1621, started as a group of English religious separatists that fled England following king James’ persecution. Before heading to the New World, many of these Pilgrims lived in Leiden for about 11 years, until 1620\. The rest is history.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4\. Grenada
 
  Although it rhymes with Canada, you should know that Grenada is actually a Caribbean country and its Thanksgiving celebration is one of the youngest in the world. Every year, on the 25th of October, Grenadians commemorate the events that took place in 1983, when Grenada’s deputy prime minister executed the prime minister and seized the power. Only nine days later, the United States military came to the rescue and restored order in a matter of weeks.
@@ -66,19 +66,25 @@ thumbnail: https://thmb.techidaily.com/a6603b4c8e64882a75258ea91034b33184d3edc31
 ![thanksgiving turkey](https://edge.mondly.com/blog/wp-content/uploads/2021/11/canadian-thanksgiving-960x641.jpg "What Countries Celebrate Thanksgiving? 3")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  “Thanksgiving turkey” by Claudio Schwarz©
 
 <!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. Japan
@@ -98,10 +104,10 @@ thumbnail: https://thmb.techidaily.com/a6603b4c8e64882a75258ea91034b33184d3edc31
  During pre-Christian times in Britain, the Saxons would offer the first sheaf of cereals to fertility gods then come together and celebrate the harvest with a supper. Many traditions remained even though Christianity arrived in Britain so the present-day Harvest Festival is celebrated even by churches.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 8\. Brazil
@@ -145,24 +151,24 @@ thumbnail: https://thmb.techidaily.com/a6603b4c8e64882a75258ea91034b33184d3edc31
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-harmonizing-hues-in-online-beauty-videos/"><u>[New] 2024 Approved Harmonizing Hues in Online Beauty Videos</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-frenzied-fun-top-10-outrageous-tiktok-gaming-quests/"><u>[New] Frenzied Fun Top 10 Outrageous TikTok Gaming Quests</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-illuminating-path-to-stellar-android-video-quality/"><u>[New] Illuminating Path to Stellar Android Video Quality</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-the-art-of-audio-design-in-magix-vst-2023/"><u>[New] The Art of Audio Design in Magix VST 2023</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-acclaimed-cameras-for-expert-automotive-tracking-for-2024/"><u>[Updated] Acclaimed Cameras for Expert Automotive Tracking for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-inshot-unveiled-effortless-laptoppc-video-editing/"><u>[Updated] Inshot Unveiled Effortless Laptop/PC Video Editing</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-lol-streaming-made-easy-mastering-video-capture-in-3-steps/"><u>[Updated] LOL Streaming Made Easy Mastering Video Capture in 3 Steps</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-closer-look-at-mondlys-educational-model/"><u>A Closer Look at Mondly’s Educational Model</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dive-into-hindi-mastery-with-8-compelling-mondly-advantages/"><u>Dive Into Hindi Mastery with 8 Compelling Mondly Advantages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/engaging-students-through-interactive-spanish/"><u>Engaging Students Through Interactive Spanish</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/english-fluency-rewards-and-reasons/"><u>English Fluency: Rewards and Reasons</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exploracion-del-corazon-humano-descubre-partes-de-adentro-en-espanol/"><u>Exploración Del Corazón Humano: Descubre Partes De Adentro En Español</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/flirtatious-formulations-heartfelt-german-phrases/"><u>Flirtatious Formulations: Heartfelt German Phrases</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mandarin-manners-made-easy-common-phrases-for-gratitude/"><u>Mandarin Manners Made Easy: Common Phrases for Gratitude</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/play-store-not-working-on-vivo-x-fold-2-8-solutions-inside-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Not Working On Vivo X Fold 2? 8 Solutions Inside | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sculpting-sophisticated-speech-with-mondly-aid/"><u>Sculpting Sophisticated Speech with Mondly Aid</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/shaping-future-learning-landscapes-with-ai-tools/"><u>Shaping Future Learning Landscapes With AI Tools</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-nubia-z50s-pro-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Nubia Z50S Pro? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-honor-magic-5-lite-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Honor Magic 5 Lite | Dr.fone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-the-voice-of-action-crafting-moving-screenplay-conversations/"><u>[New] 2024 Approved The Voice of Action Crafting Moving Screenplay Conversations</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-converting-zip-to-subrip-srt-format-a-step-by-step-guide/"><u>[New] Converting ZIP to SubRip (SRT) Format A Step-by-Step Guide</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-captureit-all-revisiting-recordmax-users/"><u>[Updated] CaptureIt All! Revisiting 'RecordMax' Users</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-unleashing-your-ads-potential-maximizing-revenue-with-fb-animation-strategies-for-2024/"><u>[Updated] Unleashing Your Ad's Potential Maximizing Revenue with FB Animation Strategies for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unraveling-untethered-art-top-public-domain-gems/"><u>[Updated] Unraveling Untethered Art Top Public Domain Gems</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/avoid-the-quake-optimal-tripod-placement-for-stellar-vlogs/"><u>Avoid the Quake Optimal Tripod Placement for Stellar Vlogs</u></a></li>
+<li><a href="https://network-issues.techidaily.com/elevate-gaming-nvidias-rtx210-win11-driver-upgrade/"><u>Elevate Gaming: NVIDIA's RTX210 Win11 Driver Upgrade</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-vernacular-intersections-with-english/"><u>Global Vernacular Intersections with English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/harmonizing-diversity-techniques-for-effective-multicultural-engagement/"><u>Harmonizing Diversity: Techniques for Effective Multicultural Engagement</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-network-locked-sim-card-inserted-on-your-honor-v-purse-phone-unlock-it-now-by-drfone-android/"><u>In 2024, Network Locked SIM Card Inserted On Your Honor V Purse Phone? Unlock It Now</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-mastery-after-age-50-motivation-and-meaning/"><u>Language Mastery After Age 50: Motivation and Meaning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/puedes-expresarte-como-decir-colores/"><u>Puedes Expresarte: Cómo Decir Colores</u></a></li>
+<li><a href="https://win-info.techidaily.com/simple-one-step-process-erasing-your-data-from-an-iphone-prior-to-resale/"><u>Simple One-Step Process: Erasing Your Data From an iPhone Prior to Resale</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spelling-slip-ups-exposed-englands-leading-lexical-errors/"><u>Spelling Slip-Ups Exposed: England's Leading Lexical Errors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/svenska-hjartefar-ditt-avstand/"><u>Svenska Hjärtefär: Ditt Avstånd</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-giant-whatsapp-sues-over-indian-it-regulation-concerns/"><u>Tech Giant WhatsApp Sues Over Indian IT Regulation Concerns</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-importance-of-learning-a-foreign-language/"><u>The Importance of Learning a Foreign Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-mastery-in-international-language-testing/"><u>Unlocking Mastery in International Language Testing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/your-israel-travel-plan-key-insights-and-essential-dialogue/"><u>Your Israel Travel Plan: Key Insights & Essential Dialogue</u></a></li>
 </ul></div>
 

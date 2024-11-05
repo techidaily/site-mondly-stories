@@ -1,7 +1,7 @@
 ---
 title: "The Polite Speech of China: Understanding Xièxiè"
-date: 2024-08-08T09:37:03.392Z
-updated: 2024-08-09T09:37:03.392Z
+date: 2024-11-03T17:11:22.422Z
+updated: 2024-11-05T02:28:44.453Z
 tags:
   - speak
   - english
@@ -36,16 +36,10 @@ thumbnail: https://thmb.techidaily.com/d44c84cbf0699642eded061365e62aa884811112a
 * **Thanks a lot! – 多谢! –_Duō xiè!_**  (used mainly in texting between friends, but teenagers tend to use it in speaking as well)
 * **Thanks! – 谢了! –_Xiè le!_**  (commonly used between close friends)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![thanks in chinese](https://edge.mondly.com/blog/wp-content/uploads/2019/10/thanks-in-chinese-1024x682.jpg "Thank You In Chinese: Xièxiè And 12 Other Thank You Chinese Phrases 2")
 
  “Xiangxi, China” by Theodor Lundqvist©
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 2\. Thank you very much in Chinese
 
  Just like in any other language, the way you say “thank you” in Chinese can alter its meaning. If you say it harshly and keep a straight face, Chinese speakers may perceive your attitude as sarcastic. So smile, act as you would in your native country and nod respectfully (don’t bow as you would do in Japan). Even if your pronunciation is not perfect, your message will certainly be conveyed correctly.
@@ -64,8 +58,12 @@ Other variations include:
 * Thank you SO much! – 太谢谢你了! –_Tài xiè xiè nǐ le!_
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 3\. Thank you for… in Chinese
 
  Just as important as the simple, plain “thank you” is the “thank you for something” thank you. Because sometimes you need to be more specific. What are you thanking them for? So here’s how to thank someone in Chinese for the gift they gave you and some more [Chinese phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) that might come in handy next time you visit China.
@@ -79,16 +77,17 @@ Other variations include:
 * Thank you for your consideration. – 谢谢您的关心。-_Xièxiè nín de guānxīn._
 * Thank you for spending time with us. – 谢谢您花时间和我们在一起。-_Xièxiè nín huā shíjiān hé wǒmen zài yìqǐ._
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ![xiexie chinese](https://edge.mondly.com/blog/wp-content/uploads/2019/10/xiexie-chinese-1024x682.jpg "Thank You In Chinese: Xièxiè And 12 Other Thank You Chinese Phrases 3")
 
  “Jiaxing, China” by Jay©
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 4\. Other ways to express your gratitude in Chinese
 
  Depending on the social context, in some cases, you might want to vary your answers. For example, when someone compliments you, instead of saying 谢谢_xièxiè_ – which may sound a little arrogant, you could say 哪里哪里_nǎlǐ nǎlǐ_ . In English, that translates to “no, no” or “where, where” as in “you’re flattering me” or “you’re too kind”.
@@ -96,8 +95,12 @@ Other variations include:
  In fact, Chinese culture is known for its preference for modesty and humility. Deflecting a compliment rather than accepting it with a plain “thank you” is much more appreciated. Thus, another way to deflect a compliment (while secretly enjoying it) is to say 没有没有_méiyǒu méiyǒu_ – meaning “no, no, that’s nonsense”.
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## BONUS: You’re welcome in Chinese
 
  If you want to respond to someone’s thanks with “you’re welcome” in Chinese, you can say 不客气_bù kèqì._
@@ -110,6 +113,13 @@ Other variations include:
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Here’s how to speak Chinese in just 10 minutes a day
 
@@ -129,8 +139,6 @@ Other variations include:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -138,4 +146,26 @@ Other variations include:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/ed-charting-your-course-through-youtube-compliance-for-2024/"><u>[Updated] Charting Your Course Through YouTube Compliance for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-sculpting-softness-a-guide-to-quieter-mixes-with-fl-studio/"><u>[Updated] Sculpting Softness A Guide to Quieter Mixes with FL Studio</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ahoy-the-pirate-way-of-speaking/"><u>Ahoy, the Pirate Way of Speaking</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/best-anti-tracker-software-for-tecno-spark-10c-drfone-by-drfone-virtual-android/"><u>Best Anti Tracker Software For Tecno Spark 10C | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-cultures-with-appropriate-japanese-phrases/"><u>Bridging Cultures with Appropriate Japanese Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/capture-germanys-spoken-elegance-top-25-sayings-list/"><u>Capture Germany's Spoken Elegance: Top 25 Sayings List</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/concurrent-communication-skills/"><u>Concurrent Communication Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conversational-keys-to-italian-culture-top-10-welcoming-words/"><u>Conversational Keys to Italian Culture: Top 10 Welcoming Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/earths-linguistic-heavyweights-countdown-to-5/"><u>Earth's Linguistic Heavyweights: Countdown to #5</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580521776-how-to-learn-ukrainian-fast-in-just-10-minutes-a-day/"><u>How To Learn Ukrainian Fast In Just 10 Minutes A Day</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-free-location-spoofers-to-fake-gps-location-on-your-poco-m6-5g-drfone-by-drfone-virtual/"><u>In 2024, 10 Free Location Spoofers to Fake GPS Location on your Poco M6 5G | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-decoding-displacement-your-snapchat-time-turner-guide/"><u>In 2024, Decoding Displacement Your Snapchat Time-Turner Guide</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-quiet-soundscapes-audio-control-tips/"><u>In 2024, Quiet Soundscapes Audio Control Tips</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577153589-mastering-hindi-made-easy-top-8-reasons-why-choose-mondlys-online-platform/"><u>Mastering Hindi Made Easy: Top 8 Reasons Why Choose Mondly's Online Platform!</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/quick-driver-update-tutorial-for-asus-maximus-x-hero-board-of-honour-hassle-free-process/"><u>Quick Driver Update Tutorial for ASUS Maximus X Hero Board of Honour | Hassle-Free Process</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577696916-quick-mastery-conquer-japanese-numbers-in-minutes/"><u>Quick Mastery: Conquer Japanese Numbers in Minutes!</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/your-viewership-to-over-a-thousand-in-weeks/"><u>Soar Your Viewership to Over a Thousand in Weeks</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-reliable-jump-start-experience-an-in-depth-look-at-dbpower-600a-and-its-18000mah-capacity-review/"><u>The Reliable Jump-Start Experience: An In-Depth Look at DBPOWER 600A and Its 18000mAh Capacity Review</u></a></li>
+<li><a href="https://fox-that.techidaily.com/why-isnt-my-whatsapp-data-uploading-to-icloud-fixes-for-a-smoother-experience/"><u>Why Isn't My WhatsApp Data Uploading to iCloud? Fixes for a Smoother Experience</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Jeringas Lingüísticos en Inglés-Español: Conjunto De 50"
-date: 2024-10-16T17:13:02.785Z
-updated: 2024-10-18T22:18:33.360Z
+date: 2024-11-01T22:53:54.786Z
+updated: 2024-11-05T01:20:19.369Z
 tags:
   - speak
   - english
@@ -61,13 +61,6 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 * erup**tion** and   _erup**ción**_
 * addi**tion** and   _adi**ción**_
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Spanish Cognates that change “-nt” to “-nte”
 
 * abunda**nt** and   _abunda**nte**_
@@ -99,16 +92,10 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
  “Mommy, what are cognates?” by Josh Applegate©
 
 <!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
+  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Spanish cognates that add an “-o”
@@ -124,6 +111,13 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 * artistic and   _artístic**o**_
 * dynamic and   _dinámic**o**_
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Spanish cognates that add an “-ar” or an “-ir”
 
 [Spanish verbs](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) can end in_\-ar_ ,_\-er_ , or_\-ir_ and each type follows its own conjugation rules. What you are about to find out is that many of these are English cognates with an added “-ar” or “-ir” in the end.
@@ -138,13 +132,6 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 * limit and   _limit**ar**_
 * calm and   _calm**ar**_
 * control and   _control**ar**_
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Spanish cognates that change “-ly” to “-mente”
 
@@ -189,6 +176,13 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 
 ![false cognates](https://edge.mondly.com/blog/wp-content/uploads/2020/04/false-cognates-600x400.jpg "50+ Most Popular English-Spanish Cognates And False Cognates 4")
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  “Haha! Gotcha!” by olio creative©
 
 * **_enviar_ and to envy**
@@ -221,10 +215,10 @@ _Realizar_ in Spanish means “to do” or “to perform” and not “to realiz
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Speak Spanish in just 10 minutes a day
@@ -254,18 +248,21 @@ _Realizar_ in Spanish means “to do” or “to perform” and not “to realiz
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/eighing-the-video-sharing-options-for-personal-use-tiktok-vs-youtube-shorts-for-2024/"><u>[New] Weighing the Video Sharing Options for Personal Use TikTok vs YouTube Shorts for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-charting-youtubes-untapped-markets-niche-strategies-for-2024/"><u>[Updated] Charting Youtube's Untapped Markets Niche Strategies for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-copyright-compliance-for-streaming-songs-on-instagram/"><u>2024 Approved Copyright Compliance for Streaming Songs on Instagram</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-the-art-of-low-volume-playback-system-guide/"><u>2024 Approved The Art of Low-Volume Playback System Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/apex-communicator-the-business-linguistic-blueprint/"><u>Apex Communicator: The Business Linguistic Blueprint</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579667558-basic-anatomy-the-parts-of-the-body-in-french/"><u>Basic Anatomy: The Parts Of The Body In French</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/deciding-on-the-next-ideal-linguistic-journey-to-pursue/"><u>Deciding on the Next Ideal Linguistic Journey to Pursue</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/exploring-the-pinnacle-of-wearable-technology-an-in-depth-look-at-the-refined-apple-watch-series-4/"><u>Exploring the Pinnacle of Wearable Technology: An In-Depth Look at the Refined Apple Watch Series 4</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/how-to-fix-msvcrtdll-is-missing-or-not-found-errors/"><u>How to Fix Msvcrt.dll Is Missing or Not Found Errors</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/how-youthful-minds-conquer-linguistic-barriers/"><u>How Youthful Minds Conquer Linguistic Barriers</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/in-2024-no-8-advanced-online-photographic-merge-suite/"><u>In 2024, No. 8 Advanced Online Photographic Merge Suite</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/leading-non-native-language-curriculum-for-us-students/"><u>Leading Non-Native Language Curriculum for U.S. Students</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/manejo-de-horas-un-principio-de-lectura-en-espanol/"><u>Manejo De Horas: Un Principio De Lectura En Español</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-charting-a-course-for-youtube-success-viewer-numbers-and-income/"><u>[New] 2024 Approved Charting a Course for YouTube Success Viewer Numbers and Income</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-accelerate-engagement-the-best-12-ways-to-increase-video-popularity/"><u>[Updated] Accelerate Engagement - The Best 12 Ways to Increase Video Popularity</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-ballot-bonanza-5-best-political-game-line-ups-for-2024/"><u>[Updated] Ballot Bonanza 5 Best Political Game Line-Ups for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/end-the-blur-ultimate-solution-for-world-of-warcraft-screen-shimmering-problem/"><u>End the Blur: Ultimate Solution for World of Warcraft Screen Shimmering Problem</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-language-mastery-how-tough-is-it/"><u>German Language Mastery: How Tough Is It?</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-from-tecno-camon-20-pro-5g-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock from Tecno Camon 20 Pro 5G Devices</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-how-to-view-youtube-statistics/"><u>In 2024, How to View YouTube Statistics?</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-step-by-step-srt-manipulation-for-mac-enthusiasts/"><u>In 2024, Step-by-Step SRT Manipulation for Mac Enthusiasts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/italian-greeting-guide-essential-expressions-for-friendly-encounters/"><u>Italian Greeting Guide: Essential Expressions for Friendly Encounters</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/jumpstart-valorant-fixing-processes-with-startup/"><u>Jumpstart Valorant Fixing Processes With Startup</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/majority-language-in-a-nation-rooted-in-hebrew/"><u>Majority Language in a Nation Rooted in Hebrew</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-spanish-accents-techniques-for-precision-pronunciation/"><u>Mastering Spanish Accents: Techniques for Precision Pronunciation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/premier-speech-driven-augmented-interface/"><u>Premier Speech-Driven Augmented Interface</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pronunciation-prowess-unlocking-the-secrets-of-tough-words/"><u>Pronunciation Prowess: Unlocking the Secrets of Tough Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essential-dictionary-of-casual-speech/"><u>The Essential Dictionary of Casual Speech</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/top-8-youtube-thumbnail-secrets-for-high-traffic-videos-for-2024/"><u>Top 8 YouTube Thumbnail Secrets for High Traffic Videos for 2024</u></a></li>
 </ul></div>
 

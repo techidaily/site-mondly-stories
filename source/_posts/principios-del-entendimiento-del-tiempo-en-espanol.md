@@ -1,7 +1,7 @@
 ---
 title: Principios Del Entendimiento Del Tiempo en Español
-date: 2024-10-17T17:34:27.868Z
-updated: 2024-10-24T16:44:44.445Z
+date: 2024-10-31T16:20:57.384Z
+updated: 2024-11-04T16:08:32.668Z
 tags:
   - speak
   - english
@@ -33,10 +33,10 @@ But first things first.
  In addition to the now well-known_**¿que hora es?**_ which literally translates to “what hour is it?”, you can also ask_**¿tiene hora?**_ which is literally “do you have the hour?”. Easy enough!
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The basics of Spanish time
@@ -80,13 +80,6 @@ Here are some examples:
 
 ![telling time in spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/06/telling-time-in-spanish-600x600.jpg "How To Tell Time In Spanish - A Complete Guide For Beginners 3")
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Telling time in Spanish – a visual guide
 
 ### Hour + minutes in Spanish time
@@ -101,16 +94,10 @@ Here are some examples:
 * _Son las ocho y quince._ (“it’s eight and fifteen minutes”)
 
 <!-- affiliate ads begin -->
-<span id="1444782">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Different ways of telling time in Spanish
@@ -122,6 +109,13 @@ Here are some examples:
 * _es/son_ +_las_ \+ hour + con + number of minutes –**_Son las tres con diez_**
 
  Which one do you prefer? Additionally, if we also count it_cuarto_ and_media_ , there are no less than four different ways to tell the time in Spanish. And you’ve just mastered them all!
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to indicate the time of day in Spanish
 
@@ -136,6 +130,13 @@ Here are some examples:
 * _tarde_ – in the afternoon
 
  To indicate that an event occurs at a specific time, use the formula **a +_la(s)_ \+ time** :_La clase de español empieza a las nueve_ – “The Spanish class begins at 9”.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Other useful time phrases in Spanish
 
@@ -172,13 +173,6 @@ Here are some examples:
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Speak Spanish fluently in just 10 minutes a day
 
  Do you want to [speak Spanish fluently](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) fast? Get Mondly, the award-winning language learning app that will help you speak Spanish as if you were Spanish-born.
@@ -204,24 +198,20 @@ Here are some examples:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-how-to-give-a-makeover-to-existing-images-and-videos-with-ig-filters/"><u>[Updated] 2024 Approved How to Give a Makeover to Existing Images and Videos with IG Filters</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-elevate-your-minecraft-skills-with-the-art-of-circle-and-sphere-creation/"><u>[Updated] Elevate Your Minecraft Skills with the Art of Circle & Sphere Creation</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-recording-techniques-for-stellar-voice-over-audio-for-2024/"><u>[Updated] Recording Techniques for Stellar Voice-Over Audio for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/breaking-the-code-how-to-reactivate-memory-feature-in-win11/"><u>Breaking the Code: How to Reactivate Memory Feature in Win11</u></a></li>
-<li><a href="https://fake-location.techidaily.com/dose-life360-notify-me-when-someone-checks-my-location-on-samsung-galaxy-f04-drfone-by-drfone-virtual-android/"><u>Dose Life360 Notify Me When Someone Checks My Location On Samsung Galaxy F04? | Dr.fone</u></a></li>
-<li><a href="https://fox-ssl.techidaily.com/expert-guide-mastering-sql-query-techniques/"><u>Expert Guide: Mastering SQL Query Techniques</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/interactive-intelligence-acquire-new-language-skills-virtually/"><u>Interactive Intelligence: Acquire New Language Skills Virtually</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigate-conversation-easily-17-basic-spanish-sayings/"><u>Navigate Conversation Easily: 17 Basic Spanish Sayings</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/new-horizons-in-your-forties-language-learnings-top-4-advantages/"><u>New Horizons in Your Forties: Language Learning's Top 4 Advantages</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/pro-techniques-for-efficient-win-files-max-156/"><u>Pro Techniques for Efficient Win Files (Max 156)</u></a></li>
-<li><a href="https://article-helps.techidaily.com/revival-device-pack-for-2024/"><u>Revival Device Pack for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/solve-the-problem-of-undetected-bluetooth-devices-in-windows-10-quickly/"><u>Solve the Problem of Undetected Bluetooth Devices in Windows 10 Quickly!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ultimate-hindi-adventure-awaits-dive-into-8-engaging-mondly-reasons/"><u>The Ultimate Hindi Adventure Awaits: Dive Into 8 Engaging Mondly Reasons</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/timeless-tongues-earths-most-antique-linguistic-forms/"><u>Timeless Tongues: Earth's Most Antique Linguistic Forms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/transformative-technology-mondly-and-pearsons-buttonfusion/"><u>Transformative Technology: Mondly and Pearson's ButtonFusion</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-the-secrets-of-turkish-quick-pronunciation-and-letter-reference/"><u>Unlocking the Secrets of Turkish: Quick Pronunciation and Letter Reference</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unveiling-germanys-quirkiest-phrases-top-25/"><u>Unveiling Germany's Quirkiest Phrases (Top 25)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unveiling-the-best-language-for-my-learning-journey/"><u>Unveiling The Best Language for My Learning Journey</u></a></li>
-<li><a href="https://driver-download.techidaily.com/update-wireless-software-or-driver-on-windows-1110/"><u>Update Wireless Software or Driver on Windows 11/10</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-exclusive-sneak-peek-at-apples-finest-facebook-video-extractor-apps/"><u>[New] In 2024, Exclusive Sneak Peek at Apple's Finest Facebook Video Extractor Apps</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-unveiling-advantages-comprehen/"><u>[New] In 2024, Unveiling Advantages Comprehen</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-navigating-the-insta-to-tik-connection-for-2024/"><u>[New] Navigating the Insta-to-Tik Connection for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-find-zen-with-these-10-game-choices/"><u>[Updated] Find Zen with These 10 Game Choices</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/convert-live-facebook-videos-to-mp3s-on-the-fly-for-2024/"><u>Convert Live Facebook Videos to MP3s on the Fly for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-your-logitech-g510-drivers-supports-windows-7-8-and-10-installation/"><u>Get Your Logitech G510 Drivers - Supports Windows 7, 8 & 10 Installation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-haste-to-learning-urdu-online/"><u>Introducing Haste to Learning Urdu Online!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-top-10-dynamic-ways-to-say-hello-in-spanish/"><u>Learning Top 10 Dynamic Ways To Say Hello In Spanish</u></a></li>
+<li><a href="https://win-able.techidaily.com/mts/"><u>MTSファイル再生ガイド - 成功保証!</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/quintessential-quests-screenwriting-gems-for-2024/"><u>Quintessential Quests Screenwriting Gems for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-benefits-of-learning-croatian-7-reasons-to-start-today/"><u>The Benefits Of Learning Croatian: 7 Reasons To Start Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-polyglot-symphony-global-teaching-day/"><u>The Polyglot Symphony: Global Teaching Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-pathway-to-mastering-finnish-online/"><u>The Ultimate Pathway to Mastering Finnish Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/virtual-guru-guide-to-lithuanian-mastery/"><u>Virtual Guru Guide to Lithuanian Mastery</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/winxvideo-ai-enhanced-video-and-image-transformation-toolkit-boost-stabilize-convert-edit-and-record/"><u>WinxVideo AI: Enhanced Video and Image Transformation Toolkit - Boost, Stabilize, Convert, Edit & Record</u></a></li>
 </ul></div>
 

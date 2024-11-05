@@ -1,7 +1,7 @@
 ---
 title: "Saying Hi in Indonesia: Key Greeting Phrases"
-date: 2024-10-20T16:17:37.674Z
-updated: 2024-10-24T16:58:12.940Z
+date: 2024-10-30T06:36:44.726Z
+updated: 2024-11-05T05:25:11.378Z
 tags:
   - speak
   - english
@@ -33,10 +33,10 @@ thumbnail: https://thmb.techidaily.com/5f29ab47c82493b144af09fd3ee1e6f095ceaed40
  Last but not least, if someone greets you using the_wai_ gesture (slight bow with the palms put together in front of the chest), you can show respect towards their culture by returning the same gesture.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to say ‘hello’ in Indonesian
@@ -48,10 +48,10 @@ thumbnail: https://thmb.techidaily.com/5f29ab47c82493b144af09fd3ee1e6f095ceaed40
  On the other hand, if someone asks you how you are doing, you can say_kabar baik,_ which means “I am fine” or “I am well”. Here’s what a basic conversation in Indonesian sounds like:
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ‘Hi’ in Indonesian
@@ -73,10 +73,10 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 ![indonesian words](https://edge.mondly.com/blog/wp-content/uploads/2022/07/indonesian-words.png "Hello In Indonesian: A Quick Guide To Indonesian Greetings 2")
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The same way we say “morning!’ in English, Indonesians sometimes drop the_selamat_ . This results in a very informal greeting that can be used with friends and family.
@@ -86,10 +86,10 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
  Naturally,_selamat tidur_ is only used when someone is retiring for the night.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to say goodbye
@@ -134,22 +134,18 @@ Get Mondly today and learn Indonesian naturally with the following:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-fiscal-summary-producing-a-music-video/"><u>[New] Fiscal Summary Producing a Music Video</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-achieving-youtube-apex-with-smart-management-tools/"><u>[New] In 2024, Achieving YouTube Apex with Smart Management Tools</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-exploring-options-a-treasure-hunt-for-your-tiktok-symbol/"><u>[Updated] 2024 Approved Exploring Options A Treasure Hunt for Your TikTok Symbol</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-master-quick-red-eye-correction-with-this-free-ios-tool/"><u>[Updated] In 2024, Master Quick Red-Eye Correction with This Free iOS Tool</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-gamescene-capturers-compendium/"><u>2024 Approved GameScene Capturer's Compendium</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/google-advocates-mondly-your-comprehensive-learning-companion/"><u>Google Advocates: Mondly - Your Comprehensive Learning Companion</u></a></li>
-<li><a href="https://change-location.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-vivo-y100a-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Vivo Y100A | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/holidays-of-thankfulness-in-different-nations/"><u>Holidays of Thankfulness in Different Nations</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-oppo-find-x7-ultra-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Oppo Find X7 Ultra Mirror Screen to PC? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/jumpstart-your-latvian-commit-to-10-daily-minutes/"><u>Jumpstart Your Latvian - Commit to 10 Daily Minutes</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/mastering-podcast-titling-a-comprehensive-approach/"><u>Mastering Podcast Titling A Comprehensive Approach</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/quick-polish-learning-techniques/"><u>Quick Polish Learning Techniques</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-big-three-of-asian-languages-quick-save-function/"><u>The Big Three of Asian Languages: Quick Save Function</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-essential-guide-to-mastering-conversational-skills/"><u>The Essential Guide to Mastering Conversational Skills</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-6-benefits-embracing-arabic-learning-via-mondly-online/"><u>Top 6 Benefits: Embracing Arabic Learning via Mondly Online</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/web-funnies-forge-for-2024/"><u>Web Funnies Forge for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/whimsical-whispers-seducing-with-spoken-spanish/"><u>Whimsical Whispers: Seducing With Spoken Spanish</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-animating-elegance-self-designed-tricks-and-effects/"><u>[New] In 2024, Animating Elegance Self-Designed Tricks & Effects</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-expertly-tailored-shots-with-10-initial-free-customizable-lut-packages/"><u>[New] In 2024, Expertly Tailored Shots with 10 Initial Free, Customizable LUT Packages</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-seamless-integration-of-obs-studio-with-android-tech-for-2024/"><u>[Updated] Seamless Integration of OBS Studio with Android Tech for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-ultimate-checklist-for-professional-macro-videographers/"><u>[Updated] The Ultimate Checklist for Professional Macro Videographers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-review-how-the-synology-rt2600ac-elevates-long-distance-connectivity-and-internet-safety-for-families/"><u>Expert Review: How the Synology RT2600ac Elevates Long-Distance Connectivity and Internet Safety for Families</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-elegance-and-idiosyncrasies-of-the-asus-bw-16d1c-u-blu-ray-writer-our-in-depth-review/"><u>Exploring the Elegance & Idiosyncrasies of the Asus BW-16D1C-U Blu-Ray Writer: Our In-Depth Review</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-make-the-most-of-your-iphone-12-mini-lock-screen-with-notifications-by-drfone-ios/"><u>How to Make the Most of Your iPhone 12 mini Lock Screen with Notifications?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-a-lost-honor-magic-6-pro-for-free-drfone-by-drfone-virtual-android/"><u>How to Track a Lost Honor Magic 6 Pro for Free? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-english-with-pearson/"><u>International English with Pearson</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/is-german-a-difficult-target-for-learners/"><u>Is German a Difficult Target for Learners?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/langsam-gehende-abfahrtsprache-fur-deutsche/"><u>Langsam Gehende Abfahrtsprache Für Deutsche</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-reaches-global-classroom-hub-for-over-70m-students/"><u>Mondly Reaches Global Classroom Hub for Over 70M Students</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-unparalleled-benefits-of-2-years-with-an-oled-monitor/"><u>The Unparalleled Benefits of 2 Years with an OLED Monitor</u></a></li>
 </ul></div>
 

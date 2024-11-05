@@ -1,7 +1,7 @@
 ---
 title: "Myth and Mouth Movement: The Language of Vikings"
-date: 2024-10-28T03:39:34.450Z
-updated: 2024-10-30T08:01:24.201Z
+date: 2024-10-31T23:41:06.412Z
+updated: 2024-11-04T19:48:35.313Z
 tags:
   - speak
   - english
@@ -34,6 +34,19 @@ thumbnail: https://thmb.techidaily.com/c67ae945d13a65a17a2d97a04bd087435fddfcab7
 
  To tell you the truth, Vikings did not typically speak Old English. Old English was spoken by the Anglo-Saxons, who lived in England at the same time as the Vikings. However, **it is possible that some Vikings who settled in England may have learned to speak Old English.**
 
+<!-- affiliate ads begin -->
+<span id="1983551">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What language did Vikings speak?
 
 **Old Norse** is the obvious answer for most Vikings. However, even in present days, languages spanning over large territories can’t possibly be entirely homogeneous.
@@ -59,17 +72,16 @@ thumbnail: https://thmb.techidaily.com/c67ae945d13a65a17a2d97a04bd087435fddfcab7
 !['Viking language' by Hannah Grapp©](https://edge.mondly.com/blog/wp-content/uploads/2023/03/viking-language-960x640.jpg "What Language Did Vikings Speak? 4")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993650">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What language today is closest to Old Norse?
@@ -77,13 +89,6 @@ thumbnail: https://thmb.techidaily.com/c67ae945d13a65a17a2d97a04bd087435fddfcab7
  **Modern Icelandic is widely regarded as the Nordic language that most closely resembles Old Norse.** In fact, the writing system is so similar that Icelandic speakers can read Old Norse texts with relative ease. Some specialists compare the likeness between modern Icelandic and Old Norse to that of Shakespearean English and present-day English. Old West Norse is the direct ancestor of Icelandic, and many surviving Old Norse manuscripts originated from Iceland. Consequently, Old West Norse is the most commonly taught variant of Old Norse at present.
 
 So yeah, you can learn Old Norse if you want to.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Is Old Norse still spoken?
 
@@ -94,10 +99,16 @@ So yeah, you can learn Old Norse if you want to.
  Furthermore, Old Norse is still with us through the multitude of words that were borrowed into English. Some examples of Old Norse words in English are gift (_gift_), husband (_húsbóndi_), cake (_kaka_), egg (_egg_), anger (_angr_), arm (_armr_). And these are just a few. The list could go on for a while.
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What language did Vikings write in?
@@ -112,6 +123,13 @@ So yeah, you can learn Old Norse if you want to.
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Learn the Scandinavian languages fast
 
@@ -144,21 +162,22 @@ So yeah, you can learn Old Norse if you want to.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-superior-free-fb-visual-storyteller-tool/"><u>[New] Superior Free FB Visual Storyteller Tool</u></a></li>
-<li><a href="https://some-tips.techidaily.com/2024-approved-unveiling-lost-reddit-content-instant-access-techniques/"><u>2024 Approved Unveiling Lost Reddit Content Instant Access Techniques</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/become-a-linguistic-pro-mondly-clinches-the-title/"><u>Become a Linguistic Pro: Mondly Clinches the Title</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/charting-the-course-learning-german-from-scratch/"><u>Charting the Course: Learning German From Scratch</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/conversalab-interactive-language-learning-experience/"><u>ConversaLab: Interactive Language Learning Experience</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cross-border-easter-messages-in-multiple-dialects/"><u>Cross-Border Easter Messages in Multiple Dialects</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/deutsche-verantwortungsausdrucke-lernen/"><u>Deutsche Verantwortungsausdrücke Lernen</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/elevating-usability-mondly-and-pearsons-buttonjunction/"><u>Elevating Usability: Mondly & Pearson's ButtonJunction</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embrace-language-independence-with-no-cost-japanese-resources/"><u>Embrace Language Independence with No Cost Japanese Resources</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/ghostly-movies-innovation-in-recorders/"><u>Ghostly Movies Innovation in Recorders</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-play-hevc-h-265-video-on-motorola-edgeplus-2023-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>How to play HEVC H.265 video on Motorola Edge+ (2023)?</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-reset-your-iphone-13-mini-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Reset Your iPhone 13 mini? | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/how-to-take-long-exposure-shots-with-iphone/"><u>How to Take Long Exposure Shots with iPhone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-harmonizing-tracks-understanding-crossfades/"><u>In 2024, Harmonizing Tracks Understanding Crossfades</u></a></li>
-<li><a href="https://win-able.techidaily.com/overcome-stuck-screens-in-among-us-effective-solutions-and-tips/"><u>Overcome Stuck Screens in Among Us: Effective Solutions & Tips</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211424266-9781738971336-sounds-necessity/"><u>Sounds Necessity | Free Book</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-experts-choice-best-hdmi-21-display-models-evaluated/"><u>[New] 2024 Approved Expert's Choice Best HDMI 2.1 Display Models Evaluated</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-sharing-tiktok-on-twitter-quickly/"><u>[Updated] In 2024, Sharing TikTok on Twitter Quickly</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-beyond-illusion-the-three-pillars-of-virtual-immersion-vr-ar-and-mr/"><u>2024 Approved Beyond Illusion The Three Pillars of Virtual Immersion (VR, AR, & MR)</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/1722850826505-2024s-elite-collection-of-smart-spectacles-elevate-your-vision-tech/"><u>2024'S Elite Collection of Smart Spectacles - Elevate Your Vision Tech</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/detailed-dissection-what-makes-obs-a-top-recorder-for-2024/"><u>Detailed Dissection What Makes OBS a Top Recorder for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-and-install-microsoft-surface-pro-4-drivers-on-windows/"><u>Download & Install Microsoft Surface Pro 4 Drivers on Windows</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-do-i-sign-a-excel-2003-files-electronically-by-ldigisigner-sign-a-excel-sign-a-excel/"><u>How do i sign a Excel 2003 files electronically</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-edit-webm-video-files-without-charge-both-online-and-offline-techniques/"><u>How to Edit WebM Video Files Without Charge – Both Online and Offline Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/know-your-japenese-salutations-for-every-scenario/"><u>Know Your Japenese Salutations for Every Scenario</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/los-fundamentos-del-sistema-de-colores/"><u>Los Fundamentos Del Sistema De Colores</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-gratis-ukrainian-lessons-galore/"><u>Mondly: Gratis Ukrainian Lessons Galore</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essence-of-por-que-vs-por-que-a-study/"><u>The Essence of 'Por Que' Vs 'Por Que': A Study</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-language-of-thankfulness-common-chinese-phrases/"><u>The Language of Thankfulness: Common Chinese Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-new-e-learning-standard-mondlys-german-linguistic-sovereignty/"><u>The New E-Learning Standard: Mondly’s German Linguistic Sovereignty</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/two-years-one-bold-dream-mondlylanguages-story/"><u>Two Years, One Bold Dream - MondlyLanguages Story</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/ultimate-fix-guide-for-windows-11s-troublesome-bluetooth-pairings-now-working/"><u>Ultimate Fix Guide for Windows 11'S Troublesome Bluetooth Pairings - Now Working!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unleashing-your-full-potential-in-english-via-mondly/"><u>Unleashing Your Full Potential in English via Mondly</u></a></li>
 </ul></div>
 

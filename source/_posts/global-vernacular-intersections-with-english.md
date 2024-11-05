@@ -1,7 +1,7 @@
 ---
 title: Global Vernacular Intersections with English
-date: 2024-10-27T11:56:01.959Z
-updated: 2024-10-30T04:58:43.353Z
+date: 2024-11-02T02:04:11.205Z
+updated: 2024-11-04T21:13:27.000Z
 tags:
   - speak
   - english
@@ -38,13 +38,6 @@ thumbnail: https://thmb.techidaily.com/6eaa3e36b8ce62866baa3f0397f35b108aa431d0b
 
  While the question may sound funny (“where did English come from?”), it is a popular inquiry among Google users for obvious reasons. After all, 1.3 billion people worldwide speak English either natively or as a second language. It’s only natural for them to be curious about the origin of the English language.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## English Words from Foreign Languages
 
 1. Guru (Sanskrit)
@@ -80,6 +73,13 @@ thumbnail: https://thmb.techidaily.com/6eaa3e36b8ce62866baa3f0397f35b108aa431d0b
 
 ![English foreign words](https://edge.mondly.com/blog/wp-content/uploads/2024/01/english-foreign-words-600x600.png "100+ English Words Borrowed From Other Languages 4")
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Although we usually call them “borrowed words”, these are also known as loanwords. According to Oxford Languages,**a loanword** is_“a word adopted from a foreign language with little or no modification”_ . The transition from one language to another can happen through:
 
 * **Transcription,** which means borrowing words while preserving their original pronunciation in the borrowed language;
@@ -88,15 +88,22 @@ thumbnail: https://thmb.techidaily.com/6eaa3e36b8ce62866baa3f0397f35b108aa431d0b
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "100+ English Words Borrowed From Other Languages 5")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Improve your English fast 🚀
 
  With Mondly, English mastery is at your fingertips – and in your native tongue. Start today ![Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-9827&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-9827%26mt%3D8)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044582/7443" target="_top" id="2044582">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044582" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044582/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## French loanwords: English words that are actually French
@@ -127,6 +134,13 @@ thumbnail: https://thmb.techidaily.com/6eaa3e36b8ce62866baa3f0397f35b108aa431d0b
 
  Did you know that approximately**30% of the English vocabulary** consists of words that have their origins in**French and Latin** ? Considering that French was the language of the English king and his court for over 300 years, it’s no surprise. During that time, as many as 10,000 French loanwords came into English.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Spanish loanwords: English words that are actually Spanish
 
 | Chinchilla |
@@ -148,13 +162,6 @@ thumbnail: https://thmb.techidaily.com/6eaa3e36b8ce62866baa3f0397f35b108aa431d0b
 | Guacamole  |
 
  Unlike French loanwords which have been adapted into British English, most of the**Spanish loanwords entered English via the North American English route.** Cultural exchanges between [Spanish-speaking](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and English-speaking communities led to an influx of loanwords related to food and music in particular. For example, words like “guacamole”, “salsa” and “piñata” have been borrowed into English from Spanish due to the popularity of the Mexican culture in the United States.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Italian loanwords: English words that are actually Italian
 
@@ -207,19 +214,6 @@ thumbnail: https://thmb.techidaily.com/6eaa3e36b8ce62866baa3f0397f35b108aa431d0b
 | Diesel       |
 
  Some of the first German words were borrowed into English during the interactions between Germanic-speaking tribes and English-speaking communities in early medieval Europe. Words related to everyday life, family, and community were among the earliest borrowings. Later, thanks to Germany’s influence in various fields, English borrowed German words related to science and technology, music, philosophy, literature and engineering.
-
-<!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Understanding the Size of the English Vocabulary
 
@@ -279,22 +273,24 @@ Coming Soon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-professionals-guide-selecting-premium-video-card-options/"><u>[New] 2024 Approved Professional's Guide Selecting Premium Video Card Options</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-elevating-your-online-empire-a-guide-to-massive-facebook-following/"><u>[New] Elevating Your Online Empire A Guide to Massive Facebook Following</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-harnessing-the-power-of-color-difference-keying-methods-for-2024/"><u>[New] Harnessing the Power of Color Difference Keying Methods for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-a-guide-to-free-you-from-youtubes-extra-bar-width/"><u>[New] In 2024, A Guide to Free You From YouTube's Extra Bar Width</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-develop-memes-for-viral-impact-adobe-way-for-2024/"><u>[Updated] Develop Memes for Viral Impact, Adobe Way for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-from-ordinary-to-outstanding-crafting-unique-shorts-thumbnails-for-2024/"><u>[Updated] From Ordinary to Outstanding Crafting Unique Shorts Thumbnails for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-flight-to-imagery-a-review-of-dji-sparks-miniature-drone-innovation/"><u>2024 Approved Flight to Imagery A Review of DJI Spark's Miniature Drone Innovation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bulbarian-in-a-blink-10-min-day-lessons/"><u>Bulbarian in a Blink: 10-Min Day Lessons</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/comprehensive-guide-to-digital-time-in-spanish/"><u>Comprehensive Guide to Digital Time in Spanish</u></a></li>
-<li><a href="https://games-able.techidaily.com/correcting-component-deficiency-on-windows-pcs/"><u>Correcting Component Deficiency on Windows PCs</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/full-list-of-spanish-speaking-countries-how-many-people-speak-spanish/"><u>Full List of Spanish-Speaking Countries — How Many People Speak Spanish?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-gaming-revolution-oculus-quests-language-leap-with-mondly/"><u>Global Gaming Revolution: Oculus Quest's Language Leap with Mondly</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-9-best-phone-monitoring-apps-for-zte-nubia-z60-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Best Phone Monitoring Apps for ZTE Nubia Z60 Ultra | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/journey-to-fluency-in-arabic-why-choose-mondly-six-reasons/"><u>Journey to Fluency in Arabic: Why Choose Mondly? (Six Reasons)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/predominant-language-study-programs-abroad-from-us/"><u>Predominant Language Study Programs Abroad From U.S.</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-efficient-guide-to-swedens-alphabet/"><u>The Efficient Guide to Sweden's Alphabet</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/tunes-to-translation-proven-music-enhanced-language-strategies/"><u>Tunes to Translation: Proven Music-Enhanced Language Strategies</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-instant-screen-capture-plus-audio-walkthrough/"><u>[New] 2024 Approved Instant Screen Capture + Audio Walkthrough</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-a-comprerant-guide-to-enhanced-captioning-on-instagram-platforms-for-2024/"><u>[New] A Compreran't Guide to Enhanced Captioning on Instagram Platforms for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-decoding-vr-a-virtual-cinematic-journey/"><u>[New] In 2024, Decoding VR A Virtual Cinematic Journey</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-vpna-fake-gps-location-free-review-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>A Detailed VPNa Fake GPS Location Free Review On Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/all-about-factory-reset-what-is-it-and-what-it-does-to-your-huawei-p60-drfone-by-drfone-reset-android-reset-android/"><u>All About Factory Reset, What Is It and What It Does to Your Huawei P60? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/best-anti-tracker-software-for-xiaomi-redmi-note-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>Best Anti Tracker Software For Xiaomi Redmi Note 12 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/excellence-in-editing-merging-storyremix-with-windows-photos-for-professional-results-for-2024/"><u>Excellence in Editing Merging StoryRemix with Windows Photos for Professional Results for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/get-ready-to-connect-your-ai-conversation-guide/"><u>Get Ready to Connect: Your AI Conversation Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/israelian-excursion-guide-must-know-phrases-and-practical-suggestions/"><u>Israelian Excursion Guide: Must-Know Phrases & Practical Suggestions</u></a></li>
+<li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-xiaomi-civi-3-disney-100th-anniversary-edition-drfone-by-drfone-virtual-android/"><u>Methods to Change GPS Location On Xiaomi Civi 3 Disney 100th Anniversary Edition | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multipurpose-language-lesson/"><u>Multipurpose Language Lesson</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/overcoming-barriers-in-german-learning/"><u>Overcoming Barriers in German Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-introduction-to-the-chinese-alphabet-chinese-characters-and-pinyin/"><u>Quick Introduction to the Chinese Alphabet, Chinese Characters and Pinyin</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/russian-counting-companion-for-new-learners/"><u>Russian Counting Companion for New Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/russian-greetings-common-phrases-and-basic-words/"><u>Russian Greetings: Common Phrases and Basic Words</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ified-design-guide-add-your-own-style-to-your-video-shorts/"><u>Simplified Design Guide Add Your Own Style to Your Video Shorts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/skyrocket-sales-the-secret-of-sophisticated-biz-dialogue/"><u>Skyrocket Sales: The Secret of Sophisticated Biz Dialogue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speedy-catalan-comprehension-minutes-only/"><u>Speedy Catalan Comprehension, Minutes Only</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>Will iSpoofer update On Realme Narzo 60x 5G | Dr.fone</u></a></li>
 </ul></div>
 

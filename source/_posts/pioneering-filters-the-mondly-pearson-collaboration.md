@@ -1,7 +1,7 @@
 ---
 title: "Pioneering Filters: The Mondly-Pearson Collaboration"
-date: 2024-10-25T08:50:36.892Z
-updated: 2024-10-29T18:13:34.122Z
+date: 2024-10-29T01:15:55.657Z
+updated: 2024-11-05T01:23:47.998Z
 tags:
   - speak
   - english
@@ -40,10 +40,16 @@ thumbnail: https://thmb.techidaily.com/3f22ae9e837b10e05053cf12480b5c15e8d166c20
  At Pearson, our purpose is simple: to add life to a lifetime of learning. We believe that every learning opportunity is a chance for a personal breakthrough. That’s why our c.20,000 Pearson employees are committed to creating vibrant and enriching learning experiences designed for real-life impact. We are the world’s leading learning company, serving customers in more than 200 countries with digital content, assessments, qualifications, and data. For us, learning isn’t just what we do. It’s who we are. Visit us at pearsonplc.com
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424533">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **About Mondly**
@@ -67,22 +73,21 @@ thumbnail: https://thmb.techidaily.com/3f22ae9e837b10e05053cf12480b5c15e8d166c20
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-live-tv-saving-made-simple-with-free-software-tools/"><u>[New] In 2024, Live TV Saving Made Simple with Free Software Tools</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-mastering-media-integration-adding-online-yt-videos-to-ppts-for-2024/"><u>[Updated] Mastering Media Integration Adding Online YT Videos to PPTs for 2024</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/updated-tiktoks-legal-boundaries-understanding-pre-upload-rights/"><u>[Updated] TikTok's Legal Boundaries Understanding Pre-Upload Rights</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722801164304-experience-ultimate-clarity-with-lgs-c9-a-comprehensive-65-oled-television-showcase/"><u>Experience Ultimate Clarity with LG's C9 - A Comprehensive 65 OLED Television Showcase!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fine-tune-your-tongue-top-100-accent-boosting-twisters/"><u>Fine-Tune Your Tongue: Top 100 Accent-Boosting Twisters</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/fresh-face-finds-budget-friendly-platforms-to-purchase-for-2024/"><u>Fresh Face Finds Budget-Friendly Platforms to Purchase for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/grasping-english-grammar-nuances-top-9-strategies-from-a-lifelong-esl-learner/"><u>Grasping English Grammar Nuances: Top 9 Strategies From a Lifelong ESL Learner</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-apple-iphone-13-to-computer-drfone-by-drfone-ios/"><u>In 2024, How to Stream Apple iPhone 13 to Computer? | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-will-ispoofer-update-on-vivo-y100i-drfone-by-drfone-virtual-android/"><u>In 2024, Will iSpoofer update On Vivo Y100i | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/journey-through-vietnam-with-key-phrases-compiled/"><u>Journey Through Vietnam with Key Phrases Compiled</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/master-chat-essential-17-spontaneous-spanish-phrases/"><u>Master Chat: Essential 17 Spontaneous Spanish Phrases</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/no-more-walls-mondly-bridges-linguistic-gaps-in-ukraine/"><u>No More Walls: Mondly Bridges Linguistic Gaps in Ukraine</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/revolutionize-language-skills-7-reasons-for-afrikaans-on-mondly/"><u>Revolutionize Language Skills: 7 Reasons for Afrikaans on Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/saying-thanks-in-30-languages-an-intercultural-companion-154/"><u>Saying Thanks in 30 Languages: An Intercultural Companion (154)</u></a></li>
-<li><a href="https://common-error.techidaily.com/solution-found-non-functional-toshiba-keyboard-fixed-now/"><u>Solution Found: Non-Functional Toshiba Keyboard Fixed Now</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/unlock-your-creativity-fast-crafting-melodies-in-minutes-with-microsoft-copilots-ai-assistance/"><u>Unlock Your Creativity Fast: Crafting Melodies in Minutes with Microsoft Copilot's AI Assistance</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/words-without-borders-explore-cultures-in-virtual-reality/"><u>Words Without Borders: Explore Cultures in Virtual Reality</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-quick-guide-merging-igtv-with-instagram-stories/"><u>[New] In 2024, Quick Guide Merging IGTV with Instagram Stories</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-clear-vision-through-stillness-control/"><u>[Updated] Clear Vision Through Stillness Control</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-superior-cameras-for-frame-by-frame-creation/"><u>[Updated] In 2024, Superior Cameras for Frame-by-Frame Creation</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-game-enhancing-screens-top-5-for-ps5-and-xbox-gamers/"><u>2024 Approved Game-Enhancing Screens Top 5 for PS5 & Xbox Gamers</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-instant-inspiration-free-video-intro-kits/"><u>2024 Approved Instant Inspiration - Free Video Intro Kits</u></a></li>
+<li><a href="https://article-helps.techidaily.com/eliminating-iphones-inability-to-autofocus-on-targets-for-2024/"><u>Eliminating iPhone's Inability to Autofocus on Targets for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-on-vivo-y78plus-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location on Vivo Y78+ | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-warmly-welcome-in-chinese-social-settings/"><u>How To Warmly Welcome In Chinese Social Settings</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-no-fluff-just-facts-the-verdict-on-recordcast/"><u>In 2024, No Fluff, Just Facts The Verdict on RecordCast</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-honor-magic-6-pro-drfone-by-drfone-virtual-android/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On Honor Magic 6 Pro | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/infatuation-inkling-german-flirtations/"><u>Infatuation Inkling: German Flirtations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/neurospeak-language-mastery-through-virtual-reality/"><u>NeuroSpeak: Language Mastery Through Virtual Reality</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-polish-learning-techniques/"><u>Quick Polish Learning Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sprint-your-way-through-urdu-ten-minutes-daily/"><u>Sprint Your Way Through Urdu: Ten Minutes Daily</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-iberian-code-deciphering-the-sounds-of-spanish-and-portuguese/"><u>The Iberian Code: Deciphering the Sounds of Spanish and Portuguese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-pearson-way-to-fluent-multilingualism/"><u>The Pearson Way to Fluent Multilingualism</u></a></li>
 </ul></div>
 

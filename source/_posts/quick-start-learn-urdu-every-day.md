@@ -1,7 +1,7 @@
 ---
 title: "Quick Start: Learn Urdu, Every Day"
-date: 2024-10-27T02:24:15.520Z
-updated: 2024-10-29T23:09:01.131Z
+date: 2024-10-28T19:17:30.537Z
+updated: 2024-11-04T17:22:07.398Z
 tags:
   - speak
   - english
@@ -35,10 +35,16 @@ thumbnail: https://thmb.techidaily.com/d3d14caf519c1def322723a3dc59c24a3c8f8aede
  Moreover, in the 19th century, the Hindi–Urdu [controversy](https://en.wikipedia.org/wiki/Hindi%E2%80%93Urdu%5Fcontroversy) arose in colonial India. The debate was whether Hindi or Urdu should be chosen as a national language. In 1900, the government issued a decree granting symbolic equal status to both Hindi and Urdu. But then, Gandhi proposed using either Devanagari or Urdu script, under the traditional generic term Hindustani. Therefore, in 1950, Hindi, in the Devanagari script, along with English, replaced Urdu as one of the official languages of India.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Learn Urdu from Hindi, Arabic, English, Korean and more
@@ -48,10 +54,10 @@ thumbnail: https://thmb.techidaily.com/d3d14caf519c1def322723a3dc59c24a3c8f8aede
  Starting right now, you can [learn Urdu](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4511&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4511?mother%5Flang=en%5Fus?target%5Flang=ur&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4511?mother%5Flang=en%5Fus?target%5Flang=ur) from Hindi, Arabic, English, Korean and 29 other languages only with Mondly.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 10 basic Urdu words and phrases you can learn right now
@@ -75,10 +81,10 @@ thumbnail: https://thmb.techidaily.com/d3d14caf519c1def322723a3dc59c24a3c8f8aede
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Speak Urdu today
@@ -104,24 +110,20 @@ thumbnail: https://thmb.techidaily.com/d3d14caf519c1def322723a3dc59c24a3c8f8aede
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-comparing-streams-vimeo-versus-youtube-for-2024/"><u>[New] Comparing Streams Vimeo Versus YouTube for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-perfect-your-visuals-on-insta-with-these-borders-for-2024/"><u>[New] Perfect Your Visuals on Insta with These Borders for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-proven-methods-to-excellence-in-srt-file-design/"><u>[New] Proven Methods to Excellence in SRT File Design</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/5-common-misconceptions-about-learning-multiple-languages/"><u>5 Common Misconceptions About Learning Multiple Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/abschiedsbittelemente-fur-deutschsprachige-beziehrangelegenheiten/"><u>Abschiedsbittelemente Für Deutschsprachige Beziehrangelegenheiten</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/belgiums-polyglot-population-speaks-which/"><u>Belgium's Polyglot Population Speaks Which?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/break-language-barriers-oculus-quest-adds-mondly-to-its-app-suite/"><u>Break Language Barriers: Oculus Quest Adds Mondly to Its App Suite</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bridging-cultures-with-germanys-essential-idioms-top-25/"><u>Bridging Cultures with Germany's Essential Idioms (Top 25)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/connect-worldwide-mondlys-exceptional-language-app/"><u>Connect Worldwide: Mondly's Exceptional Language App</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/daily-routine-learning-urdu-in-moments/"><u>Daily Routine: Learning Urdu in Moments</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/download-any-website-videos-with-ease-using-our-comprehensive-video-extractor-tool/"><u>Download Any Website Videos with Ease Using Our Comprehensive Video Extractor Tool</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/empowering-ukraines-citizens-through-learning/"><u>Empowering Ukraine's Citizens Through Learning</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/for-beginners-leveraging-facebook-data-with-ease/"><u>For Beginners Leveraging Facebook Data with Ease</u></a></li>
-<li><a href="https://blog-min.techidaily.com/gratuito-online-convertidor-de-archivos-3gp-a-wmv-con-movavi-sin-coste/"><u>Gratuito Online: Convertidor De Archivos 3GP a WMV Con Movavi - Sin Coste</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-by-checkra1n-even-from-apple-iphone-11-if-youve-tried-everything-by-drfone-ios/"><u>How To Bypass iCloud By Checkra1n Even From Apple iPhone 11 If Youve Tried Everything</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-top-tier-vr-engine-software-a-comprehensive-review/"><u>In 2024, Top-Tier VR Engine Software A Comprehensive Review</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ating-through-common-youtube-short-difficulties/"><u>Navigating Through Common YouTube Short Difficulties</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ing-up-youtube-your-first-gear-list/"><u>Starting Up YouTube - Your First Gear List</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579187330-the-finest-3-online-schools-learn-languages-with-precision-and-passion/"><u>The Finest 3 Online Schools: Learn Languages with Precision & Passion!</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-inshot-showdown-expert-review-of-best-editing-software/"><u>[New] 2024 Approved InShot Showdown Expert Review of Best Editing Software</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-a-list-of-the-best-marriage-videos-celebrations-captured-online-8/"><u>[Updated] 2024 Approved A List of the Best Marriage Videos - Celebrations Captured Online (8)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-binge-on-christmas-classics-enjoy-9-whole-film-flicks-no-charge-for-2024/"><u>[Updated] Binge on Christmas Classics Enjoy 9 Whole-Film Flicks No Charge for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-cutting-edge-editing-integrating-luts-into-your-ae-workflow/"><u>[Updated] Cutting Edge Editing Integrating LUTs Into Your AE Workflow</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-todays-virtual-realty-hardware-exploration/"><u>[Updated] Today’s Virtual Realty Hardware Exploration</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-navigating-copyright-laws-for-instagram-music-postings/"><u>2024 Approved Navigating Copyright Laws for Instagram Music Postings</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/immediate-insta-photo-series-viewing/"><u>Immediate Insta Photo Series Viewing</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-snap-your-next-podcast-pick-for-sharing/"><u>In 2024, Snap Your Next Podcast Pick for Sharing</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Apple iPhone 15 Plus? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/scandinavian-cinema-unveiled-perfect-your-danish-skills/"><u>Scandinavian Cinema Unveiled: Perfect Your Danish Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/streaming-for-success-learn-german-from-dark-on-tv/"><u>Streaming for Success: Learn German From Dark on TV</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tage-des-deutschen-jahreszyklus-lernen/"><u>Tage Des Deutschen Jahreszyklus Lernen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-polyglot-saint-nick-language-exploration/"><u>The Polyglot Saint Nick: Language Exploration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-the-roots-of-us-and-uk-vernaculars/"><u>Understanding the Roots of US and UK Vernaculars</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/urdu-101-essential-vocabulary-list-for-starters/"><u>Urdu 101: Essential Vocabulary List for Starters</u></a></li>
 </ul></div>
 
